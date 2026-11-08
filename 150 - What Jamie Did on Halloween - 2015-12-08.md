@@ -40,11 +40,11 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:02:13] Will: I'm cool.
 
-[00:02:13] Adam: but didn't they? Am I right that I read this that Lucasfilm is actually showing they're they're actually going to be taking over all the IMAX theaters,
+[00:02:13] Adam: but didn't they? Am I right that I read this that Lucasfilm is actually showing they're actually going to be taking over all the IMAX theaters,
 
 [00:02:23] Will: all the IMAXes
 
-[00:02:23] Norm: too? Right, IMAX is a brand. Um, is in in science centers, they're in big theaters, but they're also in converted other theaters where they push up the screen and they use IMAX projectors. So the current latest generation of IMAX projectors are the IMAX laser projectors, and they're digital. They're digital.
+[00:02:23] Norm: too? Right, IMAX is a brand. Is in science centers, they're in big theaters, but they're also in converted other theaters where they push up the screen and they use IMAX projectors. So the current latest generation of IMAX projectors are the IMAX laser projectors, and they're digital. They're digital.
 
 [00:02:41] Adam: It's really hard to do that not on felt.
 
@@ -66,7 +66,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:03:09] Will: Oh, I am so sorry.
 
-[00:03:10] Norm: You know, people have offered you tickets for the tour.
+[00:03:10] Norm: People have offered you tickets for the tour.
 
 [00:03:13] Adam: Really?
 
@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:04:24] Norm: Oh my goodness!
 
-[00:04:25] Will: What an amazing San Francisco Fresno the 18th. The fates are aligned. They're they're dueling. Um. Hey,
+[00:04:25] Will: What an amazing San Francisco Fresno the 18th. The fates are aligned. They're dueling. Hey,
 
 [00:04:33] Adam: nice. Well done, Will.
 
@@ -140,7 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:05:01] Adam: The eighth Quentin Tarantino film. Oh, you haven't seen it?
 
-[00:05:10] Will: I'm I'm gonna go totally cold on this. I don't want to see any of this.
+[00:05:10] Will: I'm gonna go totally cold on this. I don't want to see any of this.
 
 [00:05:15] Adam: Oh, it looks really good.
 
@@ -170,17 +170,17 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:05:37] Will: Oh,
 
-[00:05:37] Norm: but it's a it's a stage play.
+[00:05:37] Norm: but it's a stage play.
 
-[00:05:38] Adam: Okay. Uh, uh, uh, Kurt Russell
+[00:05:38] Adam: Okay. Kurt Russell
 
 [00:05:41] Will: is Madsen in it?
 
-[00:05:42] Adam: Uh, Michael Madsen is in it. Um, uh, God, who else? Who else am I forgetting? Jennifer Jason Leigh.
+[00:05:42] Adam: Michael Madsen is in it. God, who else? Who else am I forgetting? Jennifer Jason Leigh.
 
 [00:05:49] Will: Nice.
 
-[00:05:49] Adam: Oh yeah. Uh,
+[00:05:49] Adam: Oh yeah.
 
 [00:05:52] Norm: Christoph Waltz.
 
@@ -188,15 +188,15 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:05:54] Adam: I don't. I don't think I saw him. Samuel Jackson
 
-[00:05:56] Will: wasn't Jennifer Jason Leigh originally up for the Mia Wallace role or something? She she's she's been on his list of people to bring into movies for a long time, as I recall.
+[00:05:56] Will: wasn't Jennifer Jason Leigh originally up for the Mia Wallace role or something? She she's been on his list of people to bring into movies for a long time, as I recall.
 
-[00:06:02] Adam: Jennifer Jason Leigh. We haven't talked about her on the podcast, but she is one of the just great actresses of all time. I I revere her. I love her. She's amazing in everything she does. Um, you know when you see her in the Hudsucker Proxy, and then you watch her in uh in something like Miami Blues with Alec Baldwin,
+[00:06:02] Adam: Jennifer Jason Leigh. We haven't talked about her on the podcast, but she is one of the just great actresses of all time. I revere her. I love her. She's amazing in everything she does. You know when you see her in the Hudsucker Proxy, and then you watch her in something like Miami Blues with Alec Baldwin,
 
 [00:06:02] Unknown speaker: I never saw that.
 
 [00:06:02] Adam: which is a really dark and intense, brilliant, lovely movie.
 
-[00:06:27] Will: Is that a um? Who is that a? Is that a um? Um, who wrote Glengarry and Ross? I'm completely blanking.
+[00:06:27] Will: Is that a? Who is that a? Is that a? Who wrote Glengarry and Ross? I'm completely blanking.
 
 [00:06:33] Adam: David Mamet. It's not a Mamet film. I don't think so.
 
@@ -232,9 +232,9 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:07:31] Adam: like you'd imagine a real thing might look, and it has an incredible substance and weight to it.
 
-[00:07:37] Will: I would imagine that stormtrooper helmets. I don't think the Empire really cares about the comfort of its of its shock troopers.
+[00:07:37] Will: I would imagine that stormtrooper helmets. I don't think the Empire really cares about the comfort of its shock troopers.
 
-[00:07:43] Adam: Well, no, clearly they haven't. But now I've got I've got a multitude of stormtrooper helmets. I think I own five altogether.
+[00:07:43] Adam: Well, no, clearly they haven't. But now I've got a multitude of stormtrooper helmets. I think I own five altogether.
 
 [00:07:51] Will: Can I ask a question?
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:07:59] Will: I mean, it didn't work against the blasters.
 
-[00:08:01] Adam: You know, my favorite, my my favorite, my favorite regular con joke is that when anyone's taking pictures with a stormtrooper, they say point the gun at me, and the stormtrooper goes like this: " Point it very far away."
+[00:08:01] Adam: You know, my favorite regular con joke is that when anyone's taking pictures with a stormtrooper, they say point the gun at me, and the stormtrooper goes like this: " Point it very far away."
 
 [00:08:12] Norm: That's great.
 
@@ -256,13 +256,13 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:08:17] Will: no. It's useless.
 
-[00:08:18] Adam: And it should, because the Ewoks need to be. I my my thing one and thing two know for a fact that the way to annoy their stepmom, my wife, is by making Ewok impressions.
+[00:08:18] Adam: And it should, because the Ewoks need to be. I my thing one and thing two know for a fact that the way to annoy their stepmom, my wife, is by making Ewok impressions.
 
 [00:08:30] Unknown speaker: Yep, yep.
 
 [00:08:30] Adam: And go jiggle, motherfucker! And she's like, " Ah, I hate those freaking Ewoks."
 
-[00:08:36] Will: What? Um, have you watched Return of the Jedi lately? Have you gone back and revisited it as an adult?
+[00:08:36] Will: What? Have you watched Return of the Jedi lately? Have you gone back and revisited it as an adult?
 
 [00:08:40] Adam: Why would I?
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:08:47] Adam: Look, I love the darkness of the beginning with Luke, and I love Leia turning out to be the one with the bounty hunter Han, helpless. Lando. I mean, yeah, no, no, no. It's just it's the freaking Ewoks, man. They're just horrible.
 
-[00:09:01] Will: The rest of that whole sequence is great, right? Like because it's it's intercut really beautifully. Has this amazing pace.
+[00:09:01] Will: The rest of that whole sequence is great, right? Like because it's intercut really beautifully. Has this amazing pace.
 
 [00:09:07] Adam: Noodles and the band is awesome.
 
@@ -316,9 +316,9 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:09:42] Norm: Yeah, you can see where the gas refill is.
 
-[00:09:44] Adam: I want. Uh. Uh. I want Han's jacket.
+[00:09:44] Adam: I want. I want Han's jacket.
 
-[00:09:49] Will: The the old Han jacket.
+[00:09:49] Will: The old Han jacket.
 
 [00:09:50] Adam: Yeah. I want old Han jacket.
 
@@ -330,7 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:09:54] Adam: The teaser trailer where he says, " Chewie, we're home." I was just like, " We just watched the trailer just prior to this, and Will and I were both demonstrating genuine chicken skin."
 
-[00:10:05] Will: You know, I think I wish that I knew somebody who had a show where you could test myths, because I would love to know. I think that they can do that with like harmonics that you can't hear. I think that's a thing you can induce.
+[00:10:05] Will: I think I wish that I knew somebody who had a show where you could test myths, because I would love to know. I think that they can do that with like harmonics that you can't hear. I think that's a thing you can induce.
 
 [00:10:17] Norm: . Yeah, it's like instead of the brown noise, it's the
 
@@ -356,7 +356,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:10:52] Unknown speaker: Yeah.
 
-[00:10:53] Norm: So last week we took questions from from the audience and people tweeted us and emailed us and we answered. I think two two questions.
+[00:10:53] Norm: So last week we took questions from the audience and people tweeted us and emailed us and we answered. I think two two questions.
 
 [00:11:00] Will: It was that. I mean, that's one question every seven and a half or eight minutes. That's pretty good.
 
@@ -366,7 +366,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:11:18] Norm: No, they're different chips.
 
-[00:11:19] Adam: The the the chips that I'm that Will and I are playing with here are my replica Rounders chips. Yes, I have a full massive. I think
+[00:11:19] Adam: The chips that I'm that Will and I are playing with here are my replica Rounders chips. Yes, I have a full massive. I think
 
 [00:11:29] Will: It’s a full rack.
 
@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:12:01] Will: Yes.
 
-[00:12:01] Adam: Um, and I've always wanted a set of rounder chips, and a few years ago, I I had a replica set manufactured.
+[00:12:01] Adam: And I've always wanted a set of rounder chips, and a few years ago, I I had a replica set manufactured.
 
 [00:12:06] Will: It's one of Matt Damon's finest early films.
 
@@ -390,13 +390,13 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:12:21] Will: Did you go through a poker phase? Did you play poker?
 
-[00:12:23] Adam: I did. We played poker for several years with some friends every Sunday night, and I actually have a set of custom chips I had made called Sunday Night Chips in the denominations we played in. $40 buy-in. Um,
+[00:12:23] Adam: I did. We played poker for several years with some friends every Sunday night, and I actually have a set of custom chips I had made called Sunday Night Chips in the denominations we played in. $40 buy-in.
 
 [00:12:35] Will: that's a good. That's a good. That's the right stakes.
 
 [00:12:37] Adam: Solid stinging loss when you have to buy in three or four times.
 
-[00:12:41] Will: The the weight on these
+[00:12:41] Will: The weight on these
 
 [00:12:42] Norm: rebuy?
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:12:44] Will: You played limit or no limit?
 
-[00:12:46] Adam: Um, we. No, we didn't have a limit. It was all in.
+[00:12:46] Adam: We. No, we didn't have a limit. It was all in.
 
 [00:12:51] Will: It was all in.
 
@@ -424,7 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:13:13] Will: Okay.
 
-[00:13:13] Adam: Um, my friend Adam,
+[00:13:13] Adam: My friend Adam,
 
 [00:13:16] Will: your neighbor, by the way, is doing some heavy duty woodworking over there. So apologies for the sound.
 
@@ -440,7 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:13:53] Will: What he didn't bet big enough in the. I mean, he you have to slow play four jacks, right?
 
-[00:13:58] Adam: He was playing a he was playing a player who really liked aces and chasing the aces. And Adam was slow playing because he's a brilliant poker player. But.
+[00:13:58] Adam: He was playing a player who really liked aces and chasing the aces. And Adam was slow playing because he's a brilliant poker player. But.
 
 [00:14:08] Will: is this the Adam we know?
 
@@ -472,19 +472,19 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:15:08] Will: that that's completely unpredictable.
 
-[00:15:10] Adam: It is totally unpredictable, and we've you know it was it was a lovely game for a while, but we've been thinking lately we've got to do it again. And I think in January I'm going to start up a regular night game because it's really fun to do. Have you had a poker game?
+[00:15:10] Adam: It is totally unpredictable, and we've you know it was a lovely game for a while, but we've been thinking lately we've got to do it again. And I think in January I'm going to start up a regular night game because it's really fun to do. Have you had a poker game?
 
-[00:15:22] Will: We had future when we were making magazines. We had a weekly game. It was like Tuesday night after work, and we would play until ten or eleven o'clock at night, and it was like a $20 buy-in because you know we were journalists. Yeah, $40. I mean that's that's like a week's salary.
+[00:15:22] Will: We had future when we were making magazines. We had a weekly game. It was like Tuesday night after work, and we would play until ten or eleven o'clock at night, and it was like a $20 buy-in because you know we were journalists. Yeah, $40. I mean that's like a week's salary.
 
 [00:15:35] Adam: That's two articles.
 
-[00:15:36] Will: Yeah, the oh, that's too close, man. The the the but yeah, it was we would play we played. I want to say we played limit for a long time, and then we occasionally, if people felt like they were going to stay around, we play a tournament. So we we do a $20 buy in, and then winner takes all, and you could do rebuys once.
+[00:15:36] Will: Yeah, the oh, that's too close, man. The but yeah, it was we would play we played. I want to say we played limit for a long time, and then we occasionally, if people felt like they were going to stay around, we play a tournament. So we do a $20 buy in, and then winner takes all, and you could do rebuys once.
 
-[00:15:53] Adam: We never did it. I think we we maybe did a tournament once, where immediately after three people were out, they just started a side game.
+[00:15:53] Adam: We never did it. I think we maybe did a tournament once, where immediately after three people were out, they just started a side game.
 
-[00:16:00] Will: Yeah, the problem with the tournament is unless you have enough people to start the side game, then it's then it's no.
+[00:16:00] Will: Yeah, the problem with the tournament is unless you have enough people to start the side game, then it's no.
 
-[00:16:04] Adam: You need a you just need seven or eight people for a tournament. Yeah. Um, but should we get to questions?
+[00:16:04] Adam: You need a you just need seven or eight people for a tournament. Yeah. But should we get to questions?
 
 [00:16:08] Will: We might as well. Yeah. Sorry.
 
@@ -496,15 +496,15 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:16:14] Norm: We're going to talk about the ending of the day. So, Samuel asks, " How do you clean up after the destruction and the explosions? What is is there a leave no trace policy?
 
-[00:16:22] Adam: Absolutely, there's a leave no trace policy. Um, MythBusters wouldn't be MythBusters if we didn't have the incredible relationships we have with vendors all over the Bay Area, from the Alameda County Sheriff's Department to the to the Alameda Naval Station runway to the Altamont Landfills to All the other military bases we use in the Bay Area, we have great relationships with all of them because we absolutely leave the place as we found it or better.
+[00:16:22] Adam: Absolutely, there's a leave no trace policy. MythBusters wouldn't be MythBusters if we didn't have the incredible relationships we have with vendors all over the Bay Area, from the Alameda County Sheriff's Department to the Alameda Naval Station runway to the Altamont Landfills to All the other military bases we use in the Bay Area, we have great relationships with all of them because we absolutely leave the place as we found it or better.
 
 [00:16:50] Norm: How, Is it difficult? I mean, to clean up after and prepare for.
 
-[00:16:54] Adam: You know, for years up until like I'd say 2009, 2010, it was it was Jamie and I were were doing a good portion of it.
+[00:16:54] Adam: For years up until like I'd say 2009, 2010, it was Jamie and I were doing a good portion of it.
 
 [00:17:03] Will: You guys all just all walk the field afterwards and pick up scrap and carry back,
 
-[00:17:06] Adam: yeah, and get everything into the trucks and everything. With the greater demands on our time from other appearances and discovery, et cetera, we've been able to build a bigger crew over the years, and we have a a great crew, and we have some expansion people who we hire on a on a on a per shoot basis to come in and do cleanup and to do uh to do both some sometimes early setup like you know we need 300 cones placed around a runway for driving. We'll send out a map and have somebody set it up before we arrive in order to save time.
+[00:17:06] Adam: yeah, and get everything into the trucks and everything. With the greater demands on our time from other appearances and discovery, et cetera, we've been able to build a bigger crew over the years, and we have a great crew, and we have some expansion people who we hire on a per shoot basis to come in and do cleanup and to do both some sometimes early setup like you know we need 300 cones placed around a runway for driving. We'll send out a map and have somebody set it up before we arrive in order to save time.
 
 [00:17:37] Norm: What's been the most difficult cleanup or one of the most? You remember
 
@@ -542,7 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:18:39] Adam: I actually
 
-[00:18:40] Norm: no no from from the filming from your film.
+[00:18:40] Norm: no no from the filming from your film.
 
 [00:18:42] Will: oh from MythBusters
 
@@ -560,7 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:18:53] Norm: where would you want to go back and then the B part question maybe which I think is what he was asking is for actual film
 
-[00:18:59] Adam: um so we have we get a lot of production value out of MythBusters without ever really having to travel for the most part we do we've done 95% of what we needed to do here in San Francisco or within a day's drive we did get to travel to Africa in the mid 2000s
+[00:18:59] Adam: So we have we get a lot of production value out of MythBusters without ever really having to travel for the most part we do we've done 95% of what we needed to do here in San Francisco or within a day's drive we did get to travel to Africa in the mid 2000s
 
 [00:19:14] Will: oh wow
 
@@ -568,23 +568,23 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:19:27] Will: why do they do it there and not elsewhere is it just fun?
 
-[00:19:29] Adam: nobody knows nobody knows it's like the culture of the sharks is such that that's how they kill the seals on Seal Island out there in the middle of False Bay
+[00:19:29] Adam: nobody knows it's like the culture of the sharks is such that that's how they kill the seals on Seal Island out there in the middle of False Bay
 
 [00:19:36] Will: got it.
 
-[00:19:36] Adam: Um, that was amazing. Being in Africa was the only time I've been was astounding and really sort of life changing. Um, afterwards we went to an amazing reserve called the Shamwari Nature Preserve. Um, we did a safari, and it was it was incredible. I would totally go back there in a heartbeat. Um, in if I could visit any films,
+[00:19:36] Adam: That was amazing. Being in Africa was the only time I've been was astounding and really sort of life changing. Afterwards we went to an amazing reserve called the Shamwari Nature Preserve. We did a safari, and it was incredible. I would totally go back there in a heartbeat. In if I could visit any films,
 
 [00:19:57] Norm: yeah, film set or production,
 
-[00:19:59] Adam: I mean, it'd be hard to pass up just wanting to visit the Millennium Falcon on the original set of Star Wars. Um, and it's The Shining is an interesting one, but I I might find myself more interested in visiting the set of 2001 simply because of this. I don't know.. That was the first thing that came to my mind.
+[00:19:59] Adam: I mean, it'd be hard to pass up just wanting to visit the Millennium Falcon on the original set of Star Wars. And it's The Shining is an interesting one, but I I might find myself more interested in visiting the set of 2001 simply because of this. I don't know.. That was the first thing that came to my mind.
 
 [00:20:18] Will: I figured it would be a Kubrick, but I wasn't sure which one.
 
-[00:20:20] Adam: But you know, at the same time, visiting, you know, what would it have been like to watch an under 30 year old Steven Spielberg directing Jaws and solving those problems on a day to day basis and basically. Inventing the mod, the a genre of film with that movie.
+[00:20:20] Adam: But at the same time, visiting, you know, what would it have been like to watch an under 30 year old Steven Spielberg directing Jaws and solving those problems on a day to day basis and basically. Inventing the mod, the a genre of film with that movie.
 
 [00:20:39] Norm: It'd be every. Why isn't the shark working today? Why isn't the shark working today?
 
-[00:20:43] Adam: Um, did you see that lovely video that got posted on the internet last week called " The Power of Props"?
+[00:20:43] Adam: Did you see that lovely video that got posted on the internet last week called " The Power of Props"
 
 [00:20:48] Unknown speaker: Yes.
 
@@ -592,15 +592,15 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:20:49] Norm: Posted on [unclear: Dustin]. Yeah.
 
-[00:20:49] Adam: It was a lovely. Oh, we did. Right. Good. Good. Good. Um, it it was really terrific and talked about the power of the MacGuffin, yeah, the thing that draws your attention and it becomes a focal point of the plot. Um, but then you know, so I vacillate between wanting to visit certain sets, but also wanting to visit great directors and watching them. Watching Cameron directs Terminator or Alien.
+[00:20:49] Adam: It was a lovely. Oh, we did. Right. Good. Good. Good. It was really terrific and talked about the power of the MacGuffin, yeah, the thing that draws your attention and it becomes a focal point of the plot. But then so I vacillate between wanting to visit certain sets, but also wanting to visit great directors and watching them. Watching Cameron directs Terminator or Alien.
 
-[00:21:14] Norm: It's why so much should be documented, and I know it's not built because movies are made. They only have so many shooting days. When you're when a producer is talking about the budget, their their goal is to make a movie. It's not to document the process.
+[00:21:14] Norm: It's why so much should be documented, and I know it's not built because movies are made. They only have so many shooting days. When you're when a producer is talking about the budget, their goal is to make a movie. It's not to document the process.
 
-[00:21:25] Will: But I mean, if you think if you think back about like one of the first things I saw that was showed behind the scenes was that thing that ran on CBS after they aired Star Wars the first time or maybe the second time.
+[00:21:25] Will: But I mean, if you think back about like one of the first things I saw that was showed behind the scenes was that thing that ran on CBS after they aired Star Wars the first time or maybe the second time.
 
 [00:21:35] Adam: Oh, really?
 
-[00:21:35] Will: So they had a how the behind the magic kind of. Kind of how the effects were made that showed how the motion control cameras worked, how they turned you know essentially you know plastic sticks into lightsabers with rotoscoping and all that kind of stuff, and that that showed me, ah, it took a lot of the magic away, but in a really positive way because it was much more, like I understood it much better as a result of that, and appreciated it much more when I saw how how dozens and dozens and hundreds of people were working together to make one three second shot of you know three x wings swooping down to the Death Star trench or whatever it was.
+[00:21:35] Will: So they had a how the behind the magic kind of. Kind of how the effects were made that showed how the motion control cameras worked, how they turned you know essentially you know plastic sticks into lightsabers with rotoscoping and all that kind of stuff, and that that showed me, ah, it took a lot of the magic away, but in a really positive way because it was much more, like I understood it much better as a result of that, and appreciated it much more when I saw how how dozens and hundreds of people were working together to make one three second shot of you know three x wings swooping down to the Death Star trench or whatever it was.
 
 [00:22:10] Adam: The thing that you bring up is that that's hard to do is that you know there is a lot of documentation on every feature film now. There are people dedicated just to shooting that stuff, but at the same time it's a messy process, and you know every director has their proclivities, and I don't think they necessarily want you to see footage of them getting upset because it's super stressful and things aren't working or things are working.
 
@@ -652,11 +652,11 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:24:46] Adam: Oh.
 
-[00:24:46] Norm: at Kamikaze, there were people to get close up to and take pictures of. Casper Van Dien came by and and did a great photo with his holding the Starship Troopers guns.
+[00:24:46] Norm: at Kamikaze, there were people to get close up to and take pictures of. Casper Van Dien came by and did a great photo with his holding the Starship Troopers guns.
 
 [00:24:55] Adam: The Morita? Oh, that's awesome! That's fabulous! I have always heard that Casper Van Dien is a terrific guy.
 
-[00:25:01] Norm: Yeah, he seemed really nice. He he partook in the cosplay contest. Casper Van Dien as Casper Van Dien.
+[00:25:01] Norm: Yeah, he seemed really nice. He partook in the cosplay contest. Casper Van Dien as Casper Van Dien.
 
 [00:25:07] Will: Wouldn’t they do
 
@@ -702,7 +702,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:25:56] Norm: So now the questions kind of go away from MythBusters and more about what your interest and what you're doing. Someone asked if you now you have more time, and if have you thought about writing a book? And if you were going to write a book, what would you want that book to be about?
 
-[00:26:07] Adam: Ah, I think it's worth just stating outright. Yeah, I do have a book. I would like to. I would like to write. I mean, I have an outline that I wrote 12 years ago and have augmented since then here and there. I'd like to write a really definitive model making manual. I've got over there. I built a new bookshelf last week, and it's that's all my model making books. I've I collect them whenever I can. So I've got probably about 100 written all the way back to the '20s. Um, but the type of model making that I do, that I learned to do, is different than most model making manuals, which are for home hobbyists and train enthusiasts and stuff like that. And that, speed is really of the essence. Time and money are the the things you have to battle to build stuff for film.
+[00:26:07] Adam: Ah, I think it's worth just stating outright. Yeah, I do have a book. I would like to. I would like to write. I mean, I have an outline that I wrote 12 years ago and have augmented since then here and there. I'd like to write a really definitive model making manual. I've got over there. I built a new bookshelf last week, and it's that's all my model making books. I've I collect them whenever I can. So I've got probably about 100 written all the way back to the '20s. But the type of model making that I do, that I learned to do, is different than most model making manuals, which are for home hobbyists and train enthusiasts and stuff like that. And that, speed is really of the essence. Time and money are the things you have to battle to build stuff for film.
 
 [00:26:57] Will: It's the good, fast, or cheap, right?
 
@@ -712,15 +712,15 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:27:05] Will: Yeah.
 
-[00:27:06] Adam: You can have it good and fast, but it won't be cheap. You can have it good and cheap, but it won't be fast. Etc. Etc. Um, and I have this manual of really going deeply into model making the way we do it in film, which is with time and with time being a significant factor to to be defeated, as it were. Um, so I don't have time to spray something with a clear coat and let it dry for a week. I need it to be shiny right now and handleable right now. So instead of using a clear lacquer, clear coat, I'll actually airbrush floor wax onto something because I can build up super shiny coats with that.
+[00:27:06] Adam: You can have it good and fast, but it won't be cheap. You can have it good and cheap, but it won't be fast. Etc. Etc. And I have this manual of really going deeply into model making the way we do it in film, which is with time and with time being a significant factor to be defeated, as it were. So I don't have time to spray something with a clear coat and let it dry for a week. I need it to be shiny right now and handleable right now. So instead of using a clear lacquer, clear coat, I'll actually airbrush floor wax onto something because I can build up super shiny coats with that.
 
-[00:27:42] Will: Well, this kind of thing. This is one of the things that when we first started coming into your shop and watching you work, I was absolutely like, I was flummoxed, right? Because you you regularly do things that if you go to high school shop class or even even I assume a higher level, you know, an artisan school or trade school, then then like they would they would frown upon. So things you know, the old measure twice, cut once. Your approach is, in my experience, has been cut it. We'll figure it out if it doesn't work. A lot of times, which works.
+[00:27:42] Will: Well, this kind of thing. This is one of the things that when we first started coming into your shop and watching you work, I was absolutely like, I was flummoxed, right? Because you regularly do things that if you go to high school shop class or even even I assume a higher level, you know, an artisan school or trade school, then like they would frown upon. So things you know, the old measure twice, cut once. Your approach is, in my experience, has been cut it. We'll figure it out if it doesn't work. A lot of times, which works.
 
 [00:28:11] Adam: I like to build that way. I build, yeah, I build very organically.
 
 [00:28:13] Norm: Got a name for your book or a chapter? At least a chapter at the very obvious one day build.
 
-[00:28:19] Adam: Oh, nice, nice. One thing that one thing that I did, I I wrote the outline at the time I was teaching advanced model making at the Academy of Academy of Art College in San Francisco in the late '90s and early 2000s, and teaching advanced model making taught me an amazing thing, which is that I needed to have an entire chapter devoted to sanding. Because I had no idea how hard most people found the concept of sanding, and you'd see people with a piece of sandpaper just jammed with material and almost smooth because it was so caked with stuff, and they're still sitting there and doing it. So I have a whole philosophy of sanding that I've written out into a chapter. In fact, a couple of different pieces that I wrote for that book have been articles that I ended up putting in Make Magazine, and that is a great harbinger of the way that book would look. And in fact, the design layout and methodical approach that Make takes to showing builds is to me the gold standard
+[00:28:19] Adam: Oh, nice, nice. One thing that I did, I I wrote the outline at the time I was teaching advanced model making at the Academy of Art College in San Francisco in the late '90s and early 2000s, and teaching advanced model making taught me an amazing thing, which is that I needed to have an entire chapter devoted to sanding. Because I had no idea how hard most people found the concept of sanding, and you'd see people with a piece of sandpaper just jammed with material and almost smooth because it was so caked with stuff, and they're still sitting there and doing it. So I have a whole philosophy of sanding that I've written out into a chapter. In fact, a couple of different pieces that I wrote for that book have been articles that I ended up putting in Make Magazine, and that is a great harbinger of the way that book would look. And in fact, the design layout and methodical approach that Make takes to showing builds is to me the gold standard
 
 [00:28:19] Unknown speaker: It’s the gold standard.
 
@@ -738,9 +738,9 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:29:29] Will: You put you screw belts into the edges, and it'll track back and forth. And you can you you can use it to make a huge giant router table that you can then use to break down a sheet of plywood. Wow, it is incredible. It's a little bit expensive. I think it's $3,000 or $4,000. But
 
-[00:30:28] Adam: we have to we have to look into that.
+[00:30:28] Adam: we have to look into that.
 
-[00:30:29] Will: you should you should
+[00:30:29] Will: you should
 
 [00:30:30] Adam: oh yeah yeah
 
@@ -750,7 +750,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:30:33] Norm: cool well we answered. Two to three questions. Wow, I think it's a good rate. I like. I mean, the quality of questions and
 
-[00:30:40] Adam: the quality of questions is terrific. And yeah, these are these are involved answers. You know, we yeah
+[00:30:40] Adam: the quality of questions is terrific. And yeah, these are involved answers. We yeah
 
 [00:30:45] Norm: yeah we'll do it again sometime. Sure.
 
@@ -778,13 +778,13 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:31:04] Norm: Crossing fingers that you're available that 17th, December 17.
 
-[00:31:07] Adam: We're gonna we're gonna work that out.
+[00:31:07] Adam: We're gonna work that out.
 
 [00:31:08] Norm: We're gonna figure it out.
 
 [00:31:09] Adam: I can't not bring thing one and thing two, so we got to work that out.
 
-[00:31:12] Norm: We'll we'll figure it out. Um, and we'll see you guys next week.
+[00:31:12] Norm: We'll we'll figure it out. And we'll see you guys next week.
 
 [00:31:14] Will: That movie had better be good.
 

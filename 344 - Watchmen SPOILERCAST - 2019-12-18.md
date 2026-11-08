@@ -72,23 +72,23 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:01:30] Adam: Anyway,
 
-[00:01:30] Norm: anyway, hey, you know, last week one of the things we didn't get a chance to talk about, complete omission on our part, was the the passing, of course, of Caroll Spinney,
+[00:01:30] Norm: anyway, hey last week one of the things we didn't get a chance to talk about, complete omission on our part, was the passing, of course, of Caroll Spinney,
 
 [00:01:39] Adam: the amazing Muppeteer performer who spent decades making the world a better place, portraying Big Bird,
 
 [00:01:47] Will: Big Bird, and Oscar the Grouch, and
 
-[00:01:48] Adam: Oscar the Grouch. And did he also do Snuffleupagus, or was that was was that was that Jim?
+[00:01:48] Adam: Oscar the Grouch. And did he also do Snuffleupagus, or was that Jim?
 
 [00:01:55] Will: I thought Snuffleupagus was someone else, but I don't know.
 
 [00:01:57] Adam: Okay,
 
-[00:01:58] Will: but but I mean, I mean,
+[00:01:58] Will: but I mean,
 
 [00:01:59] Adam: but yes,
 
-[00:02:00] Will: if if you haven't, one of the first things we talked about when we talked about the Muppets here in the early early days of Still Untitled was you explained how that Caroll Spinney Big Bird puppet works,
+[00:02:00] Will: if you haven't, one of the first things we talked about when we talked about the Muppets here in the early early days of Still Untitled was you explained how that Caroll Spinney Big Bird puppet works,
 
 [00:02:10] Adam: right?
 
@@ -104,19 +104,19 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:02:29] Adam: Sometimes or sometimes it's just like a Bear in the Big Blue House. It's on a pivot to the other hand, so it looks natural.
 
-[00:02:35] Will: It's in it's it's incredible how much humanity came out in a character
+[00:02:35] Will: It's in it's incredible how much humanity came out in a character
 
 [00:02:42] Adam: with such a technically challenged puppeteering job, especially for decades.
 
 [00:02:46] Will: Yeah, yeah,
 
-[00:02:47] Adam: and uh, uh, I got to meet Caroll Spinney at Silicon Valley Comic Con a couple of years ago.
+[00:02:47] Adam: and I got to meet Caroll Spinney at Silicon Valley Comic Con a couple of years ago.
 
 [00:02:53] Unknown speaker: Mm-hmm.
 
 [00:02:53] Adam: And he was, as every account of him has attested, the very picture of gracious, lovely, attentive, and sweet as you wanted Big Bird's creator to be.
 
-[00:03:08] Will: There were a number of people who had profiled or interviewed the Sesame Street, you know, children's television workshop, or or Caroll Spinney specifically, who kind of shared stories about meeting him. And and the one that I loved the most, I wish I should have looked up to see who it was before we started. So I apologize, but it basically told us the story of going to do this profile on on CTW.
+[00:03:08] Will: There were a number of people who had profiled or interviewed the Sesame Street children's television workshop, or Caroll Spinney specifically, who kind of shared stories about meeting him. And the one that I loved the most, I wish I should have looked up to see who it was before we started. So I apologize, but it basically told us the story of going to do this profile on CTW.
 
 [00:03:31] Unknown speaker: Mm-hmm.
 
@@ -124,9 +124,9 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:03:35] Adam: what was that? Was it someone yelling?
 
-[00:03:37] Will: Somebody's yelling. Yeah, somebody's yelling on the street. Sorry. They basically told the story of him going into interview this person and then sending him over to Caroll Spinney first. And he had taken off the top of Big Bird and was just wearing the legs and was resting. And he he said. He said in the big bird voice, " Oh hi, how how are you?" And the reporter just started crying, just burst into tears, right?
+[00:03:37] Will: Somebody's yelling. Yeah, somebody's yelling on the street. Sorry. They basically told the story of him going into interview this person and then sending him over to Caroll Spinney first. And he had taken off the top of Big Bird and was just wearing the legs and was resting. And he said. He said in the big bird voice, " Oh hi, how how are you?" And the reporter just started crying, just burst into tears, right?
 
-[00:03:57] Norm: Yeah, certain people have that effect. I mean, it's the same. This year was also the year that we, you know, lost Peter Mayhew. So we're talking about character performers.
+[00:03:57] Norm: Yeah, certain people have that effect. I mean, it's the same. This year was also the year that we lost Peter Mayhew. So we're talking about character performers.
 
 [00:04:04] Adam: Who's that,
 
@@ -134,15 +134,15 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:04:05] Adam: Oh yes. Oh, my God. So sad.
 
-[00:04:07] Norm: Yeah, characters that were larger than life and and you know, big parts of our lives and their childhoods.
+[00:04:07] Norm: Yeah, characters that were larger than life and big parts of our lives and their childhoods.
 
-[00:04:12] Will: Well, and these performances that outlived the the performers.
+[00:04:12] Will: Well, and these performances that outlived the performers.
 
 [00:04:15] Norm: Yeah, and I implore you
 
 [00:04:16] Adam: That extended way, way, way beyond. Yeah,
 
-[00:04:18] Norm: you know, we had a chance two years ago to go to the, um, the exhibit at the Museum of Moving Image in
+[00:04:18] Norm: We had a chance two years ago to go to the exhibit at the Museum of Moving Image in
 
 [00:04:26] Adam: New York, the Jim Henson exhibit,
 
@@ -156,7 +156,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:04:47] Adam: Um, yeah, it will. It is amazing how long he was able to perform that character. It is truly astounding.
 
-[00:04:56] Will: Well, and and the process for training his understudy, his replacement, was a like a 10-year process, 10, 12-year.
+[00:04:56] Will: Well, and the process for training his understudy, his replacement, was a like a 10-year process, 10, 12-year.
 
 [00:05:02] Adam: Was it really?
 
@@ -164,15 +164,15 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:05:05] Adam: Wow!
 
-[00:05:05] Norm: All the Muppet performers are they're, they're. They're all treasures. And again, also a recommendation for the documentary that Frank Oz
+[00:05:05] Norm: All the Muppet performers are they're. They're all treasures. And again, also a recommendation for the documentary that Frank Oz
 
 [00:05:12] Adam: Muppet Guys Talking.
 
 [00:05:14] Norm: Guys talking. Yeah,
 
-[00:05:15] Adam: that is super super fun. And having hung out with most of those Muppet guys at various different things, hanging out with them is exactly like that. They are, uh, they are incredibly smart, incredibly sweet. They are constantly insulting each other in the most hilariously sweet, egregious way.
+[00:05:15] Adam: that is super super fun. And having hung out with most of those Muppet guys at various different things, hanging out with them is exactly like that. They are incredibly smart, incredibly sweet. They are constantly insulting each other in the most hilariously sweet, egregious way.
 
-[00:05:36] Norm: Oh boy! I will say, I know, uh, you haven't seen Knives Out yet.
+[00:05:36] Norm: Oh boy! I will say, I know you haven't seen Knives Out yet.
 
 [00:05:39] Adam: No, I have not.
 
@@ -188,11 +188,11 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:05:54] Will: Oh wow! Yeah, I never. Okay,
 
-[00:05:57] Norm: and he is a. It's a wonderful, uh, non you know traditional Frank Oz performance, or maybe so. He's clearly having a wonderful time in that role.
+[00:05:57] Norm: and he is a. It's a wonderful non you know traditional Frank Oz performance, or maybe so. He's clearly having a wonderful time in that role.
 
 [00:06:06] Will: He's chewed some scenes there
 
-[00:06:08] Adam: every now and then. I mean, you remember he's he's the American consulate representative in American Werewolf in London.
+[00:06:08] Adam: every now and then. I mean, you remember he's the American consulate representative in American Werewolf in London.
 
 [00:06:15] Norm: Wow!
 
@@ -216,13 +216,13 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:06:38] Will: Oh, You should see Knives Out. It's really good.
 
-[00:06:41] Adam: I will. I will. I will. I am. We we don't get out to the movies a lot, and also I've been watching a crap ton of television.
+[00:06:41] Adam: I will. I will. I will. I am. We don't get out to the movies a lot, and also I've been watching a crap ton of television.
 
 [00:06:48] Will: It turns out.
 
 [00:06:49] Norm: Yeah. So this is the part where we're going to talk about Watchmen, and that's specifically.
 
-[00:06:53] Adam: So let's, uh. Can we also talk about the, uh? We can also talk a little bit about Mandalorian.
+[00:06:53] Adam: So let's. Can we also talk about the? We can also talk a little bit about Mandalorian.
 
 [00:06:59] Norm: Which. Yes, I have not seen the last episode.
 
@@ -252,13 +252,13 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:07:29] Norm: All right.
 
-[00:07:29] Will: Um. I'm. I I'm curious to see if they're going to try to tie it into the new series of movies because it takes place between the old one, the original trilogy, and the current trilogy. And that's why they're pushing stuff.
+[00:07:29] Will: I'm. I I'm curious to see if they're going to try to tie it into the new series of movies because it takes place between the old one, the original trilogy, and the current trilogy. And that's why they're pushing stuff.
 
 [00:07:41] Norm: A very mastermindy thing for them to do.
 
 [00:07:43] Will: Well, I mean, look, there are people turning knobs and dials. I, I've, I'm kind of. I'm kind of. I feel like the last couple episodes haven't been my favorite on the Mando.
 
-[00:07:52] Adam: Oh, um, I still enjoy having such a highly lovely produced, uh, uh, fantasy series that's only 30 minutes, 30 40 minutes long. It feels kind of amazing.
+[00:07:52] Adam: Oh I still enjoy having such a highly lovely produced fantasy series that's only 30 minutes, 30 40 minutes long. It feels kind of amazing.
 
 [00:08:06] Will: Yeah.
 
@@ -268,7 +268,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:08:22] Adam: all of a piece because I I'm really enjoying the spit out of the series. I'm finding it a great world to visit.
 
-[00:08:29] Will: My enjoyment is living and dying based on whether I enjoy the characters that are the other people in the episodes, and some of them I like. The Gina Carano episode was fantastic with the with the the seven tenths.
+[00:08:29] Will: My enjoyment is living and dying based on whether I enjoy the characters that are the other people in the episodes, and some of them I like. The Gina Carano episode was fantastic with the seven tenths.
 
 [00:08:39] Adam: This most recent one with Bill Burr and Clancy Brown, I I enjoyed it. I enjoyed the. I won't spoil this for you, Norm, but I enjoyed the twist at the end.
 
@@ -276,13 +276,13 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:08:54] Unknown speaker: Oh really?
 
-[00:08:54] Adam: I thought it was. I, I. Yeah. Okay.
+[00:08:54] Adam: I thought it was. I. Yeah. Okay.
 
 [00:08:57] Will: Yeah.
 
 [00:08:57] Adam: Interesting.
 
-[00:08:57] Will: To be, to be continued. Yeah.
+[00:08:57] Will: To be continued. Yeah.
 
 [00:09:00] Adam: So that's to be continued.
 
@@ -302,13 +302,13 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:09:16] Adam: Maybe. Yeah. Maybe the thing for me to maybe we record a well. We'll talk about that. We'll, we'll make the
 
-[00:09:22] Norm: let's let's uh pen in our calendars
+[00:09:22] Norm: let's let's pen in our calendars
 
 [00:09:23] Adam: sausage off mic
 
 [00:09:25] Norm: and schedules yeah and tap it into our phones when the camera is not rolling
 
-[00:09:29] Adam: indeed indeed um.
+[00:09:29] Adam: indeed indeed.
 
 [00:09:31] Will: So Watchmen, non spoilery part of Watchmen first, and non spoilery
 
@@ -330,15 +330,15 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:09:58] Norm: oh Hong Chau,
 
-[00:10:00] Adam: so wonderful and wow! This episode, you know, I I enjoyed the spit out of this series. I think it's one of my favorite series I've seen from both a technical storytelling perspective. Like I loved all the characters. I loved how the world was built. I loved how much they didn't hold your hand because knowing early what knowing having read the Watchmen, so much is filled in for you. And if you haven't read the Watchmen, they don't fill a ton in, or there's there's some there's some gaps. I felt like, or I wondered. Anyway, sorry, I'm getting ahead of myself. I love the spit out of it, and also I think as as social commentary. A really, really powerful show.
+[00:10:00] Adam: so wonderful and wow! This episode I I enjoyed the spit out of this series. I think it's one of my favorite series I've seen from both a technical storytelling perspective. Like I loved all the characters. I loved how the world was built. I loved how much they didn't hold your hand because knowing early what knowing having read the Watchmen, so much is filled in for you. And if you haven't read the Watchmen, they don't fill a ton in, or there's some gaps. I felt like, or I wondered. Anyway, sorry, I'm getting ahead of myself. I love the spit out of it, and also I think as social commentary. A really, really powerful show.
 
-[00:10:50] Will: It's one of the, it's not just one of the best series of TV I've watched in ever that I remember. Really, it is impactful in a way that a lot of this kind of TV isn't. Like you hear a superhero TV show, and you're like, oh well, I mean, there's there, like there's a bunch of superhero TV shows out there, but they're all pretty light. Or, or you know, in the Netflix Marvel stuff, they were hyper violent, or they were, you know, there, the hook wasn't we're going to really make you think about a lot of things that aren't people in masks punching each other. Yeah, and and that's I spent more time like this this Damon Lindelof has been living in my head for the last nine weeks.
+[00:10:50] Will: It's one of the, it's not just one of the best series of TV I've watched in ever that I remember. Really, it is impactful in a way that a lot of this kind of TV isn't. Like you hear a superhero TV show, and you're like, oh well, I mean, there's there, like there's a bunch of superhero TV shows out there, but they're all pretty light. Or in the Netflix Marvel stuff, they were hyper violent, or they were there, the hook wasn't we're going to really make you think about a lot of things that aren't people in masks punching each other. Yeah, and that's I spent more time like this Damon Lindelof has been living in my head for the last nine weeks.
 
 [00:11:29] Norm: It's a show. So it's a show that things to say, which was what Watchmen, the original, which was one of the most Watchmen things about it, and it didn't have the exact things to say that the original graphic novel had to say.
 
 [00:11:40] Adam: Well, the original graphic novel was talking about the history of narrative and of capitalism and the Cold War and comic books in general,
 
-[00:11:48] Norm: exactly. And and this touched on many of those things, but did it for 2019.
+[00:11:48] Norm: exactly. And this touched on many of those things, but did it for 2019.
 
 [00:11:53] Will: Yeah, well, fear of the—I mean, the one common thread is that both of these are about fear, about people fearing things, about fearing, fearing the
 
@@ -346,7 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:12:02] Will: the communists.
 
-[00:12:03] Norm: Okay, so Damon Lindelof talks about how, and again, this comes out of the Watchmen podcast with him in conversation with Craig Mazin. But when he and Jeff Jensen, previously of Entertainment Weekly, kind of decided to go forward with the idea of writing a Watchmen show, one of the first things they did was throw out words that they associated with the original Watchmen series, and I am sure fear was one of them. But to say it's about one idea, I don't think it's wrong. But yeah, absolutely, everyone can take many things about it. You know, one of the big keywords they threw out is legacy. Legacy had to be you know original, and and and like all the kind of things that you would think in the word cloud that go with Watchmen. I think they pulled the right things and then made it their own, including appropriation, because the show itself is an appropriation, because it is not. Sanctioned by the original creator, Alan Moore has no interest in this.
+[00:12:03] Norm: Okay, so Damon Lindelof talks about how, and again, this comes out of the Watchmen podcast with him in conversation with Craig Mazin. But when he and Jeff Jensen, previously of Entertainment Weekly, kind of decided to go forward with the idea of writing a Watchmen show, one of the first things they did was throw out words that they associated with the original Watchmen series, and I am sure fear was one of them. But to say it's about one idea, I don't think it's wrong. But yeah, absolutely, everyone can take many things about it. One of the big keywords they threw out is legacy. Legacy had to be you know original, and like all the kind of things that you would think in the word cloud that go with Watchmen. I think they pulled the right things and then made it their own, including appropriation, because the show itself is an appropriation, because it is not. Sanctioned by the original creator, Alan Moore has no interest in this.
 
 [00:12:59] Adam: He so he's not done any interviews about it. Not talked about it?
 
@@ -366,7 +366,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:13:10] Will: That makes him angry to the point that he doesn't want to have anything to do with.
 
-[00:13:14] Norm: Totally. Yeah. So the creators of the original Watchmen graphic novel, Alan Moore, written by Alan Moore, drawn by Dave Gibbons. Dave Gibbons has been in a better relationship with the rights holders, which is Warner Media, which owns HBO and DC Comics. Of course, Alan Moore washed his hands of any adaptation of his work. You know, even going back before the Zack Snyder Watchmen of V for Vendetta,
+[00:13:14] Norm: Totally. Yeah. So the creators of the original Watchmen graphic novel, Alan Moore, written by Alan Moore, drawn by Dave Gibbons. Dave Gibbons has been in a better relationship with the rights holders, which is Warner Media, which owns HBO and DC Comics. Of course, Alan Moore washed his hands of any adaptation of his work. Even going back before the Zack Snyder Watchmen of V for Vendetta,
 
 [00:13:36] Will: League of Extraordinary Gentlemen.
 
@@ -382,27 +382,27 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:13:57] Norm: Yeah,
 
-[00:13:57] Will: I know. He he actually came out. He did a he did a please vote for labor video that didn't really.
+[00:13:57] Will: I know. He actually came out. He did a please vote for labor video that didn't really.
 
-[00:14:01] Adam: You know, I will tell you that Neil Neil Gaiman, by every account, and being a friend of his, I can tell you it's true. By every account, one of the nicest human beings alive, and one of the most gracious fan interactors that there ever was, said that he learned everything about being graceful with fans from Alan Moore. That when you say, " Wow, I can't believe you signed autographs for x many x many hours," while as long as the line lasted, and he will tell you a story about Alan Moore having done it for longer.
+[00:14:01] Adam: I will tell you that Neil Neil Gaiman, by every account, and being a friend of his, I can tell you it's true. By every account, one of the nicest human beings alive, and one of the most gracious fan interactors that there ever was, said that he learned everything about being graceful with fans from Alan Moore. That when you say, " Wow, I can't believe you signed autographs for x many x many hours," while as long as the line lasted, and he will tell you a story about Alan Moore having done it for longer.
 
 [00:14:34] Will: Yeah.
 
-[00:14:34] Adam: So, like, less I had suffered the illusion that Alan Moore was simply cantankerous, but the fact is, is no, no, no, with his fans and those things, he is a picture of of grace and loveliness, and it's it's important to recognize that there are all these facets.
+[00:14:34] Adam: So less I had suffered the illusion that Alan Moore was simply cantankerous, but the fact is, is no, no, no, with his fans and those things, he is a picture of grace and loveliness, and it's important to recognize that there are all these facets.
 
 [00:14:51] Will: But my my understanding is that his his he's so connected to the work that when he feels like the other stuff doesn't. Other people that are working on it don't live up to it. He he just can't mentally handle.
 
-[00:15:01] Norm: Well, there's no there's no point because he wrote what he wrote was for that medium, for that era, and it stands on his own. And I think Damon Lindelof has acknowledged that that while he is he is writing he wrote the show and agreed to do the show purely as a fan. Yeah. And his big takeaway is if people watch the show, arms folded, and like in you know when the show aired when premiered and you know not trusting Damon Lindelof, Lindelof's ability to wrap up a series and write a satisfying show, if they still didn't feel like it hit the mark, but felt like okay, I understand that Damon Lindelof loves Watchmen, then that's all he really wanted to get out of this. He
+[00:15:01] Norm: Well, there's no point because he wrote what he wrote was for that medium, for that era, and it stands on his own. And I think Damon Lindelof has acknowledged that that while he is writing he wrote the show and agreed to do the show purely as a fan. Yeah. And his big takeaway is if people watch the show, arms folded, and like in you know when the show aired when premiered and you know not trusting Damon Lindelof, Lindelof's ability to wrap up a series and write a satisfying show, if they still didn't feel like it hit the mark, but felt like okay, I understand that Damon Lindelof loves Watchmen, then that's all he really wanted to get out of this. He
 
 [00:15:40] Will: talked about that in the podcast, right? Yeah.
 
-[00:15:41] Adam: And we have had decades now of different executions of taking the storytelling from comic books and putting it into other media, and we've seen everything from Frank Miller's disastrous Spirit movie, and The the the the Zack Snyder films, which take comic books almost as a verbatim form, an attempt to just make it moving pictures with live action people. in them.
+[00:15:41] Adam: And we have had decades now of different executions of taking the storytelling from comic books and putting it into other media, and we've seen everything from Frank Miller's disastrous Spirit movie, and The Zack Snyder films, which take comic books almost as a verbatim form, an attempt to just make it moving pictures with live action people. in them.
 
-[00:16:12] Norm: Exercises in media adaptation. Same with Sin City, Frank Miller to Robert Rodriguez. You know, literally taking the panels. They're to evoke the emotion for people. You know, taking the power of the image.
+[00:16:12] Norm: Exercises in media adaptation. Same with Sin City, Frank Miller to Robert Rodriguez. Literally taking the panels. They're to evoke the emotion for people. Taking the power of the image.
 
 [00:16:23] Adam: Right.
 
-[00:16:23] Norm: Because the the graphic novel that media is part of the filmmaking process and storyboarding. They they share they share a language.
+[00:16:23] Norm: Because the graphic novel that media is part of the filmmaking process and storyboarding. They share a language.
 
 [00:16:32] Adam: Right.
 
@@ -410,7 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:16:34] Adam: No, it's not the same at all. Especially with artists as amazing as Frank Miller and Alan Moore, whose page layouts are legendary in how much they push the form of comic books forward. We've had the.
 
-[00:16:47] Norm: We've said before, you know, Neil Gaiman pointed out, comic books is the only media where you can the reader chooses and pauses the the image and the story, you know, before turning the page to reveal the next image.
+[00:16:47] Norm: We've said before Neil Gaiman pointed out, comic books is the only media where you can the reader chooses and pauses the image and the story before turning the page to reveal the next image.
 
 [00:17:02] Will: You can take as much time studying the images in film. You don't get that option.
 
@@ -422,17 +422,17 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:17:54] Norm: And even the delivery of dialogue, I would visualize as a frame at in the center of a nine panel frame.
 
-[00:18:02] Will: Yeah, exactly. The payoff at the bottom, at the end of that that whole sequence, is the shot. The the the denouement of of his relationship with another character we won't talk about yet. Yeah, and that is totally. It was so good.
+[00:18:02] Will: Yeah, exactly. The payoff at the bottom, at the end of that that whole sequence, is the shot. The denouement of his relationship with another character we won't talk about yet. Yeah, and that is totally. It was so good.
 
 [00:18:16] Norm: It was a real cool lens to watch the show.
 
-[00:18:18] Adam: Clearly, whether that was the the extant intention of Lindelof and his creative team, or the buried and wonderful result of them having such fidelity to the original material, because it really does feel. You know, I said this a few weeks ago. That third episode, which is where the where the the the narrative conceit is, the entire episode's plot is bracketed by Jean's talking to Doctor Manhattan,
+[00:18:18] Adam: Clearly, whether that was the extant intention of Lindelof and his creative team, or the buried and wonderful result of them having such fidelity to the original material, because it really does feel. I said this a few weeks ago. That third episode, which is where the narrative conceit is, the entire episode's plot is bracketed by Jean's talking to Doctor Manhattan,
 
 [00:18:45] Norm: Laurie Blake, doing a confessional, essentially
 
 [00:18:48] Adam: doing a confessional from one of the Doctor Manhattan phone booths, and really giving you this top level monologue to frame the entire episode. It felt like an original Watchmen comic.
 
-[00:18:59] Norm: And as a as the the the joke, the comedian joke for that, the punchline happens in the finale.
+[00:18:59] Norm: And as a as the joke, the comedian joke for that, the punchline happens in the finale.
 
 [00:19:07] Adam: Oh, what is the punchline again?
 
@@ -472,7 +472,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:19:41] Norm: Red scare.
 
-[00:19:42] Will: Red Scare. The masked Pirate Jenny. uh, Looking Glass.
+[00:19:42] Will: Red Scare. The masked Pirate Jenny. Looking Glass.
 
 [00:19:45] Adam: Yep.
 
@@ -480,7 +480,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:19:49] Adam: Yeah.
 
-[00:19:49] Will: Like the the red scare's mask never is quite right.
+[00:19:49] Will: Like the red scare's mask never is quite right.
 
 [00:19:53] Adam: No.
 
@@ -492,9 +492,9 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:20:01] Adam: Right.
 
-[00:20:01] Will: He's not wearing his uniform. No, it's like this. Like all of the people that worked on this, so much work went into these costumes. So much work went into these sets. The the props, the models, the rocket ships, the flying ships, the return of of of Archimedes, Archimedes, the Nite Owl ship, the one that you licked.
+[00:20:01] Will: He's not wearing his uniform. No, it's like this. Like all of the people that worked on this, so much work went into these costumes. So much work went into these sets. The props, the models, the rocket ships, the flying ships, the return of Archimedes, Archimedes, the Nite Owl ship, the one that you licked.
 
-[00:20:20] Adam: Uh, it's not Archimedes,
+[00:20:20] Adam: It's not Archimedes,
 
 [00:20:21] Norm: Archie,
 
@@ -510,7 +510,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:20:26] Will: Yeah, exactly. It is. It is. It's something. It's it's just lovely. It's it's lovely to see all that stuff done and writ large and made into a real place.
 
-[00:20:36] Adam: Really agreed. I I and I loved like at the top line. I loved the finale. I loved the wrap up of this series.
+[00:20:36] Adam: Really agreed. I and I loved like at the top line. I loved the finale. I loved the wrap up of this series.
 
 [00:20:45] Will: So like famously now Lindelof said he's only in for one season on this, but maybe eh.
 
@@ -518,7 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:20:50] Will: Never say never. Yeah.
 
-[00:20:51] Adam: They certainly they certainly left the door open.
+[00:20:51] Adam: They certainly left the door open.
 
 [00:20:54] Norm: No, no,
 
@@ -526,7 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:20:58] Adam: Oh, it did wrap up. nicely.
 
-[00:20:58] Norm: Spoilers. I think the analogy is given. There are plenty of shows that wrapped up where the characters don't die, and of course they live lives. But would it be as interesting to see to see what happens next?
+[00:20:58] Norm: Spoilers. I think the analogy is given. There are plenty of shows that wrapped up where the characters don't die, and of course they live lives. But would it be as interesting to see what happens next?
 
 [00:21:09] Will: I was going to ask, do you want to do you want more? I'm not. I'm like. I'm much the same way that the ending is ambiguous. I felt like I my feelings on that are ambiguous as well.
 
@@ -534,13 +534,13 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:21:22] Will: If you were if you had your finger on the button,
 
-[00:21:25] Adam: um, my answer would be if the original production team wanted to make another series, I would want them to make another series.
+[00:21:25] Adam: My answer would be if the original production team wanted to make another series, I would want them to make another series.
 
 [00:21:32] Norm: I want less the what happens after the final shot of the finale here and the next week and months of those people's characters' lives than I would want another nine-episode story with a proper beginning, middle, and end, as they did with this show, set in that world, maybe not even in that decade in that time, but to do what they did with Tulsa, 2019, and history,
 
 [00:21:57] Will: and 1919, and
 
-[00:21:58] Norm: and and and and do that in the alternate world of Watchmen. I don't necessarily need to know what happens to
+[00:21:58] Norm: and do that in the alternate world of Watchmen. I don't necessarily need to know what happens to
 
 [00:22:05] Adam: yeah
 
@@ -562,15 +562,15 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:22:48] Norm: Go ahead, Adam.
 
-[00:22:50] Adam: You know, I I have loved Lady Trieu as a brand new character whose whose position within the cosmology of heroes and villains is unknown until now, and I thought the actress was so amazing in that role, so weirdly believable, like. Just perfection in terms. Wait, actually, even more believable as a genius gazillionaire than Jeremy Irons.
+[00:22:50] Adam: I have loved Lady Trieu as a brand new character whose whose position within the cosmology of heroes and villains is unknown until now, and I thought the actress was so amazing in that role, so weirdly believable, like. Just perfection in terms. Wait, actually, even more believable as a genius gazillionaire than Jeremy Irons.
 
-[00:23:23] Norm: Yes, yes, 100%. Use her, the confidence that she had, the the wryness of her delivery, and the lines they gave her, and especially in the finale, because you do have a flashback to the first time she confronts Jeremy Irons and reveals his legacy, her lineage. The the the turn where she goes from playing naive to be lured in and a fan of his to saying, " Well, that's just a rerun." Is is wonderful acting.
+[00:23:23] Norm: Yes, yes, 100%. Use her, the confidence that she had, the wryness of her delivery, and the lines they gave her, and especially in the finale, because you do have a flashback to the first time she confronts Jeremy Irons and reveals his legacy, her lineage. The turn where she goes from playing naive to be lured in and a fan of his to saying, " Well, that's just a rerun." Is is wonderful acting.
 
 [00:23:54] Adam: Yes, I agree.
 
-[00:23:56] Will: I I love. I still love Jeremy Irons' portrayal as [unclear] Superman. Howard Hughes.
+[00:23:56] Will: I love. I still love Jeremy Irons' portrayal as [unclear] Superman. Howard Hughes.
 
-[00:24:01] Adam: Oh, completely. No, no, no. It's amazing, and the the the slow reveal of his bizarro encapsulation encapsulation in the bubble on Europa, and the sending of all of his. Minions, his Adam and Eve's into the the the
+[00:24:01] Adam: Oh, completely. No, no, no. It's amazing, and the slow reveal of his bizarro encapsulation encapsulation in the bubble on Europa, and the sending of all of his. Minions, his Adam and Eve's into the
 
 [00:24:22] Will: thousands or tens of thousands of them to
 
@@ -616,7 +616,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:25:55] Norm: no, and from his perspective,
 
-[00:25:57] Adam: I'm not sure I agree. And I would point out that I think actually the one bit of free will Doctor Manhattan does, I think this entire series is predicated on Doctor Manhattan's first meeting with Angela Abar, and. His understanding that in meeting her six months after they fall in love, she's going to say, " What are you risking?" and then he is literally going to risk everything. And that I think that the central message of the film is this beautiful description of love as leaving a part of yourself in the people that you. This actually choking me up as I say it. Um, him leaving the egg for her is both a leaving of his powers with the person most equipped to see the world for what it is and to actually do something good with those powers.
+[00:25:57] Adam: I'm not sure I agree. And I would point out that I think actually the one bit of free will Doctor Manhattan does, I think this entire series is predicated on Doctor Manhattan's first meeting with Angela Abar, and. His understanding that in meeting her six months after they fall in love, she's going to say, " What are you risking?" and then he is literally going to risk everything. And that I think that the central message of the film is this beautiful description of love as leaving a part of yourself in the people that you. This actually choking me up as I say it. Him leaving the egg for her is both a leaving of his powers with the person most equipped to see the world for what it is and to actually do something good with those powers.
 
 [00:26:46] Norm: And an acknowledgement, because he is unimaginative,
 
@@ -632,7 +632,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:27:01] Adam: I think he's absolutely dead.
 
-[00:27:02] Will: He he gets just he gets dissipated in the exact same way at the end of the comic. Adrian Veidt traps him in the in the tachyon beam thing in the basement of the Antarctica lair. He gets dissipated, and then he puts himself back together five minutes later.
+[00:27:02] Will: He gets just he gets dissipated in the exact same way at the end of the comic. Adrian Veidt traps him in the tachyon beam thing in the basement of the Antarctica lair. He gets dissipated, and then he puts himself back together five minutes later.
 
 [00:27:17] Norm: Lady Trieu, is much smarter and more capable than Adrian Veidt.
 
@@ -640,19 +640,19 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:27:26] Will: by the yeah
 
-[00:27:27] Adam: by the by the crushing by the frozen squid.
+[00:27:27] Adam: by the crushing by the frozen squid.
 
 [00:27:30] Will: Yeah, so presumably his essence is blasted out back into the cosmos.
 
 [00:27:33] Adam: Wonderful moment
 
-[00:27:34] Will: that like that like the the the the the turn on. Hey, there's squids that Adrian Veidt. Hey, there's squids that fall from the sky. We all know that that's fake. We don't know that Adrian Veidt is still doing that for the entire run of the show.
+[00:27:34] Will: that like the turn on. Hey, there's squids that Adrian Veidt. Hey, there's squids that fall from the sky. We all know that that's fake. We don't know that Adrian Veidt is still doing that for the entire run of the show.
 
 [00:27:45] Adam: Right,
 
-[00:27:45] Will: and then and then switching to hey, we're going to weaponize the squids. Very good.
+[00:27:45] Will: and then switching to hey, we're going to weaponize the squids. Very good.
 
-[00:27:50] Norm: And going back to her performance, the kind of the the fit that she throws when they teleport every his her father away when they send Veidt to Karnak along with Looking Glass and and and Laurie. She is so. Angry because he's not there to witness her brilliance.
+[00:27:50] Norm: And going back to her performance, the kind of the fit that she throws when they teleport every his her father away when they send Veidt to Karnak along with Looking Glass and Laurie. She is so. Angry because he's not there to witness her brilliance.
 
 [00:28:10] Will: It's the first emotion we see from her.
 
@@ -668,13 +668,13 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:28:50] Norm: She was not terrifying.
 
-[00:28:51] Adam: She was not terrifying, and it's the only only point in the in the series where I felt like I didn't see the thing I thought that should was was the likely thing to happen there, but. Holy hell! I also loved this aspect of the writing of both her character and Adrian Veidt of both of them being crazy intelligent, and the realization that like she spun up the Seventh Kavalry to believe that they were doing something only to be serving her needs, also to hide herself from Doctor Manhattan.
+[00:28:51] Adam: She was not terrifying, and it's the only only point in the series where I felt like I didn't see the thing I thought that should was was the likely thing to happen there, but. Holy hell! I also loved this aspect of the writing of both her character and Adrian Veidt of both of them being crazy intelligent, and the realization that like she spun up the Seventh Kavalry to believe that they were doing something only to be serving her needs, also to hide herself from Doctor Manhattan.
 
 [00:29:20] Will: Just to mask it, yeah.
 
 [00:29:21] Adam: Incredible, and Doctor Manhattan like being so. She tells him to the minute when the probe is going to fly over Europa, and he never forgets it, even though she says it conversationally.
 
-[00:29:34] Will: So this is a this is a goofy question. Remember when she goes to the farmhouse and buys the house?
+[00:29:34] Will: So this is a goofy question. Remember when she goes to the farmhouse and buys the house?
 
 [00:29:38] Norm: Yeah.
 
@@ -706,17 +706,17 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:30:10] Adam: About Kansas. Yeah, yeah.
 
-[00:30:12] Norm: Because they're they are in Tulsa, but the family that of uh that the egg farmers that um cannot have children, right? Are and suddenly they are intercepted. Their their mythology, the Superman mythology of the meteor coming from the sky with a a life within, is intercepted by Lady Trieu because she gives them a baby. And I think their character names are like something Clark. Their last it's like the Clark family.
+[00:30:12] Norm: Because they're they are in Tulsa, but the family that of that the egg farmers that cannot have children, right? Are and suddenly they are intercepted. Their mythology, the Superman mythology of the meteor coming from the sky with a life within, is intercepted by Lady Trieu because she gives them a baby. And I think their character names are like something Clark. Their last it's like the Clark family.
 
 [00:30:36] Adam: Oh, really? Oh, fascinating.
 
-[00:30:38] Norm: Yeah. Um, so that is again part of the meta awareness and subversion of uh of the Superman trope.
+[00:30:38] Norm: Yeah. So that is again part of the meta awareness and subversion of the Superman trope.
 
 [00:30:46] Adam: Yeah, we're all letting this show wash over us as we're thinking. about.
 
-[00:30:49] Will: I literally watched this on the plane at 11 o'clock last night, so it's it's it's still real fresh in a way that like I haven't had time to think about it.
+[00:30:49] Will: I literally watched this on the plane at 11 o'clock last night, so it's still real fresh in a way that like I haven't had time to think about it.
 
-[00:30:57] Norm: Yeah, no, I watched it. Do you think Laurie got the the the moments, the finale moments that she deserved?
+[00:30:57] Norm: Yeah, no, I watched it. Do you think Laurie got the moments, the finale moments that she deserved?
 
 [00:31:03] Will: I feel like
 
@@ -744,27 +744,27 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:31:35] Adam: Yeah,
 
-[00:31:35] Will: when when when Petey when she says Petey explain what what I'm all about and Petey just breaks her down in front of Angela in the car ride and the third or fourth episode like that that is that is the that is her that is her scene.
+[00:31:35] Will: when Petey when she says Petey explain what I'm all about and Petey just breaks her down in front of Angela in the car ride and the third or fourth episode like that that is that is the that is her scene.
 
-[00:31:48] Adam: You know, I also I'm thinking about aliens and I'm thinking about the abyss because I think of James Cameron as being amazing at taking characters that are main characters and like. Parking them for good portions of a film, and have them show up later, like Hicks or the big guy from The Abyss, the guy who, like, like
+[00:31:48] Adam: I also I'm thinking about aliens and I'm thinking about the abyss because I think of James Cameron as being amazing at taking characters that are main characters and. Parking them for good portions of a film, and have them show up later, like Hicks or the big guy from The Abyss, the guy who, like
 
 [00:32:10] Will: oh yeah yeah
 
 [00:32:11] Adam: right
 
-[00:32:11] Will: the the yeah the guy with the beard.
+[00:32:11] Will: the yeah the guy with the beard.
 
-[00:32:13] Adam: So yeah, I didn't feel I didn't feel like Jean was being sidelined. I just felt like okay, she's a witness to this while this while this stuff is going on. The the the payoff to the Seventh Kavalry,
+[00:32:13] Adam: So yeah, I didn't feel like Jean was being sidelined. I just felt like okay, she's a witness to this while this stuff is going on. The payoff to the Seventh Kavalry,
 
 [00:32:28] Norm: and also actually a [unclear] and a laughing stock and a joke of a you know of a of misdirection of a menace that that was great,
 
-[00:32:35] Adam: totally great. Um, and I love that Will, I love that I believe that Will was on top of this entire plan in its entirety the entire time.
+[00:32:35] Adam: totally great. And I love that Will, I love that I believe that Will was on top of this entire plan in its entirety the entire time.
 
 [00:32:45] Norm: Will Reeves, yeah,
 
 [00:32:45] Adam: that he and Doctor Manhattan always knew that the egg would be left there for Angela, and that she was the one, and that's what William is saying to Angela for all that
 
-[00:32:55] Will: he could do, he didn't do enough. Yeah, yeah. I mean, so that's like that's why I asked, does plot matter in a story with Doctor Manhattan? Because You know the the the the the deus ex machina of the story is that Doctor Manhattan in in Cal disguise before he lost his memory went to her grandfather and said, " Hey, you got to go do this in like 10 years," and and gave him the whole rundown and told him exactly what to do and how to do it, and and at that point you don't have. I I mean I I don't think plot matters in a story with an with an omnipotent omniscient being. Although the making him giving amnesia kind of gives you the the out on that.
+[00:32:55] Will: he could do, he didn't do enough. Yeah, yeah. I mean, so that's like that's why I asked, does plot matter in a story with Doctor Manhattan? Because You know the deus ex machina of the story is that Doctor Manhattan in Cal disguise before he lost his memory went to her grandfather and said, " Hey, you got to go do this in like 10 years," and gave him the whole rundown and told him exactly what to do and how to do it, and at that point you don't have. I mean I I don't think plot matters in a story with an omnipotent omniscient being. Although the making him giving amnesia kind of gives you the out on that.
 
 [00:33:36] Adam: The tachyon field.
 
@@ -774,7 +774,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:33:52] Norm: And therefore, the movie and the ending is is that's why I think he's gone. That's why I think he's he truly did.
 
-[00:33:57] Adam: Right, his greatest respect to Angela, to their love and romance, is to die, is to is to have an end to it,
+[00:33:57] Adam: Right, his greatest respect to Angela, to their love and romance, is to die, is to have an end to it,
 
 [00:34:03] Norm: is to experience it.
 
@@ -792,21 +792,21 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:34:36] Adam: Well, I also think that while he, you know, that when they interview, there's that condition some people, very few people in the world have, where they can remember every day of their lives. Marilu Henner is one of them. There's only like nine documented, right? And one of the things all those people tell you is it doesn't help them do their jobs better. They're not like the best lawyer in the world because they can remember every case file. It's it's not what you expect. And so I think this is also the show did this wonderful thing of showing you that while Doctor Manhattan is omniscient, his emotions, like all of us, are still in some ways a mystery to him. His emotional drives, and so for him to realize at that moment and say to Angela, " This is the moment I fall in love with you." I believe that's genuinely happening to him in that moment, as he's actually taking stock of his emotional state.
 
-[00:35:22] Will: Well, and he just he just feels it for the rest of his life because there's there's no before or no after.
+[00:35:22] Will: Well, and he just feels it for the rest of his life because there's there's no before or no after.
 
 [00:35:27] Adam: Right, right, right. And I really liked that. I loved that wrinkle of him seemingly surprised by an emotion.
 
-[00:35:35] Will: It's such an impossible character to write, right? Like, like
+[00:35:35] Will: It's such an impossible character to write, right? Like
 
 [00:35:38] Norm: that's why I'm happy he's dead. They don't have to write it anymore.
 
-[00:35:40] Will: Well, but but also every Watchmen story that's been good to date has been about trying to kill Doctor Manhattan.
+[00:35:40] Will: Well, but also every Watchmen story that's been good to date has been about trying to kill Doctor Manhattan.
 
 [00:35:46] Adam: Oh well, it's the Loki problem, right?
 
 [00:35:48] Will: Yeah.
 
-[00:35:49] Adam: Um, I once said to uh uh Bill Prady, who used to write for the Muppets, uh, creator of Big Bang Theory and a bunch of other wonderful things, um, I said to him that Rowlf was, in my opinion, the only Muppet with no neuroses.
+[00:35:49] Adam: I once said to Bill Prady, who used to write for the Muppets creator of Big Bang Theory and a bunch of other wonderful things I said to him that Rowlf was, in my opinion, the only Muppet with no neuroses.
 
 [00:36:05] Will: Hmm.
 
@@ -816,7 +816,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:36:16] Adam: Wow, isn't that fascinating?
 
-[00:36:17] Will: I, I, yeah, I'm, I'm just flummoxed. The whole thing. I'm gonna go back and rewatch the whole thing with Gina because she hasn't watched any of it yet. She's never read the graphic novels. so I'm fascinated to see how.
+[00:36:17] Will: I, yeah, I'm, I'm just flummoxed. The whole thing. I'm gonna go back and rewatch the whole thing with Gina because she hasn't watched any of it yet. She's never read the graphic novels. so I'm fascinated to see how.
 
 [00:36:29] Norm: That's what. That's the big question of, I think, can someone watch the show, read the graphic novels,
 
@@ -826,15 +826,15 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:36:37] Will: She's seen, she saw the Zack Snyder movie, which I think is maybe not helpful, but we'll see.
 
-[00:36:43] Adam: Um, goddamn, I loved it. I,
+[00:36:43] Adam: Goddamn, I loved it. I,
 
-[00:36:46] Will: I, I would go back and watch the whole thing again. Yeah, right now I'd sit down and just do nine hours.
+[00:36:46] Will: I would go back and watch the whole thing again. Yeah, right now I'd sit down and just do nine hours.
 
 [00:36:49] Adam: Yeah, I love the way Looking Glass keeps saying, " It's not Mirror Guy, it's Looking Glass."
 
 [00:36:57] Will: But like, but like that's such a like her contempt for costumed Avengers. Is is so it's it's such a good character moment on both of their parts.
 
-[00:37:07] Adam: And when she's delivering the the joke monologue in the third episode, and she gets to the third act turn where God's speaking to the last hero, and she says, " God turns to the last hero and cracks his knuckles." I just her performance is so phenomenal in ah in witnessing what's going on. Right. It's like I'm trying to think of the of the show or movie we had recently where a character is brought in just to witness and show the audience what this looks like from the outside.
+[00:37:07] Adam: And when she's delivering the joke monologue in the third episode, and she gets to the third act turn where God's speaking to the last hero, and she says, " God turns to the last hero and cracks his knuckles." I just her performance is so phenomenal in ah in witnessing what's going on. Right. It's like I'm trying to think of the show or movie we had recently where a character is brought in just to witness and show the audience what this looks like from the outside.
 
 [00:37:43] Norm: Oh yeah,
 
@@ -844,7 +844,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:37:50] Adam: Thank you.
 
-[00:37:52] Will: But but you're, you're talking about like the the post carrier and Clue or something like that, where there's where there's somebody who walks in, rings the doorbell, and you open the front door, and they see a bunch of people standing around with knives and guns and blood all over them, and
+[00:37:52] Will: But you're talking about like the post carrier and Clue or something like that, where there's somebody who walks in, rings the doorbell, and you open the front door, and they see a bunch of people standing around with knives and guns and blood all over them, and
 
 [00:38:04] Adam: right. And it's a way for the audience to remember that this is happening in a world.
 
@@ -854,9 +854,9 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:38:17] Will: Yeah,
 
-[00:38:17] Adam: just from a different vantage point, and she's crazy again. She is also stupid smart. Like they're all they're all top tenth of a percentile humans,
+[00:38:17] Adam: just from a different vantage point, and she's crazy again. She is also stupid smart. Like they're all top tenth of a percentile humans,
 
-[00:38:26] Will: right? Right. Even the even the bad, yeah.
+[00:38:26] Will: right? Right. Even the bad, yeah.
 
 [00:38:30] Adam: Even the kids, even Angela's kids.
 
@@ -890,15 +890,15 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:39:29] Norm: Zeddemore.
 
-[00:39:31] Will: I mean, the other thing—the other thing, like the the question of whether the costumed Avengers are good and bad, and watching Angela's path through that, as beginning with I'm not thinking about this at all, and ending with the thing that created the costumed the the masked cops, which is the which is the beginning of the it's why this whole thing starts, is the thing that that ends Doctor Manhattan is a is a fascinating turn to me, right? Because the White Night he he's he's unmasked because of the White Night because he instinctively reaches out he protects his family when they're attacked right because she's a cop
+[00:39:31] Will: I mean, the other thing, like the question of whether the costumed Avengers are good and bad, and watching Angela's path through that, as beginning with I'm not thinking about this at all, and ending with the thing that created the costumed the masked cops, which is the beginning of the it's why this whole thing starts, is the thing that that ends Doctor Manhattan is a fascinating turn to me, right? Because the White Night he he's unmasked because of the White Night because he instinctively reaches out he protects his family when they're attacked right because she's a cop
 
 [00:40:10] Adam: right.
 
-[00:40:10] Will: And then, and then, like that's that's the thing that ends that ends Doctor Manhattan.
+[00:40:10] Will: And then, like that's the thing that ends Doctor Manhattan.
 
 [00:40:16] Adam: That turns out to be his downfall.
 
-[00:40:17] Will: Yeah, right. Right. Right. Like it's it's a it's a fascinating, like the the chain of the chain of events. Yeah, the chain of events that ends up with him in Tulsa.
+[00:40:17] Will: Yeah, right. Right. Right. Like it's a fascinating, like the chain of events. Yeah, the chain of events that ends up with him in Tulsa.
 
 [00:40:27] Adam: It's a per. It's a beautifully done plot, right? So like, just from a mechanical standpoint, it's a it's an amazing execution of a plot.
 
@@ -906,7 +906,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:40:37] Adam: no, no, yeah, you're exactly right. Like the way in which the loose ends all coalesce to bring the story to its fruition, yeah, is kind of amazing from a technical standpoint.
 
-[00:40:49] Will: I think that's the thing that appeals to me. That I mean, the characters are lovely. I can't say what appeals to us. It's one of the things that I love is that for for a thing where there's a character to whom plot doesn't matter, the plot is perfect.
+[00:40:49] Will: I think that's the thing that appeals to me. That I mean, the characters are lovely. I can't say what appeals to us. It's one of the things that I love is that for a thing where there's a character to whom plot doesn't matter, the plot is perfect.
 
 [00:41:01] Adam: Right.
 
@@ -922,13 +922,13 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:41:27] Will: You can't make Watchmen without blue dong. That's why I think Doctor Manhattan has to be alive.
 
-[00:41:30] Adam: You know, I'm just like, again, just wow. I felt like I'm I'm watching something, an important turning point in narrative in narrative history.
+[00:41:30] Adam: I'm just like, again, just wow. I felt like I'm I'm watching something, an important turning point in narrative history.
 
-[00:41:42] Will: Can I? You know, we were saying I was saying.
+[00:41:42] Will: Can I? We were saying I was saying.
 
 [00:41:44] Adam: that sounds like a really highfalutin thing, but I seriously feel like that.
 
-[00:41:48] Will: No, I mean, and tasteful, you know, tasteful male nudity. That's unusual.
+[00:41:48] Will: No, I mean, and tasteful tasteful male nudity. That's unusual.
 
 [00:41:54] Adam: Do you think the guy who makes those? Remember, did you see the article a few, a couple years ago came out about a prosthetics guy in Hollywood who's made prosthetic dongs for actors?
 
@@ -954,7 +954,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:43:09] Norm: Yahya, it's a three-part name. But Yahya, is his first name.
 
-[00:43:13] Adam: He kept on reminding me of Delroy Lindo. He could play his son in a movie any day of the week. And oh my God, how great! I I was rekindled my love affair with, uh, to my my my admiration and love of Louis Gossett Jr.
+[00:43:13] Adam: He kept on reminding me of Delroy Lindo. He could play his son in a movie any day of the week. And oh my God, how great! I was rekindled my love affair with to my admiration and love of Louis Gossett Jr.
 
 [00:43:27] Will: He's spectacular.
 
@@ -964,7 +964,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:43:33] Adam: Iron Eagle.
 
-[00:43:33] Will: It's the it's the it's the Air Force's version of of Top Gun.
+[00:43:33] Will: It's the Air Force's version of Top Gun.
 
 [00:43:36] Adam: Oh, is it really?
 
@@ -986,7 +986,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:44:02] Adam: and I didn't think so.
 
-[00:44:04] Will: Oh, Norm Norm said that Norm did. I I think that the line that she gets when the senator has the Doctor Manhattan pants on and is getting ready to go into what ends up being the mulching chamber
+[00:44:04] Will: Oh, Norm Norm said that Norm did. I think that the line that she gets when the senator has the Doctor Manhattan pants on and is getting ready to go into what ends up being the mulching chamber
 
 [00:44:14] Adam: Sting's underwear from.
 
@@ -998,7 +998,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:44:29] Adam: Yeah, yeah, yeah.
 
-[00:44:29] Will: She's just she's just like you look like a fool.
+[00:44:29] Will: She's just like you look like a fool.
 
 [00:44:33] Adam: Plus, actually, I thought his explanation was fantastic.
 
@@ -1010,21 +1010,21 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:44:46] Adam: if you really, if you haven't watched it, really watch it. I don't think that even spoilers would take down the enjoyment of it.
 
-[00:44:54] Will: I'm I'm I've watched a couple of episodes multiple times already.
+[00:44:54] Will: I'm I've watched a couple of episodes multiple times already.
 
 [00:44:57] Adam: Really,
 
-[00:44:57] Will: I'm interested in going back and watching the whole thing from start to finish, knowing knowing the entire sequence and seeing what what what's different this go round.
+[00:44:57] Will: I'm interested in going back and watching the whole thing from start to finish, knowing knowing the entire sequence and seeing what what's different this go round.
 
-[00:45:03] Adam: It's uh, yeah, and you you know there were times when I was watching Ron Moore's reboot of Battlestar Galactica, and I was thinking, wow. This is some of the most intense social commentary I've ever come across in narrative form. Watchmen was like that times three.
+[00:45:03] Adam: It's uh, yeah, and you know there were times when I was watching Ron Moore's reboot of Battlestar Galactica, and I was thinking, wow. This is some of the most intense social commentary I've ever come across in narrative form. Watchmen was like that times three.
 
 [00:45:25] Will: Well, it's 15 years later too.
 
-[00:45:27] Adam: Yeah, yeah. And I think that you know, Ron Moore, they owe a debt of gratitude to Ron Moore and other other people, especially within the science fiction realm, because it really seems to be this great Trojan horse that gets social commentary past your cognitive filters of like I am teaching you a lesson.
+[00:45:27] Adam: Yeah, yeah. And I think that Ron Moore, they owe a debt of gratitude to Ron Moore and other other people, especially within the science fiction realm, because it really seems to be this great Trojan horse that gets social commentary past your cognitive filters of like I am teaching you a lesson.
 
 [00:45:46] Will: I don't. This is very thoughtful way.
 
-[00:45:48] Norm: That's way beyond the you know, rip from the headlines procedural.
+[00:45:48] Norm: That's way beyond the rip from the headlines procedural.
 
 [00:45:52] Adam: Mm-hmm.
 
@@ -1032,7 +1032,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:45:53] Adam: Also, I feel like Watchmen leaves a lot of opinions unanswered. I think Watchmen has. I think. I think the show itself doesn't necessarily feel 100% one way or the other about mask wearing. I think they're talking about the ways in which it serves and doesn't serve, and while it tends to take a stance against the masks, I think that they're also Like they're not exactly sure how they feel about everything, and that's also extent in the narrative. And I really I appreciate that.
 
-[00:46:25] Will: Well, I mean, I think individual characters feel strongly. Like Laurie clearly is a is a pretty anti the vigilante mask wearer. But but most of the rest of the it's there's there's an appropriate amount of ambiguity at the ending of the show for a Watchman. I think.
+[00:46:25] Will: Well, I mean, I think individual characters feel strongly. Like Laurie clearly is a pretty anti the vigilante mask wearer. But most of the rest of the it's there's there's an appropriate amount of ambiguity at the ending of the show for a Watchman. I think.
 
 [00:46:40] Adam: Yeah,
 

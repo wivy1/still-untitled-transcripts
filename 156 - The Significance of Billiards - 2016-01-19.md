@@ -22,7 +22,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:00:17] Norm: More Thanksgiving.
 
-[00:00:18] Adam: I I am out on the road, even though in this incarnation it is the past, and I have not yet left on tour. I'm leaving in two days.
+[00:00:18] Adam: I am out on the road, even though in this incarnation it is the past, and I have not yet left on tour. I'm leaving in two days.
 
 [00:00:25] Will: So we've talked about Thanksgiving a lot. I think
 
@@ -38,17 +38,17 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:00:47] Will: I like following directions, and I like not screwing up.
 
-[00:00:49] Adam: There, there was actually a blog post that complained that America's Test Kitchen and Cook's Illustrated made things too easy, and that it somehow eliminated a process of discovery. And it was like, no.
+[00:00:49] Adam: There was actually a blog post that complained that America's Test Kitchen and Cook's Illustrated made things too easy, and that it somehow eliminated a process of discovery. And it was like, no.
 
 [00:01:01] Will: Nope,
 
 [00:01:02] Adam: The process of discovery is all there, and more than that, because they're revealing their process of discovery, they have actually run a bunch of things off at the pass that you don't have to waste your time on, so that you can say, " Oh, I'd like to replace this with that because now I know it'll add the sweetness that I prefer."
 
-[00:01:16] Will: And they tell you what what to do to make the changes you want.
+[00:01:16] Will: And they tell you what to do to make the changes you want.
 
 [00:01:20] Adam: Yes, yes.
 
-[00:01:21] Will: Um, When I was talking to Chris Kimball in Boston earlier this year,
+[00:01:21] Will: When I was talking to Chris Kimball in Boston earlier this year,
 
 [00:01:24] Adam: which is a sentence I love.
 
@@ -68,7 +68,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:01:52] Adam: Mr. Nagata.
 
-[00:01:54] Will: So what do you do on on on the like last year? We were in Canada, I think. Yeah, on the road for Thanksgiving.
+[00:01:54] Will: So what do you do on the like last year? We were in Canada, I think. Yeah, on the road for Thanksgiving.
 
 [00:01:58] Adam: last two years, we've been in Canada during Thanksgiving, and this year I believe on Thanksgiving proper we might. Be in Ontario. I can't quite remember.
 
@@ -94,13 +94,13 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:02:21] Will: Yeah, I think he was Han Solo.
 
-[00:02:23] Adam: He is, he is awesome. I I actually have met him a couple of years ago. We had dinner together, and he is an amazing and lovely, incredibly smart man. And more than that, he's the new Prime Minister of Canada, and he is kicking ass over there. They, He he appoints a completely gender balanced cabinet, equally men and women. And when asked why, he says it's 2015. That's why, and then gives this look.
+[00:02:23] Adam: He is awesome. I actually have met him a couple of years ago. We had dinner together, and he is an amazing and lovely, incredibly smart man. And more than that, he's the new Prime Minister of Canada, and he is kicking ass over there. They, He appoints a completely gender balanced cabinet, equally men and women. And when asked why, he says it's 2015. That's why, and then gives this look.
 
-[00:02:53] Will: That was that was the emoticon shrug. In case you missed it,
+[00:02:53] Will: That was the emoticon shrug. In case you missed it,
 
 [00:02:56] Adam: and then he appoints a science minister. And I don't know if you've been paying attention to what Stephen Harper has been doing in Canada for the past 10 years, but he's been doing things like eliminating the census. And stopping Canadian scientists from being able to publish their work without prior permission.
 
-[00:03:12] Will: Well, it's it's it's the same things that we have, you know, like having somebody who, you know, believes that the Earth was created 4,000 years ago.
+[00:03:12] Will: Well, it's the same things that we have like having somebody who believes that the Earth was created 4,000 years ago.
 
 [00:03:20] Adam: 6,000 years ago.
 
@@ -116,7 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:03:33] Norm: so what do you do in Canada on the road for Thanksgiving.
 
-[00:03:34] Adam: Well, on so we on the road we we work six day weeks.
+[00:03:34] Adam: Well, on so we on the road we work six day weeks.
 
 [00:03:40] Will: Okay.
 
@@ -124,7 +124,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:03:47] Will: What slackers!
 
-[00:03:48] Adam: It is so on Thanksgiving, we'll usually be performing, but within a couple of days of Thanksgiving, we'll have a day off, and we always rent a little banquet room somewhere for the whole crew, which our road crew I think is 11 people plus our two truck drivers is another two. So it's like 13, 14 people, including Jamie and I, sitting down to a nice Thanksgiving dinner. And we’ve had it in several different places around the country over the years, but it's always really nice because this crew, road crews, man, they are they are gypsies. They, you know, one of my one of my old road crew guys, Bob, like sees his apartment for about a month and a half a year.
+[00:03:48] Adam: It is so on Thanksgiving, we'll usually be performing, but within a couple of days of Thanksgiving, we'll have a day off, and we always rent a little banquet room somewhere for the whole crew, which our road crew I think is 11 people plus our two truck drivers is another two. So it's like 13, 14 people, including Jamie and I, sitting down to a nice Thanksgiving dinner. And we’ve had it in several different places around the country over the years, but it's always really nice because this crew, road crews, man, they are gypsies. They one of my old road crew guys, Bob, like sees his apartment for about a month and a half a year.
 
 [00:04:34] Norm: Wow.
 
@@ -132,13 +132,13 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:04:36] Norm: Hopefully, it's not in San Francisco.
 
-[00:04:37] Adam: No, no, no, no, no. They also live all over the place, from Costa Rica to Florida to you know Cincinnati. It is it is you don't have to live any specific place if you are a touring road dog.
+[00:04:37] Adam: No, no, no, no, no. They also live all over the place, from Costa Rica to Florida to you know Cincinnati. It is you don't have to live any specific place if you are a touring road dog.
 
 [00:04:51] Will: This is one of those things. Like I, there are a lot of professions that are like this, right? Like I have friends who are nurses that basically go where the wind blows, right?
 
 [00:04:59] Adam: Right. Right.
 
-[00:04:59] Will: So when when somebody has a nurse shortage, when Houston has a nurse shortage, she'll go live in Houston for six months.
+[00:04:59] Will: So when somebody has a nurse shortage, when Houston has a nurse shortage, she'll go live in Houston for six months.
 
 [00:05:05] Adam: Really.
 
@@ -168,7 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:05:32] Adam: So okay, so we will have a nice dinner.
 
-[00:05:35] Will: You and Jamie sit down by yourself by candlelight. You guys have cooked a turkey with a with a calorimetry bomb.
+[00:05:35] Will: You and Jamie sit down by yourself by candlelight. You guys have cooked a turkey with a calorimetry bomb.
 
 [00:05:40] Adam: Stop it! Stop it!  This is slashfic now. No, actually, also, Mrs., don't try this. My wife Julia will be joining me on tour for a few days right around Thanksgiving.
 
@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:07:07] Adam: and it's a gold gold felt. Pool table that I've had for several years. We had it. re... I had it recovered a couple of years back, and normally it is covered with shit all the time. But for the last few weeks, it has been open, and that is a specific reason because I've been playing a lot of pool with my kids.
 
-[00:07:27] Will: I, So I grew up. My grandfather had a pool table in his basement, and like like in full
+[00:07:27] Will: I, So I grew up. My grandfather had a pool table in his basement, and like in full
 
 [00:07:31] Adam: yeah full regulation size.
 
@@ -210,13 +210,13 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:07:38] Adam: for the pool table. That room needs to be like six feet all the way around minimum. Plus, you have, plus you want to be able to have people sit in chairs without interrupting the space. So a genuine pool room can be like 20 by 25 feet.
 
-[00:07:52] Will: It gets it gets really big really quickly.
+[00:07:52] Will: It gets really big really quickly.
 
 [00:07:54] Norm: Where am I going to put my VR masturbatorium?
 
 [00:07:58] Will: Wow, Norm.
 
-[00:07:59] Norm: That's that's
+[00:07:59] Norm: That's
 
 [00:08:00] Will: I'm the VR.
 
@@ -230,15 +230,15 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:08:13] Will: I know what this episode is going to be called.
 
-[00:08:15] Adam: Um. So, so your grand—you grew up going to grandpa's house, and he had a full-size pool table.
+[00:08:15] Adam: So, so your grand—you grew up going to grandpa's house, and he had a full-size pool table.
 
-[00:08:20] Will: Yeah. So he he grew up in New York as a Jewish kid in New York.
+[00:08:20] Will: Yeah. So he grew up in New York as a Jewish kid in New York.
 
 [00:08:24] Adam: Oh no way!
 
 [00:08:24] Will: And he would go to pool halls when he was a kid.
 
-[00:08:27] Adam: Well, I know that I know that he went to some of the legendary pool halls like Toots Shor’s. Then, if he grew up in New York in the '50s,
+[00:08:27] Adam: Well, I know that he went to some of the legendary pool halls like Toots Shor’s. Then, if he grew up in New York in the '50s,
 
 [00:08:33] Will: no, he would have been. He was in World War II, so he would have grown up in the '30s
 
@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:09:08] Adam: Oh yeah, but Gleason was a genuinely terrific pool player, a real world class pool player.
 
-[00:09:14] Will: Well, so the thing, the nice thing about pool is it's it's an application of practice, right? This is what my grandfather taught me is that you you play every day, you learn your angles, and then it's just a matter of of of like situational awareness and knowing what you should do and thinking about ball placement
+[00:09:14] Will: Well, so the thing, the nice thing about pool is it's an application of practice, right? This is what my grandfather taught me is that you play every day, you learn your angles, and then it's just a matter of like situational awareness and knowing what you should do and thinking about ball placement
 
 [00:09:31] Adam: Thinking through the table, thinking through, yeah,
 
@@ -282,7 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:11:15] Norm: That’s convenient. of which you still have one of the balls.
 
-[00:11:17] Adam: I still actually I so I have the I have the two original cue balls made of ivory, because back then in 1910 when the house was built, that's what the high quality billiard balls were made out of.
+[00:11:17] Adam: I still actually I so I have the two original cue balls made of ivory, because back then in 1910 when the house was built, that's what the high quality billiard balls were made out of.
 
 [00:11:31] Will: Crazy. We talked about 99pi on either the next or future episode. There's a great episode about billiard balls.
 
@@ -294,11 +294,11 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:11:41] Will: Might have been a Radiolab, but I think it was.
 
-[00:11:42] Adam: I love telling that story. But so it had all original 1910 Brunswick-Balke-Collender equipment. I've still got the Kelly pool board, which is an incredibly rare piece. We sold the table a few a few years ago. I think my mom got a good amount of money for it at auction, but I grew up playing on that table, playing poorly. And then, when I was, I think, about 16, my dad's randy friend—he really has no other way to describe this crazy Irishman named Bob Clatworthy—I think he was Irish, might have been British anyway. Bob Clatworthy,
+[00:11:42] Adam: I love telling that story. But so it had all original 1910 Brunswick-Balke-Collender equipment. I've still got the Kelly pool board, which is an incredibly rare piece. We sold the table a few years ago. I think my mom got a good amount of money for it at auction, but I grew up playing on that table, playing poorly. And then, when I was, I think, about 16, my dad's randy friend—he really has no other way to describe this crazy Irishman named Bob Clatworthy—I think he was Irish, might have been British anyway. Bob Clatworthy,
 
 [00:12:18] Will: wonderful artist. The story's better if he's Irish.
 
-[00:12:20] Adam: Randy, friend of my dad's, we're playing, we're playing pool, and I am playing terribly. And he turns to me and says, " It's not really a game, is it?" And I thought, " Fuck you!" And so I—I don't know for some reason I started practicing,
+[00:12:20] Adam: Randy, friend of my dad's, we're playing pool, and I am playing terribly. And he turns to me and says, " It's not really a game, is it?" And I thought, " Fuck you!" And so I—I don't know for some reason I started practicing,
 
 [00:12:33] Norm: nice
 
@@ -314,15 +314,15 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:13:20] Adam: 15 ball,
 
-[00:13:21] Will: 15 ball is when you’re, you’re, you have two shots and they have to add up to 15.
+[00:13:21] Will: 15 ball is when you’re, you have two shots and they have to add up to 15.
 
 [00:13:25] Adam: Oh my god, I've never played that.
 
-[00:13:27] Will: Oh, it's it's it is a complete position game.
+[00:13:27] Will: Oh, it's it is a complete position game.
 
 [00:13:29] Adam: Oh, that seems so. This one pocket is too. Each of you chooses one pocket, and you have to sink all your balls in that pocket. So it's banking nightmare.
 
-[00:13:35] Will: This is this is my picture of my grandfather is changing a little bit based on the the the pool hall stories we're getting now because I never really thought about it, but like growing up playing billiards when you were in the '30s, a little bit of a rough thing.
+[00:13:35] Will: This is my picture of my grandfather is changing a little bit based on the pool hall stories we're getting now because I never really thought about it, but like growing up playing billiards when you were in the '30s, a little bit of a rough thing.
 
 [00:13:48] Adam: Oh no, no, no, always. Yeah, like if you go hang out in pool halls, you are going to meet some interesting characters, and you’re going to learn some really cool stuff. There’s there’s. Pool played an incredibly important role in my life. It is one of those skills that helped me learn how to learn other skills. And the best, I have a huge library of billiard books going back to the 1800s. I think my favorite book I ever read on pool is Tim Gallwey's " The Inner Game of Tennis." It is a fantastic diatribe on getting yourself into the headspace of playing the sport that you're concentrating on and physicalizing it rather than mentalizing it. And I'm teaching thing one and thing two how to be darn good pool players.
 
@@ -332,13 +332,13 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:14:49] Will: Yeah, once you know how to do that, you're like, oh man, I'm going to do this all the time. Always a mistake.
 
-[00:14:53] Adam: No way. Yeah. So you really like yeah, it's it's it's a wonderful education, and it's bringing all of this stuff back to me because my game's in the. Toilet. I haven't played regularly for decades.
+[00:14:53] Adam: No way. Yeah. So you really like yeah, it's a wonderful education, and it's bringing all of this stuff back to me because my game's in the. Toilet. I haven't played regularly for decades.
 
-[00:15:03] Will: But the thing about it is, so I, for a while when I was in Tennessee before I moved here, I lived down the street from a pool hall, and it became it was the neighborhood bar first, and then I was like, well, you know, I'd play pool, and I was there long enough to know who I should and shouldn’t play,
+[00:15:03] Will: But the thing about it is, so I, for a while when I was in Tennessee before I moved here, I lived down the street from a pool hall, and it became it was the neighborhood bar first, and then I was like, well I'd play pool, and I was there long enough to know who I should and shouldn’t play,
 
 [00:15:17] Adam: yeah,
 
-[00:15:17] Will: and then almost got in trouble, right? Because I I got in and I played a couple of games and I was real real bad, and then it kind of the switch flipped back on, and I was like, okay, I can do this again, and and the dude thought I was hustling him,
+[00:15:17] Will: and then almost got in trouble, right? Because I I got in and I played a couple of games and I was real real bad, and then it kind of the switch flipped back on, and I was like, okay, I can do this again, and the dude thought I was hustling him,
 
 [00:15:29] Adam: yeah,
 
@@ -352,7 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:15:58] Norm: I remember. I remember this.
 
-[00:16:00] Adam: This is really cool. So. I have, in many cases, walked into a bar where there was a pool table, and there was a guy holding that table. And in most bars, there is a guy who holds the table; he's the the house guy. And you walk in at the right night, he's drunk, and he's beating everybody, but he's drunk. And I get on the table, and I am sober, and I beat him.
+[00:16:00] Adam: This is really cool. So. I have, in many cases, walked into a bar where there was a pool table, and there was a guy holding that table. And in most bars, there is a guy who holds the table; he's the house guy. And you walk in at the right night, he's drunk, and he's beating everybody, but he's drunk. And I get on the table, and I am sober, and I beat him.
 
 [00:16:24] Will: Yeah. Yeah.
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:18:25] Will: Yeah.
 
-[00:18:25] Adam: Sitting on 14th Street above the Palladium. Ah, again, some of the most of these things are probably no longer there. But Bob agreed to teach me pool, and I'd already been playing very seriously for for a few years. And Bob gave me some tremendous education in the simplicity of pool. Like, if you can crouch over the shot, knowing what you're going to do, how you're going to do it, where the cue ball will end up, and where each other ball you might come... contact will also end up, if you can do that. Every single time, with confidence, you're going to play a great game.
+[00:18:25] Adam: Sitting on 14th Street above the Palladium. Ah, again, some of the most of these things are probably no longer there. But Bob agreed to teach me pool, and I'd already been playing very seriously for a few years. And Bob gave me some tremendous education in the simplicity of pool. Like, if you can crouch over the shot, knowing what you're going to do, how you're going to do it, where the cue ball will end up, and where each other ball you might come... contact will also end up, if you can do that. Every single time, with confidence, you're going to play a great game.
 
 [00:19:01] Will: It's just mechanics at that point.
 
@@ -398,11 +398,11 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:19:09] Will: Yeah, I mean, honestly, if you want to improve your pool game faster than anything else, figure learn where the cool cue ball is going to go. That that that. Once I figured that out, my game improved dramatically.
 
-[00:19:19] Adam: And there are there are hundreds of books on pool. I will tell you, there are only a couple that are really, really, really important because I've read all of them. Robert Byrne, who is local, I frankly don't know if Robert Byrne is still alive. If he is, I want to look him up next year because he lived up in Marin, as far as I know, and grew up in pool halls in San Francisco in the '50s. Byrne's standard book of pool and billiards is the textbook. It is the textbook, and no matter what skill level you are, you can crack that book open, read it from start to finish, and get better at pool because of it. He has a bunch of other books on trick shots and the history of pool. He wrote a great book about a pool. A pool hustler he knew called named McGoorty in San Francisco in the '50s, and some terrible and wonderful tales about pool hustling in the '50s. It is an incredibly rich sport. With I got so obsessed with it before I left New York. One of my hobbies was to go to the New York Public Library, and I eventually and I have it around here somewhere, printed out on microfiche every mention of billiards and pool in the New York Times back to its inception in like 1881.
+[00:19:19] Adam: And there are hundreds of books on pool. I will tell you, there are only a couple that are really, really, really important because I've read all of them. Robert Byrne, who is local, I frankly don't know if Robert Byrne is still alive. If he is, I want to look him up next year because he lived up in Marin, as far as I know, and grew up in pool halls in San Francisco in the '50s. Byrne's standard book of pool and billiards is the textbook. It is the textbook, and no matter what skill level you are, you can crack that book open, read it from start to finish, and get better at pool because of it. He has a bunch of other books on trick shots and the history of pool. He wrote a great book about a pool. A pool hustler he knew called named McGoorty in San Francisco in the '50s, and some terrible and wonderful tales about pool hustling in the '50s. It is an incredibly rich sport. With I got so obsessed with it before I left New York. One of my hobbies was to go to the New York Public Library, and I eventually and I have it around here somewhere, printed out on microfiche every mention of billiards and pool in the New York Times back to its inception in like 1881.
 
 [00:20:28] Will: What's your favorite game, Adam?
 
-[00:20:30] Adam: I I you know I love eight ball. I love eight ball, and I love straight pool. I like the old style nine ball is a nine ball.
+[00:20:30] Adam: I you know I love eight ball. I love eight ball, and I love straight pool. I like the old style nine ball is a nine ball.
 
 [00:20:40] Will: I never played straight pool. Straight is that where you go 1 to 15?
 
@@ -438,17 +438,17 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:22:22] Norm: Not really a game, is it?
 
-[00:22:23] Adam: No, it was some of them were by luck, but it was we we. I love having this table back up again. I love watching my kids use genuine pool terminology, and I keep telling them, " You're going to go off out into the world, and you're going to call me and be like, 'Thanks for teaching me how to play pool.'
+[00:22:23] Adam: No, it was some of them were by luck, but it was we. I love having this table back up again. I love watching my kids use genuine pool terminology, and I keep telling them, " You're going to go off out into the world, and you're going to call me and be like, 'Thanks for teaching me how to play pool.'
 
 [00:22:40] Will: This is a skill that will pay pay back the time many fold over the years.
 
-[00:22:44] Adam: Totally, and it'll be really fun. You know, it'll be really fun to play against other people in social situations.
+[00:22:44] Adam: Totally, and it'll be really fun. It'll be really fun to play against other people in social situations.
 
 [00:22:49] Will: Don't get the knife in the gut, though.
 
 [00:22:50] Adam: Yeah, don’t. No knife in the gut. I actually have really explained to them, no matter what, don’t ever play for money. Don't ever take that friendly money offer. Someone is grooming you, no matter how doofus they seem. I've known hustlers practice shitty bridges that look like they're wobbling just to screw with you, so that when they go, " You want to make this interesting?"
 
-[00:23:13] Will: Believe me. No, you know you don't.
+[00:23:13] Will: Believe me. No you don't.
 
 [00:23:15] Adam: I have been offered these games hundreds of times. Don't ever accept them. The money game things will get very cold very quickly.
 
@@ -460,13 +460,13 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:23:30] Will: I don't think. I mean, there hasn't been another modern pool movie in the last....
 
-[00:23:33] Adam: Well, The Hustler, The Hustler, and The Color of Money, which are The Color of Money is a sequel to Paul Newman's The Hustler, and The Hustler is beautiful. I love The Color of Money.
+[00:23:33] Adam: Well, The Hustler, and The Color of Money, which are The Color of Money is a sequel to Paul Newman's The Hustler, and The Hustler is beautiful. I love The Color of Money.
 
 [00:23:42] Will: The Color of Money is Tom Cruise before he realized how famous he was going to be, and it is so good.
 
 [00:23:47] Adam: And Paul Newman and Mary Elizabeth Mastrantonio. It's directed by Martin Scorsese. So Martin Scorsese. I Martin Scorsese did two, two movies back then, After Hours and The Color of Money, to prove to the studios that he could make a movie on budget and deliver it and make money with it. This was a sort of a focus thing to get, from what I understand, to gain back studio confidence, so he could make The Last Temptation of Christ, which still took several years after that. But After Hours with Griffin Dunne and Color of Money with Newman and Cruise are both terrific, just really, really solidly crafted, like pieces of carpentry, solidly crafted films. And The Color of Money is gorgeous.
 
-[00:24:30] Will: It's it's it's one of those things that it's from a period and it's a type of movie that you would think would be paced poorly. It wouldn't have aged well, and when you watch it again today, it is every bit as riveting as it was when I saw it in 1990 the first time.
+[00:24:30] Will: It's one of those things that it's from a period and it's a type of movie that you would think would be paced poorly. It wouldn't have aged well, and when you watch it again today, it is every bit as riveting as it was when I saw it in 1990 the first time.
 
 [00:24:42] Adam: And you know who was a pool hustler growing up that you didn't know about?
 
@@ -496,17 +496,17 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:26:17] Norm: Love your family. Have some pie. Go play some pool.
 
-[00:26:19] Will: You know, I have one more pool. story.
+[00:26:19] Will: I have one more pool. story.
 
 [00:26:21] Adam: I am going to find some pool halls on the road, by the way. So tell me your one more pool. One more thing, your Steve Jobs moment.
 
-[00:26:26] Will: My one more thing. It's a funny story. I was sitting in a bar playing pool, and I was with some friends. The guy next in line for the table was standing there watching, and we were talking about whether it would hurt worse—to get shot or stabbed. And we go on and on and on, as people drinking and playing pool do. And finally, the guy who's sitting there waiting at the table says, " Stabbed is much worse." And I said, I said, how? Why? How do you know? And he's like, Well, this one's from a stab, and this one's from getting shot. And he pointed to the meat of his arm, and the and the and I was like, Well, okay, pool halls.
+[00:26:26] Will: My one more thing. It's a funny story. I was sitting in a bar playing pool, and I was with some friends. The guy next in line for the table was standing there watching, and we were talking about whether it would hurt worse—to get shot or stabbed. And we go on and on and on, as people drinking and playing pool do. And finally, the guy who's sitting there waiting at the table says, " Stabbed is much worse." And I said, how? Why? How do you know? And he's like, Well, this one's from a stab, and this one's from getting shot. And he pointed to the meat of his arm, and the and I was like, Well, okay, pool halls.
 
-[00:27:02] Adam: Um, I have one more story, which is, um, many of my best nights at pool had been when I lost, but so spectacularly that I got the respect of the room,
+[00:27:02] Adam: I have one more story, which is many of my best nights at pool had been when I lost, but so spectacularly that I got the respect of the room,
 
 [00:27:13] Will: like like a a theatrical failing.
 
-[00:27:15] Adam: Theatrical failing. I had one in which I um I had one in which in a game of eight ball in a nightclub I cleared the entire table, including spotting a pair of balls per... touching but perpendicular to the pocket, and did a two bank kick shot to sink one in the corner, and the crowd went bananas. That I called what looked like a ball wedged into the middle of a stack right into the corner, and then through literally no fault of my own scratched on the eight ball. I mean, it was one of those no one could have seen it, but the rest of the night as I walked up to the table, people would clear. For me, and there was one night. There was this bar in New York called MK. Back in the in the mid '80s, it was the place, and they had a top room full of glass fronted cabinets filled with bones, which is an early inspiration for this room. And they had this big gold pool table in the middle of the room, and you put quarters up to play. And I used to go there alone. I I had a friend who got me on the list of the nightclub a lot, and I would go and play alone. I was a weird kid, but one night I'm playing, and I’m on the eight ball. And the eight ball is right in front of a corner, and I'm just about to sink it for the game when the guy I'm playing says, " No, no, no, no, no, no, we're playing last pocket." And last pocket is a variant of eight ball, which means that your eight ball has to go into the pocket that the that you sunk your last ball in. It just so happens that the last ball I'd sunk was in the opposite corner pocket, and the eight ball I'll remind you is nearly wedged into the corner pocket. And he goes last pocket, and I'm like. Fuck you, last pocket. He's like, no, last pocket, and the rest of the crowd's like, yeah, last pocket, last pocket. And I'm like, you are all. I, I can tell you don't want me here. And I, I did a kick shot banking off the horn of the corner with the cue ball.
+[00:27:15] Adam: Theatrical failing. I had one in which I I had one in which in a game of eight ball in a nightclub I cleared the entire table, including spotting a pair of balls per... touching but perpendicular to the pocket, and did a two bank kick shot to sink one in the corner, and the crowd went bananas. That I called what looked like a ball wedged into the middle of a stack right into the corner, and then through literally no fault of my own scratched on the eight ball. I mean, it was one of those no one could have seen it, but the rest of the night as I walked up to the table, people would clear. For me, and there was one night. There was this bar in New York called MK. Back in the mid '80s, it was the place, and they had a top room full of glass fronted cabinets filled with bones, which is an early inspiration for this room. And they had this big gold pool table in the middle of the room, and you put quarters up to play. And I used to go there alone. I had a friend who got me on the list of the nightclub a lot, and I would go and play alone. I was a weird kid, but one night I'm playing, and I’m on the eight ball. And the eight ball is right in front of a corner, and I'm just about to sink it for the game when the guy I'm playing says, " No, no, no, no, no, no, we're playing last pocket." And last pocket is a variant of eight ball, which means that your eight ball has to go into the pocket that the that you sunk your last ball in. It just so happens that the last ball I'd sunk was in the opposite corner pocket, and the eight ball I'll remind you is nearly wedged into the corner pocket. And he goes last pocket, and I'm like. Fuck you, last pocket. He's like, no, last pocket, and the rest of the crowd's like, yeah, last pocket. And I'm like, you are all. I can tell you don't want me here. And I, I did a kick shot banking off the horn of the corner with the cue ball.
 
 [00:29:07] Will: Okay.
 
@@ -542,7 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:30:13] Will: Norm and I’ll be there.
 
-[00:30:14] Adam: Norm and you will be there. It's going to be great. I think we're going to have an after party. It'll be it'll be a cathartic a cathartic time.
+[00:30:14] Adam: Norm and you will be there. It's going to be great. I think we're going to have an after party. It'll be a cathartic time.
 
 [00:30:21] Will: Cool. See you guys next time.
 

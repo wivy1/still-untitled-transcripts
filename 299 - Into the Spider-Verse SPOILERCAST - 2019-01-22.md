@@ -40,13 +40,13 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:01:03] Adam: Oh, I did not realize that.
 
-[00:01:05] Ben: My my email address. [unclear: Shut this out / Shut this up].
+[00:01:05] Ben: My email address. [unclear: Shut this out / Shut this up]
 
 [00:01:10] Will: Start bleeping.
 
 [00:01:11] Ben: Double it.
 
-[00:01:12] Will: It's it's a.
+[00:01:12] Will: It's a.
 
 [00:01:12] Unknown speaker: Tell him twice.
 
@@ -82,11 +82,11 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:01:44] Ben: I don't understand editing.
 
-[00:01:47] Will: You know, you know. I'm never. I was going to joke about somebody who was doing a bad speech the other day, and read. A read a podcast ad during a political speech as part of the March for Life. What? Like he's standing on the Mall in Washington,
+[00:01:47] Will: I'm never. I was going to joke about somebody who was doing a bad speech the other day, and read. A read a podcast ad during a political speech as part of the March for Life. What? Like he's standing on the Mall in Washington,
 
 [00:01:47] Norm: No.
 
-[00:01:47] Will: Uh, during, doing the March for Life, and then he cuts mid-speech to an ad for Quip toothbrushes. I think
+[00:01:47] Will: During, doing the March for Life, and then he cuts mid-speech to an ad for Quip toothbrushes. I think
 
 [00:02:10] Norm: no
 
@@ -120,7 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:02:47] Adam: Ben is you're here because of Sketchfest.
 
-[00:02:51] Ben: Agree, strong agree, strong agree. I I was here for the San Francisco Sketchfest, which I. I love and will come when invited. I did a handful of shows. I read worst first chapters in a show called Worst First Chapters, where you read terrible prose from a book that doesn't exist. It was it was two great times. I helped Busy Philipps do her Busy Tonight Live program.
+[00:02:51] Ben: Agree, strong agree. I was here for the San Francisco Sketchfest, which I. I love and will come when invited. I did a handful of shows. I read worst first chapters in a show called Worst First Chapters, where you read terrible prose from a book that doesn't exist. It was two great times. I helped Busy Philipps do her Busy Tonight Live program.
 
 [00:03:16] Adam: She's the best.
 
@@ -144,13 +144,13 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:03:47] Adam: We did.
 
-[00:03:47] Ben: Where. You said hello, and I said hello. You said I said we met at the thing. I have had pizza at your at your clubhouse, and you said, " Do you want to see the replica of a T Rex skull I just got?" And I said, " Of course I do." And we were like kids at a slumber party, best friends ever since.
+[00:03:47] Ben: Where. You said hello, and I said hello. You said I said we met at the thing. I have had pizza at your clubhouse, and you said, " Do you want to see the replica of a T Rex skull I just got?" And I said, " Of course I do." And we were like kids at a slumber party, best friends ever since.
 
 [00:04:09] Adam: Indeed.
 
 [00:04:09] Ben: I don't. I don't ask you to rank your friends. I am your best friend.
 
-[00:04:14] Norm: You know you got 12 in your top 10, right?
+[00:04:14] Norm: You got 12 in your top 10, right?
 
 [00:04:16] Adam: Yeah, exactly. There is at least 30 movies in my top five.
 
@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:05:01] Norm: Oh, yeah.
 
-[00:05:01] Adam: just for a second. Everyone knows that I like space hardware, and I make a lot of replicas of space hardware. I occasionally collect pieces of space hardware. I'm not really, I'm not into spending tons and tons of dough on it. But I recently acquired this piece, which is a real high pressure helmet from Britain in the '70s. It's a it's a high altitude pressure helmet called a Taylor helmet. I am so psyched to get this in my collection. I believe this is part of the inspiration for the helmet that's in the opening shot of Alien. It's not here because I curated it back into my office at home.
+[00:05:01] Adam: just for a second. Everyone knows that I like space hardware, and I make a lot of replicas of space hardware. I occasionally collect pieces of space hardware. I'm not really, I'm not into spending tons and tons of dough on it. But I recently acquired this piece, which is a real high pressure helmet from Britain in the '70s. It's a high altitude pressure helmet called a Taylor helmet. I am so psyched to get this in my collection. I believe this is part of the inspiration for the helmet that's in the opening shot of Alien. It's not here because I curated it back into my office at home.
 
 [00:05:01] Norm: Oh,
 
@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:05:43] Norm: But the red mouth flap.
 
-[00:05:45] Adam: Yes, with this this feeding hole here.
+[00:05:45] Adam: Yes, with this feeding hole here.
 
 [00:05:48] Norm: That's what it is.
 
@@ -218,11 +218,11 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:06:13] Ben: it's also the inspiration for Alien.
 
-[00:06:15] Adam: That's exactly. It looks like a face hugger, and it it apparently sucked. Like the pilots hated these.
+[00:06:15] Adam: That's exactly. It looks like a face hugger, and it apparently sucked. Like the pilots hated these.
 
 [00:06:21] Will: Yeah, I can't imagine why.
 
-[00:06:22] Adam: Um, and it's literally you dragged this rubber bag and tightened it around your head, and the only pressurized place was this part right around your face.
+[00:06:22] Adam: And it's literally you dragged this rubber bag and tightened it around your head, and the only pressurized place was this part right around your face.
 
 [00:06:30] Will: Have you put it on, Adam?
 
@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:07:01] Adam: What do you mean?
 
-[00:07:02] Norm: The the handwritten information are those mods?
+[00:07:02] Norm: The handwritten information are those mods?
 
 [00:07:04] Adam: I don't know mods.
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:07:20] Adam: Mods.
 
-[00:07:21] Norm: No, on on the bottom.
+[00:07:21] Norm: No, on the bottom.
 
 [00:07:22] Adam: Oh yes.
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:07:54] Will: Oh no! In the art center.
 
-[00:07:56] Adam: In the in the art center. Yeah, there was a big art show there, and it was it was a fun conversation on stage. It will be broadcast as part of City Arts and Lectures. Tom and I are both participating in a show that MoMA is having this July called " Far Out" about spacesuits and Habs and the NASA era and inspiration for our culture in space. That was, of course, really fun, and I got to explain to Tom that I'd actually shot guns in that very building. Wow! That when MythBusters did bullet drop versus fired, we needed a we needed a room that was at least 400 feet long because that's about how long it takes a bullet to leave a gun to actually hit the ground from about hand height.
+[00:07:56] Adam: In the art center. Yeah, there was a big art show there, and it was a fun conversation on stage. It will be broadcast as part of City Arts and Lectures. Tom and I are both participating in a show that MoMA is having this July called " Far Out" about spacesuits and Habs and the NASA era and inspiration for our culture in space. That was, of course, really fun, and I got to explain to Tom that I'd actually shot guns in that very building. Wow! That when MythBusters did bullet drop versus fired, we needed a room that was at least 400 feet long because that's about how long it takes a bullet to leave a gun to actually hit the ground from about hand height.
 
 [00:08:35] Ben: As we all know.
 
@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:09:45] Will: Yes,
 
-[00:09:46] Adam: this is this is Will says that they're bracketed by Thor,
+[00:09:46] Adam: this is Will says that they're bracketed by Thor,
 
 [00:09:49] Will: Thor on either side.
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:09:59] Ben: Because it's the best.
 
-[00:10:00] Will: Because Robert Redford was nominated for the Peace Nobel Peace Prize and he passed. It's an it's an asinine line. It ruins the whole movie. Pulls the whole thing down to number two.
+[00:10:00] Will: Because Robert Redford was nominated for the Peace Nobel Peace Prize and he passed. It's an asinine line. It ruins the whole movie. Pulls the whole thing down to number two.
 
 [00:10:10] Adam: I don't understand
 
@@ -352,13 +352,13 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:10:12] Adam: His character,
 
-[00:10:12] Will: Robert Redford's character, when when Sam Jackson, yeah, John Bob Redford, whatever whatever his name is,
+[00:10:12] Will: Robert Redford's character, when Sam Jackson, yeah, John Bob Redford, whatever whatever his name is,
 
 [00:10:18] Norm: now Hydra
 
 [00:10:18] Adam: Bobby.
 
-[00:10:19] Will: When when Sam Jackson is describing what a spectacular person is, he says he passed on the Nobel Peace Prize.
+[00:10:19] Will: When Sam Jackson is describing what a spectacular person is, he says he passed on the Nobel Peace Prize.
 
 [00:10:19] Adam: Who does that?
 
@@ -426,7 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:11:41] Adam: Yeah.
 
-[00:11:41] Will: Um, who likes you know Spider-Man? I guess if you don't like Spider-Man,
+[00:11:41] Will: Who likes you know Spider-Man? I guess if you don't like Spider-Man,
 
 [00:11:54] Adam: who doesn't like Spider-Man?
 
@@ -458,7 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:12:17] Adam: Really?
 
-[00:12:18] Ben: Yeah, you you all know which fictional characters you've made up that you share a birthday with, right?
+[00:12:18] Ben: Yeah, you all know which fictional characters you've made up that you share a birthday with, right?
 
 [00:12:22] Will: Oh, but now I have some work to do.
 
@@ -488,7 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:12:49] Norm: That’s mythology.
 
-[00:12:50] Adam: Yes. I saw it just last weekend. My wife and I went to see it, and she was she was she was like all right, and absolutely loved it.
+[00:12:50] Adam: Yes. I saw it just last weekend. My wife and I went to see it, and she was like all right, and absolutely loved it.
 
 [00:13:02] Norm: And that's the guys you guys watched in the polar opposite of the release window, right? Opening weekend, closing, closing, basically, essentially closing weekend. And I bet when you watched a lot of kids there, I bet when you watched it, Adam, not a lot of kids there.
 
@@ -496,7 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:13:24] Will: I we had the same thing.
 
-[00:13:25] Adam: I I'm always really refreshed when when a movie audience is like that was so great. I'm going to clap even though no one's here to hear it.
+[00:13:25] Adam: I I'm always really refreshed when a movie audience is like that was so great. I'm going to clap even though no one's here to hear it.
 
 [00:13:32] Norm: Well, but the point is that it was sold as a animated films for better or worse are presented as kids movies in the marketing.
 
@@ -512,7 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:13:46] Ben: I haven't.
 
-[00:13:46] Will: Usually not that vocal. It's usually a pretty quiet, reserved, you know. And and people were really excited when I saw it in the theater. And I and I don't blame. I mean, I was I walked out and was like, could have turned around and gone back into the movie again.
+[00:13:46] Will: Usually not that vocal. It's usually a pretty quiet, reserved. And people were really excited when I saw it in the theater. And I don't blame. I mean, I was I walked out and was like, could have turned around and gone back into the movie again.
 
 [00:14:28] Adam: It's awesome. I'm dying to see it again.
 
@@ -522,11 +522,11 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:14:39] Norm: I want to hear these notes.
 
-[00:14:41] Ben: No, like it's it's.
+[00:14:41] Ben: No, like it's.
 
 [00:14:44] Norm: Where do these notes come from? As a writer, as a comic fan,
 
-[00:14:48] Ben: as a guy, I guess, as a writer, I guess. As a guy who's more interested in characters interacting than stuff interacting with characters, I guess ultimately, like for me, the most satisfying stuff is I have a point of view, I have a point of view, and we are in a thing about it, right? And so it builds to this climax where the kingpin is punching people, and that's like for me, the kingpin is a character like Don Corleone who's good enough at his thing to not have to punch people. He's got Tombstone, Tombstone's invulnerable. Tombstone is a Wile E. Coyote ass guy who can take a licking and and give it. So, like at the start, when when Kingpin steps on on Peter Parker Spider Man, Chris Pine Spider Man, it's like okay, I guess, but you've got your guy who does that. You've got your Button Man right there. Tell him to do it. Keep your suit clean and go have a nice. Dinner, and then in the end, have this invulnerable guy fighting all the Spider Men.
+[00:14:48] Ben: as a guy, I guess, as a writer, I guess. As a guy who's more interested in characters interacting than stuff interacting with characters, I guess ultimately, like for me, the most satisfying stuff is I have a point of view, I have a point of view, and we are in a thing about it, right? And so it builds to this climax where the kingpin is punching people, and that's like for me, the kingpin is a character like Don Corleone who's good enough at his thing to not have to punch people. He's got Tombstone, Tombstone's invulnerable. Tombstone is a Wile E. Coyote ass guy who can take a licking and give it. So, like at the start, when Kingpin steps on Peter Parker Spider Man, Chris Pine Spider Man, it's like okay, I guess, but you've got your guy who does that. You've got your Button Man right there. Tell him to do it. Keep your suit clean and go have a nice. Dinner, and then in the end, have this invulnerable guy fighting all the Spider Men.
 
 [00:14:48] Norm: He hates him so much.
 
@@ -534,11 +534,11 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:16:11] Will: That's what a podcast is for, Ben.
 
-[00:16:12] Ben: I know that's what a podcast is for, but being in show business, you're supposed to shut up about it. But but so you've got each of these Spider Men from each of these universes that have phlebotinum'd their way to this place, which justifies anything from their universe coming into this place, which is why you have trains running on this axis instead of this axis for your big finale. And I think that the only one who has had more unnecessary hamfisted cameos in Marvel movies than Stan Lee is trains. I didn't like them in Black Panther. I didn't need a train that I have no interest in being part of their finale, and I. Didn't care about a train, and I get that visually it's great, and it's about visuals. It's a visual medium. It's visual, visual, great. Do it. That's why you do it. It's right. It's technically right, and I'm technically wrong. But if you had a bunch of Ben Schwartz and Tom Middleditch animals from the Porker verse coming in, and he gets to see his nemesis, and you have other, you have a bunch of not they set up that this is a Spider Man Noir fights Nazis in the '30s. I want to see '30s Nazis. That's a Chekhov's Nazis rule. Right, Nazis. I want to see today the most Nazis getting punched ever. Like that's what I want. That's what I want to see.
+[00:16:12] Ben: I know that's what a podcast is for, but being in show business, you're supposed to shut up about it. But so you've got each of these Spider Men from each of these universes that have phlebotinum'd their way to this place, which justifies anything from their universe coming into this place, which is why you have trains running on this axis instead of this axis for your big finale. And I think that the only one who has had more unnecessary hamfisted cameos in Marvel movies than Stan Lee is trains. I didn't like them in Black Panther. I didn't need a train that I have no interest in being part of their finale, and I. Didn't care about a train, and I get that visually it's great, and it's about visuals. It's a visual medium. It's visual, visual, great. Do it. That's why you do it. It's right. It's technically right, and I'm technically wrong. But if you had a bunch of Ben Schwartz and Tom Middleditch animals from the Porker verse coming in, and he gets to see his nemesis, and you have other, you have a bunch of not they set up that this is a Spider Man Noir fights Nazis in the '30s. I want to see '30s Nazis. That's a Chekhov's Nazis rule. Right, Nazis. I want to see today the most Nazis getting punched ever. Like that's what I want. That's what I want to see.
 
 [00:17:32] Will: Like I signed up for two hours of Nazis getting punched. That sounds great.
 
-[00:17:35] Ben: And so, if the the thing of the movie is like you're not alone, Spider Man. You come from trauma, but there's a family of us. Then if each of their nemesis shows up. Like, you can. I am the one you can never beat, and then they each take a step to the right and beat each other's nemesis because they're family.
+[00:17:35] Ben: And so, if the thing of the movie is like you're not alone, Spider Man. You come from trauma, but there's a family of us. Then if each of their nemesis shows up. Like, you can. I am the one you can never beat, and then they each take a step to the right and beat each other's nemesis because they're family.
 
 [00:17:55] Will: Yeah, but I mean, that doesn't leave any room for the sequel, Ben.
 
@@ -564,7 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:18:21] Adam: Right.
 
-[00:18:21] Ben: So, I mean, edit all that out though, because I don't want to say because I love those guys. Like everybody did the best job. Like it's not a it's not a real criticism because visual and tight. That's all you want from us.
+[00:18:21] Ben: So, I mean, edit all that out though, because I don't want to say because I love those guys. Like everybody did the best job. Like it's not a real criticism because visual and tight. That's all you want from us.
 
 [00:18:34] Norm: It’s okay being left wanting more.
 
@@ -582,7 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:18:56] Norm: I think it's because it's animated. Because they feel like with animation, the risk is lower.
 
-[00:19:00] Will: But but then they came back and had to ask for more money at the end, and the whole thing like it's it seemed like a project that would have been killed 10 different times along the way.
+[00:19:00] Will: But then they came back and had to ask for more money at the end, and the whole thing like it's it seemed like a project that would have been killed 10 different times along the way.
 
 [00:19:07] Adam: It's so novel. It feels so novel. It feels surprising that it got past studio notes.
 
@@ -602,11 +602,11 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:19:33] Will: Yeah,
 
-[00:19:33] Ben: you know, like they justified Eddie Brock in a way that like we don't think of a washed-up journalist, right?
+[00:19:33] Ben: Like they justified Eddie Brock in a way that like we don't think of a washed-up journalist, right?
 
 [00:19:33] Adam: Right,
 
-[00:19:33] Ben: and that and that's hard. And like we buy, this is a guy who cares so passionately about this stuff that if you gave him a symbiote, he would he would do some shit.
+[00:19:33] Ben: and that and that's hard. And like we buy, this is a guy who cares so passionately about this stuff that if you gave him a symbiote, he would do some shit.
 
 [00:19:54] Norm: I laughed out loud when they had Venom's motivation.
 
@@ -616,7 +616,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:20:29] Ben: And then Venom plays, and then the credits roll. Yeah.
 
-[00:20:33] Will: Um. So, so Spider Verse, like the thing that blew me away about Spider Verse was how dense it is, how dense the animation.
+[00:20:33] Will: So, so Spider Verse, like the thing that blew me away about Spider Verse was how dense it is, how dense the animation.
 
 [00:20:40] Ben: Yeah, let's talk good about it before. Like, let's do all the good talk and then edit in my criticism.
 
@@ -634,7 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:20:58] Adam: Patriot Act, and it made me feel old because while I appreciate his wonderful charisma and terrific writing, it just had a tonality and a speed that made me feel ancient because I had no interest in watching that. I get that it's quality; it's just not for my generation. And I was a little afraid of Spider Verse that it might because it is at so many times at this frenetic pace that sometimes can can initiate that. And yet, I also thought there was all this great quietude in it, all these great breaths that gave you time to reset before the next big thing happened.
 
-[00:21:36] Ben: You know, walking into it, I was a little. I was like, " How do you do?" The great thing about Miles Morales's origin in the comics is that Peter Parker, Spider-Man, is his uncle Ben. Right.
+[00:21:36] Ben: Walking into it, I was a little. I was like, " How do you do?" The great thing about Miles Morales's origin in the comics is that Peter Parker, Spider-Man, is his uncle Ben. Right.
 
 [00:21:36] Adam: Oh, right.
 
@@ -642,7 +642,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:21:48] Will: That's the
 
-[00:21:49] Ben: lineage. He failed to save. Spider Man, and that drives him to understand: with great power comes great responsibility. Right, and and so I am coming into this movie going, I don't know how you do that,
+[00:21:49] Ben: lineage. He failed to save. Spider Man, and that drives him to understand: with great power comes great responsibility. Right, and so I am coming into this movie going, I don't know how you do that,
 
 [00:22:00] Adam: right?
 
@@ -650,7 +650,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:21:49] Adam: Yeah,
 
-[00:21:49] Ben: I get, I get the sentiment of it could be anyone under that mask, which is what the whole point of that movie is, and that's great.
+[00:21:49] Ben: I get the sentiment of it could be anyone under that mask, which is what the whole point of that movie is, and that's great.
 
 [00:21:49] Adam: Yeah,
 
@@ -666,7 +666,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:22:55] Adam: So so maybe there's a. Like Paris Hilton has Spider-Man.
 
-[00:23:00] Will: Well, so but but but here's the like our universe. We don't have a Spider-Man, right? Right. So is the is the one where Peter Parker got killed at the beginning of this one? Our our Spider like you know there's there's universe there's metaverse. Where does this fit in? Is this an MCU movie?
+[00:23:00] Will: Well, so but here's the like our universe. We don't have a Spider-Man, right? Right. So is the one where Peter Parker got killed at the beginning of this one? Our Spider like you know there's there's universe there's metaverse. Where does this fit in? Is this an MCU movie?
 
 [00:23:15] Norm: Oh, sorry, Ben.
 
@@ -690,9 +690,9 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:23:36] Ben: there was one one in their flashback was the Tobey Maguire.
 
-[00:23:39] Norm: Yes, the Chris Pine Spider-Man was supposed to be the the Uber Spider-Man, the Spider-Man as we in pop culture understand Spider-Man to be.
+[00:23:39] Norm: Yes, the Chris Pine Spider-Man was supposed to be the Uber Spider-Man, the Spider-Man as we in pop culture understand Spider-Man to be.
 
-[00:23:47] Will: Okay. And okay, so as a person who's not a huge Spider-Man fan, and I say that meaning I've read like three comic book arcs and and mostly watched movies and the '70s television show. What, what, like, are all those real Spider-Men? Did they do comics for all those Spider-Spider? I know Spider Gwen's real.
+[00:23:47] Will: Okay. And okay, so as a person who's not a huge Spider-Man fan, and I say that meaning I've read like three comic book arcs and mostly watched movies and the '70s television show. What are all those real Spider-Men? Did they do comics for all those Spider-Spider? I know Spider Gwen's real.
 
 [00:24:06] Norm: Yeah.
 
@@ -704,7 +704,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:24:12] Adam: no, I didn't.
 
-[00:24:13] Norm: There, there was a post credit scene.
+[00:24:13] Norm: There was a post credit scene.
 
 [00:24:14] Ben: I know that there was.
 
@@ -716,7 +716,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:24:20] Will: Mad with power now.
 
-[00:24:21] Norm: Yeah, as post credit was a a play on the Spider-Man pointing at Spider-Man meme, you know from the from the cartoon.
+[00:24:21] Norm: Yeah, as post credit was a play on the Spider-Man pointing at Spider-Man meme from the cartoon.
 
 [00:24:21] Will: Oh, okay.
 
@@ -728,13 +728,13 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:24:32] Ben: Smart. Who played him?
 
-[00:24:34] Norm: Um, I believe it was Oscar Isaac.
+[00:24:34] Norm: I believe it was Oscar Isaac.
 
 [00:24:37] Will: Oh,
 
-[00:24:38] Norm: oh, nice. And that was appropriate casting, and and yeah. Um, going back to the idea that anyone can be Spider-Man, it's a it's totally a trope in Spider-Man films, specifically. With the the kid, the fan of Spider-Man, wearing the the janky Spider-Man costume, right? And isn't that like the the manifestation of anyone can be Spider-Man, right?
+[00:24:38] Norm: oh, nice. And that was appropriate casting, and yeah. Going back to the idea that anyone can be Spider-Man, it's a it's totally a trope in Spider-Man films, specifically. With the kid, the fan of Spider-Man, wearing the janky Spider-Man costume, right? And isn't that like the manifestation of anyone can be Spider-Man, right?
 
-[00:24:59] Ben: Right. I'm just saying, doesn't that, doesn't that?
+[00:24:59] Ben: Right. I'm just saying, doesn't that?
 
 [00:25:06] Unknown speaker: Doesn't it cheapen the brand?
 
@@ -762,7 +762,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:25:41] Ben: Right. Right. So yeah, that's why I cut that all out. No, you know what? Keep the parts where I sound great.
 
-[00:25:48] Will: Okay, so that's what we always do. One of the one of the things I loved was how they pulled each character's unique design popped up when they were when they were getting screen time in in terms of the environments and stuff too. Like it seemed like when you saw was it Nick Cage with Spider Man Noir?
+[00:25:48] Will: Okay, so that's what we always do. One of the things I loved was how they pulled each character's unique design popped up when they were getting screen time in terms of the environments and stuff too. Like it seemed like when you saw was it Nick Cage with Spider Man Noir?
 
 [00:26:07] Norm: Yeah.
 
@@ -770,11 +770,11 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:26:11] Ben: a real bop.
 
-[00:26:13] Will: Yeah, but but they they they pulled like they they changed the back. The movie looked like a comic book in motion.
+[00:26:13] Will: Yeah, but they pulled like they changed the back. The movie looked like a comic book in motion.
 
 [00:26:21] Unknown speaker: Yeah,
 
-[00:26:21] Will: to the point that they had like stippled and and and and you know it looked like newsprint in some cases. It was unbelievable, and they pulled each of the individual character designs into that. So
+[00:26:21] Will: to the point that they had like stippled and you know it looked like newsprint in some cases. It was unbelievable, and they pulled each of the individual character designs into that. So
 
 [00:26:32] Adam: they also were playing around with. What felt like there were times I thought I was watching a 3D movie without glasses.
 
@@ -784,7 +784,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:26:41] Adam: Oh really?
 
-[00:26:41] Ben: You sent me into a three. Oh, I'm sorry. We should have started with where I saw the movie. I saw it at the at the Grove theaters in Los Angeles with a grown up adult named Humphrey Ker.
+[00:26:41] Ben: You sent me into a three. Oh, I'm sorry. We should have started with where I saw the movie. I saw it at the Grove theaters in Los Angeles with a grown up adult named Humphrey Ker.
 
 [00:26:41] Will: Okay.
 
@@ -814,7 +814,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:27:26] Norm: It is in 3D.
 
-[00:27:27] Ben: I hear it is a wonder. Like I hear it's the it's the best one.
+[00:27:27] Ben: I hear it is a wonder. Like I hear it's the best one.
 
 [00:27:30] Will: Oh wow! That final fight sequence seemed like it was made specifically to make 3D look. Instead of focusing on you know character development and things like that, they just made a really really gorgeous 3D fight scene.
 
@@ -842,11 +842,11 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:28:42] Ben: and now
 
-[00:28:42] Norm: and and
+[00:28:42] Norm: and
 
 [00:28:43] Ben: and today,
 
-[00:28:44] Norm: and because people they they need new readers, right?
+[00:28:44] Norm: and because people they need new readers, right?
 
 [00:28:44] Ben: Right.
 
@@ -878,11 +878,11 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:29:21] Ben: sure,
 
-[00:29:21] Will: and and it goes as if as if everybody didn't read every one of those books that came before.
+[00:29:21] Will: and it goes as if everybody didn't read every one of those books that came before.
 
 [00:29:35] Ben: Well, when you read Harry Potter, you want to start with three.
 
-[00:29:38] Will: You like you like the the slash order, not the not the not the cuts order. Wow, bold. But yeah, back to the Spider Verse, I guess.
+[00:29:38] Will: You like the slash order, not the cuts order. Wow, bold. But yeah, back to the Spider Verse, I guess.
 
 [00:31:09] Adam: Back to the Spider Verse, I guess. Is there any inkling of what those guys might tackle next? Because the idea that this could have a follow up is really exciting.
 
@@ -906,11 +906,11 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:31:42] Norm: talking about this role and how he was hired for the role,
 
-[00:31:45] Ben: and and he did not know.
+[00:31:45] Ben: and he did not know.
 
 [00:31:46] Norm: They did not know
 
-[00:31:46] Ben: exactly what the he didn't know what what he was signing on for.
+[00:31:46] Ben: exactly what the he didn't know what he was signing on for.
 
 [00:31:49] Norm: Well, they.
 
@@ -942,35 +942,35 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:33:08] Will: Juggernaut.
 
-[00:33:13] Ben: Um, try and think of any guy. Yeah, Green Goblin, Sub Goblin.
+[00:33:13] Ben: Try and think of any guy. Yeah, Green Goblin, Sub Goblin.
 
-[00:33:19] Will: So there were two things that kind of surprised me. One is that they managed to make go the whole movie without doing a JJ, sorry, a Joss Whedon style like clever, just just superheroes sitting around being clever at each other, which was which was kind of pleasant. Like I I like those most of the time, but usually they don't. It didn't seem like it would be right for that movie.
+[00:33:19] Will: So there were two things that kind of surprised me. One is that they managed to make go the whole movie without doing a JJ, sorry, a Joss Whedon style like clever, just just superheroes sitting around being clever at each other, which was kind of pleasant. Like I I like those most of the time, but usually they don't. It didn't seem like it would be right for that movie.
 
 [00:33:38] Adam: Uh, well, there was a little. Can he say that legally? I mean, there was some breaking of the fourth wall on that front. Well, which I enjoy.
 
 [00:33:44] Will: I don't mind that.
 
-[00:33:45] Adam: When when when the pig says that's all, folks, and you hear someone go, " Can he?
+[00:33:45] Adam: When the pig says that's all, folks, and you hear someone go, " Can he?
 
 [00:33:49] Unknown speaker: Can he really say that?"
 
-[00:33:50] Norm: But well, I think you're you're talking about almost like a Kevin Smith, Joss Whedon, like let the characters.
+[00:33:50] Norm: But well, I think you're talking about almost like a Kevin Smith, Joss Whedon, like let the characters.
 
 [00:33:56] Unknown speaker: Like just one up each other,
 
-[00:33:57] Norm: and and yeah,
+[00:33:57] Norm: and yeah,
 
-[00:33:58] Will: yeah, like like the Thor scene, the hammer scene, and Age of Ultron is the one I'm thinking about specifically.
+[00:33:58] Will: yeah, like the Thor scene, the hammer scene, and Age of Ultron is the one I'm thinking about specifically.
 
 [00:34:02] Adam: Oh, right, okay.
 
-[00:34:03] Will: But you know the the the you know there's any number of those kind of witty bon mots that go back and forth like four lines too long. And then the scene, the scene with the roommate when they're in Miles Morales' dorm room is is some like straight up '30s style silent movie physical comedy genius.
+[00:34:03] Will: But you know the you know there's any number of those kind of witty bon mots that go back and forth like four lines too long. And then the scene with the roommate when they're in Miles Morales' dorm room is is some like straight up '30s style silent movie physical comedy genius.
 
 [00:34:23] Adam: So much fun and such
 
 [00:34:24] Will: That’s so good.
 
-[00:34:24] Ben: I think it was I think it was Jeff Parker, and I'm bad at at citing sources, but I think it was he tweeted a thing about when he writes Spider Man, and has he written Spider Man? I don't know. But the idea that if there's a crowd scene and Spider Man's in it and he's standing on the ground, do it again and have him in an angle. Like that's the perk of this character visually that that he should never just be like as Spider Man standing on the ground with everybody else.
+[00:34:24] Ben: I think it was Jeff Parker, and I'm bad at at citing sources, but I think it was he tweeted a thing about when he writes Spider Man, and has he written Spider Man? I don't know. But the idea that if there's a crowd scene and Spider Man's in it and he's standing on the ground, do it again and have him in an angle. Like that's the perk of this character visually that that he should never just be like as Spider Man standing on the ground with everybody else.
 
 [00:34:52] Norm: That's why Spider Man in Central Park doesn't work. Right, you need the skyscrapers. You need
 
@@ -978,7 +978,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:34:57] Will: You need something to swing off of and something to perch on.
 
-[00:35:00] Ben: Which the the Tobey Maguire Spider Man movie, the poster was him just standing over the city, and I was like,
+[00:35:00] Ben: Which the Tobey Maguire Spider Man movie, the poster was him just standing over the city, and I was like,
 
 [00:35:05] Unknown speaker: wasn't he on
 
@@ -992,11 +992,11 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:35:11] Ben: I think
 
-[00:35:12] Will: the the the movement, like the thing that this got is how fast and nimble and kind of puny Spider like like Spider Man always gets up. We know that, but like he he's he's fragile in a way that you don't appreciate in most of the Spider Man movies and and and the other things. Like you you feel bad when Spider Man gets punched in this movie.
+[00:35:12] Will: the movement the thing that this got is how fast and nimble and kind of puny Spider like Spider Man always gets up. We know that, but he he's fragile in a way that you don't appreciate in most of the Spider Man movies and the other things. Like you feel bad when Spider Man gets punched in this movie.
 
 [00:35:32] Adam: Yes,
 
-[00:35:33] Will: which which was nice.
+[00:35:33] Will: which was nice.
 
 [00:35:34] Norm: I mean, it’s testament to the animation, the animators.
 
@@ -1018,7 +1018,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:36:20] Adam: Doctor Wave.
 
-[00:36:20] Will: Yeah, they're missing one. Yes, Doctor Wave. Sorry, they. He told me about the time a friend of his was like, " Hey, you need to go see this movie, Akira. It's a $2 billion live action movie that's animated." And that was the feeling I had walking out of this movie. Like this movie, this movie is a movie that is going to change the way people approach animation, just because of the the way it's astounding how it was shot.
+[00:36:20] Will: Yeah, they're missing one. Yes, Doctor Wave. Sorry, they. He told me about the time a friend of his was like, " Hey, you need to go see this movie, Akira. It's a $2 billion live action movie that's animated." And that was the feeling I had walking out of this movie. Like this movie is a movie that is going to change the way people approach animation, just because of the way it's astounding how it was shot.
 
 [00:36:40] Ben: Didn't they invent new form, like do ways to animate? Didn't they like patent?
 
@@ -1030,7 +1030,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:36:56] Adam: So make sure no one else ever does that.
 
-[00:36:58] Norm: I know, mixing twos and fours, right? So some of the animations a little more staccato. You know, it's it's the animation equivalent of cranking up the shutter, and it made a lot of action look extra jumpy and bouncy.
+[00:36:58] Norm: I know, mixing twos and fours, right? So some of the animations a little more staccato. It's the animation equivalent of cranking up the shutter, and it made a lot of action look extra jumpy and bouncy.
 
 [00:37:11] Will: Unbelievable!
 
@@ -1044,7 +1044,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:37:19] Ben: Yeah, Liv.
 
-[00:37:20] Norm: Yeah, Liv. That was that was a cool.
+[00:37:20] Norm: Yeah, Liv. That was a cool.
 
 [00:37:21] Ben: I was like, I know that voice.
 
@@ -1080,7 +1080,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:37:58] Norm: She's hilarious.
 
-[00:37:59] Ben: Yeah, she's hilarious. She came from India and now she's she's in the Spider Verse.
+[00:37:59] Ben: Yeah, she's hilarious. She came from India and now she's in the Spider Verse.
 
 [00:38:03] Adam: All right.
 
@@ -1092,7 +1092,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:38:15] Will: Okay.
 
-[00:38:15] Adam: Uh. Now. Yep. I. I. I'd like to move on to just talk about something else I watched this week. Okay. That I hated.
+[00:38:15] Adam: Now. Yep. I. I. I'd like to move on to just talk about something else I watched this week. Okay. That I hated.
 
 [00:38:15] Will: Oh, great.
 
@@ -1128,7 +1128,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:39:08] Norm: I mean, that was intentional, though. That it's upsetting and creepy because
 
-[00:39:11] Adam: yes, no, clearly, clearly, it's I, I don't, I don't know. I found it really problematic.
+[00:39:11] Adam: yes, no, clearly, clearly, it's I, I don't know. I found it really problematic.
 
 [00:39:16] Will: This is why I don't watch real crime, true crime stuff, Adam.
 
@@ -1150,7 +1150,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:39:35] Unknown speaker: The rotoscoping is my favorite part.
 
-[00:39:38] Unknown speaker: All the ways, all the ways. Yeah. You were saying, Ben? You like it's shows that you like.
+[00:39:38] Unknown speaker: All the ways. Yeah. You were saying, Ben? You like it's shows that you like.
 
 [00:39:44] Ben: Yes,
 
@@ -1178,9 +1178,9 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:40:03] Norm: give the logline.
 
-[00:40:04] Ben: Okay, so it's a spy show where, ever, where in a normal spy genre thing, when the spy gets spyyy and he would get cool and glib and and one-linery and badass. This spy is capable. He knows the job. He's good at it, but every complication is another ulcer in his tum.
+[00:40:04] Ben: Okay, so it's a spy show where, ever, where in a normal spy genre thing, when the spy gets spyyy and he would get cool and glib and one-linery and badass. This spy is capable. He knows the job. He's good at it, but every complication is another ulcer in his tum.
 
-[00:40:30] Will: So he's like Tony Shalhoub as the as the spy as James Bond.
+[00:40:30] Will: So he's like Tony Shalhoub as the spy as James Bond.
 
 [00:40:34] Ben: No, he's pretty. He's an Australian actor.
 
@@ -1194,7 +1194,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:40:34] Will: Yeah.
 
-[00:40:34] Ben: And so you watch the first. The second season just dropped last month on Amazon Prime, but you watch in the first season, a guy's eyes get bigger and bigger, and his mouth gets smaller and smaller. It's just the weight of the world is just crushing, and it's the images are composed and beautiful. People have said it's like Wes Anderson directing Ian Fleming.
+[00:40:34] Ben: And so you watch the first. The second season just dropped last month on Amazon Prime, but you watch in the first season, a guy's eyes get bigger and his mouth gets smaller and smaller. It's just the weight of the world is just crushing, and it's the images are composed and beautiful. People have said it's like Wes Anderson directing Ian Fleming.
 
 [00:41:09] Adam: Oh wow!
 
@@ -1202,7 +1202,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:41:13] Norm: you could have said
 
-[00:41:13] Ben: that, but I but I feel like that's inapt because it is not Twee and it is not Brit Poppy.
+[00:41:13] Ben: that, but I feel like that's inapt because it is not Twee and it is not Brit Poppy.
 
 [00:41:13] Adam: Right.
 
@@ -1242,11 +1242,11 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:42:05] Adam: Yeah.
 
-[00:42:05] Norm: And so we're in the middle of season three right now. Um, we talked about extensively.
+[00:42:05] Norm: And so we're in the middle of season three right now. We talked about extensively.
 
-[00:42:14] Adam: Can I say what a crime it is that Keri Russell never won an Emmy for that role, and and Matthew Rhys did, and he's wonderful, and so is she. Like she's incredible in that show. We've talked about it on the podcast. I just, it's such a shame she did not get an Emmy for that.
+[00:42:14] Adam: Can I say what a crime it is that Keri Russell never won an Emmy for that role, and Matthew Rhys did, and he's wonderful, and so is she. Like she's incredible in that show. We've talked about it on the podcast. I just, it's such a shame she did not get an Emmy for that.
 
-[00:42:29] Norm: In rewatching it, it made me realize I forgot that so much. You you remember, of course, things like the suitcase. You remember all the crazy kind of like grotesque spy stuff they have to do that you previously haven't seen on a spy show on on basic cable. But really, it's because of their marriage and their partnership. That's that's the driving force of the show.
+[00:42:29] Norm: In rewatching it made me realize I forgot that so much. You remember, of course, things like the suitcase. You remember all the crazy kind of like grotesque spy stuff they have to do that you previously haven't seen on a spy show on basic cable. But really, it's because of their marriage and their partnership. That's the driving force of the show.
 
 [00:42:29] Adam: Yeah.
 
@@ -1312,7 +1312,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:45:14] Will: Ooh.
 
-[00:45:14] Ben: called Kid Midnight at kidmidnightcomic.com. And what it is, it's it's the autobiographical web comic of a teen sidekick.
+[00:45:14] Ben: called Kid Midnight at kidmidnightcomic.com. And what it is, it's the autobiographical web comic of a teen sidekick.
 
 [00:45:31] Will: Okay.
 
@@ -1320,21 +1320,21 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:47:00] Will: Where can people find it?
 
-[00:47:01] Ben: Kidmidnightcomic dot com. There is Kidmidnight, and the number one is the Twitter handle. I wish I had brought it up sooner because, like, there's some there's great stuff in the Spider Verse movie that I was like, yeah, yeah, yeah, same, same, same. Like, have it be about like the relationship he had with his dad. Yeah. Like that's a thing I'm doing in the comic is making the the the father figure as good at being a parent as he is at being a Batman. Like, what does that look like? What if it's not a dysfunctional?
+[00:47:01] Ben: Kidmidnightcomic dot com. There is Kidmidnight, and the number one is the Twitter handle. I wish I had brought it up sooner because there's some there's great stuff in the Spider Verse movie that I was like, yeah, yeah, yeah, same, same, same. Like, have it be about like the relationship he had with his dad. Yeah. Like that's a thing I'm doing in the comic is making the father figure as good at being a parent as he is at being a Batman. Like, what does that look like? What if it's not a dysfunctional?
 
 [00:47:31] Norm: We've never seen that.
 
 [00:47:32] Adam: That would be cool.
 
-[00:47:32] Ben: And and so finding out from from my friend from person Robin, like, what is the ideal version of this? And let me have that be this, so that the the the thesis and and naturally, when I put it out in the world, it's a web comic, so you don't do a full publicity press. It grows, and now there's probably about 50 strips, 50 pages up.
+[00:47:32] Ben: And so finding out from my friend from person Robin what is the ideal version of this? And let me have that be this, so that the thesis and naturally, when I put it out in the world, it's a web comic, so you don't do a full publicity press. It grows, and now there's probably about 50 strips, 50 pages up.
 
 [00:47:32] Unknown speaker: Okay,
 
-[00:47:32] Ben: you can go and see. But I was like, it's a A autobiographical web comic of a teen sidekick, and she went superheroes and feels, and it's like, yeah, it's it's that, um, and uh, and the thing that like the the broader whatever the the like lofty ambition of it is the idea that a um a comic with a superhero story tells you these points in in the thing. This is what's relevant in the emotional life of the character as manifests in the the villain fight,
+[00:47:32] Ben: you can go and see. But I was like, it's a autobiographical web comic of a teen sidekick, and she went superheroes and feels, and it's like, yeah, it's that and the thing that like the broader whatever the like lofty ambition of it is the idea that a comic with a superhero story tells you these points in the thing. This is what's relevant in the emotional life of the character as manifests in the villain fight,
 
 [00:47:32] Adam: right?
 
-[00:47:32] Ben: Like this is the to take that and go, but it's a web comic, so it's it's all the small moments, right? And so, what does heroism look like in your day to day? And it's setting aside your stuff to be in service to others, and so there's like a real warm, uh, connective thing between all these characters. There, they don't know because they're in it what necessarily their trauma is and looks like, but they know that they love their friends and their family. So it's this, it's it's uh, it's so much fun to write.
+[00:47:32] Ben: Like this is the to take that and go, but it's a web comic, so it's all the small moments, right? And so, what does heroism look like in your day to day? And it's setting aside your stuff to be in service to others, and so there's like a real warm connective thing between all these characters. There, they don't know because they're in it what necessarily their trauma is and looks like, but they know that they love their friends and their family. So it's this, it's so much fun to write.
 
 [00:48:58] Adam: That's. What a
 
@@ -1352,7 +1352,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:49:10] Ben: The train is the friends we made along the way.
 
-[00:49:11] Adam: Also, regarding your saying, yes, it's really hard to make a thing. I, I totally appreciate that. I was, I was discussing things I didn't like about Zack Snyder last week, and I did, I did include the caveat that he's directed a bunch of movies which I have not, and I don't know, have any idea how hard that is for a person to do, and I respect that he has achieved that. And so, you're right; that is like these are people trying to make good things, even if they don't resonate with us.
+[00:49:11] Adam: Also, regarding your saying, yes, it's really hard to make a thing. I totally appreciate that. I was discussing things I didn't like about Zack Snyder last week, and I did include the caveat that he's directed a bunch of movies which I have not, and I don't know, have any idea how hard that is for a person to do, and I respect that he has achieved that. And so, you're right; that is like these are people trying to make good things, even if they don't resonate with us.
 
 [00:49:39] Unknown speaker: No, nobody. But if
 

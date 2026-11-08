@@ -68,7 +68,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:02:37] Norm: Whoa.
 
-[00:02:37] Adam: which which cost a total of $1,800.
+[00:02:37] Adam: which cost a total of $1,800.
 
 [00:03:13] Rebecca: That's awesome.
 
@@ -114,7 +114,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:04:00] Adam: Right, the cost of flying to Minneapolis. So do you think it might not be July Fourth weekend next year?
 
-[00:04:04] Rebecca: I am positive it won't be. Because I, you know, I I need to see the July Fourth parade. You know, I need to see the fireworks. I don't need to be at a conference.
+[00:04:04] Rebecca: I am positive it won't be. Because I I I need to see the July Fourth parade. I need to see the fireworks. I don't need to be at a conference.
 
 [00:04:15] Adam: My dogs. Did we talk about my dogs on July Fourth? Huxley, Maggie doesn't really care, but Huxley sits there because we're in the mission.
 
@@ -166,7 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:05:14] Rebecca: Oh, good.
 
-[00:05:14] Adam: It turns out that like a, a, a certain number of CCs, I can't remember exactly what it is, but you use a syringe of like 40 CCs of hydrogen peroxide will make most dogs is an emetic, makes most dogs vomit immediately, and then you feed them activated charcoal to soak it up. But we we went through this whole thing, cost a fortune.
+[00:05:14] Adam: It turns out that like a certain number of CCs, I can't remember exactly what it is, but you use a syringe of like 40 CCs of hydrogen peroxide will make most dogs is an emetic, makes most dogs vomit immediately, and then you feed them activated charcoal to soak it up. But we went through this whole thing, cost a fortune.
 
 [00:05:14] Unknown speaker: Oh my God.
 
@@ -188,7 +188,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:06:16] Adam: What I wanted to open with.
 
-[00:06:17] Norm: Okay, there you go. Oh, I knew, I knew, I knew it would come back.
+[00:06:17] Norm: Okay, there you go. Oh, I knew it would come back.
 
 [00:06:19] Adam: Shock from the sky.
 
@@ -218,7 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:06:40] Rebecca: So you've been shamed,
 
-[00:06:42] Adam: and he he did a wonderful doc called Stanley Kubrick's Boxes. Yes, he's amazing, and I'm a huge fan of his. And he's got an amazing interview on the Amy Schumer Show.
+[00:06:42] Adam: and he did a wonderful doc called Stanley Kubrick's Boxes. Yes, he's amazing, and I'm a huge fan of his. And he's got an amazing interview on the Amy Schumer Show.
 
 [00:06:42] Rebecca: Oh,
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:07:26] Rebecca: Yeah,
 
-[00:07:26] Adam: and it's it's worth seeing.
+[00:07:26] Adam: and it's worth seeing.
 
 [00:07:28] Rebecca: Okay, I will check that out.
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:07:59] Norm: Oh.
 
-[00:07:59] Rebecca: And he's like, " Well, how?" And and so you know, Jon talks to this guy, and like, it's really unclear whether he is a psychopath or not because it is the sort of thing a psychopath would say. So it's really difficult to actually diagnose a psychopath.
+[00:07:59] Rebecca: And he's like, " Well, how?" And so Jon talks to this guy, and like, it's really unclear whether he is a psychopath or not because it is the sort of thing a psychopath would say. So it's really difficult to actually diagnose a psychopath.
 
 [00:08:41] Adam: It really is. Many of us have probably met some.
 
@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:10:21] Norm: Yeah. Now there's going to be a full video about this whole project and the whole build, but how did you come out at the end of it?
 
-[00:10:27] Adam: I came out victorious by the seat of my pants, which turns out to be my brand. Just like I didn't plan it that way. So I had the Strandbeest that I built was with 12 legs, so six pairs of legs. Each leg has. Uh, one, two, three, four, five, six, seven, eight, nine, 10, 11, 12, 13, 13 spars. Each leg has 13 spars. Every spar has bushings at the end.
+[00:10:27] Adam: I came out victorious by the seat of my pants, which turns out to be my brand. Just like I didn't plan it that way. So I had the Strandbeest that I built was with 12 legs, so six pairs of legs. Each leg has. One, two, three, four, five, six, seven, eight, nine, 10, 11, 12, 13, 13 spars. Each leg has 13 spars. Every spar has bushings at the end.
 
 [00:10:53] Rebecca: What's a spar? What's a bushing?
 
@@ -348,7 +348,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:11:53] Adam: I also didn’t [unclear: look / want, look / …]. I built this thing out in front of a crowd. Nobody likes to work while other people are watching you, and I'm hearing people comment on what I'm doing, and I'm trying to filter it out because I just want to problem solve. And if I'm flailing, that's part of the brand too. That's part of what's happening. But I, I go home and I'm thinking, could he be right? Could he be right? Could there be something to the way this geometry works? And I went to sleep at four in the morning. Of course, I wake up and I'm like, all I need to do is check the original drawing, and I checked the original Strandbeest drawing, and sure enough, I've missed this one little measurement that changed the whole spine geometry of the base. I showed up on Thursday morning. We talked about what I had to do. I was able to change the geometry of the central spine. Right.
 
-[00:12:37] Norm: That's that's the difficult part. Acknowledging and recognizing that missing measurement is one thing, but if there was no way to change it, at least not in a day's time, I mean, one possibility would have been to take. A lot of it apart,
+[00:12:37] Norm: That's the difficult part. Acknowledging and recognizing that missing measurement is one thing, but if there was no way to change it, at least not in a day's time, I mean, one possibility would have been to take. A lot of it apart,
 
 [00:12:49] Adam: and I was prepared to do that. So what I was up from four a.m. to six a.m. that morning, running through various ways to change the geometry, and they got, as usually happens in my head, they went from very complicated and elegant, very complicated and fancy, to simple and dumb, and simple and dumb won the day,
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:15:15] Rebecca: Well, yeah, bamboo takes a while to grow.
 
-[00:15:17] Adam: It takes a while to grow, and we figured out so many different ways to kill bamboo. We built greenhouses. There was three greenhouses in order to get this to work. So yeah, we would have shelved it and just gone back to it. You know, added another production day. Yeah,
+[00:15:17] Adam: It takes a while to grow, and we figured out so many different ways to kill bamboo. We built greenhouses. There was three greenhouses in order to get this to work. So yeah, we would have shelved it and just gone back to it. Added another production day. Yeah,
 
 [00:15:32] Norm: we weren't going to get another three days at the Exploratorium to build this thing.
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:15:55] Rebecca: driving traffic to an awesome place.
 
-[00:16:00] Adam: I love the Exploratorium. I mean, I love it specifically because that's why it was the only place to do something like that. Because the exhibits at the Exploratorium, separate from every other science museum, show the work of their creators in the exhibits, and I mean, they're not polished; they're they're hand hewn and clearly loved, and they have the patina of thousands of booger-filled children's hands on them.
+[00:16:00] Adam: I love the Exploratorium. I mean, I love it specifically because that's why it was the only place to do something like that. Because the exhibits at the Exploratorium, separate from every other science museum, show the work of their creators in the exhibits, and I mean, they're not polished; they're hand hewn and clearly loved, and they have the patina of thousands of booger-filled children's hands on them.
 
 [00:16:00] Norm: Mm-hmm.
 
@@ -420,7 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:16:35] Unknown speaker: A staff immunity?
 
-[00:16:41] Rebecca: When I was flying back from Minneapolis, I had just been to a con, and so I was really worried that I was going to get sick. I usually do, and But I was thinking, like, okay, I've done it. I've been washing my hands. I've been feeling pretty good about this. And we're sitting on the plane, and the pilot comes down the aisle and starts shaking hands with every single person.
+[00:16:41] Rebecca: When I was flying back from Minneapolis, I had just been to a con, and so I was really worried that I was going to get sick. I usually do, and But I was thinking okay, I've done it. I've been washing my hands. I've been feeling pretty good about this. And we're sitting on the plane, and the pilot comes down the aisle and starts shaking hands with every single person.
 
 [00:16:41] Norm: Great.
 
@@ -436,9 +436,9 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:17:17] Adam: Yeah, that's when he delivered chicken wings to everybody.
 
-[00:17:20] Rebecca: It was. I I ended up not getting sick remarkably, but I sat there for the rest of the flight like this, just with my hand away from my face. Like, yeah.
+[00:17:20] Rebecca: It was. I ended up not getting sick remarkably, but I sat there for the rest of the flight like this, just with my hand away from my face. Like, yeah.
 
-[00:17:31] Adam: When you um, when I do meet and greets, I've mentioned this on the podcast before. The whole trick is, shake hands with your right hand, touch your face with your left. Just don't ever,
+[00:17:31] Adam: When you when I do meet and greets, I've mentioned this on the podcast before. The whole trick is, shake hands with your right hand, touch your face with your left. Just don't ever,
 
 [00:17:40] Rebecca: yeah. I, I've internalized that.
 
@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:18:16] Adam: no.
 
-[00:18:16] Rebecca: Okay. Well, that's that's the difference between a serious pool player
+[00:18:16] Rebecca: Okay. Well, that's the difference between a serious pool player
 
 [00:18:20] Adam: It is.
 
@@ -494,7 +494,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:18:34] Norm: exactly. How big was that SkepchickCon at Minneapolis?
 
-[00:18:36] Rebecca: Well, the the overall con is called Convergence, and that's like I think they're up to maybe 8,000 people.
+[00:18:36] Rebecca: Well, the overall con is called Convergence, and that's like I think they're up to maybe 8,000 people.
 
 [00:18:43] Norm: That's a good number.
 
@@ -502,9 +502,9 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:18:49] Norm: That's still it's a good number for a convention.
 
-[00:18:52] Rebecca: It's it's great. It's it's been great for us. We've been doing it for about a decade, and because it's a larger con, we are able to find a lot of new people who have never heard of us who just showed up for like a Star Trek panel, and then they wandered into our global warming panel with a bunch of awesome women on stage. You know, and we're like, oh, this is great. Where has this been all my life?
+[00:18:52] Rebecca: It's great. It's been great for us. We've been doing it for about a decade, and because it's a larger con, we are able to find a lot of new people who have never heard of us who just showed up for like a Star Trek panel, and then they wandered into our global warming panel with a bunch of awesome women on stage. And we're like, oh, this is great. Where has this been all my life?
 
-[00:19:12] Norm: I mean, we talk a lot on the podcast about wanting to visit makerspaces, big and small. You know, from giant workshops to garages, and I think the same applies to conventions. Like there are so many conventions out there, gatherings that are, you know, from 50 people to 200 people to even less than 1,000, fewer than 1,000 people that are really interesting that most people don't cover and media doesn't cover.
+[00:19:12] Norm: I mean, we talk a lot on the podcast about wanting to visit makerspaces, big and small. From giant workshops to garages, and I think the same applies to conventions. Like there are so many conventions out there, gatherings that are from 50 people to 200 people to even less than 1,000, fewer than 1,000 people that are really interesting that most people don't cover and media doesn't cover.
 
 [00:19:34] Adam: Well, I think it's also one of those secondary aspects of the web making the world a little smaller because not only does the internet allow people to find communities, but it allows them to gather those communities on short notice sometimes and. Share their enthusiasms in one place.
 
@@ -526,9 +526,9 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:20:44] Rebecca: So it might be difficult to find somebody willing.
 
-[00:20:50] Adam: But you know, there's a way we can mend these these these gulfs.
+[00:20:50] Adam: But there's a way we can mend these these these gulfs.
 
-[00:20:53] Rebecca: That's true. I don't really. I'm fine with the gulf. Actually, it's fine. You guys, you guys go on. I don't need to be negged at the bar. It's fine.
+[00:20:53] Rebecca: That's true. I don't really. I'm fine with the gulf. Actually, it's fine. You guys go on. I don't need to be negged at the bar. It's fine.
 
 [00:21:02] Adam: I was negged recently.
 
@@ -546,7 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:21:25] Adam: And they felt the need to say that twice within the first three minutes.
 
-[00:21:31] Rebecca: Wow. And were you? Did you feel yourself like needing to like like somehow becoming closer to this person, respecting them more because they've put you down a little bit?
+[00:21:31] Rebecca: Wow. And were you? Did you feel yourself like needing to like somehow becoming closer to this person, respecting them more because they've put you down a little bit?
 
 [00:21:41] Adam: Well, sure, in in my Zelig like way, it's like, [unclear: you know / I was like, ha, ha, ha. You know], and yet I when they said it again, I tend to. I tend to love to unpack the the motivation. Like, oh, you said it twice. That means you really thought about saying this to me.
 
@@ -558,19 +558,19 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:22:07] Rebecca: And I think you are right. I think that was like textbook negging.
 
-[00:22:11] Adam: Right, it's textbook negging, and and I I've run into this with certain kinds of dudes. They don't they don't like the fact of my notoriety combined with clearly the lack of education or skill I have at any specific thing.
+[00:22:11] Adam: Right, it's textbook negging, and I I've run into this with certain kinds of dudes. They don't like the fact of my notoriety combined with clearly the lack of education or skill I have at any specific thing.
 
 [00:22:27] Rebecca: Oh, honey.
 
 [00:22:28] Adam: Given that they've,
 
-[00:22:28] Rebecca: if I had a nickel, I had a nickel for every dude who has been like, " She doesn’t even have a science degree. You guys don't listen to her."
+[00:22:28] Rebecca: if I had a nickel for every dude who has been like, " She doesn’t even have a science degree. You guys don't listen to her."
 
 [00:22:38] Adam: Oh man! Right, right, right. So I've experienced in one microcosm what you get constantly.
 
 [00:22:42] Rebecca: Yeah, yeah.
 
-[00:22:44] Adam: This, this is, this is. I have another example of this, which is. When I come out of the scanner at the airport, this one.
+[00:22:44] Adam: This is. I have another example of this, which is. When I come out of the scanner at the airport, this one.
 
 [00:22:54] Rebecca: Yeah, we all know. Yeah.
 
@@ -598,7 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:23:56] Adam: A very small convention.
 
-[00:23:57] Norm: Yes. We there was the the replica prop forums annual gathering of their community in the California area at our friend Frank Ippolito's shop.
+[00:23:57] Norm: Yes. We there was the replica prop forums annual gathering of their community in the California area at our friend Frank Ippolito's shop.
 
 [00:24:08] Adam: I wished I could have gone.
 
@@ -606,7 +606,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:24:32] Adam: They also go. There's some secret projects too that people bring up there that like aren't necessarily for public consumption.
 
-[00:24:38] Norm: Yeah, some of them don't have actual threads, and actually, some of them are not even on the RPF. They're like Yahoo groups. You know, I love. There was one guy.
+[00:24:38] Norm: Yeah, some of them don't have actual threads, and actually, some of them are not even on the RPF. They're like Yahoo groups. I love. There was one guy.
 
 [00:24:45] Rebecca: So it’s like a spinoff, like members of the RPF have like gone elsewhere.
 
@@ -638,7 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:25:35] Adam: He’s not able to drive it yet?
 
-[00:25:36] Norm: No, there was a an Ecto one, one of a great original Ecto one, not one A, a DeLorean.
+[00:25:36] Norm: No, there was a an Ecto one, one of a great original Ecto one, not one A DeLorean.
 
 [00:25:44] Rebecca: Okay, let's back up.
 
@@ -650,7 +650,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:25:55] Rebecca: What are the key differences between the one and one A?
 
-[00:25:59] Norm: Externally, one one A has the the scrolling text. That's probably the most identifiable key difference.
+[00:25:59] Norm: Externally, one one A has the scrolling text. That's probably the most identifiable key difference.
 
 [00:26:04] Rebecca: Yeah. Okay.
 
@@ -698,7 +698,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:27:07] Adam: Oh, nice.
 
-[00:27:07] Rebecca: Yeah, and like the thread was amazing because they had photos from every angle, you know, screenshots, and like the movie had just come out.
+[00:27:07] Rebecca: Yeah, and like the thread was amazing because they had photos from every angle screenshots, and like the movie had just come out.
 
 [00:27:32] Adam: This is oh, usually
 
@@ -734,11 +734,11 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:28:13] Norm: The release shots, and so it feels like you can complete all everything that's available.
 
-[00:28:17] Adam: But it's also there’s a there’s a deep pleasure to finding information in other like when we were doing research on. I mean, I remember on one of my props was only on a German DVD. A German release of the DVD had extra materials that showed the prop behind the scenes being fitted by an effects guy. So I bought the German DVD.
+[00:28:17] Adam: But it's also there’s a deep pleasure to finding information in other like when we were doing research on. I mean, I remember on one of my props was only on a German DVD. A German release of the DVD had extra materials that showed the prop behind the scenes being fitted by an effects guy. So I bought the German DVD.
 
-[00:28:35] Rebecca: Right. Well, yeah. In a way, it is about it's as much about paying an homage to this character you like or think you are going to like when the movie comes out as it is. That hunt, and I think that what people do is kind of recreating what you went through. You know, in the '90s, like when you would need to get this VHS or like a studio tour or something before the movie comes out. Like that's the world you're in, where you're hunting for every detail.
+[00:28:35] Rebecca: Right. Well, yeah. In a way, it is about it's as much about paying an homage to this character you like or think you are going to like when the movie comes out as it is. That hunt, and I think that what people do is kind of recreating what you went through. In the '90s, like when you would need to get this VHS or like a studio tour or something before the movie comes out. Like that's the world you're in, where you're hunting for every detail.
 
-[00:29:01] Adam: Well, and specifically that idea of of putting yourself into this character you like, I'm going to give a plug. My TED talk goes public on Friday.
+[00:29:01] Adam: Well, and specifically that idea of putting yourself into this character you like, I'm going to give a plug. My TED talk goes public on Friday.
 
 [00:29:11] Norm: Yes,
 
@@ -760,7 +760,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:29:24] Adam: Is it prime?
 
-[00:29:25] Norm: No, it's not prime, but it's it's a square.
+[00:29:25] Norm: No, it's not prime, but it's a square.
 
 [00:29:28] Adam: It is a square?
 
@@ -774,7 +774,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:29:35] Rebecca: It's a square of a prime.
 
-[00:29:36] Adam: I'm old now, but my TED talk is all about that, and it's really specifically about what it means, what's going on when you put on a costume, what that feels like, because for me, it's a very Clearly, very powerful driving, you know, force and
+[00:29:36] Adam: I'm old now, but my TED talk is all about that, and it's really specifically about what it means, what's going on when you put on a costume, what that feels like, because for me, it's a very Clearly, very powerful driving force and
 
 [00:29:51] Rebecca: yeah, you are kind of into it.
 
@@ -782,7 +782,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:29:53] Rebecca: Little bit.
 
-[00:29:53] Adam: We we we've made a comprehensive list now of the costumes in my shop, and we're working through archiving them, serial numbering everything. We'll do a piece on this on tested, but I think the number is close to 70 complete costumes.
+[00:29:53] Adam: We we've made a comprehensive list now of the costumes in my shop, and we're working through archiving them, serial numbering everything. We'll do a piece on this on tested, but I think the number is close to 70 complete costumes.
 
 [00:30:09] Rebecca: God, and that's just complete. That's not even like a random head here,
 
@@ -818,7 +818,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:30:38] Rebecca: I haven't,
 
-[00:30:38] Adam: which is weird because in my memory palace, I have I have us hanging out there at least several times.
+[00:30:38] Adam: which is weird because in my memory palace, I have us hanging out there at least several times.
 
 [00:30:46] Rebecca: That was my ghost. That was my spirit. But yeah, I've actually never been. I wanted to go last year because I only just moved to California, which makes it a little easier to go. And last year, I got so sick at Skepticon that I couldn't crawl out of bed.
 
@@ -832,7 +832,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:31:25] Adam: lots of sleep. That's when I get sick. Is when I don't get enough sleep.
 
-[00:31:27] Rebecca: Well, I did wake up at like 7 a.m. for this, so thanks, thanks, really helping out there, Adam. Couldn't do this at a at a at a normal human hour.
+[00:31:27] Rebecca: Well, I did wake up at like 7 a.m. for this, so thanks, thanks, really helping out there, Adam. Couldn't do this at a normal human hour.
 
 [00:31:39] Adam: Nine is actually late.
 
@@ -864,7 +864,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:32:10] Adam: and it's not even internationally released yet.
 
-[00:32:12] Rebecca: Yeah, because Twitter is full of horrible news and and racists. Pokemon is full of Charmanders.
+[00:32:12] Rebecca: Yeah, because Twitter is full of horrible news and racists. Pokemon is full of Charmanders.
 
 [00:32:22] Adam: I don't even know what that means.
 
@@ -884,7 +884,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:32:34] Adam: Oh.
 
-[00:32:34] Rebecca: and they they should get some sort of scholarship or something. Like get these guys off the street.
+[00:32:34] Rebecca: and they should get some sort of scholarship or something. Like get these guys off the street.
 
 [00:33:01] Adam: Scholarship to the School of Hard Knocks. Clearly,
 
@@ -924,7 +924,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:33:40] Rebecca: Was that your Australian accent again?
 
-[00:33:41] Norm: No, and and on that note, I think that’s a good place.
+[00:33:41] Norm: No, and on that note, I think that’s a good place.
 
 [00:33:43] Adam: No, we can't end there. Really?
 
@@ -934,7 +934,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:33:51] Rebecca: Is are we really ending there?
 
-[00:33:52] Adam: I think, I think we have to.
+[00:33:52] Adam: I think we have to.
 
 [00:33:52] Norm: I think we can. Yeah, I think we have to.
 

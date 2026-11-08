@@ -28,29 +28,29 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:00:32] Adam: They're not spying in their business.
 
-[00:00:36] Eric Cheng: We used one as a camera, right? Yeah, exactly. We hovered one, used it as a as a B, B camera.
+[00:00:36] Eric Cheng: We used one as a camera, right? Yeah, exactly. We hovered one, used it as a B, B camera.
 
 [00:00:40] Will: Uh huh. And flew it around basically over Treasure Island, which I think you can't fly on now, right? Is it in the no fly zone?
 
-[00:00:47] Eric Cheng: I I haven't kept up with Treasure Island.
+[00:00:47] Eric Cheng: I haven't kept up with Treasure Island.
 
 [00:00:49] Will: It’s here. Yeah. Anyway,
 
 [00:00:51] Eric Cheng: depends who you ask. I think.
 
-[00:00:52] Will: But there's other stuff that that you you're you're kind of an adventurer, and I say kind of, but I really mean you're an adventurer, and you go around, [unclear: you go around] the world to different places. And shoot video of stuff that is amazing that I can't imagine seeing in person.
+[00:00:52] Will: But there's other stuff that that you you're kind of an adventurer, and I say kind of, but I really mean you're an adventurer, and you go around, [unclear: you go around] the world to different places. And shoot video of stuff that is amazing that I can't imagine seeing in person.
 
-[00:01:06] Eric Cheng: Yeah, yeah. Actually, I mean, the last one was this volcano thing, which is which is one of my favorites.
+[00:01:06] Eric Cheng: Yeah, yeah. Actually, I mean, the last one was this volcano thing, which is one of my favorites.
 
 [00:01:10] Adam: has been blowing up.
 
-[00:01:11] Eric Cheng: Has been blowing up. Yeah, I am getting calls from. Actually, my mother is getting calls from her friends saying they're seeing it on TV. So when that happens, you know, it's reaching the right places.
+[00:01:11] Eric Cheng: Has been blowing up. Yeah, I am getting calls from. Actually, my mother is getting calls from her friends saying they're seeing it on TV. So when that happens it's reaching the right places.
 
 [00:01:19] Adam: Real saturation.
 
 [00:01:20] Norm: Can you tell that story for people who might not know?
 
-[00:01:22] Eric Cheng: Yeah, so I about what maybe 10 days ago, I had a thought that maybe we should fly these phantoms into the volcano, and I thought about this because I kept seeing these amazing volcano pictures coming over my social feeds in Iceland from Iceland because I have some friends who are there shooting, and and it just seemed like nobody had gotten that close with a camera to shoot, you know, really wide angle shots of a volcano. So I sent literally a one line email that said, " Hey, do you think we could fly a phantom into the into the volcano?" And and a guy said, " Yeah, I sure. I think we could do it." And but then after you know, like a week passed, and I didn't hear anything. [unclear: And then I was like, oh, I think we could do it.] And then one day I got a I got a call. Or an email, and it said a Saturday. The problem is, it was Thursday when I got the message.
+[00:01:22] Eric Cheng: Yeah, so I about what maybe 10 days ago, I had a thought that maybe we should fly these phantoms into the volcano, and I thought about this because I kept seeing these amazing volcano pictures coming over my social feeds in Iceland from Iceland because I have some friends who are there shooting, and it just seemed like nobody had gotten that close with a camera to shoot really wide angle shots of a volcano. So I sent literally a one line email that said, " Hey, do you think we could fly a phantom into the into the volcano?" And a guy said, " Yeah, I sure. I think we could do it." And but then after like a week passed, and I didn't hear anything. [unclear: And then I was like, oh, I think we could do it.] And then one day I got a call. Or an email, and it said a Saturday. The problem is, it was Thursday when I got the message.
 
 [00:01:22] Adam: Oh my god!
 
@@ -74,7 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:02:40] Adam: That is the very definition. You're absolutely right. Under adventure, that's what it says. When Iceland calls, you go.
 
-[00:02:46] Eric Cheng: Yeah. And luckily, I've been so busy, I was still pretty much packed from the last adventure. So you know, we were using these things at Burning Man with with Lightbridge to do live HD,
+[00:02:46] Eric Cheng: Yeah. And luckily, I've been so busy, I was still pretty much packed from the last adventure. So we were using these things at Burning Man with Lightbridge to do live HD,
 
 [00:02:55] Norm: and I want to talk about that in a second.
 
@@ -96,7 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:03:32] Adam: So it's wind that's
 
-[00:03:34] Eric Cheng: it's wind. Yeah. So I was on the weather channel this morning, and I talked all about wind and the weather, and they were, which made them very happy. Because you know we had this we had this window where the wind would be blowing slightly in the correct direction, and there would not be crazy dust storm.
+[00:03:34] Eric Cheng: it's wind. Yeah. So I was on the weather channel this morning, and I talked all about wind and the weather, and they were, which made them very happy. Because you know we had this window where the wind would be blowing slightly in the correct direction, and there would not be crazy dust storm.
 
 [00:03:34] Adam: Right.
 
@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:04:06] Will: So so what's your like What's your go/no-go when you get there? And you're, I assume there's like base camp set up, or you're at a hotel 20 miles away, or something like that. And then you have to hike in the last last few miles, or off road in the last few miles,
 
-[00:04:18] Eric Cheng: off road in the last four hours or so. And so, yeah, they were really excited. We stopped at this really cute farmhouse with, you know, sheep like nibbling on the windows because it had, you know, like dirt or whatever. It had, it had grass on the walls. It was really cool.
+[00:04:18] Eric Cheng: off road in the last four hours or so. And so, yeah, they were really excited. We stopped at this really cute farmhouse with sheep like nibbling on the windows because it had like dirt or whatever. It had grass on the walls. It was really cool.
 
 [00:04:18] Adam: All right.
 
@@ -114,7 +114,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:04:41] Adam: Right.
 
-[00:04:42] Eric Cheng: Really remote. So the go/no-go is basically we're going to go unless it's way too dangerous to go, which we can only discover by going. So there's a there's a checkpoint, it’s, you know, two hours in or something, and it's a police checkpoint, and you go there and you present your credentials, press press credentials, things like that, and that's the point at which you you get the go/no-go.
+[00:04:42] Eric Cheng: Really remote. So the go/no-go is basically we're going to go unless it's way too dangerous to go, which we can only discover by going. So there's a checkpoint, it’s two hours in or something, and it's a police checkpoint, and you go there and you present your credentials, press press credentials, things like that, and that's the point at which you get the go/no-go.
 
 [00:05:04] Norm: Wow. And so you get there, you get the go, and it's this quadcopter you have in front of you that you take there.
 
@@ -130,7 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:05:17] Norm: And then you've. How long did you fly?
 
-[00:05:18] Eric Cheng: Well, we flew, so we we could drive. Actually, first we we could only get two about two kilometers away. You know, like a mile, just under a mile and a half, and that's like the that's at the edge of the range of a of a stock Phantom, and I didn't think to configure it to go longer range because you know you can hack it to do that, and so we just said okay, we just have to fly anyway. You know, they're not going to let us any closer, so we flew, and I could make it just in front of the lip of that caldera, You know, and it would they have return to home when they lose signal, so it kept turning around. So the video is funny because it goes there and then it turns around and goes home. And then I just you can see me. I take control and turn it around again. No, you're going. And then I sent it up a little bit, which let us get at least over, so we could look down into it. But it's still [unclear: you can see the, you can see the, you can see the,] you can see the whole. It's a giant lake of bubbling magma with like these huge explosions throwing lava
+[00:05:18] Eric Cheng: Well, we flew, so we could drive. Actually, first we could only get two about two kilometers away. Like a mile, just under a mile and a half, and that's like the that's at the edge of the range of a stock Phantom, and I didn't think to configure it to go longer range because you know you can hack it to do that, and so we just said okay, we just have to fly anyway. They're not going to let us any closer, so we flew, and I could make it just in front of the lip of that caldera and it would they have return to home when they lose signal, so it kept turning around. So the video is funny because it goes there and then it turns around and goes home. And then I just you can see me. I take control and turn it around again. No, you're going. And then I sent it up a little bit, which let us get at least over, so we could look down into it. But it's still [unclear: you can see the, you can see the, you can see the,] you can see the whole. It's a giant lake of bubbling magma with like these huge explosions throwing lava
 
 [00:05:18] Norm: Crazy.
 
@@ -142,15 +142,15 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:06:23] Norm: So you had GPS at least.
 
-[00:06:24] Eric Cheng: Oh yeah, we had GPS, and every time we would we would almost get there, we'd turn around. So I thought it was, [unclear: it was] over, but then one of the the police guys they came because they just they thought this stuff was cool. First of all, cool, but also very useful for what they could potentially use it for,
+[00:06:24] Eric Cheng: Oh yeah, we had GPS, and every time we would almost get there, we'd turn around. So I thought it was, [unclear: it was] over, but then one of the police guys they came because they just they thought this stuff was cool. First of all, cool, but also very useful for what they could potentially use it for,
 
 [00:06:24] Norm: Right?
 
-[00:06:24] Eric Cheng: Including search and rescue and and just general survey. So you know he he he said, how much closer do you have to be? And I just thought, oh, we got him.
+[00:06:24] Eric Cheng: Including search and rescue and just general survey. So you know he said, how much closer do you have to be? And I just thought, oh, we got him.
 
 [00:06:47] Adam: I MythBusters, we've had a bunch of those moments over the years.
 
-[00:06:53] Eric Cheng: Yeah, but then he left. He left, and I thought I thought we had him.
+[00:06:53] Eric Cheng: Yeah, but then he left. He left, and I thought we had him.
 
 [00:06:53] Adam: Oh.
 
@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:07:20] Adam: Wow. So and meanwhile, you're wearing gas masks this whole time.
 
-[00:07:23] Eric Cheng: No, we hadn't put, we hadn't actually worn them. But you know, later I learned that you might get some irritation from silicon dioxide. But all it does is shorten your lifespan. Like it doesn't. There's no like
+[00:07:23] Eric Cheng: No, we hadn't put, we hadn't actually worn them. But later I learned that you might get some irritation from silicon dioxide. But all it does is shorten your lifespan. Like it doesn't. There's no like
 
 [00:07:34] Adam: silicosis. Is that it?
 
@@ -182,15 +182,15 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:08:17] Adam: So it's not burning onto the.
 
-[00:08:19] Eric Cheng: Yeah, I wanted a clean feed, and we had a second unit that where we could have turned telemetry on, but I didn't have an assistant, and it was it was night. You know, it got dark during that time, and we just couldn't. I couldn't. You know, we didn't have the manpower we needed to do.
+[00:08:19] Eric Cheng: Yeah, I wanted a clean feed, and we had a second unit that where we could have turned telemetry on, but I didn't have an assistant, and it was night. You know, it got dark during that time, and we just couldn't. I couldn't. We didn't have the manpower we needed to do.
 
-[00:08:32] Adam: Okay, so just from a practical level, pausing here, you've traveled for 12 hours, driven for fifteen, set out from the farmhouse with the sheep to do this thing, and it's getting dark. There's a point at which you reach a natural limit of of being able to stay frosty and stay awake, isn't there? Or are you trying to catnap in the car on the way there and trading driving and?
+[00:08:32] Adam: Okay, so just from a practical level, pausing here, you've traveled for 12 hours, driven for fifteen, set out from the farmhouse with the sheep to do this thing, and it's getting dark. There's a point at which you reach a natural limit of being able to stay frosty and stay awake, isn't there? Or are you trying to catnap in the car on the way there and trading driving and?
 
 [00:08:53] Eric Cheng: Yeah, I, I they were all relatively well rested because they live there.
 
 [00:08:53] Adam: Right.
 
-[00:08:53] Eric Cheng: the guy who drove anyway, and um and so I I slept for three hours on the way there, and the rest was really just adrenaline fueled
+[00:08:53] Eric Cheng: the guy who drove anyway, and so I I slept for three hours on the way there, and the rest was really just adrenaline fueled
 
 [00:08:53] Adam: Because it’s so crazy cool what you're getting to do.
 
@@ -202,27 +202,27 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:09:17] Norm: Were you worried about getting documented the whole thing, like the trip and the adventure?
 
-[00:09:21] Eric Cheng: Yeah, we, we,
+[00:09:21] Eric Cheng: Yeah, we,
 
 [00:09:21] Norm: In a third person?
 
-[00:09:22] Eric Cheng: We this is we have this thing, new thing called DJI feats. You know, like what can you do with one of the things that you can't do? And that's this was the first, and it ended up being the first because you know I planned this trip kind of unrelated, but it was
+[00:09:22] Eric Cheng: We this is we have this thing, new thing called DJI feats. Like what can you do with one of the things that you can't do? And that's this was the first, and it ended up being the first because you know I planned this trip kind of unrelated, but it was
 
 [00:09:34] Adam: Perfect for it.
 
-[00:09:35] Eric Cheng: Yeah, yeah. And so we literally hired a cameraman while I was in the air to Iceland, and I just sent an email to the guy organizing there, Einar, and I said, we need it, we need a cameraman. Can you get one? Just do it. When I land, just yes, whatever you know, whatever it is. And so a guy came with us, and he he was a experienced filmmaker there, and he came and documented.
+[00:09:35] Eric Cheng: Yeah, yeah. And so we literally hired a cameraman while I was in the air to Iceland, and I just sent an email to the guy organizing there, Einar, and I said, we need it, we need a cameraman. Can you get one? Just do it. When I land, just yes, whatever whatever it is. And so a guy came with us, and he was a experienced filmmaker there, and he came and documented.
 
 [00:09:53] Adam: That's great.
 
 [00:09:54] Eric Cheng: So that's why the video has all the behind the scenes with where we’re miked.
 
-[00:09:57] Adam: Right, and you're thinking specifically on your way there. You're thinking about how this thing will assemble as as a mini doc as.
+[00:09:57] Adam: Right, and you're thinking specifically on your way there. You're thinking about how this thing will assemble as a mini doc as.
 
 [00:09:57] Eric Cheng: Yeah, yeah.
 
 [00:09:57] Adam: What kind of coverage you're going to need, and what you're going to ask for, and how it's going to cut together.
 
-[00:10:09] Eric Cheng: Right, and and what you're talking about, you know, energy and being tired actually factored into all of that, because everyone was so tired that you could only shoot so much. You know, like my my natural instinct is to shoot everything. Like you're always rolling because you never know when the thing's going to happen. Right. Yeah. You’re denied access, or the thing blows, or whatever. Yeah. Um. And uh. And he shot as much as he could.
+[00:10:09] Eric Cheng: Right, and what you're talking about energy and being tired actually factored into all of that, because everyone was so tired that you could only shoot so much. Like my natural instinct is to shoot everything. Like you're always rolling because you never know when the thing's going to happen. Right. Yeah. You’re denied access, or the thing blows, or whatever. Yeah. And. And he shot as much as he could.
 
 [00:10:31] Adam: And then.
 
@@ -230,15 +230,15 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:10:34] Adam: A natural human limit.
 
-[00:10:35] Will: So. So why why so when you were flying around in the caldera or above the caldera, anything kind of unexpected or weird, like could could you use the the remote fly to just to set up course and fly and then bring it back when it was done and not worry about RC at all or or like what like what was what's it like flying a quad inside an active volcano?
+[00:10:35] Will: So. So why why so when you were flying around in the caldera or above the caldera, anything kind of unexpected or weird, like could could you use the remote fly to just to set up course and fly and then bring it back when it was done and not worry about RC at all or like what was what's it like flying a quad inside an active volcano?
 
 [00:10:57] Eric Cheng: Well, so first we walked one kilometer closer, so we halve the distance. We walked to the lava, so that in theory would would make it really easy for us to be able to fly to it. And.
 
 [00:11:06] Adam: Is the ground getting hot at this point, or anything?
 
-[00:11:08] Eric Cheng: No, it was actually it was really cold there. I was like, damn it! I was totally bundled up. But the the flow stopped just in front of us, and
+[00:11:08] Eric Cheng: No, it was actually it was really cold there. I was like, damn it! I was totally bundled up. But the flow stopped just in front of us, and
 
-[00:11:15] Will: like just in front, like 100 meters, or like just in front, like 10 feet.
+[00:11:15] Will: Just in front, like 100 meters, or just in front, like 10 feet.
 
 [00:11:18] Eric Cheng: You know, it you could you were right up to it, but it was older flow, so it wasn't like glowing red anymore. I don't know when it come out.
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:11:25] Unknown: No.
 
-[00:11:28] Eric Cheng: I didn't walk on it. I stayed okay. I stayed right at the edge because we had flying things. So, so we set up and flew in, and and it was easy to to get all the way there. Still, it took probably two minutes at full speed to reach, you know, reach the caldera. So it's still kind of more than half a mile away, maybe two thirds of a mile. Wow. And I did all the tricks, like I turned GPS off. We had the wind to our back, so I could fly faster, and you know all these things to get maximum
+[00:11:28] Eric Cheng: I didn't walk on it. I stayed okay. I stayed right at the edge because we had flying things. So, so we set up and flew in, and it was easy to get all the way there. Still, it took probably two minutes at full speed to reach reach the caldera. So it's still kind of more than half a mile away, maybe two thirds of a mile. Wow. And I did all the tricks, like I turned GPS off. We had the wind to our back, so I could fly faster, and you know all these things to get maximum
 
 [00:11:52] Adam: amount of
 
@@ -266,19 +266,19 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:12:14] Will: Really?
 
-[00:12:14] Eric Cheng: Yeah. So that was unexpected, and it had nothing to do with range because we had half, you know the range was easy by that by that point, and so and it was consistent. So you fly over the thing, video might go out,
+[00:12:14] Eric Cheng: Yeah. So that was unexpected, and it had nothing to do with range because we had half, you know the range was easy by that point, and so and it was consistent. So you fly over the thing, video might go out,
 
 [00:12:27] Will: even like the cooled lava 20 feet in front of you, or the stuff that's still red hot and further.
 
-[00:12:31] Eric Cheng: No, no, the explosive lava up up front, the the the steam steam coming off of it.
+[00:12:31] Eric Cheng: No, no, the explosive lava up up front, the steam steam coming off of it.
 
 [00:12:36] Adam: What do you? That's far out. Some sort of radio interference?
 
-[00:12:39] Eric Cheng: Yeah, some kind of radio interference was was happening there, and and sure enough, there you know we did research later, and there's you see all those pictures of the lightning in this in the ash cloud. There's definitely static going on, even though this wasn't a particularly ashy.
+[00:12:39] Eric Cheng: Yeah, some kind of radio interference was was happening there, and sure enough, there you know we did research later, and there's you see all those pictures of the lightning in this in the ash cloud. There's definitely static going on, even though this wasn't a particularly ashy.
 
 [00:12:52] Norm: It's the secret underground base.
 
-[00:12:53] Adam: This must this must be astonishing to get the footage back when you haven't been able to see what the camera's been seeing.
+[00:12:53] Adam: This must be astonishing to get the footage back when you haven't been able to see what the camera's been seeing.
 
 [00:13:01] Eric Cheng: Right. So I was able to get to see a lot of it, which was great.
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:13:01] Adam: Right.
 
-[00:13:01] Eric Cheng: And and that was Basically impossible. Like it, it had a life. It had a preservation instinct
+[00:13:01] Eric Cheng: And that was Basically impossible. Like it, it had a life. It had a preservation instinct
 
 [00:13:01] Adam: Wow.
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:13:47] Norm: That's a testament to the GoPro, where even when if it dies, it writes the end of the file, or you can recover the file.
 
-[00:13:53] Eric Cheng: Yes. Yeah. So that saved us. And look, in this retaining clip on the Zenmuse gimbal is also, if we had lost that, the GoPro would have fallen, which would have been bad too. But you know, all I saw from the ground was the video feed went out, and it never came back. And I thought, okay, well, either the video feed went out, or the whole thing is gone.
+[00:13:53] Eric Cheng: Yes. Yeah. So that saved us. And look, in this retaining clip on the Zenmuse gimbal is also, if we had lost that, the GoPro would have fallen, which would have been bad too. But all I saw from the ground was the video feed went out, and it never came back. And I thought, okay, well, either the video feed went out, or the whole thing is gone.
 
 [00:13:53] Adam: Right.
 
@@ -346,7 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:14:43] Norm: And it’ll go to a certain height also to try to like fly at a certain height and then descend to you.
 
-[00:14:49] Eric Cheng: Right. Right. So in this case, I mean, it's really conservative. So even with a lot of wind, it it would probably make it home. You know.
+[00:14:49] Eric Cheng: Right. Right. So in this case, I mean, it's really conservative. So even with a lot of wind, it would probably make it home. You know.
 
 [00:14:55] Adam: So I guess I mean you could be discovering, [unclear: you could be discovering] something kind of new out there, right? Because there's not a lot of people testing radio interference of molten lava at volcanoes, right? It’s, like you realize you're actually out on the edge of some interesting scientific precipice.
 
@@ -358,13 +358,13 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:15:11] Norm: Yeah, yeah, it's a scientific probe.
 
-[00:15:13] Eric Cheng: Yeah, the first thing we thought was let's. I mean, you should put sensors on it and be running. You know, you're talking about autonomous
+[00:15:13] Eric Cheng: Yeah, the first thing we thought was let's. I mean, you should put sensors on it and be running. You're talking about autonomous
 
 [00:15:13] Adam: Yeah.
 
 [00:15:13] Eric Cheng: missions out there. Like we, these things do support kind of map-based waypoint support flying. So, you could just program it to do, you know, some kind of transit.
 
-[00:15:27] Will: Do a loop around the yeah yeah. Well, I mean, because you think about volcanologists, if they want to monitor the they you know they plant sensors before presumably before bad things happen and then rely on them to be there. But once stuff happens, then then that that barrier is for everyone that's not wearing like a big, you know, I don't know those suits are called the bunny suits with the reflective stuff on the outside. Right. And I mean,
+[00:15:27] Will: Do a loop around the yeah yeah. Well, I mean, because you think about volcanologists, if they want to monitor the they you know they plant sensors before presumably before bad things happen and then rely on them to be there. But once stuff happens, then that that barrier is for everyone that's not wearing like a big I don't know those suits are called the bunny suits with the reflective stuff on the outside. Right. And I mean,
 
 [00:15:49] Eric Cheng: But you would never wear one of those close to this thing.
 
@@ -380,19 +380,19 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:15:55] Norm: Yeah. In Star Trek.
 
-[00:15:56] Adam: It’s aluminized Kevlar, and you usually wear it either either it's built into effectively fireman turnout gear or it's a shell you wear out on the outside of fireman turnout gear. So it’s a fireman turnout gear is already non flammable. This adds a layer of thermal protection of bouncing the the infrared and the ultra infrared back away from you.
+[00:15:56] Adam: It’s aluminized Kevlar, and you usually wear it either either it's built into effectively fireman turnout gear or it's a shell you wear out on the outside of fireman turnout gear. So it’s a fireman turnout gear is already non flammable. This adds a layer of thermal protection of bouncing the infrared and the ultra infrared back away from you.
 
 [00:16:18] Eric Cheng: Right. Yeah. The scale of the this eruption was. I mean, I just can't imagine that anyone would go anywhere near it.
 
 [00:16:18] Adam: Yeah.
 
-[00:16:18] Eric Cheng: you know, there is just no way.
+[00:16:18] Eric Cheng: There is just no way.
 
 [00:16:27] Will: Well, because you see, you saw a video of I think it was somebody in Vanuatu or something went down into the caldera, like walked down into the caldera with one of your turnout suits on, or one of your
 
 [00:16:37] Adam: Proximity suits.
 
-[00:16:37] Will: Proximity suits, thanks. And and you know, like got down right right up against the, and it was terrifying. It was. You look at this and you think these people are absolutely out of their minds.
+[00:16:37] Will: Proximity suits, thanks. And like got down right right up against the, and it was terrifying. It was. You look at this and you think these people are absolutely out of their minds.
 
 [00:16:47] Adam: And I read an interview with him, and they were. I can't remember if it was a man or a woman or it was a couple, but I read an interview with one of them saying that it was the most they'd ever feared for their lives. Like the protection you are getting from the thing is very minimal. It feels like at that point you still feel like you are in an oven,
 
@@ -464,7 +464,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:18:26] Will: 2013.
 
-[00:18:26] Eric Cheng: 2013. Well, because there there were no rules yet. I mean, there were guidelines. There were guidelines, and this year there was
+[00:18:26] Eric Cheng: 2013. Well, because there were no rules yet. I mean, there were guidelines. There were guidelines, and this year there was
 
 [00:18:41] Adam: Did anyone get hit last year?
 
@@ -474,7 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:18:52] Adam: So, but this year.
 
-[00:18:53] Eric Cheng: Yeah, this year, [unclear: this year] there were there was a organized registration. So 200. They capped it at 200 registration registered drone drone pilots, and I, there was a big waiting list of 80 or 90. So it was very popular. So you'd show up. Actually, this is my sticker from from Burning Man. This is little number 237, and you have a matching one on your radio and. And there were strict rules. Basically, you can't fly. You couldn't fly within, what was it like, 20 feet of any person, 100 feet from any structure or art car. And at Burning Man, that's very hard.
+[00:18:53] Eric Cheng: Yeah, this year, [unclear: this year] there were there was a organized registration. So 200. They capped it at 200 registration registered drone drone pilots, and I, there was a big waiting list of 80 or 90. So it was very popular. So you'd show up. Actually, this is my sticker from Burning Man. This is little number 237, and you have a matching one on your radio and. And there were strict rules. Basically, you can't fly. You couldn't fly within, what was it like, 20 feet of any person, 100 feet from any structure or art car. And at Burning Man, that's very hard.
 
 [00:19:24] Will: How would you land? Yeah.
 
@@ -486,13 +486,13 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:19:39] Adam: So you're doing the launch like that?
 
-[00:19:40] Eric Cheng: yeah. You just you just launch it off your hand and you catch it. Um, and uh, and so my footage, if you look at the reel that's up there, it's all, it's sort of far away. It's far away. It's dust storm stuff. It's it's kind of landscapey.
+[00:19:40] Eric Cheng: yeah. You just launch it off your hand and you catch it. And so my footage, if you look at the reel that's up there, it's all, it's sort of far away. It's far away. It's dust storm stuff. It's kind of landscapey.
 
 [00:19:52] Unknown: Awesome.
 
 [00:19:52] Adam: So I mean, just I know that if you add, let's say, inflatable protector on the bottom, so if it fell out of the sky, it would hurt. It wouldn't hurt a person. You compromise your ability to fly well because you're adding wind resistance. Do you guys have ideas about ways to handle that problem?
 
-[00:20:11] Eric Cheng: Yeah. Some people, some people have tethered them, which doesn't doesn't actually solve that problem, but makes it then a tethered camera, which may remove it from FAA jurisdiction.
+[00:20:11] Eric Cheng: Yeah. Some people have tethered them, which doesn't doesn't actually solve that problem, but makes it then a tethered camera, which may remove it from FAA jurisdiction.
 
 [00:20:23] Unknown: Oh.
 
@@ -514,7 +514,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:20:35] Adam: Right.
 
-[00:20:35] Eric Cheng: That would probably spin the camera off in our case, but that that's all in the research, [unclear: yeah, research] phase now. So currently, you know, what people are doing is they're they're flying X8 design, X4, X8 designs like you know coaxial motors. So you have two motors at every point.
+[00:20:35] Eric Cheng: That would probably spin the camera off in our case, but that that's all in the research, [unclear: yeah, research] phase now. So currently, you know, what people are doing is they're flying X8 design, X4, X8 designs like you know coaxial motors. So you have two motors at every point.
 
 [00:20:35] Adam: Right.
 
@@ -522,7 +522,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:20:35] Adam: Yeah.
 
-[00:20:35] Eric Cheng: Yeah, that's still that's still a big problem. And this is why the regulations, the regulation stuff needs to be addressed at some point.
+[00:20:35] Eric Cheng: Yeah, that's still a big problem. And this is why the regulations, the regulation stuff needs to be addressed at some point.
 
 [00:21:15] Adam: So a super small airbag that inflates on proximity, like the Mars lander.
 
@@ -534,15 +534,15 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:21:26] Adam: Yeah. Why not?
 
-[00:21:27] Eric Cheng: Yeah. I mean, DJI actually sells a a parachute for the big ones, and it's not meant to protect your equipment. It's meant to protect whatever's under it.
+[00:21:27] Eric Cheng: Yeah. I mean, DJI actually sells a parachute for the big ones, and it's not meant to protect your equipment. It's meant to protect whatever's under it.
 
 [00:21:27] Adam: Right. Right.
 
-[00:21:27] Eric Cheng: So you're, you know, you're comfortable.
+[00:21:27] Eric Cheng: So you're you're comfortable.
 
 [00:21:37] Norm: What's a deploy mechanism for that? It's just another RC switch.
 
-[00:21:41] Eric Cheng: No, it's um, it's actually bank angle and mode. So like if if you if you power off and you you know bank the thing, it deploys.
+[00:21:41] Eric Cheng: No, it's actually bank angle and mode. So like if you power off and you know bank the thing, it deploys.
 
 [00:21:48] Adam: Or if you're moving descending too fast.
 
@@ -568,11 +568,11 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:22:17] Adam: Oh, right.
 
-[00:22:17] Eric Cheng: Um, and so I'm going, I'm going for for that launch there in the south of France.
+[00:22:17] Eric Cheng: And so I'm going for that launch there in the south of France.
 
 [00:22:30] Unknown speaker: Cool.
 
-[00:22:17] Eric Cheng: So I’m going to bring one of these and fly. And someone was arrested in Paris recently for flying, so I will not be flying in pop, you know, in the super touristy areas.
+[00:22:17] Eric Cheng: So I’m going to bring one of these and fly. And someone was arrested in Paris recently for flying, so I will not be flying in pop in the super touristy areas.
 
 [00:22:40] Norm: Prague, you'll do that, right?
 
@@ -590,7 +590,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:22:45] Norm: What are your dream things to shoot? Like before the regulation gets too restrictive.
 
-[00:22:50] Eric Cheng: Well, hopefully the regulation will will become a comment. Will actually enable more interesting shoots because things are being closed off one by one. You know, like towns are are starting to limit usage.
+[00:22:50] Eric Cheng: Well, hopefully the regulation will will become a comment. Will actually enable more interesting shoots because things are being closed off one by one. Like towns are starting to limit usage.
 
 [00:23:00] Adam: Here's what I want: a pair of cameras hooked up to an Oculus Rift, so I can live my dream of flying.
 
@@ -598,13 +598,13 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:23:08] Adam: Let’s do it.
 
-[00:23:08] Eric Cheng: You know, we have a board that. Talks to multiple cameras.
+[00:23:08] Eric Cheng: We have a board that. Talks to multiple cameras.
 
-[00:23:12] Adam: I want to do that. That's and and then we'll get the wing rig?
+[00:23:12] Adam: I want to do that. That's and then we'll get the wing rig?
 
 [00:23:15] Norm: Yes, yeah.
 
-[00:23:16] Will: The wing, the wing rig, is the best thing,
+[00:23:16] Will: The wing rig, is the best thing,
 
 [00:23:18] Adam: Dude,
 
@@ -614,7 +614,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:23:24] Eric Cheng: The wing rig. So you get someone else to fly it, and you just watch it in real time?
 
-[00:23:27] Will: Or or
+[00:23:27] Will: Or
 
 [00:23:27] Eric Cheng: Or you don’t have to risk your...
 
@@ -658,17 +658,17 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:23:58] Eric Cheng: It's really hard to top.
 
-[00:24:02] Will: Have you, have you done tornado stuff?
+[00:24:02] Will: Have you done tornado stuff?
 
 [00:24:04] Eric Cheng: That's another idea that's been. I mean, it's been floating around.
 
 [00:24:07] Will: If you're looking at places that you're going to be in extreme mortal peril, and that there'll be cool video.
 
-[00:24:12] Eric Cheng: Yeah, tornadoes. That would be excellent, you know. And you, you know, you're going to lose it if you do that. So you,
+[00:24:12] Eric Cheng: Yeah, tornadoes. That would be excellent. And you're going to lose it if you do that. So you,
 
 [00:24:16] Will: right?
 
-[00:24:16] Eric Cheng: You record the footage locally, and you, you know, use it for science,
+[00:24:16] Eric Cheng: You record the footage locally, and use it for science,
 
 [00:24:20] Will: exactly.
 
@@ -676,11 +676,11 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:24:22] Norm: Right. A SpaceX launch or something?
 
-[00:24:25] Eric Cheng: Oh well, those were done with with DJI S800s.
+[00:24:25] Eric Cheng: Oh well, those were done with DJI S800s.
 
 [00:24:29] Norm: They use the test flights, right? When they
 
-[00:24:30] Eric Cheng: yeah, the grasshopper stuff, and those are already shot with hexacopters. You know, we we weren't flying them, but
+[00:24:30] Eric Cheng: yeah, the grasshopper stuff, and those are already shot with hexacopters. We weren't flying them, but
 
 [00:24:36] Norm: but you want to be a cinematographer.
 
@@ -696,13 +696,13 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:25:12] Will: oh my God!
 
-[00:25:14] Eric Cheng: We, we’d driven to this. We’d driven to see the flow, and there's all this beautiful steam coming off the flow. And I had this Sony A7S, which shoots in darkness. So I was shooting these like these beautiful kind of steam, you know, with red, the red glow in the background. And then in the footage, you can see the Northern Lights appear. And I was taking a time lapse sequence. And then the the other car started honking. We gotta go. You know, it was just everyone was so tired. I mean, totally understandable.
+[00:25:14] Eric Cheng: We, we’d driven to this. We’d driven to see the flow, and there's all this beautiful steam coming off the flow. And I had this Sony A7S, which shoots in darkness. So I was shooting these like these beautiful kind of steam with red, the red glow in the background. And then in the footage, you can see the Northern Lights appear. And I was taking a time lapse sequence. And then the other car started honking. We gotta go. You know, it was just everyone was so tired. I mean, totally understandable.
 
 [00:25:40] Adam: Yeah.
 
 [00:25:41] Eric Cheng: Um,
 
-[00:25:42] Adam: but you know, Northern Lights showed up. Oh no. I mean, at the end of. They always show up late to the party.
+[00:25:42] Adam: but Northern Lights showed up. Oh no. I mean, at the end of. They always show up late to the party.
 
 [00:25:46] Eric Cheng: They always show up late.
 
@@ -720,11 +720,11 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:26:13] Will: Oh no!
 
-[00:26:14] Eric Cheng: So we had to pull all the the tools out to like get the rest of it off, so you stick it in the car to drive back. So
+[00:26:14] Eric Cheng: So we had to pull all the tools out to like get the rest of it off, so you stick it in the car to drive back. So
 
 [00:26:22] Adam: I probably could have been useful at that point.
 
-[00:26:23] Eric Cheng: Yeah, actually, that would have been great. I was just taking pictures, to be honest. Like I was shooting video of the guys fixing it because I thought it was funny. And then when we got back, we had to look at the footage, you know. So we were still really amped up because the footage we couldn't look at it, you know. It was we had a long drive back and
+[00:26:23] Eric Cheng: Yeah, actually, that would have been great. I was just taking pictures, to be honest. Like I was shooting video of the guys fixing it because I thought it was funny. And then when we got back, we had to look at the footage. So we were still really amped up because the footage we couldn't look at it, you know. It was we had a long drive back and
 
 [00:26:23] Adam: Right, right, right.
 
@@ -744,11 +744,11 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:27:00] Adam: Yeah, I really appreciate it.
 
-[00:27:00] Will: This is this is absolutely a blast, and I mean, we keep posting what you are doing on Tested, and and hopefully we'll see you again in the not too distant future.
+[00:27:00] Will: This is absolutely a blast, and I mean, we keep posting what you are doing on Tested, and hopefully we'll see you again in the not too distant future.
 
 [00:27:10] Eric Cheng: Yeah, hopefully, hopefully in a collaborative sort of way.
 
-[00:27:11] Adam: I, I, you gave me an idea just now, and I think maybe we'll take you up on it.
+[00:27:11] Adam: I, you gave me an idea just now, and I think maybe we'll take you up on it.
 
 [00:27:15] Eric Cheng: Yeah, it'd be good.
 

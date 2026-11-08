@@ -12,7 +12,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:00:32] Adam: No, no, I was actually just debating whether or not to use a contraction or say " I am."
 
-[00:00:37] Will: I, I, I was already through the point of just making that decision before I realized I had not contracted. So,
+[00:00:37] Will: I was already through the point of just making that decision before I realized I had not contracted. So,
 
 [00:00:42] Norm: apologies for the late podcast this week. We're recording. We've decided to wait till 4/20 to record the podcast.
 
@@ -34,7 +34,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:01:09] Adam: Yes, right.
 
-[00:01:10] Norm: You’ve got to paint a word picture because Yelp has partnered with a robotics company named Marble, and they have a a delivery robot, autonomous delivery robot with a chaperone, I guess. But the robot
+[00:01:10] Norm: You’ve got to paint a word picture because Yelp has partnered with a robotics company named Marble, and they have a delivery robot, autonomous delivery robot with a chaperone, I guess. But the robot
 
 [00:01:23] Will: semi-autonomous, I think.
 
@@ -80,7 +80,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:02:17] Unknown speaker: [unclear: So that’s happening / but today it’s happening].
 
-[00:02:17] Will: That was well. I mean, you know, the, the gap between us, you and I have, and Norm and I have the same gap.
+[00:02:17] Will: That was well. I mean the gap between us, you and I have, and Norm and I have the same gap.
 
 [00:02:17] Adam: Right.
 
@@ -88,19 +88,19 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:02:26] Norm: I could have called this podcast the Three Gaps.
 
-[00:02:29] Will: That's well. There's only two decades apart. Yeah, decades apart. Anyway, yeah. So Pink Panther was always one of those things that came on on Saturday morning after the cartoons that I would just turn to another channel.
+[00:02:29] Will: That's well. There's only two decades apart. Yeah, decades apart. Anyway, yeah. So Pink Panther was always one of those things that came on Saturday morning after the cartoons that I would just turn to another channel.
 
-[00:02:38] Adam: It was, it was, it's a surrealist masterpiece. The Pink Panther cartoons are fantastic.
+[00:02:38] Adam: It was, it's a surrealist masterpiece. The Pink Panther cartoons are fantastic.
 
 [00:02:42] Will: It didn't fly for eight-year-old Northeast Tennessee. Will
 
 [00:02:44] Adam: he would like pull a picture off the wall, throw it on the floor. It would be a trap door, and he'd run down some stairs. That kind of thing.
 
-[00:02:50] Will: I, I need. This is so. This is one of those things where, like, your parents' influence when you're in the age where your parents' influence still shapes you.
+[00:02:50] Will: I need. This is so. This is one of those things where your parents' influence when you're in the age where your parents' influence still shapes you.
 
 [00:02:50] Adam: Yeah,
 
-[00:02:50] Will: I, I was not mentally prepared for surrealism when I was not probably college age.
+[00:02:50] Will: I was not mentally prepared for surrealism when I was not probably college age.
 
 [00:03:03] Adam: Understood.
 
@@ -112,7 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:03:08] Adam: No, yeah, Magritte was my Magritte was the first painter I knew by name. Yeah, so I was deeply inculcated with the surrealists.
 
-[00:03:14] Will: We listened to a lot of of the who sang Kingston Trio.
+[00:03:14] Will: We listened to a lot of the who sang Kingston Trio.
 
 [00:03:22] Adam: Oh wow!
 
@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:04:31] Unknown speaker: Decades apart.
 
-[00:04:32] Will: Norm, Norm, so you you have to know who Crystal Gayle is. You have to know who Loretta Lynn is because she did an album with Jack White.
+[00:04:32] Will: Norm, Norm, so you have to know who Crystal Gayle is. You have to know who Loretta Lynn is because she did an album with Jack White.
 
 [00:04:34] Adam: Okay,
 
@@ -168,7 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:04:42] Will: yeah.
 
-[00:04:42] Adam: So, so Pete Seeger was an is an American folk singer and an icon of the stripe of Woody Guthrie, and that important. Where Woody Guthrie is early part of the century, stumping for miners and unionization in in early part of the 20th century. Pete Seeger is definitely the mid century, famous for touring with a group called the Weavers, and singing and writing beautiful protest songs. Was right there with Martin Luther King and the civil rights movement. Part of the Hollywood blacklist, absolutely was blackballed out of the entertainment industry for decades because of his communist leanings. I don't even think they were leanings. I think he was right in the middle.
+[00:04:42] Adam: So, so Pete Seeger was an is an American folk singer and an icon of the stripe of Woody Guthrie, and that important. Where Woody Guthrie is early part of the century, stumping for miners and unionization in early part of the 20th century. Pete Seeger is definitely the mid century, famous for touring with a group called the Weavers, and singing and writing beautiful protest songs. Was right there with Martin Luther King and the civil rights movement. Part of the Hollywood blacklist, absolutely was blackballed out of the entertainment industry for decades because of his communist leanings. I don't even think they were leanings. I think he was right in the middle.
 
 [00:05:22] Will: I think he's probably a communist,
 
@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:05:24] Unknown speaker: yeah.
 
-[00:05:24] Adam: And just a super important part of of my culture growing up in the late '60s, early '70s, like albums like Peter, Paul, and Mary, and those kind of Kingston Trio.
+[00:05:24] Adam: And just a super important part of my culture growing up in the late '60s, early '70s, like albums like Peter, Paul, and Mary, and those kind of Kingston Trio.
 
 [00:05:36] Will: I saw Peter, Paul, and Mary play at Wolf Trap once.
 
@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:05:36] Adam: Wow.
 
-[00:05:36] Will: one of their last shows. That was incredible. Like it was, I kind of went into that as a my my grandmother took me.
+[00:05:36] Will: one of their last shows. That was incredible. Like it was, I kind of went into that as a my grandmother took me.
 
 [00:05:46] Adam: Nice, yeah.
 
@@ -196,7 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:05:47] Will: There's no rock me amadeus here,
 
-[00:05:59] Norm: guys. We're burying the lead here because the the generation unifying thing of this week is the new Star Wars trailer.
+[00:05:59] Norm: guys. We're burying the lead here because the generation unifying thing of this week is the new Star Wars trailer.
 
 [00:06:06] Adam: Oh yes, yes, the Last Jedi,
 
@@ -204,7 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:06:09] Will: a trailer. I didn't know that something happened.
 
-[00:06:11] Adam: What? I I it might I I will tell you, I enjoyed watching it, but the degree to which it teased and delivered nothing.
+[00:06:11] Adam: What? I it might I I will tell you, I enjoyed watching it, but the degree to which it teased and delivered nothing.
 
 [00:06:22] Will: Yeah, that's what I wanted. a teaser though.
 
@@ -218,7 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:06:42] Norm: But they unveiled this trailer, two minute trailer. Teaser, you gotta call it a teaser. But unlike the Force Awakens' first teaser, where we saw all the new characters for the first time and the Falcon finally flying after you know decades, and BB-8 and all these new characters, this was just letting you know the story's continuing and a gentle reminder. Here are the breadcrumbs for the main course. Come December,
 
-[00:07:07] Adam: you know that the the trailer opens as you are sure the movie does with the training sequence between Luke and Rey. You don't know what Luke means at the end of the trailer when he says the Jedi must go. Must go, and
+[00:07:07] Adam: you know that the trailer opens as you are sure the movie does with the training sequence between Luke and Rey. You don't know what Luke means at the end of the trailer when he says the Jedi must go. Must go, and
 
 [00:07:18] Unknown speaker: [unclear: Jedi / The end / last]
 
@@ -228,7 +228,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:07:28] Norm: I think it's enough for there to be some fun speculation, and we are in the camp where we think the speculation of this kind is fun, but not so much that I don't think we can be spoiled. And you're right; I think it succeeds in getting us ready for the film without giving us too much.
 
-[00:07:43] Adam: Totally. And I, you know, I stopped watching the Rogue One trailers after the second after the second one.
+[00:07:43] Adam: Totally. And I I stopped watching the Rogue One trailers after the second one.
 
 [00:07:47] Will: The one that showed the AT-ATs or the whatever the the transport AT-ATs are, I was like, okay, I I'm look in reality, this this movie does not need a trailer to convince me that I should go see it.
 
@@ -236,27 +236,27 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:08:01] Unknown speaker: Like, none of us are
 
-[00:08:02] Will: I think I think if you are aware that there's a new Star Wars,
+[00:08:02] Will: I think if you are aware that there's a new Star Wars,
 
 [00:08:05] Norm: right? I mean, they did they live stream and debuted at Celebration,
 
 [00:08:05] Adam: yeah.
 
-[00:08:05] Norm: Um, and it needs to be for everyone, but but serve all the purposes.
+[00:08:05] Norm: And it needs to be for everyone, but serve all the purposes.
 
 [00:08:14] Will: But the point of this trail, the trailers for these Star Wars movies, aren't to let people know, hey, there's a Star Wars movie coming out. That's probably taken care of now,
 
-[00:08:22] Adam: right? Or that's a smaller percentage of their of their ultimate goal. I I also watched this week the Honest trailer of Rogue One. Oh,
+[00:08:22] Adam: right? Or that's a smaller percentage of their ultimate goal. I also watched this week the Honest trailer of Rogue One. Oh,
 
 [00:08:30] Will: is that the one with the split of the Force Awakens and the?
 
-[00:08:33] Adam: Oh no, no, no, no. This is Honest Trailers, so they're they're they say things like featuring a. Banned a cast of people who let's how do we say this just don't get too attached to them.
+[00:08:33] Adam: Oh no, no, no, no. This is Honest Trailers, so they're they say things like featuring a. Banned a cast of people who let's how do we say this just don't get too attached to them.
 
 [00:08:45] Norm: They do great voiceovers and oh,
 
-[00:08:49] Adam: so good. And featuring none of the shots from this trailer. And actually, when you see all the shots from the trailer that aren't in the movie lined up, you know none of the stories about why why things are so different have really told the story. And I I look forward to some extra material someday on some DVD that show us.
+[00:08:49] Adam: so good. And featuring none of the shots from this trailer. And actually, when you see all the shots from the trailer that aren't in the movie lined up none of the stories about why why things are so different have really told the story. And I I look forward to some extra material someday on some DVD that show us.
 
-[00:09:09] Will: I hope that somebody will like like release the deathbed. Here's the making of story, right? Like I just want to know
+[00:09:09] Will: I hope that somebody will like release the deathbed. Here's the making of story, right? Like I just want to know
 
 [00:09:09] Adam: who knows
 
@@ -266,9 +266,9 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:09:18] Norm: a part of the marketing process, the production process. Rogue One, especially part of the production process, is an artifact of that. Film being made,
 
-[00:09:36] Adam: and so there's a, there's a, and there's also now a full culture that grows up each time a trailer comes out. Gizmodo and other sites, IO9, start doing articles about like, here's all the things we know. Putting it together, they build flow charts and they start looking at plot lines. And I'm never interested in that kind of discussion, so because I, it just doesn't, it doesn't, it doesn't enhance my movie making, movie going experience.
+[00:09:36] Adam: and so there's a, and there's also now a full culture that grows up each time a trailer comes out. Gizmodo and other sites, IO9, start doing articles about like, here's all the things we know. Putting it together, they build flow charts and they start looking at plot lines. And I'm never interested in that kind of discussion, so because I, it just doesn't, it doesn't enhance my movie making, movie going experience.
 
-[00:09:59] Will: So that's where I ended up. Joey did this years before any of us even considered, and he's this is why he's smarter than all of us. But but when I went into Rogue One cold, I went into um, I went into Arrival completely cold.
+[00:09:59] Will: So that's where I ended up. Joey did this years before any of us even considered, and he's this is why he's smarter than all of us. But when I went into Rogue One cold, I went into Arrival completely cold.
 
 [00:09:59] Norm: Yeah.
 
@@ -280,13 +280,13 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:10:26] Norm: Right.
 
-[00:10:26] Will: Before the the film came out, and like this is a good example of a really well done trailer. There's no plot. There's no character development. There's really Like the only thing that you get is that there's going to be a training montage, which you knew was going to happen anyway.
+[00:10:26] Will: Before the film came out, and like this is a good example of a really well done trailer. There's no plot. There's no character development. There's really Like the only thing that you get is that there's going to be a training montage, which you knew was going to happen anyway.
 
-[00:10:37] Norm: The training could be the whole film. Who knows? And I like the sizzle. I gotta say, I like, I like,
+[00:10:37] Norm: The training could be the whole film. Who knows? And I like the sizzle. I gotta say, I like,
 
 [00:10:42] Adam: it gets exciting.
 
-[00:10:43] Norm: I like the anticipation. I like the the water cooler talk, which we're doing right now. I like the deep dives, and it's even if you're not going to read those articles now. I like going back to the articles after the movie comes out. See what
+[00:10:43] Norm: I like the anticipation. I like the water cooler talk, which we're doing right now. I like the deep dives, and it's even if you're not going to read those articles now. I like going back to the articles after the movie comes out. See what
 
 [00:10:55] Will: [unclear: was the impact of the / Oh, that’s absolutely, yeah]
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:11:04] Will: Yeah,
 
-[00:11:04] Adam: and many sites are putting them all up in line so you can watch them all together. She Gal Gadot is Wonder Woman. Aside from being preternaturally beautiful, as as you'd expect them to cast, she seems amazing in the role. And from my friends at FBFX, who worked on her costume, she's totally a delight to work with. On she's they've now worked with her on three films. So there's Batman versus Superman, the Wonder Woman film, and now the Justice Justice League. And say she's just wonderful to work with, and the costumes are magnificent. And I don't know how that movie is going to be. It could totally blow. So I feel like for Wonder Woman, I'm like I'm enjoying the trailers so much. I'm just going to keep watching them and enjoying a movie that might not be the one I end up seeing.
+[00:11:04] Adam: and many sites are putting them all up in line so you can watch them all together. She Gal Gadot is Wonder Woman. Aside from being preternaturally beautiful, as you'd expect them to cast, she seems amazing in the role. And from my friends at FBFX, who worked on her costume, she's totally a delight to work with. On she's they've now worked with her on three films. So there's Batman versus Superman, the Wonder Woman film, and now the Justice Justice League. And say she's just wonderful to work with, and the costumes are magnificent. And I don't know how that movie is going to be. It could totally blow. So I feel like for Wonder Woman, I'm like I'm enjoying the trailers so much. I'm just going to keep watching them and enjoying a movie that might not be the one I end up seeing.
 
 [00:11:55] Norm: In many cases, the trailer is the best part. And like
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:12:11] Unknown speaker: [unclear: Yes, yeah / Yes. Yeah, yeah / That's it]
 
-[00:12:11] Norm: yes, and there there are just feats of editing. And sometimes, even if the film ends up not being great, to have just that moment in time where you were excited about the movie for the trailer and that told the story, that glimpse of it is totally fine. I'm happy to have it. I'm happy to have that.
+[00:12:11] Norm: yes, and there are just feats of editing. And sometimes, even if the film ends up not being great, to have just that moment in time where you were excited about the movie for the trailer and that told the story, that glimpse of it is totally fine. I'm happy to have it. I'm happy to have that.
 
 [00:12:26] Adam: So, speaking of trailers that were way better than the movie, I watched a thing just this morning, Nerdwriter's piece on how passengers would be far more watchable. If you watched it in a complete, if they cut it in a totally different order,
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:12:46] Adam: Okay, so then I'd love, and you, I'd love to.
 
-[00:12:49] Norm: Okay, we we have to enter spoiler cast territory, territory. Which like this is not real big warning because I don't think people are out there waiting to watch passengers and then listen to this podcast. I don't think they ever wanted a passenger spoiler cast. If we're going to get it,
+[00:12:49] Norm: Okay, we have to enter spoiler cast territory, territory. Which like this is not real big warning because I don't think people are out there waiting to watch passengers and then listen to this podcast. I don't think they ever wanted a passenger spoiler cast. If we're going to get it,
 
 [00:13:02] Adam: no, and if you were waiting for passengers, really don't.
 
@@ -352,7 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:13:22] Will: So,
 
-[00:13:23] Norm: and Jon Spaihts also was one of the first writers on Prometheus, and this was a script to give you some sense context of why Hollywood. When you talk to a lot of people who filmmakers, they say this. Everyone says the script was so good. The script was so good. The reason they're saying that is that passengers, the script that Jon Spaihts wrote, this is almost a. A decade ago now was on the blacklist as the blacklist was being formed, and this is the the
+[00:13:23] Norm: and Jon Spaihts also was one of the first writers on Prometheus, and this was a script to give you some sense context of why Hollywood. When you talk to a lot of people who filmmakers, they say this. Everyone says the script was so good. The script was so good. The reason they're saying that is that passengers, the script that Jon Spaihts wrote, this is almost a. A decade ago now was on the blacklist as the blacklist was being formed, and this is the
 
 [00:13:47] Adam: famous, famous yearly compendium of unproduced genius scripts,
 
@@ -378,11 +378,11 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:14:36] Will: Okay,
 
-[00:14:36] Norm: so let's let's let's talk about the movie shows first. Okay, the the basic premise of the movie. Okay. It's a it's
+[00:14:36] Norm: so let's let's let's talk about the movie shows first. Okay, the basic premise of the movie. Okay. It's a it's
 
 [00:14:43] Will: It's Titanic meets Guardians of the Galaxy.
 
-[00:14:45] Adam: It's not. It's worse Stalker. No, it's it's it's single white female.
+[00:14:45] Adam: It's not. It's worse Stalker. No, it's single white female.
 
 [00:14:49] Norm: Hold on, even even but before that, the basic story is it's a hard science fiction story of what a man's exploration into a colonization of a different world.
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:14:57] Norm: a generation ship.
 
-[00:14:58] Adam: That's that's the background.
+[00:14:58] Adam: That's the background.
 
 [00:15:00] Norm: Right, the background. The
 
@@ -400,13 +400,13 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:15:10] Adam: and it's a luxury cruise ship version of traveling to a new planet.
 
-[00:15:13] Will: but with all of the things that a that a old ocean old style ocean liner. Yeah. There's multiple classes of passengers. There's a whole different. There's a whole thing going on.
+[00:15:13] Will: but with all of the things that a old ocean old style ocean liner. Yeah. There's multiple classes of passengers. There's a whole different. There's a whole thing going on.
 
 [00:15:20] Adam: Julie's doing shuffleboard on the Lido deck, etc.
 
 [00:15:23] Will: Yep. Exactly.
 
-[00:15:23] Norm: Um, and he wakes up because of some accident. Wakes up from cryo sleep, and he can't get back into cryo sleep, so he's going to end up dying on the ship.
+[00:15:23] Norm: And he wakes up because of some accident. Wakes up from cryo sleep, and he can't get back into cryo sleep, so he's going to end up dying on the ship.
 
 [00:15:23] Adam: It's a malfunction.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:15:31] Will: He has 90 years on the voyage to go when he wakes up,
 
-[00:15:33] Norm: and he's he's like 30 something years old. He's going to die. So the The conflict comes in in that he decides to wake up a fellow passenger.
+[00:15:33] Norm: and he's like 30 something years old. He's going to die. So the conflict comes in that he decides to wake up a fellow passenger.
 
 [00:15:40] Adam: He decides not to kill himself.
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:16:53] Adam: because it's fucking. Excuse me for cursing, but it's fucking creepy.
 
-[00:16:56] Norm: Yeah, it is. And the sense that conflict of the film of how do you one do you redeem the character Chris Pratt plays, and and two, if you choose, if the director and the storyteller chooses to make redemption part of the story, can that even be achieved?
+[00:16:56] Norm: Yeah, it is. And the sense that conflict of the film of how do you one do you redeem the character Chris Pratt plays, and two, if you choose, if the director and the storyteller chooses to make redemption part of the story, can that even be achieved?
 
 [00:16:56] Adam: Right,
 
@@ -470,7 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:17:28] Adam: right?
 
-[00:17:28] Will: Because they make the final conflict require both of them working separately together, you know, to same purposes. Chris Pratt has to risk his life to to to do the part that he has to do,
+[00:17:28] Will: Because they make the final conflict require both of them working separately together to same purposes. Chris Pratt has to risk his life to do the part that he has to do,
 
 [00:17:28] Adam: right?
 
@@ -478,13 +478,13 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:17:28] Adam: yeah.
 
-[00:17:28] Will: And her choice at the end is madness versus waking him up and right and you know and doing the whole the whole thing again. So so like there's mirror image choices
+[00:17:28] Will: And her choice at the end is madness versus waking him up and right and you know and doing the whole thing again. So so like there's mirror image choices
 
 [00:18:03] Adam: that they'd potentially solved the problem in their script.
 
 [00:18:07] Norm: And I know that to the filmmakers' credit, they tried to tackle this as earnestly as they could with the confines of still trying to sell it as a romance story.
 
-[00:18:15] Adam: I totally agree with that. And that was the problem. And it's also it's also a beautiful movie.
+[00:18:15] Adam: I totally agree with that. And that was the problem. And it's also a beautiful movie.
 
 [00:18:21] Will: Oh, it's
 
@@ -494,13 +494,13 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:18:28] Adam: Yeah,
 
-[00:18:28] Will: in the in the script, sorry, Norm, in the script, they they do a really good job illustrating that the that the character played by Chris Pratt. Is full on completely has completely lost his mind in his descent into madness, right? And in the movie, you get that he's on the edge of that, but you get you don't get that he is mad. Just get that
+[00:18:28] Will: in the script, sorry, Norm, in the script, they do a really good job illustrating that the character played by Chris Pratt. Is full on completely has completely lost his mind in his descent into madness, right? And in the movie, you get that he's on the edge of that, but you get you don't get that he is mad. Just get that
 
 [00:18:54] Norm: he is because he's put on a big fake beard, a pretty bad beard, by the way.
 
 [00:18:54] Will: Yeah,
 
-[00:18:54] Norm: and and there was a sequence where he like looks in the mirror and he says, " Don't do this." As he's shaving his beard, so he's already made up his mind. He's going to do it, but he says, " Don't do this. Don't wake her up." And he's shaving, and that's like a nice like thriller psychological thriller moment.
+[00:18:54] Norm: and there was a sequence where he like looks in the mirror and he says, " Don't do this." As he's shaving his beard, so he's already made up his mind. He's going to do it, but he says, " Don't do this. Don't wake her up." And he's shaving, and that's like a nice like thriller psychological thriller moment.
 
 [00:19:12] Adam: But in the script, it's he's totally off the.
 
@@ -508,15 +508,15 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:19:14] Adam: right?
 
-[00:19:14] Will: Like like
+[00:19:14] Will: Like
 
 [00:19:20] Adam: so, he's like smearing his own poo on the wall.
 
-[00:19:22] Will: It's not quite that bad, but like but like the scene specifically, the scene where he's working on the outside of the door and like he
+[00:19:22] Will: It's not quite that bad, but like the scene specifically, the scene where he's working on the outside of the door and like he
 
 [00:19:28] Adam: that was the most that was really amazing to me because that's precisely what I would be doing. Yeah,
 
-[00:19:32] Norm: well, there’s a working the problem. Right. I think, I think what Jon Spaihts wanted to do. He said this before. Is Put a put you in the mind of what would you do,
+[00:19:32] Norm: well, there’s a working the problem. Right. I think what Jon Spaihts wanted to do. He said this before. Is Put a put you in the mind of what would you do,
 
 [00:19:32] Adam: right?
 
@@ -524,7 +524,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:19:32] Adam: No.
 
-[00:19:51] Will: To, to me, it was it was that he showed he showed that he was he was really worried about what was going to happen to him versus what was happening to him. And you could like in the script they illustrated that with the with the progression of his violence against that door, right?
+[00:19:51] Will: To me, it was that he showed that he was really worried about what was going to happen to him versus what was happening to him. And you could like in the script they illustrated that with the progression of his violence against that door, right?
 
 [00:19:51] Norm: Right. Right.
 
@@ -532,7 +532,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:20:08] Norm: which in the film they like they just yeah here it's the shining look at the carpet it's the carpet from the shining it looks just like the shining well, that’s not enough
 
-[00:20:15] Will: and Chris Pratt played it a little bit too goofy and a little bit not enough mad which you know who knows whether that's him or direction or whatever but but that was the takeaway and I think if you had felt if you had believed that his descent into madness was complete and we were in like a heart of darkness situation
+[00:20:15] Will: and Chris Pratt played it a little bit too goofy and a little bit not enough mad which you know who knows whether that's him or direction or whatever but that was the takeaway and I think if you had felt if you had believed that his descent into madness was complete and we were in like a heart of darkness situation
 
 [00:20:30] Norm: Listen. I still don't think it's redeemable
 
@@ -568,7 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:21:33] Will: [unclear: it's really open / Really?]
 
-[00:21:34] Adam: In fact, in fact, wait, wait, wait. What they talk about is the problem with the film is that you're you're you're Chris Pratt. He's your protagonist, and because he's his behavior is so questionable, you're you're complicit. This is the problem with the with the with him waking her up. You're complicit because that's your main character,
+[00:21:34] Adam: In fact, wait, wait, wait. What they talk about is the problem with the film is that you're Chris Pratt. He's your protagonist, and because he's his behavior is so questionable, you're complicit. This is the problem with the with him waking her up. You're complicit because that's your main character,
 
 [00:21:34] Will: right?
 
@@ -576,17 +576,17 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:22:16] Will: So then it's a thriller rather than a romance.
 
-[00:22:18] Norm: Exactly, and that's how yeah, and and I think it does work that way, but I disagree. I disagree. I think I think that is a fair way to edit what's already been done, but I think it betrays the intent of the film, which is. It wasn't intended. It wasn't intended to be a thriller and a horror. If you wanted to make a thriller and a horror, yes, you could make it that way. But I would rather try to save the film and make it more thought provoking, with the intent that Jon Spaihts had in the film. And there are a couple a couple ways that I think, as I watched this film, that I would have either changed or ended it. And people have thrown these suggestions out. Also, one I think would have been cool to have a reveal to show wake from her perspective as well, but reveal that he woke up not one year ago, but like 20 years ago
+[00:22:18] Norm: Exactly, and that's how yeah, and I think it does work that way, but I disagree. I disagree. I think that is a fair way to edit what's already been done, but I think it betrays the intent of the film, which is. It wasn't intended. It wasn't intended to be a thriller and a horror. If you wanted to make a thriller and a horror, yes, you could make it that way. But I would rather try to save the film and make it more thought provoking, with the intent that Jon Spaihts had in the film. And there are a couple ways that I think, as I watched this film, that I would have either changed or ended it. And people have thrown these suggestions out. Also, one I think would have been cool to have a reveal to show wake from her perspective as well, but reveal that he woke up not one year ago, but like 20 years ago
 
 [00:23:03] Will: or eight years. [unclear: Like really, like / like a really like / Right, right, right] and
 
-[00:23:05] Norm: so he has the mind of a a child and been alone, and it's really the deep end.
+[00:23:05] Norm: so he has the mind of a child and been alone, and it's really the deep end.
 
 [00:23:05] Adam: that's cool. That's messed up, and I mean that that takes me a long way towards understanding. But then I would imagine that,
 
 [00:23:16] Norm: and two,
 
-[00:23:17] Will: then it has the danger of that is it ends up being like a like a like a Florence Nightingale situation where she has to bring him back to humanity,
+[00:23:17] Will: then it has the danger of that is it ends up being like a Florence Nightingale situation where she has to bring him back to humanity,
 
 [00:23:24] Adam: Right. Right. But that's
 
@@ -594,7 +594,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:23:30] Norm: And the relationship is different. Then the relationship isn't maybe the lover, the creeper lover relationship, but it's maybe more of a. She's taking care of him,
 
-[00:23:38] Adam: and and frankly, I also have a problem with this because she's so young.
+[00:23:38] Adam: and frankly, I also have a problem with this because she's so young.
 
 [00:23:41] Norm: Yeah,
 
@@ -602,9 +602,9 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:23:48] Norm: Like when I was reading the script, it in my mind was like Michelle Monaghan. Someone like
 
-[00:23:52] Adam: it creeped me out. The, the youth aspect.
+[00:23:52] Adam: it creeped me out. The youth aspect.
 
-[00:23:53] Will: like, like, yeah, like if if they were if it was Keanu Reeves and Michelle Monaghan, it would be a little bit different.
+[00:23:53] Will: Yeah, like if they were if it was Keanu Reeves and Michelle Monaghan, it would be a little bit different.
 
 [00:23:53] Norm: Yeah,
 
@@ -618,7 +618,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:24:28] Will: Well, that's your '70s science fiction,
 
-[00:24:29] Norm: and then does she go and look through the the wave of pods and wake someone else up?
+[00:24:29] Norm: and then does she go and look through the wave of pods and wake someone else up?
 
 [00:24:29] Adam: Right,
 
@@ -650,7 +650,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:25:18] Adam: I totally agree.
 
-[00:25:19] Will: It was a hard sci-fi. Like the the the script as I read it was a really hard science fiction problem. Right. What if you're alone on this 120 year journey? Journey, you're a third of the way through it, and
+[00:25:19] Will: It was a hard sci-fi. Like the script as I read it was a really hard science fiction problem. Right. What if you're alone on this 120 year journey? Journey, you're a third of the way through it, and
 
 [00:25:19] Adam: [unclear: you’re gonna and you wake up / you’re gonna never gonna see]
 
@@ -672,7 +672,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:26:03] Adam: Oh, really? Oh, is that how the film ends?
 
-[00:26:04] Norm: And no, that's how the the script ends. And the camera tracks inside.
+[00:26:04] Norm: And no, that's how the script ends. And the camera tracks inside.
 
 [00:26:09] Adam: Oh, right. So everyone else dies, but they but
 
@@ -680,7 +680,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:26:11] Will: So you think it's going to be a twist ending? But the twist that you expect that the ship lands and it's empty and it's a ghost ship isn't the twist that they give you.
 
-[00:26:20] Norm: Fascinating. And the camera goes in, and you have the tree that he plants becomes their family tree, literally, and they are they are the Adam and Eve of the ship
+[00:26:20] Norm: Fascinating. And the camera goes in, and you have the tree that he plants becomes their family tree, literally, and they are the Adam and Eve of the ship
 
 [00:26:28] Will: It’s a whole planet full of creepers, little creepers.
 
@@ -688,17 +688,17 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:26:34] Will: Well, I mean, presumably there's other people already on the planet.
 
-[00:26:37] Norm: It's just like Seveneves where you have uh where you have like the eggs in storage and you [unclear: you know you gotta / you know, use IVF]
+[00:26:37] Norm: It's just like Seveneves where you have like the eggs in storage and you [unclear: you know you gotta / you know, use IVF]
 
 [00:26:41] Will: yeah harvest the skin cells out of the busted busted yeah
 
 [00:26:41] Adam: right right right We’re going to have to scrape the fingernails of
 
-[00:26:47] Norm: the the other solution that I have and this is what I'm most happy with
+[00:26:47] Norm: the other solution that I have and this is what I'm most happy with
 
 [00:26:51] Adam: we gotta move on from this
 
-[00:26:51] Norm: I know I know this is my last thing and I I I think it's the best possible solution is the end of the film she's given a choice to go back to sleep
+[00:26:51] Norm: I know this is my last thing and I I I think it's the best possible solution is the end of the film she's given a choice to go back to sleep
 
 [00:26:59] Adam: yeah
 
@@ -722,7 +722,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:27:22] Will: married last year.
 
-[00:27:23] Norm: they they they are 90 years old they get to see the landing of the ship
+[00:27:23] Norm: they are 90 years old they get to see the landing of the ship
 
 [00:27:23] Adam: yeah
 
@@ -734,9 +734,9 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:27:36] Will: and she holds him up as he falls off of the board and sinks into the ocean on the new planet. And then
 
-[00:27:42] Adam: I, I kind of dig that. I kind of dig that. That's kind of nice.
+[00:27:42] Adam: I kind of dig that. I kind of dig that. That's kind of nice.
 
-[00:27:46] Will: That's that's a total Deus ex machina,
+[00:27:46] Will: That's a total Deus ex machina,
 
 [00:27:46] Adam: totally
 
@@ -748,17 +748,17 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:27:50] Adam: I think we have spent as much time as we ought to on passengers.
 
-[00:27:55] Will: Like I, I, I just I was so bummed out watching the movie because the script was so interesting and and and and and challenging. Like it was hard, and it's a it's so gorgeous. The ship is so gorgeous.
+[00:27:55] Will: Like I, I, I just I was so bummed out watching the movie because the script was so interesting and challenging. Like it was hard, and it's a it's so gorgeous. The ship is so gorgeous.
 
 [00:28:06] Norm: Really, spacesuits
 
-[00:28:07] Will: and like all the science, all the space. Like they even did the they did the conservation momentum right with him. Like he's he's untethered, flying away into space, and the way he gets going in the direction he needs to go is by throwing something the direction he doesn't want to go. Yeah,
+[00:28:07] Will: and like all the science, all the space. Like they even did the they did the conservation momentum right with him. Like he's untethered, flying away into space, and the way he gets going in the direction he needs to go is by throwing something the direction he doesn't want to go. Yeah,
 
-[00:28:21] Adam: yeah, it's great. It's yeah. I, I.
+[00:28:21] Adam: yeah, it's great. It's yeah. I.
 
 [00:28:23] Will: Oh, it's so frustrating.
 
-[00:28:24] Adam: What What else are we gonna cover in this? The science march is happening on Saturday.
+[00:28:24] Adam: What else are we gonna cover in this? The science march is happening on Saturday.
 
 [00:28:29] Norm: Oh my god, just two days from now. Two
 
@@ -778,7 +778,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:28:45] Will: cool.
 
-[00:28:45] Adam: I'm going to sing a, uh, a, a Spice Girls song. No, I'm kidding.
+[00:28:45] Adam: I'm going to sing a Spice Girls song. No, I'm kidding.
 
 [00:28:54] Will: I'll tell you what you want. What I really, really want.
 
@@ -788,7 +788,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:29:04] Norm: generations apart, decades apart.
 
-[00:29:06] Adam: Um. Uh. Anyway, yes, the Science March is happening on Saturday. That's very exciting. We are also going to have a heavy presence tested and my cosplay passions at the Silicon Valley Comic Con. This
+[00:29:06] Adam: Anyway, yes, the Science March is happening on Saturday. That's very exciting. We are also going to have a heavy presence tested and my cosplay passions at the Silicon Valley Comic Con. This
 
 [00:29:18] Will: is so cool.
 
@@ -798,7 +798,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:29:21] Adam: Really, really cool.
 
-[00:29:22] Norm: So we have a room set up. Um. That's going to be Adam's cosplay cave and lounge. Some stuff from the cave here, some costumes, and we have some of our friends flying in to run some workshops for foam fabrication and painting. So if you're going to be in San Jose, go to Silicon Valley Comic Con, hang out. If you're a cosplayer, you can stop by and you can patch up your costume, hot glue, tape, rivets, whatever you need.
+[00:29:22] Norm: So we have a room set up. That's going to be Adam's cosplay cave and lounge. Some stuff from the cave here, some costumes, and we have some of our friends flying in to run some workshops for foam fabrication and painting. So if you're going to be in San Jose, go to Silicon Valley Comic Con, hang out. If you're a cosplayer, you can stop by and you can patch up your costume, hot glue, tape, rivets, whatever you need.
 
 [00:29:43] Will: Needles, thread, the whole thing.
 
@@ -812,15 +812,15 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:29:53] Adam: How much I love the fact that people run around being mobile repair stations, and cons have repair stations. I wanted to do the same. thing.
 
-[00:29:59] Will: that's that's awesome! I'm so excited that it's finally happening. So
+[00:29:59] Will: that's awesome! I'm so excited that it's finally happening. So
 
-[00:30:01] Adam: it's um it's a it's a it's a it's a wonderful idea, and it's you know it's about also giving back to this amazing community that has given me so much and given us so much. It's the the egalitarianism and the the just sharing of information, techniques, enthusiasm, inspiration. It's it's a thrilling and lovely community.
+[00:30:01] Adam: it's a wonderful idea, and it's you know it's about also giving back to this amazing community that has given me so much and given us so much. It's the egalitarianism and the just sharing of information, techniques, enthusiasm, inspiration. It's a thrilling and lovely community.
 
 [00:30:21] Will: That's awesome.
 
 [00:30:22] Norm: Awesome.
 
-[00:30:23] Will: I think is anything else to tease on on Tested?
+[00:30:23] Will: I think is anything else to tease on Tested?
 
 [00:30:25] Norm: We were at the replica prop forums annual showcase and party. We save that, talk about that for another time. But videos are on the site, and it was great to see a lot of familiar faces, meet some new people, see their projects up close. Wonderful K2SO.
 
@@ -834,7 +834,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:30:45] Adam: And on a budget, on a genuinely cool budget.
 
-[00:30:48] Will: I um, I popped into Ken Plume's a bit of a chat podcast this week.
+[00:30:48] Will: I popped into Ken Plume's a bit of a chat podcast this week.
 
 [00:30:51] Adam: Yes, I saw the I saw your avatar on his Twitter feed.
 
@@ -846,7 +846,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:30:59] Adam: Really,
 
-[00:30:59] Will: it is. Norm, you've played it's it's um, they built a world. They did the thing. You know, open world games have been around for a really long time. They those games work by taking like different competing systems and kind of making them interact, making the player make them interact in interesting ways. And the thing that Nintendo did is brought that and added a level of polish to it that I've never seen before. You know, instead of gating your progression with a series of invisible walls and the kind of normal video game bullshit, they just they just give you a stamina meter and let you climb whatever you want. If you figure out a way around that, you can you can go to places you're not supposed to go.
+[00:30:59] Will: it is. Norm, you've played it's they built a world. They did the thing. Open world games have been around for a really long time. They those games work by taking like different competing systems and kind of making them interact, making the player make them interact in interesting ways. And the thing that Nintendo did is brought that and added a level of polish to it that I've never seen before. Instead of gating your progression with a series of invisible walls and the kind of normal video game bullshit, they just give you a stamina meter and let you climb whatever you want. If you figure out a way around that, you can go to places you're not supposed to go.
 
 [00:30:59] Adam: Wow,
 
@@ -860,11 +860,11 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:31:55] Will: Hi, Adam's mom.
 
-[00:31:56] Adam: Hi, mom. I she she she sometimes complains that the microphone hides my pretty face and she wants to see us.
+[00:31:56] Adam: Hi, mom. I she sometimes complains that the microphone hides my pretty face and she wants to see us.
 
 [00:32:03] Will: We've we've all seen enough of your pretty face. Let's be real.
 
-[00:32:07] Adam: I'm just saying about my mom. You know, she's my biggest fan. She's amazing. I'm going to see her in a few weeks. She's going to come out here to San Francisco. But I I know that she's listening, so I want to say, Mom, I love you.
+[00:32:07] Adam: I'm just saying about my mom. She's my biggest fan. She's amazing. I'm going to see her in a few weeks. She's going to come out here to San Francisco. But I I know that she's listening, so I want to say, Mom, I love you.
 
 [00:32:17] Will: Hi, mom.
 

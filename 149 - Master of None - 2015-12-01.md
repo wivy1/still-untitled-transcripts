@@ -12,7 +12,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:00:51] Adam: Well, good morning.
 
-[00:00:52] Will: We're we're in the in the in the shop. It's like six a.m., seven a.m., seven a.m., 4:30. I don't know where I am.
+[00:00:52] Will: We're in the shop. It's like six a.m., seven a.m., seven a.m., 4:30. I don't know where I am.
 
 [00:00:58] Norm: If you listen to the past couple of episodes of Still Untitled, we're actually recording a lot at once, because Adam's going on tour. You are actually on tour right now.
 
@@ -28,7 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:01:37] Will: Unfortunately. not with a bang, but with a whimper.
 
-[00:01:40] Adam: Yeah, it's lots of little, lots of little details.
+[00:01:40] Adam: Yeah, it's lots of little details.
 
 [00:01:43] Will: Okay,
 
@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:01:46] Norm: Oh, wonderful!
 
-[00:01:47] Adam: But yeah, I have on my. I was. I was telling you guys when we arrived this morning, the paper crossbow, one of I think my all time favorite constructions, is sitting there on my pool table. We built it. I built it back in '04. During the time we got to visit Vernell Crittenden, who was at that point. Um, uh, the I think press relations officer at San Quentin, and we get to visit the San Quentin Confiscated Weapons Museum, which is a DIY masterpiece. I mean, I mean, these are people who can. These are people. This is the level of ingenuity here. It's like a Styrofoam cup can be turned into a deadly knife.
+[00:01:47] Adam: But yeah, I have on my. I was. I was telling you guys when we arrived this morning, the paper crossbow, one of I think my all time favorite constructions, is sitting there on my pool table. We built it. I built it back in '04. During the time we got to visit Vernell Crittenden, who was at that point. The I think press relations officer at San Quentin, and we get to visit the San Quentin Confiscated Weapons Museum, which is a DIY masterpiece. I mean, these are people who can. These are people. This is the level of ingenuity here. It's like a Styrofoam cup can be turned into a deadly knife.
 
 [00:02:32] Will: Really?
 
@@ -58,7 +58,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:02:45] Will: those guys have infinite time,
 
-[00:02:46] Adam: so they heat it up and they mold it with their palms and they slowly push the air out of it and they turn it into a plastic knife. But Mm-hmm, their palms can leave marks that identify who made the knife, so they put socks over their hands to do it. They can also turn poop into a deadly knife. They have They have in the San Quentin Museum arsenal of shivs, et cetera. That really should be what the
+[00:02:46] Adam: so they heat it up and they mold it with their palms and they slowly push the air out of it and they turn it into a plastic knife. But Mm-hmm, their palms can leave marks that identify who made the knife, so they put socks over their hands to do it. They can also turn poop into a deadly knife. They have in the San Quentin Museum arsenal of shivs, et cetera. That really should be what the
 
 [00:03:13] Will: museum is called. Wow. Yeah, shivs, shivs, et cetera.
 
@@ -92,7 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:04:26] Norm: and then Adele, the last two with Adele and the Sam Smith song, those openings have kind of paid homage to that with.
 
-[00:04:32] Adam: Well, and this most recent one felt like a good old '70s Bond flick, you know, with Daniel Craig shirtless standing there while the little women—
+[00:04:32] Adam: Well, and this most recent one felt like a good old '70s Bond flick with Daniel Craig shirtless standing there while the little women—
 
 [00:04:40] Norm: the opening, yeah, yeah, and squids, what? CG squids also
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:05:01] Will: yeah, it's well. Usually the credits. Like pre-sage the entire story. They tell that they frequently have told the entire story in the credits,
 
-[00:05:06] Adam: Ish, or they allude, so they they allude to the story.
+[00:05:06] Adam: Ish, or they allude, so they allude to the story.
 
 [00:05:10] Norm: So Mission Impossible absolutely does that,
 
@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:05:13] Norm: So for example, Mission Impossible just cuts pieces, right,
 
-[00:05:15] Adam: right, right. And and there are aspects to the opening credit sequence. So I saw Spectre,
+[00:05:15] Adam: right, right. And there are aspects to the opening credit sequence. So I saw Spectre,
 
 [00:05:20] Norm: yeah, and I know we talked about it either last week or a couple of weeks ago. We're trying to do the same thing because Adam, you've seen it,
 
@@ -132,11 +132,11 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:05:31] Unknown speaker: I like it.
 
-[00:05:32] Adam: So so just to be clear, Norm hated Spectre. He was very very upset, and you're hating it made me think about the fact that often movies, the question isn't was that movie good. The question is how much did that movie meet or or not meet your expectations?
+[00:05:32] Adam: So so just to be clear, Norm hated Spectre. He was very very upset, and you're hating it made me think about the fact that often movies, the question isn't was that movie good. The question is how much did that movie meet or not meet your expectations?
 
 [00:05:50] Norm: Absolutely,
 
-[00:05:50] Adam: because I will submit that Spectre, while having some genuine problems, is not hateable. Except that it fell so short of your expectations, you got you're you're angry.
+[00:05:50] Adam: because I will submit that Spectre, while having some genuine problems, is not hateable. Except that it fell so short of your expectations, you got you're angry.
 
 [00:06:03] Norm: I value the opportunity.
 
@@ -146,9 +146,9 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:06:05] Norm: The opportunity costs—the 350 million one time every year, three years of everyone's life in the making of this movie—
 
-[00:06:12] Adam: I, I, I must tell you, I enjoyed Spectre, although I recognize it as a lazy entrant into the Bond canon.
+[00:06:12] Adam: I must tell you, I enjoyed Spectre, although I recognize it as a lazy entrant into the Bond canon.
 
-[00:06:20] Will: You guys, you also come at it from very different perspectives. You know, you grew up with the Roger Moore Bond.
+[00:06:20] Will: You guys, you also come at it from very different perspectives. You grew up with the Roger Moore Bond.
 
 [00:06:25] Adam: I grew up with Roger Moore. Spy Who Loved Me is the first Bond film I saw.
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:06:47] Unknown speaker: That's the woman from Batman.
 
-[00:06:48] Adam: Here's the thing: is that each time, each time the franchise reboots, and I'd say this for the the first Pierce Brosnan film is better than the rest.
+[00:06:48] Adam: Here's the thing: is that each time the franchise reboots, and I'd say this for the first Pierce Brosnan film is better than the rest.
 
 [00:06:57] Will: Yeah.
 
@@ -190,7 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:07:38] Norm: those in that Bond, but they did the regression, as we can call it. Is they've done the bold, and so they feel like they have to pay homage or check these boxes.
 
-[00:07:48] Adam: I, I, so,
+[00:07:48] Adam: I, so,
 
 [00:07:49] Unknown speaker: so,
 
@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:07:56] Norm: Shoehorned.
 
-[00:07:56] Adam: , and I can easily see. Actually, I could easily see how. We could be flies on the wall, and every meeting about this script looks like it's make. It looks like everyone is making very reasonable decisions. The script is absolutely; it's very solid. From a from a no, I I think from a from a pacing and motivation standpoint, it the things make sense. Listen, way more than Quantum of Solace.
+[00:07:56] Adam: and I can easily see. Actually, I could easily see how. We could be flies on the wall, and every meeting about this script looks like it's make. It looks like everyone is making very reasonable decisions. The script is absolutely; it's very solid. From a no, I I think from a pacing and motivation standpoint, it the things make sense. Listen, way more than Quantum of Solace.
 
 [00:08:24] Norm: Well, Quantum of Solace is
 
@@ -216,7 +216,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:09:37] Norm: No one is likable.
 
-[00:09:38] Will: Did we talk about the Monica Bellucci conversation last time? Okay, I thought I thought that was here or someplace else.
+[00:09:38] Will: Did we talk about the Monica Bellucci conversation last time? Okay, I thought that was here or someplace else.
 
 [00:09:42] Norm: No one is likable in this movie. The most likable person I think is actually Dave Bautista.
 
@@ -228,11 +228,11 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:09:53] Norm: He says one word. It was just a wasted.
 
-[00:09:56] Adam: Oh, Okay, so we live. We leave that out. I'm going to do one spoiler. Tiny spoiler. Tiny spoiler. Um. So the movie makes extensive use of mirrors and split images as a visual iconography to play with within the film, and to some great effect, and to some kind of like yeah, I get it effect. But perhaps its best moment, and it's so weird, I'm not even sure that the producers saw what Sam Mendes was doing. Um, when Bond hooks up with Monica Bellucci, the scene in which they hook up, um, is in a very elaborate room, um, and they are macking. They're making out against a large door that is a mirror. And as they're doing their thing, you know, face to face, she's moving her hands, he's moving his hands together. Now, this is actually an improv game called the Mirror Game. Which is in and of itself fascinating.
+[00:09:56] Adam: Oh, Okay, so we live. We leave that out. I'm going to do one spoiler. Tiny spoiler. Tiny spoiler. So the movie makes extensive use of mirrors and split images as a visual iconography to play with within the film, and to some great effect, and to some kind of like yeah, I get it effect. But perhaps its best moment, and it's so weird, I'm not even sure that the producers saw what Sam Mendes was doing. When Bond hooks up with Monica Bellucci, the scene in which they hook up is in a very elaborate room and they are macking. They're making out against a large door that is a mirror. And as they're doing their thing face to face, she's moving her hands, he's moving his hands together. Now, this is actually an improv game called the Mirror Game. Which is in and of itself fascinating.
 
 [00:11:03] Unknown speaker: Yeah.
 
-[00:11:03] Adam: Um, because that would, well, the next thing that you see is the wide shot where he is up against Monica Bellucci, up against the mirror door. You can't see Monica Bellucci. It's like Bond is making love to himself.
+[00:11:03] Adam: Because that would, well, the next thing that you see is the wide shot where he is up against Monica Bellucci, up against the mirror door. You can't see Monica Bellucci. It's like Bond is making love to himself.
 
 [00:11:15] Norm: It's a vanity play.
 
@@ -282,7 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:13:17] Norm: He well, they leave him to die and
 
-[00:13:19] Adam: but but the problem with Quantum of Solace is because they didn't set it up in an interesting way. You didn't give a crap.
+[00:13:19] Adam: but the problem with Quantum of Solace is because they didn't set it up in an interesting way. You didn't give a crap.
 
 [00:13:25] Will: Yeah,
 
@@ -298,7 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:13:39] Adam: It completely informs how satisfying the ending is.
 
-[00:13:42] Norm: And the RoboCop, that's perfect because the the revenge is through the lens of a zero emotion machine,
+[00:13:42] Norm: And the RoboCop, that's perfect because the revenge is through the lens of a zero emotion machine,
 
 [00:13:49] Adam: right?
 
@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:13:53] Adam: Right, right, right.
 
-[00:13:53] Norm: Ability to to have retribution. I'll give two redeeming aspects of Skyfall or Spectre. The opening sequence, I think, is incredible.
+[00:13:53] Norm: Ability to have retribution. I'll give two redeeming aspects of Skyfall or Spectre. The opening sequence, I think, is incredible.
 
 [00:14:02] Will: Like the cold open,
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:14:42] Norm: Yeah, well executed, great concept without being a.
 
-[00:14:46] Adam: Oh, I thought the torture scene was. It got me. I was super tense. But in in looking at it and assessing it, I was like, really, this seems kind of.
+[00:14:46] Adam: Oh, I thought the torture scene was. It got me. I was super tense. But in looking at it and assessing it, I was like, really, this seems kind of.
 
 [00:14:55] Norm: Well, again, the missed opportunity there was.
 
@@ -354,13 +354,13 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:15:00] Norm: you right
 
-[00:15:00] Adam: there. I know, I know
+[00:15:00] Adam: there. I know
 
 [00:15:01] Norm: the torture scene is going to affect you in the third act of the movie. It's going to do something to you, and then nothing.
 
-[00:15:05] Adam: Well, and and. Frankly, you know the central message of the movie, which has to do with surveillance and the bad side of surveillance. They never showed you the bad side of surveillance. They only talked about it. It's it's the it's the movie equivalent of Star Trek's budget problem. Ah, there's an alien ship attacking. You know, they just describe what's on the screen that they can't afford to film.
+[00:15:05] Adam: Well, and. Frankly, you know the central message of the movie, which has to do with surveillance and the bad side of surveillance. They never showed you the bad side of surveillance. They only talked about it. It's the movie equivalent of Star Trek's budget problem. Ah, there's an alien ship attacking. They just describe what's on the screen that they can't afford to film.
 
-[00:15:25] Will: It's it's the yeah it's the capsule episode.
+[00:15:25] Will: It's the yeah it's the capsule episode.
 
 [00:15:28] Adam: Now, I did watch a movie that blew me away. In fact, loved it so much. We watched about the first half again last a day later.
 
@@ -386,9 +386,9 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:16:13] Will: that's great.
 
-[00:16:13] Adam: comedy web series, which is also hilarious. And obvious child stars her and also her best friend from Besties by Besties, as a young female comedian who has a breakup, a one night stand, and eventually an abortion. That's the rough outline of the plot, but the the the what happens in it just feels completely genuine. Everyone in this movie is really great. You know, there's the there's movies that fail because there's a couple that's got a meet cute, and you can tell the script writers thinking this is a cute meet, but you don't buy any of the dialogue. In this movie, you buy every last bit of it. Every time someone is funny in the movie, you are laughing out loud as the audience and loving them.
+[00:16:13] Adam: comedy web series, which is also hilarious. And obvious child stars her and also her best friend from Besties by Besties, as a young female comedian who has a breakup, a one night stand, and eventually an abortion. That's the rough outline of the plot, but the what happens in it just feels completely genuine. Everyone in this movie is really great. There's the there's movies that fail because there's a couple that's got a meet cute, and you can tell the script writers thinking this is a cute meet, but you don't buy any of the dialogue. In this movie, you buy every last bit of it. Every time someone is funny in the movie, you are laughing out loud as the audience and loving them.
 
-[00:16:59] Will: We we went through the first five episodes probably of the new Aziz Ansari show.
+[00:16:59] Will: We went through the first five episodes probably of the new Aziz Ansari show.
 
 [00:17:05] Adam: Yeah, we watched a couple of episodes of that.
 
@@ -402,9 +402,9 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:17:29] Adam: I don't know,
 
-[00:17:31] Norm: but they co-write co-write all the episodes. Aziz directed the second one. It is a show
+[00:17:31] Norm: but they co-write all the episodes. Aziz directed the second one. It is a show
 
-[00:17:36] Adam: which is which is the one with dinner with the parents.
+[00:17:36] Adam: which is the one with dinner with the parents.
 
 [00:17:38] Norm: That's the second one. You need to watch the second one.
 
@@ -412,11 +412,11 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:17:47] Norm: Absolutely.
 
-[00:17:47] Adam: I must tell you, this is a weird case in which I actually feel like they're shooting below me in terms of the age. Right, of course they are. The the the characters in this show are like 10 years, 15 years younger than I am.
+[00:17:47] Adam: I must tell you, this is a weird case in which I actually feel like they're shooting below me in terms of the age. Right, of course they are. The characters in this show are like 10 years, 15 years younger than I am.
 
 [00:18:03] Will: oh yeah,
 
-[00:18:04] Adam: and they the like I'm watching this show going yeah I get it I get it I get it that's
+[00:18:04] Adam: and they the like I'm watching this show going yeah I get it that's
 
 [00:18:08] Norm: that’s me right there
 
@@ -432,7 +432,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:18:20] Norm: Spotty.
 
-[00:18:20] Adam: But I really like. I I really dig that that second episode, which involves dinner with the parents. I found incredibly moving.
+[00:18:20] Adam: But I really like. I really dig that that second episode, which involves dinner with the parents. I found incredibly moving.
 
 [00:18:28] Will: That was the one that was like, I'll watch the rest of this because
 
@@ -454,7 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:18:51] Will: This is the episode where Norm and Adam disagree constantly,
 
-[00:18:53] Norm: and I think I think the ideas in this. The there are enough ideas manifest.
+[00:18:53] Norm: and I think the ideas in this. The there are enough ideas manifest.
 
 [00:18:59] Adam: Interesting.
 
@@ -490,7 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:20:05] Norm: which itself is actually much better than it should be.
 
-[00:20:07] Adam: Aziz has one of my favorite comedy pieces of the last couple of few months that I've seen. Which is a whole bit about asking men to think about what it's like to be getting catcalled as a woman, and he does it. His attack on it from a Socratic standpoint is just genius and really worth watching. It it it forces you to sit in a different position and think about this thing, and it's perfectly executed.
+[00:20:07] Adam: Aziz has one of my favorite comedy pieces of the last couple of few months that I've seen. Which is a whole bit about asking men to think about what it's like to be getting catcalled as a woman, and he does it. His attack on it from a Socratic standpoint is just genius and really worth watching. It forces you to sit in a different position and think about this thing, and it's perfectly executed.
 
 [00:20:39] Will: That's awesome.
 
@@ -498,7 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:20:41] Norm: Yeah. All right. So we've been taking questions from you guys out there, and I just want to say that if you want to send a question, just send an email to podcast at tested dot com with question for Adam in the subject line, or send us Twitter message at tested com, and we'll have them all queued up. We'll take one or two every episode, hopefully in the future. So Clinton asks, " What is your favorite tool to use, and which tool is actually the most fun versus most useful?"
 
-[00:21:10] Adam: Whoa! Wow, that's a really good question. I mean, you know, I am almost never without my Leatherman Wave. I've been meaning to re-buy a Leatherman Charge, which fits my old holster. Yes.
+[00:21:10] Adam: Whoa! Wow, that's a really good question. I mean I am almost never without my Leatherman Wave. I've been meaning to re-buy a Leatherman Charge, which fits my old holster. Yes.
 
 [00:21:23] Norm: we should also, and this is directly related. At test of the show, which was for you guys a month and a half ago, we met a fan there who had the same holster.
 
@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:21:35] Will: it two tries too, Adam.
 
-[00:21:36] Adam: Yes, I love that. Yeah, he had he had exactly the same aluminum holster. We should do a we should do a little photo gallery. Ask people to send them in because my son thing thing one made one for his Leatherman EOD, and he did a wonderful job. And he wears it proudly, and it's you know
+[00:21:36] Adam: Yes, I love that. Yeah, he had exactly the same aluminum holster. We should do a little photo gallery. Ask people to send them in because my son thing thing one made one for his Leatherman EOD, and he did a wonderful job. And he wears it proudly, and it's you know
 
 [00:21:53] Norm: that's awesome.
 
@@ -514,7 +514,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:21:56] Norm: Sorry, back to
 
-[00:21:56] Adam: so I love the Leatherman. I use it dozens of times every single day. It's hard to imagine living without it. But within my shop, the tool that I genuinely get like, oh, I can't wait, I can't wait, is the lathe. I just love lathing stuff. I love lathing different materials. I love the requirements they have. I love setting up the auto feeds for threading. I love the figuring out ways to engineer holding sensitive parts without marking them, making bucks, making holders, just everything around using the lathes. I find very meditative, and I really like working at high precision. And years ago on MythBusters, we were doing a thing where I we needed to use a pump. We needed a pump that pumped 2,000 gallons per minute for a section about a firefighting helicopter that sucks up a scuba diver, and we wanted to find out if such suction could work. And I ended up building this pump using a 250 horsepower outboard motor, which I extended the shaft of by six feet, put inside a one foot diameter steel tube, welded the entire thing together. And machined down the propeller to fit inside the tube with a sixteenth inch of clearance,
+[00:21:56] Adam: so I love the Leatherman. I use it dozens of times every single day. It's hard to imagine living without it. But within my shop, the tool that I genuinely get like, oh, I can't wait, is the lathe. I just love lathing stuff. I love lathing different materials. I love the requirements they have. I love setting up the auto feeds for threading. I love the figuring out ways to engineer holding sensitive parts without marking them, making bucks, making holders, just everything around using the lathes. I find very meditative, and I really like working at high precision. And years ago on MythBusters, we were doing a thing where I we needed to use a pump. We needed a pump that pumped 2,000 gallons per minute for a section about a firefighting helicopter that sucks up a scuba diver, and we wanted to find out if such suction could work. And I ended up building this pump using a 250 horsepower outboard motor, which I extended the shaft of by six feet, put inside a one foot diameter steel tube, welded the entire thing together. And machined down the propeller to fit inside the tube with a sixteenth inch of clearance,
 
 [00:23:14] Will: Wow.
 
@@ -522,13 +522,13 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:23:19] Will: Wow!
 
-[00:23:20] Adam: And that, to me, was like that was like that was one of those graduate level executions on the lathe. Because for something like that to work, this is actually a lovely engineering thing. If you have a thing that when it's spinning, it's rattling. That rattling is energy being expended in some other way than rotationally, and that means it's taking away from your from your overall speed. So, with the 250 horsepower engine, the output speeds that it's spinning at means that no rattling can occur. Any rattling could actually toss, cause this thing to fly apart. So, in the process of ordering and using and setting the bearings and floating pillow blocks that held this all in orientation, to think through and remove all of that deeply, deeply pleasurable. The lathe.
+[00:23:20] Adam: And that, to me, was like that was one of those graduate level executions on the lathe. Because for something like that to work, this is actually a lovely engineering thing. If you have a thing that when it's spinning, it's rattling. That rattling is energy being expended in some other way than rotationally, and that means it's taking away from your overall speed. So, with the 250 horsepower engine, the output speeds that it's spinning at means that no rattling can occur. Any rattling could actually toss, cause this thing to fly apart. So, in the process of ordering and using and setting the bearings and floating pillow blocks that held this all in orientation, to think through and remove all of that deeply, deeply pleasurable. The lathe.
 
 [00:24:10] Will: I got hooked on the laser cutter lately.
 
 [00:24:13] Adam: Oh, really?
 
-[00:24:13] Will: Yeah, it's fun cutting stuff with light. It turns out it's you don't have to it's it's it takes out a lot of the fiddly bits of cutting things you know manually.
+[00:24:13] Will: Yeah, it's fun cutting stuff with light. It turns out it's you don't have to it's it takes out a lot of the fiddly bits of cutting things you know manually.
 
 [00:24:21] Adam: But also, I find the laser cutter utilizes exactly the part of my brain that learned how to build in the first place, which is with paper cutouts.
 
@@ -550,7 +550,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:24:58] Adam: Yeah, that's cool.
 
-[00:25:00] Will: You can put it in the laser cutter. It’s a, it’s a Autodesk thing, one of the 1, 2, 3D programs.
+[00:25:00] Will: You can put it in the laser cutter. It’s a Autodesk thing, one of the 1, 2, 3D programs.
 
 [00:25:03] Adam: Autodesk has been doing some brilliant, brilliant. Autodesk seems to be spending a huge amount of energy on the interface, which is the weak point for most laypeople. And I really love what they're doing every time I see.
 
@@ -558,15 +558,15 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:25:23] Adam: Right, right, right, exactly.
 
-[00:25:25] Norm: Repository of 3D models or or anything designs, and if you get a laser cutter or access to a mill, then you can do something cool with that.
+[00:25:25] Norm: Repository of 3D models or anything designs, and if you get a laser cutter or access to a mill, then you can do something cool with that.
 
-[00:25:32] Adam: Have you been? I I have. Which laser cutter have you been playing with?
+[00:25:32] Adam: Have you been? I have. Which laser cutter have you been playing with?
 
 [00:25:36] Will: Yours most recently, yeah.
 
-[00:25:37] Adam: It's really fun, and the the the power of it is great because you can cut through some really thick material.
+[00:25:37] Adam: It's really fun, and the power of it is great because you can cut through some really thick material.
 
-[00:25:42] Will: I mean, yeah, you can you can cut you know eighth inch plywood no problem, and quarter inch if you want to get a little crazy.
+[00:25:42] Will: I mean, yeah, you can cut you know eighth inch plywood no problem, and quarter inch if you want to get a little crazy.
 
 [00:25:48] Adam: It'll do half inch.
 
@@ -576,7 +576,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:25:51] Will: Wow, that seems like it would be really smoky and burning.
 
-[00:25:53] Adam: That's the top, yeah. It's the top end of its of its ability, and yeah, it gets really smoky. I actually would need to put in a full undercarriage suction plate in order to really be able to do that because otherwise you get smoke on the lens.
+[00:25:53] Adam: That's the top, yeah. It's the top end of its ability, and yeah, it gets really smoky. I actually would need to put in a full undercarriage suction plate in order to really be able to do that because otherwise you get smoke on the lens.
 
 [00:26:08] Will: One of the coolest machines we've ever seen at any shop we went to was over in the Mission, a couple of blocks from here, where they have a laser cutter that's big enough you can feed a sheet of four by eight plywood, four foot by eight foot plywood, into. And they were making like all of their furniture in the office was made on that laser cutter.
 
@@ -584,7 +584,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:26:25] Will: Their benches, their stools, their Adirondack chairs.
 
-[00:26:29] Adam: On the matrix, on the matrix second to film, second and third film, we had a four by eight beam dynamics laser, which Fon Davis and I were the managers of and supervisors of all the laser cutting, and it was so much freaking fun to have that thing. We spent a lot of time fixing it because laser cutters require a lot of maintenance. But man, you could cut such amazing things out of that.
+[00:26:29] Adam: On the matrix second to film, second and third film, we had a four by eight beam dynamics laser, which Fon Davis and I were the managers of and supervisors of all the laser cutting, and it was so much freaking fun to have that thing. We spent a lot of time fixing it because laser cutters require a lot of maintenance. But man, you could cut such amazing things out of that.
 
 [00:26:53] Will: There we go.
 
@@ -594,13 +594,13 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:26:57] Adam: All right.
 
-[00:26:57] Norm: You know, obviously you have a lot of Props and a lot of things. Let's talk about your inventory method. Do you inventory, and how do you inventory?
+[00:26:57] Norm: Obviously you have a lot of Props and a lot of things. Let's talk about your inventory method. Do you inventory, and how do you inventory?
 
 [00:27:06] Adam: No, currently my inventory method is it's all in my head. I would like to inventory. In fact, one of the things I want to do next year is get a couple of assistants in here to really start genuinely inventorying stuff, so we know what's here, we know its provenance. For the most part, if the piece has any import at all, my inventory is to keep it out and on display. I have very few boxes of important things. What I have boxes of are kits and uncompleted things. So that's what's up there in storage and over in the other part of the mission in storage. I try and keep everything out here so I can see where it is. And in general, there'll be a you know, when I come into the shop, I have two modes. It's either I'm making something or I'm doing infrastructure. And sometimes I'll just attack a shelf or two and slowly reorganize it until it's got all the you know things I want in it.
 
 [00:28:01] Norm: Yeah, and everything has a story. I mean, we've done videos about this. It's a whole, whole series of videos. But you can pull something out and tell a whole story about it. Is that a way of like mentally like flexing your brain?
 
-[00:28:11] Adam: Yeah, it is, and I mean, I'll actually sit here and frankly, and like grab a thing and think about it. Or people come over. So we had a fundraiser here last week. Traci Des Jardins and I had a fundraiser for La Cocina, and the winners of that auction item, which is drinks here in the cave for eight of your friends, they had watched all the tested videos. They knew this place shelf by shelf by shelf. It was actually almost a little creepy, but they were super awesome, and we had a great time. And so when they came across items they didn't know, they were like, " Okay, tell me the story of this."
+[00:28:11] Adam: Yeah, it is, and I mean, I'll actually sit here and frankly, and like grab a thing and think about it. Or people come over. So we had a fundraiser here last week. Traci Des Jardins and I had a fundraiser for La Cocina, and the winners of that auction item, which is drinks here in the cave for eight of your friends, they had watched all the tested videos. They knew this place shelf by shelf. It was actually almost a little creepy, but they were super awesome, and we had a great time. And so when they came across items they didn't know, they were like, " Okay, tell me the story of this."
 
 [00:28:50] Norm: So so when they went to the bathroom, they were like, " Oh my God, you never get to see this part."
 
@@ -608,13 +608,13 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:28:58] Will: No, the challenge coin collection. Yeah. I didn't know about challenge coins until until well there was a 99pi episode but yeah yeah your challenge coin collection is impressive and exhaustive
 
-[00:29:09] Adam: yeah it's it's um the yeah it's pretty cool we got to get Roman on this podcast
+[00:29:09] Adam: yeah it's the yeah it's pretty cool we got to get Roman on this podcast
 
 [00:29:14] Will: yeah I I mean we can probably make that happen
 
 [00:29:16] Adam: I think we can.
 
-[00:29:16] Will: he's pretty busy but but uh but yeah
+[00:29:16] Will: he's pretty busy but yeah
 
 [00:29:19] Norm: I don't know he likes telling stories he's he's not for the the conversational podcast
 
@@ -626,7 +626,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:29:49] Norm: awesome
 
-[00:29:50] Will: and I guess we'll be back next week with another show if you like us like us on YouTube and you know leave comments we love them see you guys later
+[00:29:50] Will: and I guess we'll be back next week with another show if you like us on YouTube and you know leave comments we love them see you guys later
 
 [00:29:56] Adam: bye bye.
 

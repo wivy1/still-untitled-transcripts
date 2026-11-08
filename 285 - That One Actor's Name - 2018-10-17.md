@@ -22,9 +22,9 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:00:24] Adam: I see. Okay.
 
-[00:00:26] Will: I'm sorry. I'm just I'm just joking. You know, I didn't mean to jump right into it.
+[00:00:26] Will: I'm sorry. I'm just joking. I didn't mean to jump right into it.
 
-[00:00:29] Adam: Well, I was on the plane last week and I watched I watched Civil War again. No, sorry, Winter Soldier. I watched Winter Soldier again.
+[00:00:29] Adam: Well, I was on the plane last week and I watched Civil War again. No, sorry, Winter Soldier. I watched Winter Soldier again.
 
 [00:00:37] Norm: Yes.
 
@@ -34,7 +34,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:00:42] Adam: it's one of my favorites.
 
-[00:00:43] Will: There's no there's no slack time in Winter Soldier. Either you're learning about about Natasha and and Captain America, or there's these amazing fight sequences. The freeway thing is amazing. The the Sam Jackson [unclear: cattle, uh, suburban chase / cattle].
+[00:00:43] Will: There's no slack time in Winter Soldier. Either you're learning about about Natasha and Captain America, or there's these amazing fight sequences. The freeway thing is amazing. The Sam Jackson [unclear: cattle, uh, suburban chase / cattle]
 
 [00:01:00] Adam: It's shocking how much happens in the film. Like in the beginning of the film, I'm like, " Oh, this is the film with the elevator fight."
 
@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:01:00] Adam: we got a long way to go to get there.
 
-[00:01:10] Will: Well, and honestly, the only place that it gets slow for me is in the final scene in the three three helicopter helicarrier fights. Like the the whole tortured bit with Bucky is the weakest part of the whole movie.
+[00:01:10] Will: Well, and honestly, the only place that it gets slow for me is in the final scene in the three three helicopter helicarrier fights. Like the whole tortured bit with Bucky is the weakest part of the whole movie.
 
 [00:01:21] Adam: It drags just a tiny bit, yeah. But but I mean the the Denouement with Robert Redford. I love watching Jenny Agutter kick some ass.
 
@@ -50,7 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:01:30] Adam: Um.
 
-[00:01:31] Will: Um. What's his name? Um. The guy who played the the not Red Skull, not Hugo Weaving, but the the the the scientist nerd.
+[00:01:31] Will: What's his name? The guy who played the not Red Skull, not Hugo Weaving, but the scientist nerd.
 
 [00:01:40] Adam: Oh yeah,
 
@@ -70,11 +70,11 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:01:51] Unknown speaker (Adam or Will): shocking.
 
-[00:01:51] Adam: I also watched at your recommendation. I watched Ant Man and Ant Man and Wasp, which I hadn't gotten around to, and. Shockingly, everyone's right. Those are both delightful,
+[00:01:51] Adam: I also watched at your recommendation. I watched Ant Man and Wasp, which I hadn't gotten around to, and. Shockingly, everyone's right. Those are both delightful,
 
 [00:02:02] Will: Paul Rudd’s great, It turns out, who knew?
 
-[00:02:03] Adam: I, I very much think it's hilarious that even Paul Rudd has to include a off-shirt scene.
+[00:02:03] Adam: I very much think it's hilarious that even Paul Rudd has to include a off-shirt scene.
 
 [00:02:12] Norm: Yes, when he's in the bathtub. Like,
 
@@ -100,21 +100,21 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:02:28] Adam: I didn't realize it was a spread spectrum like that.
 
-[00:02:29] Will: Yeah, yeah. They they put it on a Venn diagram.
+[00:02:29] Will: Yeah, yeah. They put it on a Venn diagram.
 
 [00:02:32] Adam: Good movies, good villains, lovely tech, really fun physical comedy, and I love specifically those two movies have an irreverence to the screenwriting humor that I find very enjoyable. Characters are constantly not; they're not quite breaking the fourth wall, but they're breaking the fourth wall of conversational etiquette by commenting in meta ways upon the. Actual conversation,
 
-[00:02:57] Norm: and it's nice sidestep from the the seriousness of all the other Marvel films that surround it, from Civil War to Infinity War, Ant Man participating in Civil War, and they address the fact. I mean, they make it a plot point. Why wasn't the Wasp involved,
+[00:02:57] Norm: and it's nice sidestep from the seriousness of all the other Marvel films that surround it, from Civil War to Infinity War, Ant Man participating in Civil War, and they address the fact. I mean, they make it a plot point. Why wasn't the Wasp involved,
 
-[00:02:57] Will: and and why was Ant Man?
+[00:02:57] Will: and why was Ant Man?
 
 [00:02:57] Unknown speaker (Will or Norm): Yeah,
 
-[00:02:57] Norm: or why wasn't Wasp involved in in in Civil War?
+[00:02:57] Norm: or why wasn't Wasp involved in Civil War?
 
 [00:03:18] Will: Oh right,
 
-[00:03:18] Norm: you know, he left and did it on his own, and that's what caused their relationship to crumble. Not a big spoiler
+[00:03:18] Norm: He left and did it on his own, and that's what caused their relationship to crumble. Not a big spoiler
 
 [00:03:23] Will: that happens in the first three minutes of the movie.
 
@@ -124,35 +124,35 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:03:45] Norm: Yep,
 
-[00:03:45] Adam: you know, Solo suffers from this, and so does Rogue One, right? There were there were movies that they were making, and they radically changed direction and remade whole giant chunks of it. So there's no way to know. But I actually think the second one made me laugh out loud a bunch more.
+[00:03:45] Adam: Solo suffers from this, and so does Rogue One, right? There were movies that they were making, and they radically changed direction and remade whole giant chunks of it. So there's no way to know. But I actually think the second one made me laugh out loud a bunch more.
 
-[00:04:11] Norm: And and you said good villains. It's also a a movie doesn't have like the sinister villain, right? The antagonist, and there are two antagonists. You have Ghosts, sympathetic character, and you have the the the arms dealer, the the tech dealer, who is more comic relief than anything.
+[00:04:11] Norm: And you said good villains. It's also a movie doesn't have like the sinister villain, right? The antagonist, and there are two antagonists. You have Ghosts, sympathetic character, and you have the arms dealer, the tech dealer, who is more comic relief than anything.
 
-[00:04:29] Adam: Yeah, yeah. You don't have the you don't have the the ubiquitous shot of the villain killing a kitten.
+[00:04:29] Adam: Yeah, yeah. You don't have the ubiquitous shot of the villain killing a kitten.
 
 [00:04:35] Will: Well, he
 
 [00:04:35] Adam: Twisting a kitten’s neck.
 
-[00:04:36] Norm: which you have in in the first one because it's Corey Stoll playing just the mirror image. You know, the very classic the origin story. Well, the villain is just the mirror of the the hero. You know, Ant Man or Iron Man was the same. Iron Monger was just a mirror of Iron Iron Man, and uh, God, Yellow Jacket was the villain's name in the first Ant Man. Yeah, I see. No one remembers because that's a very forgettable part of that movie.
+[00:04:36] Norm: which you have in the first one because it's Corey Stoll playing just the mirror image. You know, the very classic the origin story. Well, the villain is just the mirror of the hero. Ant Man or Iron Man was the same. Iron Monger was just a mirror of Iron Iron Man, and God, Yellow Jacket was the villain's name in the first Ant Man. Yeah, I see. No one remembers because that's a very forgettable part of that movie.
 
-[00:04:58] Will: Well, I mean, it sets up the whole thing because it's the. I mean, you need that for the for the for Michael Douglas and and Paul Rudd to have a common have a common enemy.
+[00:04:58] Will: Well, I mean, it sets up the whole thing because it's the. I mean, you need that for the for Michael Douglas and Paul Rudd to have a common enemy.
 
-[00:05:09] Adam: Also, the the the the I haven't read much about this, but the youngifying
+[00:05:09] Adam: Also, the I haven't read much about this, but the youngifying
 
 [00:05:09] Will: Yeah.
 
 [00:05:09] Adam: of older Hollywood actors for flashback scenes is getting so much better. It's like the young Michael Douglas shots were blew my mind to a certain extent.
 
-[00:05:24] Will: There's still hints of Jeff Bridges in those young Michael Douglas shots. Like you can see, you can see that that shiny Barbie face there.
+[00:05:24] Will: There's still hints of Jeff Bridges in those young Michael Douglas shots. Like you can see that that shiny Barbie face there.
 
 [00:05:30] Adam: It's ever it's getting slighter and slighter.
 
-[00:05:33] Will: It's, it's better.
+[00:05:33] Will: It's better.
 
 [00:05:34] Unknown speaker (Norm or Will): [unclear: They’re bolder / It’s a little bit better].
 
-[00:05:34] Norm: I mean, Disney. I don't know if they they the first they didn't pioneer this, but one of the first notable uses of this was in Tron Legacy when they had Jeff Bridges.
+[00:05:34] Norm: I mean, Disney. I don't know if they the first they didn't pioneer this, but one of the first notable uses of this was in Tron Legacy when they had Jeff Bridges.
 
 [00:05:43] Adam: Oh, that scene, and that was I think what you're referring to.
 
@@ -168,7 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:06:01] Adam: It's so funny, right? Like when we made Episode One, and Lucas was making all the talk show circuits, talking about how much of this film was CG. He was really proud of it, and it was the selling point. Like we got rid of all the models, and he kept on showing these shots of models. Right. So every time, I guarantee you, every time there was a shot, a sequence where he was like, " Yeah, we did this whole thing CG," they would show a crashing pod racer, and all of the pod race explosions were practical.
 
-[00:06:29] Will: Well, and it's amazing because after people saw that movie, the thing that they said was, " Yeah, we we would like less CG next time, probably." Right. Like the like the reaction from audiences was universally, " Oh, you made a whole character out of CG." I mean, did you ever stop to think whether that was a good idea or not? And it seems like yeah, maybe not.
+[00:06:29] Will: Well, and it's amazing because after people saw that movie, the thing that they said was, " Yeah, we we would like less CG next time, probably." Right. Like the reaction from audiences was universally, " Oh, you made a whole character out of CG." I mean, did you ever stop to think whether that was a good idea or not? And it seems like yeah, maybe not.
 
 [00:06:47] Adam: Yeah.
 
@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:06:54] Adam: It's wonderful, and I got to see Jason Reitman's upcoming movie, The Front Runner, starring Hugh Jackman and Vera Farmiga about the Gary Hart about the implosion of Gary Hart's presidential campaign.
 
-[00:07:05] Will: That was back when when when like an infidelity crisis could bring down a presidential candidate, huh?
+[00:07:05] Will: That was back when like an infidelity crisis could bring down a presidential candidate, huh?
 
 [00:07:10] Adam: Shocking.
 
@@ -190,17 +190,17 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:07:11] Will: Oh, great!
 
-[00:07:11] Adam: It's coming out on Tuesday the 6th of November. Um, it's fantastic.
+[00:07:11] Adam: It's coming out on Tuesday the 6th of November. It's fantastic.
 
 [00:07:11] Will: Oh, cool!
 
-[00:07:11] Adam: Um, if you like old political pot boilers like The Candidate, this is right up your alley. It is. First of all, the degree to which they nailed the '80s wriggling to the wall is phenomenal.
+[00:07:11] Adam: If you like old political pot boilers like The Candidate, this is right up your alley. It is. First of all, the degree to which they nailed the '80s wriggling to the wall is phenomenal.
 
 [00:07:33] Norm: Minus the Apple Watch that was in the one promo photo.
 
 [00:07:36] Adam: Oh, was there really?
 
-[00:07:36] Norm: Is the first promo photo you see Hugh Jackman and then one of the reporters? It's like, is that is that a time traveler right there?
+[00:07:36] Norm: Is the first promo photo you see Hugh Jackman and then one of the reporters? It's like, is that a time traveler right there?
 
 [00:07:43] Adam: It's really, really great, and. The performances are all great. I mean, this is a movie populated with oh my god, it's Kevin Pollak. Oh wow, it's Alex Karpovsky. Yeah, it’s all of these wonderful actors in the background.
 
@@ -212,15 +212,15 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:08:04] Adam: Hotel Artemis, right? Okay.
 
-[00:08:07] Will: Which the trailers for made me think it was kind of like like John Wickian fanfiction almost.
+[00:08:07] Will: Which the trailers for made me think it was kind of like John Wickian fanfiction almost.
 
 [00:08:12] Adam: John Wickian meets Assault on Precinct 13.
 
 [00:08:15] Will: Yeah, like that was exactly like the reductive Hollywood thing.
 
-[00:08:18] Adam: So this is the Jodie Foster plays the aging nurse of a of a of a gangland hospital in the middle of future Los Angeles.
+[00:08:18] Adam: So this is the Jodie Foster plays the aging nurse of a gangland hospital in the middle of future Los Angeles.
 
-[00:08:27] Will: Subscription based, you know, murder boy hospital.
+[00:08:27] Will: Subscription based murder boy hospital.
 
 [00:08:30] Adam: This is where your healthcare is going, people.
 
@@ -242,13 +242,13 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:09:00] Will: Yeah, Sofia Boutella.
 
-[00:09:01] Adam: I saw Sofia Boutella being kind of a jerk, and I was like, I just, I don't, I don't have it right now.
+[00:09:01] Adam: I saw Sofia Boutella being kind of a jerk, and I was like, I just, I don't have it right now.
 
 [00:09:05] Will: So,
 
 [00:09:05] Adam: but it's
 
-[00:09:05] Will: it's it's Charlie Day, Sofia Boutella, um, uh,
+[00:09:05] Will: it's Charlie Day, Sofia Boutella
 
 [00:09:11] Norm: Jodie Foster,
 
@@ -260,7 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:09:15] Adam: I didn’t get far, that far,
 
-[00:09:16] Will: yeah, it's it's and it's just it almost could be a play. It's one of those. It's one of those kind of like this could have been like a four set play. You know, big big production.
+[00:09:16] Will: yeah, it's and it's just it almost could be a play. It's one of those. It's one of those kind of like this could have been like a four set play. big big production.
 
 [00:09:26] Adam: As she bounces between the rooms,
 
@@ -268,7 +268,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:09:27] Norm: Oh, interesting.
 
-[00:09:29] Will: And I I was thoroughly charmed by it. Oh, I couldn't sleep the other night. Like it's not it's not a great movie, but it's a movie that I will definitely go back and watch again. Just because the set design and the world is exceptional.
+[00:09:29] Will: And I I was thoroughly charmed by it. Oh, I couldn't sleep the other night. Like it's not a great movie, but it's a movie that I will definitely go back and watch again. Just because the set design and the world is exceptional.
 
 [00:09:40] Norm: You know what you said about everything you said about that movie, including. That it's ensemble cast, bouncing between rooms, set design could apply also to Bad Times at El Royale.
 
@@ -298,15 +298,15 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:10:14] Will: Oh, that’s right.
 
-[00:10:14] Norm: and Joss the Joss Whedon worlds. He also co-wrote Cabin in the Woods, of course, and Cloverfield. He he wrote that as well. So very strong screenwriter
+[00:10:14] Norm: and Joss the Joss Whedon worlds. He also co-wrote Cabin in the Woods, of course, and Cloverfield. He wrote that as well. So very strong screenwriter
 
 [00:10:24] Adam: Big fans of Drew Goddard here on the podcast,
 
 [00:10:25] Norm: and this was the long anticipated second film after Cabin in the Woods,
 
-[00:10:29] Adam: and it felt like it felt like a mix. It felt like I was watching an updated Two Days in the Valley. Remember that?
+[00:10:29] Adam: and it felt like a mix. It felt like I was watching an updated Two Days in the Valley. Remember that?
 
-[00:10:29] Will: Yeah. I love that movie. So, like, at some point, we have to rank. Like, this is actually a good accidental film festival. Is all of the bad Pulp Fiction knockoffs? Yeah, it's like Two Days in the Valley. Go and anyway, yeah, it's great.
+[00:10:29] Will: Yeah. I love that movie. So at some point, we have to rank. Like, this is actually a good accidental film festival. Is all of the bad Pulp Fiction knockoffs? Yeah, it's like Two Days in the Valley. Go and anyway, yeah, it's great.
 
 [00:10:46] Norm: It feels a little bit like that. Kind of Tarantino knockoff in that if you're going to have a story,
 
@@ -314,7 +314,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:10:52] Will: yeah,
 
-[00:10:53] Norm: that with with mysterious characters that come together, where the spaces are important, and that you have these title cards in between the scenes, just like Hateful Eight. Jeff Bridges is in it.
+[00:10:53] Norm: that with mysterious characters that come together, where the spaces are important, and that you have these title cards in between the scenes, just like Hateful Eight. Jeff Bridges is in it.
 
 [00:11:03] Will: Does he destroy a priceless guitar?
 
@@ -324,11 +324,11 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:11:05] Norm: but he does destroy something important.
 
-[00:11:08] Adam: Can you imagine being the director that pitches that to him? Oh no, it's it's it's Kurt Russell.
+[00:11:08] Adam: Can you imagine being the director that pitches that to him? Oh no, it's Kurt Russell.
 
 [00:11:13] Will: Kurt Russell destroys the guitar.
 
-[00:11:14] Norm: That's right. Not even Jeff Bridges, but he plays like the the Kurt Russell character.
+[00:11:14] Norm: That's right. Not even Jeff Bridges, but he plays like the Kurt Russell character.
 
 [00:11:18] Adam: 10 years from now, you'll be some up up and coming director going, Kurt. This will be a great moment for the audience, and Kurt will stare at them and go, too soon. Sorry, I interrupted.
 
@@ -338,31 +338,31 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:11:30] Norm: or an immersive theater.
 
-[00:11:38] Will: Like, just to be clear, I think I I really like Hotel Artemis. I felt rewarded at the end for pushing through. Right. Okay. I had the same moment early on when when when Sofia Sofia. Boutella is talking to Charlie Day in the bar. Like these, these characters are all bad. Everybody here is bad,
+[00:11:38] Will: Like, just to be clear, I think I I really like Hotel Artemis. I felt rewarded at the end for pushing through. Right. Okay. I had the same moment early on when Sofia Sofia. Boutella is talking to Charlie Day in the bar. Like these, these characters are all bad. Everybody here is bad,
 
 [00:11:53] Adam: and it's almost like they're wearing cards that go, " I'm bad."
 
 [00:11:56] Will: Yeah. Well, I mean, they are.
 
-[00:11:58] Adam: Well, I look. I also I love Dave Bautista. I I think he's undersung.
+[00:11:58] Adam: Well, I look. I also I love Dave Bautista. I think he's undersung.
 
 [00:12:03] Will: He's very good in this. He's
 
 [00:12:04] Adam: wonderful.
 
-[00:12:05] Will: He plays he plays a different. It's a little more nuanced role than he.
+[00:12:05] Will: He plays a different. It's a little more nuanced role than he.
 
 [00:12:08] Adam: What she calls him fatty, and he's like, " I'm not fat."
 
-[00:12:13] Will: He it's it's you guys should watch the movie. I like. I think we should talk about it more.
+[00:12:13] Will: He it's you guys should watch the movie. I like. I think we should talk about it more.
 
-[00:12:18] Adam: Look, we're we're burying the lead because
+[00:12:18] Adam: Look, we're burying the lead because
 
 [00:12:20] Norm: I believe. I but before we bury the lead, I was I had other segues planned in. You mentioned Jenny Slate. Jenny Slate also wasted in the movie Venom, which I also saw last week, which is another San Francisco movie, which Ant Man the Wasp is. But Venom, I think, portrays San Francisco a little bit better. Total just popcorn movie, enjoyable, and I think.
 
 [00:12:39] Will: Do you see a Star is Born yet?
 
-[00:12:40] Norm: And and then and then the Star is Born. No segue there. That one highly recommended if you have a chance to watch that in some type of Dolby Atmos. That song Shallow is incredible. I think Lady Gaga is going to. Get her egot at some point, real soon.
+[00:12:40] Norm: And then the Star is Born. No segue there. That one highly recommended if you have a chance to watch that in some type of Dolby Atmos. That song Shallow is incredible. I think Lady Gaga is going to. Get her egot at some point, real soon.
 
 [00:12:52] Adam: I I think the the articles about how they mixed a Star is Born, how they did all the vocals on site at places like Glastonbury Music Festival and Coachella, and yet didn't let the audience hear the audio. So they got
 
@@ -380,7 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:13:23] Norm: And and I think it's tough because Bradley Cooper is still too young, I think, to play that grizzled like older rock star role that like the Keith Urban role a little bit. And but he's clearly very passionate about this project, co-produced by Live Nation, which is how they just like on Coachella they just had let's keep the the stages up for one extra day and then get all your shots in
 
-[00:13:46] Adam: was what was I thought was really cool and incredibly efficient, right? So they have these incredible shots. From from the trailer and in the movie, where you see them on stage in front of 80,000 people,
+[00:13:46] Adam: was what was I thought was really cool and incredibly efficient, right? So they have these incredible shots. From the trailer and in the movie, where you see them on stage in front of 80,000 people,
 
 [00:13:57] Will: and what do they do to shoot the crowds one day in the well?
 
@@ -400,15 +400,15 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:15:07] Will: So is it mixed? Is it mixed as if you're standing on the stage? The audio mix?
 
-[00:15:11] Norm: A little bit. I mean, the cameras are very dynamic, and and you can see the behind the scenes shots. They have Steadicam ops, like you know, dancing around the singers.
+[00:15:11] Norm: A little bit. I mean, the cameras are very dynamic, and you can see the behind the scenes shots. They have Steadicam ops, like dancing around the singers.
 
 [00:15:19] Adam: Are you actually see that?
 
-[00:15:20] Norm: And and you um, you you can see in the behind the scenes photos.
+[00:15:20] Norm: And you can see in the behind the scenes photos.
 
 [00:15:20] Adam: Oh, okay, got it.
 
-[00:15:20] Norm: Um, and it's not like that tight because there's a lot of movement. The sound doesn't move around the theater like that, but definitely feels like the best in theater concert experience you could have. They paid so close attention to the sound.
+[00:15:20] Norm: And it's not like that tight because there's a lot of movement. The sound doesn't move around the theater like that, but definitely feels like the best in theater concert experience you could have. They paid so close attention to the sound.
 
 [00:15:38] Adam: I've watched the video of of Bradley Cooper and Lady Gaga singing " Shallow" like 25 times. I like can’t stop watching it.
 
@@ -426,7 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:16:06] Norm: It's really, really good.
 
-[00:16:06] Adam: Also, really good. All right, let's let's. Well, so here's the thing: the the point of this conversation is probably in the title for the podcast today, right?
+[00:16:06] Adam: Also, really good. All right, let's let's. Well, so here's the thing: the point of this conversation is probably in the title for the podcast today, right?
 
 [00:16:15] Norm: I'm saying I'm not even going to. They got it. They got to earn it.
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:16:34] Will: Okay.
 
-[00:16:34] Adam: Um. So there's been a lot of movie watching. Uh, I watched Star Trek 2009, which is, if anything, better than you remember.
+[00:16:34] Adam: So there's been a lot of movie watching. I watched Star Trek 2009, which is, if anything, better than you remember.
 
 [00:16:44] Will: Oh, the Chris Pine, the
 
@@ -458,7 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:16:50] Adam: I do too, but the first one, seriously, the first five minutes of the first one with the dissolution of the ship and the Hemsworth, Chris Hemsworth,
 
-[00:16:59] Will: and the silent, the silent.
+[00:16:59] Will: and the silent.
 
 [00:17:01] Adam: Dude, that movie holds up 100%.
 
@@ -468,13 +468,13 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:17:13] Will: yeah, it's it is. I like I got yeah I got armchills
 
-[00:17:16] Adam: and and Giacchino's score is yeah phenomenal. Okay, but we're not talking about that kind of space. We're talking not we're talking nonfiction.
+[00:17:16] Adam: and Giacchino's score is yeah phenomenal. Okay, but we're not talking about that kind of space. We're talking not we're talking nonfiction.
 
 [00:17:25] Will: Zachary Quinto is in Hotel Artemis as well.
 
 [00:17:28] Adam: Oh, actually, and the line that made me laugh out loud on the plane was when Kirk offers the Romulans a safe harbor, and Zachary Quinto goes, " What are you doing?" And he said, " I'm showing compassion. I thought you'd like that. It's logical." And Zachary Quinto goes, " No, not really."
 
-[00:17:45] Will: Sorry, Norm. I'm going to break you for one more second. But I watched I watched Tag. I did
+[00:17:45] Will: Sorry, Norm. I'm going to break you for one more second. But I watched Tag. I did
 
 [00:17:50] Norm: that too.
 
@@ -488,7 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:18:02] Norm: It's a movie that lets him be as badass as the most badass in the ensemble, as opposed to when he's Hawkeye and he's like the least powered.
 
-[00:18:10] Will: Well, but I mean, when he's Mission and Mission Impossible, he's he's you know
+[00:18:10] Will: Well, but I mean, when he's Mission and Mission Impossible, he's you know
 
 [00:18:13] Adam: he broke both his arms.
 
@@ -508,13 +508,13 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:18:25] Norm: he did a whole sliding thing where he was
 
-[00:18:31] Will: he did it again after he broke his arms because he didn’t realize he’d broken them um it's it's so that movie the first I thought the first like act and a half were really really interesting and then I completely got bored by the end but the but the stunt work and the effects are pretty good in the beginning
+[00:18:31] Will: he did it again after he broke his arms because he didn’t realize he’d broken them it's so that movie the first I thought the first like act and a half were really really interesting and then I completely got bored by the end but the stunt work and the effects are pretty good in the beginning
 
-[00:18:44] Adam: it looks it looks terrible
+[00:18:44] Adam: it looks terrible
 
 [00:18:45] Will: it's very dumb so it's extraordinarily dumb
 
-[00:18:47] Norm: okay it's it's one of those films where it's based on a true story right
+[00:18:47] Norm: okay it's one of those films where it's based on a true story right
 
 [00:18:47] Adam: yeah yeah no I know and I know the story
 
@@ -536,11 +536,11 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:18:54] Norm: the story that it was not, it was, it technically was like a small paragraph, like you know, it was not the top story. So they had they photoshopped a Wall Street Journal to emphasize that it was on the quote unquote the front page.
 
-[00:19:43] Will: This whole this whole film industry is living a lie. It was it was I enjoyed I enjoyed the first two thirds of that movie.
+[00:19:43] Will: This whole film industry is living a lie. It was I enjoyed the first two thirds of that movie.
 
 [00:19:51] Adam: What is the origin story of the game of tag? Who was the first man to get tagged?
 
-[00:19:55] Will: So the the upshot is, Jerry, they five five friends played, Jon Hamm,
+[00:19:55] Will: So the upshot is, Jerry, they five five friends played, Jon Hamm,
 
 [00:19:55] Norm: Yeah.
 
@@ -564,7 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:20:18] Adam: That's what it looks like.
 
-[00:20:19] Will: Some of them are some of them are having good lives. Some of them not so much.
+[00:20:19] Will: Some of them are having good lives. Some of them not so much.
 
 [00:20:19] Adam: All right,
 
@@ -606,11 +606,11 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:20:59] Adam: an amazing, amazing supporting cast.
 
-[00:21:02] Norm: Yeah, I mean, as we've seen with a lot of. Space films, and there there aren't a lot of films. There are a lot of films, but aren't a lot of them stand out. Apollo 13, of course, is probably the high bar still. I would say
+[00:21:02] Norm: Yeah, I mean, as we've seen with a lot of. Space films, and there aren't a lot of films. There are a lot of films, but aren't a lot of them stand out. Apollo 13, of course, is probably the high bar still. I would say
 
 [00:21:13] Adam: I totally agree. Yeah,
 
-[00:21:15] Norm: for for Apollo era,
+[00:21:15] Norm: for Apollo era,
 
 [00:21:15] Adam: For real life stuff?
 
@@ -626,9 +626,9 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:21:37] Will: Well, the right stuff, if you've ever read the Tom Wolfe book, which I highly recommend if you haven't, is very true to the book. Like it is very much a I am a guy here telling the story of these seven people.
 
-[00:21:48] Adam: I watched it a a few months ago actually for the first time in 20 years, really, really.
+[00:21:48] Adam: I watched it a few months ago actually for the first time in 20 years, really, really.
 
-[00:21:53] Will: I would I would have thought so. Yeah,
+[00:21:53] Will: I would have thought so. Yeah,
 
 [00:21:54] Adam: absolutely terrific. Jeff Goldblum's in it.
 
@@ -640,7 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:21:58] Norm: He runs into the room every time.
 
-[00:22:02] Adam: Um, and uh, parts of right stuff were shot here in San Francisco because Gary Gutierrez, who used to be my boss at Colossal Pictures, was the effects director. Really, on the film. So, yeah, if you look at old episodes of MythBusters, you'll see some airplanes on the wall, and some of those were from the Right Stuff special effects shots.
+[00:22:02] Adam: And parts of right stuff were shot here in San Francisco because Gary Gutierrez, who used to be my boss at Colossal Pictures, was the effects director. Really, on the film. So, yeah, if you look at old episodes of MythBusters, you'll see some airplanes on the wall, and some of those were from the Right Stuff special effects shots.
 
 [00:22:19] Norm: Oh, that's amazing!
 
@@ -648,21 +648,21 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:22:20] Norm: Really? Now, the framing of those two films, with Apollo 13 and the Right Stuff, are very different. Also, right? Right Stuff is about Mercury, and Apollo 13 is about one mission, and you can fill two hours, two and a half hours, with either of those. First Man is interesting in that it is not one mission or one program; it is one person's journey.
 
-[00:22:47] Adam: Well, that's exactly the process. It's an incredibly personal, incredibly personal film in which that leaps forward in time, sometimes abruptly five years, but each of those leaps is not done by oh, see how far they've gone in the Apollo program. Each of those leaps involves Armstrong's family. And in that, it is a very quiet. If you are going expecting either right stuff or Apollo 13, this isn't either of those. It's a very quiet and personal film.
+[00:22:47] Adam: Well, that's exactly the process. It's an incredibly personal film in which that leaps forward in time, sometimes abruptly five years, but each of those leaps is not done by oh, see how far they've gone in the Apollo program. Each of those leaps involves Armstrong's family. And in that, it is a very quiet. If you are going expecting either right stuff or Apollo 13, this isn't either of those. It's a very quiet and personal film.
 
-[00:23:20] Will: It's more reminiscent of From Earth to the Moon, the HBO docu series from like 20 years ago now, probably, where they each each episode told the story of like one small part of the program. And and I thought it was like it wasn't at all what I was expecting going into the theater. You know, I went in expecting Apollo 13 and the big, you know, the the trailers sold a. Here is the story of Apollo 11, and here is the tense moment right before the you know, as Buzz and Neil are approaching the landing.
+[00:23:20] Will: It's more reminiscent of From Earth to the Moon, the HBO docu series from like 20 years ago now, probably, where they each each episode told the story of like one small part of the program. And I thought it was like it wasn't at all what I was expecting going into the theater. I went in expecting Apollo 13 and the big, you know, the trailers sold a. Here is the story of Apollo 11, and here is the tense moment right before the as Buzz and Neil are approaching the landing.
 
 [00:23:47] Norm: Which they have.
 
-[00:23:47] Will: It's in there. Yeah, it's in like like like last 10 minutes maybe.
+[00:23:47] Will: It's in there. Yeah, it's in like last 10 minutes maybe.
 
 [00:23:51] Norm: But that's not the crux of the film.
 
-[00:23:51] Will: But the crux of the film is, hey, here is here is this human being. Here is the story of him and his family, and here is the toll it took on these normal human beings who were thrust into extraordinary circumstances.
+[00:23:51] Will: But the crux of the film is, hey, here is this human being. Here is the story of him and his family, and here is the toll it took on these normal human beings who were thrust into extraordinary circumstances.
 
 [00:24:03] Adam: And that's the thing that I found the most affecting about it was they. Chazelle shows really, really clearly how, what it is to be the spearpoint of new inventions to do impossible things.
 
-[00:24:18] Will: The, um, we Gina and I went and saw it in the screening, and Ariel was there. Afterwards, I think she said that it's it reminded her of the quote that he's famous for about being just the man on the at the point of 100,000 people, and that's very much what the film felt like.
+[00:24:18] Will: The we Gina and I went and saw it in the screening, and Ariel was there. Afterwards, I think she said that it's it reminded her of the quote that he's famous for about being just the man on the at the point of 100,000 people, and that's very much what the film felt like.
 
 [00:24:18] Adam: Absolutely,
 
@@ -672,7 +672,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:25:06] Unknown speaker (Norm or Will): She is
 
-[00:25:06] Adam: as his partner, and I, I that. You know, a genuine partner in their in their relationship, dealing with huge and difficult amounts of loss from the loss of his daughter to the loss of his fellow pilots. I don't know if you recognized his pilot Elliot. I'm sorry. Yeah, yeah. His compatriot Elliot Patrick Fugit from Almost Famous.
+[00:25:06] Adam: as his partner, and I, I that. You know, a genuine partner in their relationship, dealing with huge and difficult amounts of loss from the loss of his daughter to the loss of his fellow pilots. I don't know if you recognized his pilot Elliot. I'm sorry. Yeah, yeah. His compatriot Elliot Patrick Fugit from Almost Famous.
 
 [00:25:27] Will: That's Almost Famous again.
 
@@ -682,7 +682,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:25:33] Norm: Gemini Eight.
 
-[00:25:34] Will: Yeah. No. No. No. No. This was the other the other civilian pilot. When they sat down in the trials, the other civilian. Oh God!
+[00:25:34] Will: Yeah. No. No. No. No. This was the other civilian pilot. When they sat down in the trials, the other civilian. Oh God!
 
 [00:25:41] Adam: He died in the
 
@@ -758,13 +758,13 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:27:12] Adam: Go ahead, Will.
 
-[00:27:13] Will: But but yeah, so so it opens the cold open is the X-15 flight, right?
+[00:27:13] Will: But yeah, so so it opens the cold open is the X-15 flight, right?
 
 [00:27:13] Adam: Yeah,
 
 [00:27:13] Norm: it is.
 
-[00:27:13] Will: And and like it's a terrifying moment, like the
+[00:27:13] Will: And like it's a terrifying moment, like the
 
 [00:27:22] Adam: the that X-15 suit. By the way, built by Ryan Nagata. We had it here in the shop.
 
@@ -776,9 +776,9 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:27:31] Adam: absolutely? Look, everyone knows how the story turns out.
 
-[00:27:34] Unknown speaker (Will or Norm): They make they make it.
+[00:27:34] Unknown speaker (Will or Norm): They make it.
 
-[00:27:35] Adam: Yeah, they they succeed.
+[00:27:35] Adam: Yeah, they succeed.
 
 [00:27:37] Norm: Two dudes step on the moon.
 
@@ -798,19 +798,19 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:27:51] Adam: No, I didn't. Yeah, was not even going to get close. But sorry, X-15.
 
-[00:27:53] Will: You know, so it starts with the X-15 flight. So it's it's kind of structured. It reminded me a lot of the Steve Jobs movie, the the Danny Boyle Steve Jobs movie.
+[00:27:53] Will: So it starts with the X-15 flight. So it's kind of structured. It reminded me a lot of the Steve Jobs movie, the Danny Boyle Steve Jobs movie.
 
 [00:28:00] Norm: Yes.
 
-[00:28:01] Will: In in that. You know, there's there's these kind of three key moments in Neil Armstrong's life that are focused on. Then they they slot in the Apollo 1 fire because it's also it's also an important moment because of the death of Ed White and the the impact on the program. But it starts with the X-15 flight, the death of his of his child when he was a test pilot in Northern California. It goes. The next one is the Gemini Eight mission, which is the first docking mission, and there's a there's a failure on the capsule.
+[00:28:01] Will: In that. There's there's these kind of three key moments in Neil Armstrong's life that are focused on. Then they slot in the Apollo 1 fire because it's also an important moment because of the death of Ed White and the impact on the program. But it starts with the X-15 flight, the death of his child when he was a test pilot in Northern California. It goes. The next one is the Gemini Eight mission, which is the first docking mission, and there's a failure on the capsule.
 
 [00:28:25] Adam: Totally intense. Yeah. Super. I like that was a sequence I found physically exhausting.
 
 [00:28:25] Will: Oh.
 
-[00:28:30] Norm: And I think exhausting is good. We describe the the three main flight sequences because the way that Damien Chazelle and his cinematography cinematographer works on this is makes you feel like you're in the in the cockpit, in the space. It's very claustrophobic.
+[00:28:30] Norm: And I think exhausting is good. We describe the three main flight sequences because the way that Damien Chazelle and his cinematography cinematographer works on this is makes you feel like you're in the cockpit, in the space. It's very claustrophobic.
 
-[00:28:46] Adam: I will have to tell you in a tiny way in which I've been lucky enough in my life to sit in devices that I have built to do ridiculous things. Um, the movie is full of these little moments of camaraderie between naturally um untalkative astronauts. These moments where Two people and who are excellent at their jobs stop and are like, " Wow, like, right?" And I, I, I connected with that moment because I've been there with Hyneman.
+[00:28:46] Adam: I will have to tell you in a tiny way in which I've been lucky enough in my life to sit in devices that I have built to do ridiculous things. The movie is full of these little moments of camaraderie between naturally untalkative astronauts. These moments where Two people and who are excellent at their jobs stop and are like, " Wow, like, right?" And I, I, I connected with that moment because I've been there with Hyneman.
 
 [00:28:46] Will: Yeah,
 
@@ -818,45 +818,45 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:29:19] Norm: This is far out.
 
-[00:29:20] Adam: Yeah, and it that felt again every one of the emotional beats in the film felt so infused and had such roots through the through the plot and through the movie and through its characters.
+[00:29:20] Adam: Yeah, and it that felt again every one of the emotional beats in the film felt so infused and had such roots through the plot and through the movie and through its characters.
 
-[00:29:31] Will: Well, so I, I was like, one of the things that struck me not not to skip around, but but I mean that moment, the moment after they land on the moon, they're the first two men on the moon. They've survived this incredible journey. They're at the head of 100,000 people, and they kind of look at each other, smile, and shake hands, and then go go back to work.
+[00:29:31] Will: Well, so I, I was like, one of the things that struck me not not to skip around, but I mean that moment, the moment after they land on the moon, they're the first two men on the moon. They've survived this incredible journey. They're at the head of 100,000 people, and they kind of look at each other, smile, and shake hands, and then go go back to work.
 
-[00:29:46] Adam: And and the way in which again Chazelle makes you realize that these we were recently working on some pieces of Mercury hardware here in the shop, and one of the things that's shocking when you lay that out, and you guys both had this experience, is oh my god, this thing was a tin can. Oh
+[00:29:46] Adam: And the way in which again Chazelle makes you realize that these we were recently working on some pieces of Mercury hardware here in the shop, and one of the things that's shocking when you lay that out, and you guys both had this experience, is oh my god, this thing was a tin can. Oh
 
 [00:30:04] Will: well. And they capture that perfectly.
 
 [00:30:05] Adam: Yes, like that's the thing. The film constantly shows you just how tenuous the barriers between them and total destruction.
 
-[00:30:12] Will: Even, even, like the especially on the on the Gemini stuff and X-15 stuff, it it's a little bit softened on the shift to Apollo because it feels like third generation. We kind of finally started figuring out how to build that stuff a little bit more reliably or a little bit more polished. But but yeah, it was it especially like and it it was really sold by the cinematography in the film where when he's in a high G high G situation in the X-15, the the close up the shot that you're seeing is from the astronaut's perspective always. So you see his face. You feel it's a really tight lens. You feel how small that space is and how cramped he is in the
+[00:30:12] Will: Even, even, like the especially on the Gemini stuff and X-15 stuff, it it's a little bit softened on the shift to Apollo because it feels like third generation. We kind of finally started figuring out how to build that stuff a little bit more reliably or a little bit more polished. But yeah, it was it especially like and it was really sold by the cinematography in the film where when he's in a high G situation in the X-15, the close up the shot that you're seeing is from the astronaut's perspective always. So you see his face. You feel it's a really tight lens. You feel how small that space is and how cramped he is in the
 
 [00:30:48] Norm: rickety. It sounds rickety. Yeah, looks rickety.
 
 [00:30:51] Adam: They work really hard to show that, and
 
-[00:30:53] Will: well, you see the close ups of the of the dials, and when you know I don't know if this came across, but the screen shake, like the the camera was moving constantly, giving a ton of motion. On those dials, and so it's a, it's when you see it in the theater, it's a 20 foot tall, three inch dial that's blowing from left to right across a wide screen, and it's a little hard to watch. Like it was challenging.
+[00:30:53] Will: well, you see the close ups of the dials, and when you know I don't know if this came across, but the screen shake, like the camera was moving constantly, giving a ton of motion. On those dials, and so it's a, it's when you see it in the theater, it's a 20 foot tall, three inch dial that's blowing from left to right across a wide screen, and it's a little hard to watch. Like it was challenging.
 
 [00:30:53] Adam: Yeah.
 
-[00:30:53] Will: Um, but I like as the only person I know that's been in a fighter jet that's gone faster than the speed of sound, like is that is that what it's like when you're under G load? Like all you can look at is
+[00:30:53] Will: But I like as the only person I know that's been in a fighter jet that's gone faster than the speed of sound, like is that what it's like when you're under G load? Like all you can look at is
 
-[00:31:24] Adam: no, no, no, no. I'm a I'm a TV personality. They wouldn't subject me to that.
+[00:31:24] Adam: no, no, no, no. I'm a TV personality. They wouldn't subject me to that.
 
 [00:31:27] Will: Oh, they didn’t put you under.
 
-[00:31:28] Adam: No, and a F A 18 is the the the Hornet is such an ludicrously stable machine that no, I didn't experience.
+[00:31:28] Adam: No, and a F A 18 is the Hornet is such an ludicrously stable machine that no, I didn't experience.
 
 [00:31:35] Will: There was no shaking or anything like that?
 
-[00:31:36] Adam: no, no, no, no, no. These that is that's the apex of our of our. It's not the apex, but but like that is a machine built to do that. This is the sequence in the X-15. It's like that's the first plane to go this crazy fast, and when he's bouncing off the atmosphere, that was so intense.
+[00:31:36] Adam: no, no, no, no, no. These that is that's the apex of our. It's not the apex, but like that is a machine built to do that. This is the sequence in the X-15. It's like that's the first plane to go this crazy fast, and when he's bouncing off the atmosphere, that was so intense.
 
 [00:31:52] Will: Yeah.
 
-[00:31:52] Norm: And and you talk about the shaky camera. It's not just in the cockpit, but even everything is handheld. 95, 98% of the films looks handheld when they're on Earth. So the moments with Claire Foy, who is amazing in this, because of their relationship. Even the parts where they're not in conflict, it looks like home movies from the '60s, and intentionally so.
+[00:31:52] Norm: And you talk about the shaky camera. It's not just in the cockpit, but even everything is handheld. 95, 98% of the films looks handheld when they're on Earth. So the moments with Claire Foy, who is amazing in this, because of their relationship. Even the parts where they're not in conflict, it looks like home movies from the '60s, and intentionally so.
 
 [00:31:52] Adam: Yeah,
 
-[00:31:52] Norm: the camera floats around; it's it's loose. And the only time the camera is still is after they land.
+[00:31:52] Norm: the camera floats around; it's loose. And the only time the camera is still is after they land.
 
 [00:31:52] Adam: Oh.
 
@@ -868,7 +868,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:32:31] Adam: It's just on sticks. Wow. I also i I really appreciated the family sequences, the the way in which the movie treats children. The children aren't in the movie for much more than like maybe five or eight minutes of screen time all told.
 
-[00:32:47] Unknown speaker (Will or Adam): They're they're they're present, but they're
+[00:32:47] Unknown speaker (Will or Adam): They're present, but they're
 
 [00:32:49] Adam: present throughout the whole film in a way that feels really natural and has a lot of veracity to it.
 
@@ -880,27 +880,27 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:32:56] Norm: Yeah.
 
-[00:32:56] Will: with our coworkers and their and their spouses, and like a there's a a ton of, hey, the wives are all having a hard time, the spouses are all having a hard time, the astronauts are all worried about this incredible thing they're doing and the fact that they're going to get beat by the Russians and have been consistently beaten by the Russians every step along the way.
+[00:32:56] Will: with our coworkers and their spouses, and like a there's a ton of, hey, the wives are all having a hard time, the spouses are all having a hard time, the astronauts are all worried about this incredible thing they're doing and the fact that they're going to get beat by the Russians and have been consistently beaten by the Russians every step along the way.
 
 [00:32:56] Norm: Yeah.
 
-[00:32:56] Will: And it's it's a fascinating, kind of look that that actually Tom Wolfe hints at in the right stuff.
+[00:32:56] Will: And it's a fascinating, kind of look that that actually Tom Wolfe hints at in the right stuff.
 
 [00:32:56] Norm: Hmm.
 
-[00:32:56] Will: Um. But it doesn't come come across so much in the movies. Like you see you see the funerals of the test pilots in the right stuff, but you don't see kind of the aftermath of that so much. It was just the cost of doing business.
+[00:32:56] Will: But it doesn't come come across so much in the movies. Like you see the funerals of the test pilots in the right stuff, but you don't see kind of the aftermath of that so much. It was just the cost of doing business.
 
-[00:33:45] Adam: And ultimately, even though it's a a very personal film about one person's journey through the incredible thing that is the space program, I feel like it stands as a wonderful testament to the incredible effort. Of the entire space program, right, and it does that by just shining a mirror, shining a light on this one person and saying, you know, it's the film makes it really clear he is not at all alone in his excellence and being able to do the thing. It is this incredible support network that does it, and you get to understand that through watching how it affects this one person and their family.
+[00:33:45] Adam: And ultimately, even though it's a very personal film about one person's journey through the incredible thing that is the space program, I feel like it stands as a wonderful testament to the incredible effort. Of the entire space program, right, and it does that by just shining a mirror, shining a light on this one person and saying it's the film makes it really clear he is not at all alone in his excellence and being able to do the thing. It is this incredible support network that does it, and you get to understand that through watching how it affects this one person and their family.
 
-[00:34:22] Will: The the one thing that well, there are two things bum me out. The cinematography is I understand like it's one of those things I absolutely understand why you shoot those capsule sequences with the super tight cameras and you don't give the beautiful exterior shots because you want the audience to feel like what it felt like to be one of the astronauts inside the LEM going down, you know, for the very first time. I I I I love those exterior shots.
+[00:34:22] Will: The one thing that well, there are two things bum me out. The cinematography is I understand like it's one of those things I absolutely understand why you shoot those capsule sequences with the super tight cameras and you don't give the beautiful exterior shots because you want the audience to feel like what it felt like to be one of the astronauts inside the LEM going down for the very first time. I love those exterior shots.
 
 [00:34:43] Norm: You like exterior shots,
 
-[00:34:45] Will: I you know, and then the the other thing was I felt like like I didn't I had to go and look on IMDb to see who the kind of supporting characters were. I like I. I wasn't sure if Kyle Chandler was Deke Slayton
+[00:34:45] Will: I and then the other thing was I felt like I didn't I had to go and look on IMDb to see who the kind of supporting characters were. I like I. I wasn't sure if Kyle Chandler was Deke Slayton
 
 [00:34:45] Adam: Yeah.
 
-[00:34:45] Will: or Gordon Gordon Cooper, but he was he was Deke Slayton, right? And and you you pick that up throughout the thing, but it was a little bit it was a little bit unclear.
+[00:34:45] Will: or Gordon Gordon Cooper, but he was Deke Slayton, right? And you pick that up throughout the thing, but it was a little bit it was a little bit unclear.
 
 [00:35:10] Norm: So it's really interesting who this film was for, because
 
@@ -914,9 +914,9 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:35:44] Norm: well, there's a thread. There's one thread thematically from Whiplash to La La Land to First Man, and it's that these professions and these accomplishments that are glamorized in public. He pulls the curtain back. A little bit on that, whether it's from musicians to acting Hollywood to the heroes in our space history, he does he definitely pulls that curtain a little back.
 
-[00:36:06] Will: I mean, it's it's definitely not like the thing. The thing Gina said after we saw this was that it seemed like the kind of movie that couldn't be made until now, right? It's it's a more honest, raw look at this at this time in history. It was now 40, 50 years ago than we maybe were capable of it when we were kids. Um, and and I'm I'm you know I I kind of feel like like Chazelle's taking a um like the Danny Boyle path, right? Like instead of instead of getting bogged down in one genre and becoming a genre director, he seems to be kind of like spreading his wings and trying a little bit of everything, which I I really appreciate.
+[00:36:06] Will: I mean, it's definitely not like the thing. The thing Gina said after we saw this was that it seemed like the kind of movie that couldn't be made until now, right? It's a more honest, raw look at this time in history. It was now 40, 50 years ago than we maybe were capable of it when we were kids. And I'm I'm I I kind of feel like Chazelle's taking a like the Danny Boyle path, right? Like instead of getting bogged down in one genre and becoming a genre director, he seems to be kind of like spreading his wings and trying a little bit of everything, which I I really appreciate.
 
-[00:36:43] Adam: I do too. I do too. I so I as a space nut, I really enjoyed this film. As a film nut, I thought it was really lovely, and I thought I was surprised as a person with kids how sensitively it really showed the toll on a family of of that kind of endeavor.
+[00:36:43] Adam: I do too. I do too. I so I as a space nut, I really enjoyed this film. As a film nut, I thought it was really lovely, and I thought I was surprised as a person with kids how sensitively it really showed the toll on a family of that kind of endeavor.
 
 [00:37:00] Norm: Yeah,
 
@@ -934,17 +934,17 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:37:13] Norm: well dedicated, determined, absolutely people, and the toll that takes.
 
-[00:37:20] Will: I, I, I, I, I really, I walked away from the screening. It was a really unkind portrait of, like, probably honest, but but he he did not paint a a wonderful picture. You know, he painted Neil Armstrong as a bad dad, well a good dad, and also a bad dad at the same time, which is, I think, how most dads probably feel like they are at the end of the day.
+[00:37:20] Will: I really, I walked away from the screening. It was a really unkind portrait of probably honest, but he did not paint a wonderful picture. He painted Neil Armstrong as a bad dad, well a good dad, and also a bad dad at the same time, which is, I think, how most dads probably feel like they are at the end of the day.
 
 [00:37:39] Adam: There but for the grace.
 
-[00:37:41] Will: yeah, and and um, definitely a bad husband. Yeah,
+[00:37:41] Will: yeah, and definitely a bad husband. Yeah,
 
 [00:37:46] Norm: so one thing I am curious about, I want to get your thoughts on, and I want to spoil this part of the film, but there is something that happens on this that has historical, if it's true, would have historical significance, but at very best is apocryphal, but probably fiction.
 
 [00:38:00] Adam: I had never heard of this.
 
-[00:38:02] Will: I I went back and did some. Fairly extensive internet research. There was literally the only thing I was able to find were people who had seen the screener, you know, first showing,
+[00:38:02] Will: I went back and did some. Fairly extensive internet research. There was literally the only thing I was able to find were people who had seen the screener first showing,
 
 [00:38:02] Adam: yeah,
 
@@ -956,13 +956,13 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:38:17] Adam: it wasn't necessary for me to emotionally connect with the film across the full arc of Armstrong's.
 
-[00:38:44] Norm: It just felt in for a film that has so much attention to detail on the technical aspects, and who knows about the emotional truths of the film because that's that's for Neil Armstrong and his family, right? It was. I also felt it was unnecessary. I felt it was. If true, it would have been amazing.
+[00:38:44] Norm: It just felt in for a film that has so much attention to detail on the technical aspects, and who knows about the emotional truths of the film because that's for Neil Armstrong and his family, right? It was. I also felt it was unnecessary. I felt it was. If true, it would have been amazing.
 
 [00:38:44] Adam: Yeah,
 
 [00:38:44] Norm: but realizing now that that was just. Made for the emotional satisfaction of the film, I felt like yeah, it was a little too much.
 
-[00:39:09] Will: If it, if it, look, that whole thread was, you know, every parent's worst nightmare.
+[00:39:09] Will: If it, look, that whole thread was every parent's worst nightmare.
 
 [00:39:09] Adam: Yeah.
 
@@ -972,21 +972,21 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:39:17] Will: Yeah.
 
-[00:39:18] Adam: And losing a losing a child.
+[00:39:18] Adam: And losing a child.
 
-[00:39:19] Will: Yeah, and and he, the way that was portrayed early on, where he was obsessed with everything he could to save his daughter.
+[00:39:19] Will: Yeah, and he, the way that was portrayed early on, where he was obsessed with everything he could to save his daughter.
 
 [00:39:19] Adam: Right.
 
-[00:39:19] Will: He was he was literally reading medical textbooks and you know reading the X-rays and and things like that to see see if he could pick up something that the doctors had missed. And he's a smart he's a smart engineer. Like there's that stranger things have happened. Um, but yeah, I I look it didn't it didn't strike me as unfair. I but I did I had questions.
+[00:39:19] Will: He was literally reading medical textbooks and you know reading the X-rays and things like that to see see if he could pick up something that the doctors had missed. And he's a smart engineer. Like there's that stranger things have happened. But yeah, I I look it didn't strike me as unfair. I but I did I had questions.
 
-[00:39:53] Norm: Um, there's so much more we can say about this film. We've talked about a lot of films on this podcast.
+[00:39:53] Norm: There's so much more we can say about this film. We've talked about a lot of films on this podcast.
 
 [00:39:58] Will: The costumes are exceptional.
 
 [00:39:59] Norm: Costumes are exceptional.
 
-[00:40:00] Adam: Costume work and again, Ryan Nagata, Ryan Nagata built a bunch of those parts, but the the the bulk of the big space suits were built by Chris Gilman at Global Effects and the there's a ton of real close up spacesuit porn.
+[00:40:00] Adam: Costume work and again, Ryan Nagata built a bunch of those parts, but the bulk of the big space suits were built by Chris Gilman at Global Effects and the there's a ton of real close up spacesuit porn.
 
 [00:40:13] Norm: Yeah,
 
@@ -998,7 +998,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:40:18] Adam: My wife turned to me and she's like, " Good sound effects."
 
-[00:40:20] Will: Chik chik chink. You need you need a foley guy in here all the time when you're putting the suits on.
+[00:40:20] Will: Chik chik chink. You need a foley guy in here all the time when you're putting the suits on.
 
 [00:40:25] Adam: Oh, I have one. It's going on in my head.
 
@@ -1014,7 +1014,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:40:35] Will: The the period costumes and and the set decoration, like they did a lovely job rebuilding. I guess mid century modern Houston. I think they did in Roswell, Georgia, is what I read.
 
-[00:40:47] Adam: Oh, really? Yeah, really beautifully done and very subtle. Again, this is Chazelle's third film. He is in his 30s. We have we have a lot to look forward to from this smart young man.
+[00:40:47] Adam: Oh, really? Yeah, really beautifully done and very subtle. Again, this is Chazelle's third film. He is in his 30s. We have a lot to look forward to from this smart young man.
 
 [00:40:59] Will: I'm very hopeful,
 

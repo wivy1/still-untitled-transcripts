@@ -24,7 +24,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:01:49] Unknown speaker: I don't remember.
 
-[00:01:49] Adam: She ended up clerking for a judge. I talked to her around the time of our 20th high school reunion, I think. I I haven't. My 30th high school reunion is coming up next year.
+[00:01:49] Adam: She ended up clerking for a judge. I talked to her around the time of our 20th high school reunion, I think. I haven't. My 30th high school reunion is coming up next year.
 
 [00:02:00] Will: Really? My 20th was last year.
 
@@ -34,9 +34,9 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:02:02] Adam: Oh, I went to my 10th, and that was. Awesome.
 
-[00:02:05] Will: The 10th. See, we we didn't. I didn't. I didn't know that the 10th happened until after it was done because I just moved to California and I was like, ah, I'm not going back.
+[00:02:05] Will: The 10th. See, we didn't. I didn't. I didn't know that the 10th happened until after it was done because I just moved to California and I was like, ah, I'm not going back.
 
-[00:02:12] Adam: I, I will tell you about my 10th high school reunion. I hope that some of the people I went to high school would listen to this eventually, because I went to school with the same kids. Small town, Tarrytown, New York, 5,000, 6,000 people population. So I went to the same school. Went to school with the same kids from age 5 to age 18.
+[00:02:12] Adam: I will tell you about my 10th high school reunion. I hope that some of the people I went to high school would listen to this eventually, because I went to school with the same kids. Small town, Tarrytown, New York, 5,000, 6,000 people population. So I went to the same school. Went to school with the same kids from age 5 to age 18.
 
 [00:02:28] Will: What was it like? Probably a 200 person graduating class or something like that. 150. Yeah,
 
@@ -58,15 +58,15 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:03:01] Will: You gotta turn this around.
 
-[00:03:02] Adam: when I went to my high school reunion. That everyone that I had gone to high school with had grown into the most beautiful. Woman, I mean, my my wife, my first wife, who came to that reunion with me, was like, " You serious about high school? All these these they're all gorgeous. They really like they had all blossomed into just beautiful women. It was very satisfying. I right, I mean,
+[00:03:02] Adam: when I went to my high school reunion. That everyone that I had gone to high school with had grown into the most beautiful. Woman, I mean, my wife, my first wife, who came to that reunion with me, was like, " You serious about high school? All these these they're all gorgeous. They really like they had all blossomed into just beautiful women. It was very satisfying. I right, I mean,
 
-[00:03:22] Will: it's it's a it's a different future, right? If you decided to stay at home and open up a gas station, that's that's the one of the potential futures.
+[00:03:22] Will: it's a different future, right? If you decided to stay at home and open up a gas station, that's the one of the potential futures.
 
 [00:03:28] Norm: So, are you going to your 30th?
 
 [00:03:30] Adam: I want to go to my 30th high school reunion. I totally do. I'd love to see it. I'd love to see a bunch of those guys.
 
-[00:03:35] Will: So the the 10th was about who you are. The 20th is about kids,
+[00:03:35] Will: So the 10th was about who you are. The 20th is about kids,
 
 [00:03:40] Adam: I guess,
 
@@ -78,11 +78,11 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:03:45] Will: No. Let me tell you,
 
-[00:03:47] Adam: I I will say there was one shocker at my 10th high high school reunion. I've always had a penchant for girls with big noses. I've always loved big noses. I don't know why. Okay, particularly
+[00:03:47] Adam: I will say there was one shocker at my 10th high high school reunion. I've always had a penchant for girls with big noses. I've always loved big noses. I don't know why. Okay, particularly
 
 [00:03:57] Will: big fan of Dirty Dancing, I assume.
 
-[00:03:58] Adam: Yeah, and poor Jennifer Grey. I'm so sad that nose went away. I, I loved it.
+[00:03:58] Adam: Yeah, and poor Jennifer Grey. I'm so sad that nose went away. I loved it.
 
 [00:04:03] Will: It was an amazing nose.
 
@@ -104,7 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:04:23] Adam: Absolutely.
 
-[00:04:28] Norm: Everyone. But you're right. The the 10th high school reunion is the people have kids. At least in this generation, because most people have kids late. It's like, wow, you have a kid. Maybe two people have kids. That's weird.
+[00:04:28] Norm: Everyone. But you're right. The 10th high school reunion is the people have kids. At least in this generation, because most people have kids late. It's like, wow, you have a kid. Maybe two people have kids. That's weird.
 
 [00:04:28] Will: Yeah.
 
@@ -126,17 +126,17 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:05:08] Frank Ippolito: I didn't like most of the people I went to high school with, so I. Really don't care about any of the reunions.
 
-[00:05:12] Adam: I, I didn't stay friends with nearly anybody I went to high school with, except for a couple of people. But I'd love to catch up with some of the lovely women I went to high school with.
+[00:05:12] Adam: I didn't stay friends with nearly anybody I went to high school with, except for a couple of people. But I'd love to catch up with some of the lovely women I went to high school with.
 
 [00:05:23] Will: And it's more. It was more.
 
 [00:05:25] Adam: I don't mean that in any suggestive way.
 
-[00:05:26] Will: No, no, no. You you want to see how everybody ended up, right? You want to see what the end of the story was? Why not?
+[00:05:26] Will: No, no, no. You want to see how everybody ended up, right? You want to see what the end of the story was? Why not?
 
 [00:05:31] Frank Ippolito: Well, I had a couple of teachers that inspired me either positively or negatively.
 
-[00:05:34] Adam: Do you know that, um, uh, I guess it's 2005, 2006. I went back to my high school to give a talk. Um, as and my my inspirational freshman earth science teacher Dan [unclear: Fryer] was there. Not only didn't he remember me, had no idea that MythBusters was a show.
+[00:05:34] Adam: Do you know that I guess it's 2005, 2006. I went back to my high school to give a talk. As and my inspirational freshman earth science teacher Dan [unclear: Fryer] was there. Not only didn't he remember me, had no idea that MythBusters was a show.
 
 [00:05:53] Will: Wow.
 
@@ -160,13 +160,13 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:06:16] Adam: Right, he didn't look a day older. I mean, he's got a painting in the attic. I swear, he did retire a couple years ago.
 
-[00:06:21] Will: There are always there are always those teachers. Like when I'm home visiting parents, you'll bump into somebody, and and you never know.
+[00:06:21] Will: There are always those teachers. Like when I'm home visiting parents, you'll bump into somebody, and you never know.
 
 [00:06:27] Norm: Well, teachers are real people too, and something I learned.
 
 [00:06:29] Frank Ippolito: They're real people, as opposed to fake people.
 
-[00:06:31] Norm: Well, when you're in school, the position of authority and and wisdom.
+[00:06:31] Norm: Well, when you're in school, the position of authority and wisdom.
 
 [00:06:34] Adam: they're just a thing.
 
@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:07:08] Will: Okay,
 
-[00:07:09] Frank Ippolito: I got to I got to kind of fulfill something that people want to do. I slept with one of my sister's soccer coaches.
+[00:07:09] Frank Ippolito: I got to kind of fulfill something that people want to do. I slept with one of my sister's soccer coaches.
 
 [00:07:16] Will: Whoa.
 
@@ -286,7 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:09:06] Adam: Yeah.
 
-[00:09:06] Norm: And lights, and then you also had this green room this this Gaudy, lush, purple.
+[00:09:06] Norm: And lights, and then you also had this green room this Gaudy, lush, purple.
 
 [00:09:11] Adam: weird room,
 
@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:09:24] Adam: It's very cool. I can't tell you about it on the on the podcast, but I'll tell you afterwards. And it's it's Max is awesome.
 
-[00:09:30] Frank Ippolito: He’s, he’s
+[00:09:30] Frank Ippolito: He’s
 
 [00:09:30] Will: Max is Max.
 
@@ -314,13 +314,13 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:09:33] Will: So okay, so it seems like also the kind of that theater that you could do like some sort of enormous benefit concert with like 300 people appearing and all that kind of stuff too. And
 
-[00:09:42] Adam: look, normally we were selling between 2,000 and 3,000 tickets out on the tour, and to be honest, our sales at the Nokia weren't close to filling the joint. But the I forget this every time I perform there. That is, it's a terrific hall because even when it's not full, it feels full. Like, and that that's that's good theater design, and that's also good seating arrangement by the house itself. We stood there on stage, and it sounded and looked like we were playing to a full house.
+[00:09:42] Adam: look, normally we were selling between 2,000 and 3,000 tickets out on the tour, and to be honest, our sales at the Nokia weren't close to filling the joint. But the I forget this every time I perform there. That is, it's a terrific hall because even when it's not full, it feels full. Like, and that that's good theater design, and that's also good seating arrangement by the house itself. We stood there on stage, and it sounded and looked like we were playing to a full house.
 
 [00:10:11] Will: Well, we were sitting fairly back in the audience. It looked like a full house because they had spaced everybody out really, really nicely. They
 
 [00:10:16] Adam: did a really good job with it. So that show, which I was worried—you know—I have tons of friends in LA. I brought dozens and dozens of them to that show, and I wanted it to be a good show. And I was very gratified that the energy in the house felt really vital and vibrant. And we—it was really, I think, one of the best shows of the tour.
 
-[00:10:33] Will: I mean, if you've never—if you've never stood on stage and done a show like that where people are coming to see you, like the worst fear is that you stand up there and there's like 55 people in the audience and nobody laughs.
+[00:10:33] Will: I mean, if you've never stood on stage and done a show like that where people are coming to see you, like the worst fear is that you stand up there and there's like 55 people in the audience and nobody laughs.
 
 [00:10:45] Adam: Well, I mean, we've had—you know—we've played the houses where acoustically you can't hear the crowd, especially when you play a cut-down stadium. Like you go to Canada and you play some of these hockey stadiums, and the sound just disappears into the building. So the audience might be screaming their heads off, but on stage you can't tell.
 
@@ -346,7 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:12:02] Will: We felt like we needed one too.
 
-[00:12:03] Adam: Yeah, maybe. It's you know how it's like when when one child has a birthday you give the other one a present so they don't feel bad.
+[00:12:03] Adam: Yeah, maybe. It's you know how it's like when one child has a birthday you give the other one a present so they don't feel bad.
 
 [00:12:09] Will: I would never never do that. Did you do that with your kids? No,
 
@@ -398,13 +398,13 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:14:10] Frank Ippolito: White gloves.
 
-[00:14:11] Adam: Exactly. And they. The best part was was, shortly after I bought the casting, apropos of nothing, I called up the paleontology department and talked to their resident expert. And they said, well, you know what? All these these years later, I mean, this is like seven years later. They remembered that vividly. They're like, we remembered that you called and asked all sorts of questions about the dodo and took it really seriously. And so, you know, we're we're treating you like a real researcher. And they said on the elevator up, the curator said, " Yeah, you you do know that our dodo might is mounted slightly wrong, but we didn't want to change the mount because it's archival. It's 100 years old." And I said, " Right." His his keel sternum is too distended and misshapen. And they were like, " He goes, yes." And we had never spoken about this. He goes, " You have checked in on your dodo anatomy." It was super exciting. We've talked about it on the podcast. That I thought that their pose wasn't right, and I was totally right. So that when I finally mount mine, and now I've got a bee in my bonnet to tackle that casting again, I'm going to mount it right.
+[00:14:11] Adam: Exactly. And they. The best part was was, shortly after I bought the casting, apropos of nothing, I called up the paleontology department and talked to their resident expert. And they said, well, you know what? All these these years later, I mean, this is like seven years later. They remembered that vividly. They're like, we remembered that you called and asked all sorts of questions about the dodo and took it really seriously. And so we're treating you like a real researcher. And they said on the elevator up, the curator said, " Yeah, you you do know that our dodo might is mounted slightly wrong, but we didn't want to change the mount because it's archival. It's 100 years old." And I said, " Right." His his keel sternum is too distended and misshapen. And they were like, " He goes, yes." And we had never spoken about this. He goes, " You have checked in on your dodo anatomy." It was super exciting. We've talked about it on the podcast. That I thought that their pose wasn't right, and I was totally right. So that when I finally mount mine, and now I've got a bee in my bonnet to tackle that casting again, I'm going to mount it right.
 
 [00:15:15] Will: So the backstage, like one of my favorite things in the world to do is do the back scenes tours of museums.
 
 [00:15:20] Adam: Yes.
 
-[00:15:20] Will: The Natural History Museum in Washington you used to be able to go if you were a Smithsonian member or whatever, and and they'd take you on a through the place. Because the thing that most people don't realize about museums like that is that not only is there a public display area
+[00:15:20] Will: The Natural History Museum in Washington you used to be able to go if you were a Smithsonian member or whatever, and they'd take you on a through the place. Because the thing that most people don't realize about museums like that is that not only is there a public display area
 
 [00:15:32] Adam: of what they've got,
 
@@ -424,7 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:16:01] Will: when you're asking questions and the experts are like, yeah, I think we're probably good. Let's just move on. That's when you have to pull back.
 
-[00:16:07] Adam: So I've gotten tours back there, and the Royal Ontario Museum has. I didn't realize that one of the largest, one of the best places in the world you can go for dinosaur bones is Alberta, in Canada. It's you want to go to a place. You can go to the Gobi Desert or the Mongolian steppes, or you can go to Alberta, and they have just gobs and gobs and gobs of really important and amazing dinosaur skeletons up there. And what they do is, when they find it, they put it, they they they reveal as much as they can, and they cover it with plaster to carve out the rock and carry it back home. And this is the way they've been doing it for hundreds.
+[00:16:07] Adam: So I've gotten tours back there, and the Royal Ontario Museum has. I didn't realize that one of the largest, one of the best places in the world you can go for dinosaur bones is Alberta, in Canada. It's you want to go to a place. You can go to the Gobi Desert or the Mongolian steppes, or you can go to Alberta, and they have just gobs and gobs of really important and amazing dinosaur skeletons up there. And what they do is, when they find it, they put it, they reveal as much as they can, and they cover it with plaster to carve out the rock and carry it back home. And this is the way they've been doing it for hundreds.
 
 [00:16:44] Will: Oh, so they cut the rock out of the ground,
 
@@ -432,7 +432,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:16:46] Will: And then bring the rest?
 
-[00:16:47] Adam: Once they get it back, that's when they slowly reveal the bones. But every museum that collects dinosaur bones has thousands of bones still embedded in plaster, waiting for grad students to use microscopes there to pick off every bit of non-dinosaur detritus off of these bones. I was thinking, there's got to be a way we could, you know, teach, you know, science interested kids and bring them in and have them be part of this solution, right? I mean, it doesn't. I asked, does it take a grad degree to be able to sit there with? No, he said, not at all. You can train someone to do it in about a day.
+[00:16:47] Adam: Once they get it back, that's when they slowly reveal the bones. But every museum that collects dinosaur bones has thousands of bones still embedded in plaster, waiting for grad students to use microscopes there to pick off every bit of non-dinosaur detritus off of these bones. I was thinking, there's got to be a way we could, you know, teach science interested kids and bring them in and have them be part of this solution, right? I mean, it doesn't. I asked, does it take a grad degree to be able to sit there with? No, he said, not at all. You can train someone to do it in about a day.
 
 [00:17:23] Will: So I would go do that. Totally. I would do that all day long.
 
@@ -448,15 +448,15 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:17:34] Will: A day, yeah.
 
-[00:17:34] Adam: committed to a day where somebody, you know, or let's say, two days.
+[00:17:34] Adam: committed to a day where somebody or let's say, two days.
 
 [00:17:37] Will: I think it's a week. I think you say, spend a day on me. I'll give you six.
 
-[00:17:41] Adam: Maybe you get a maybe you get a certificate. You know, I I don't know
+[00:17:41] Adam: Maybe you get a certificate. I don't know
 
 [00:17:44] Will: A T-shirt.
 
-[00:17:44] Adam: But I love the idea that you could actually crowdsource this because he he was very clear. Yes, every museum that has dinosaur bones has thousands more than they show because it's so labor intensive to pull them out. Of course. They also do tons of casting and mold making.
+[00:17:44] Adam: But I love the idea that you could actually crowdsource this because he was very clear. Yes, every museum that has dinosaur bones has thousands more than they show because it's so labor intensive to pull them out. Of course. They also do tons of casting and mold making.
 
 [00:17:59] Will: Yeah.
 
@@ -474,7 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:18:11] Will: So you mean if you screw it up, you can't just go buy another one and try again?
 
-[00:18:14] Frank Ippolito: Well, it's it's partially not to damage the original, and partially because a lot of a lot of skeletons and bones are just so intricate. You know, I I mold some pretty complicated things, but I look at some bones, I'm like, I don't know where to start.
+[00:18:14] Frank Ippolito: Well, it's partially not to damage the original, and partially because a lot of skeletons and bones are just so intricate. I mold some pretty complicated things, but I look at some bones, I'm like, I don't know where to start.
 
 [00:18:25] Adam: Right.
 
@@ -488,7 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:18:36] Frank Ippolito: It's tricky.
 
-[00:18:37] Adam: I actually was looking at their molds with an eye towards the idea that I could, we could go in and help their techniques somewhat because it looked like it looked like there were places in which I was thinking, ah, I might be able to help them make that one more efficient, or they're using that kind of mother mold and they might get better results with a different kind of, you know, it'd be it'd be great to cross pollinate the film industry mold makers with the archival museum mold makers because I'll bet there's not a ton of
+[00:18:37] Adam: I actually was looking at their molds with an eye towards the idea that I could, we could go in and help their techniques somewhat because it looked like there were places in which I was thinking, ah, I might be able to help them make that one more efficient, or they're using that kind of mother mold and they might get better results with a different kind of it'd be great to cross pollinate the film industry mold makers with the archival museum mold makers because I'll bet there's not a ton of
 
 [00:19:02] Will: Well, you guys, I would
 
@@ -508,7 +508,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:19:16] Frank Ippolito: Really?
 
-[00:19:16] Adam: Oh yeah. They it's an it's an amazing collection.
+[00:19:16] Adam: Oh yeah. They it's an amazing collection.
 
 [00:19:37] Frank Ippolito: That was the place where we went for Halloween, right?
 
@@ -530,7 +530,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:19:51] Will: Well, that was I thought that was a one off. I didn't realize that was a regular thing.
 
-[00:19:54] Adam: No, apparently they're doing that. I regular. Wow. I happened to be walking my dogs in Dolores Park today when some guys from the Exploratorium are doing an exhibit about specifically about morality and public morality, like. Do you clean up after your dog if no one's looking, kind of thing? And they they interviewed me.
+[00:19:54] Adam: No, apparently they're doing that. I regular. Wow. I happened to be walking my dogs in Dolores Park today when some guys from the Exploratorium are doing an exhibit about specifically about morality and public morality, like. Do you clean up after your dog if no one's looking, kind of thing? And they interviewed me.
 
 [00:20:10] Will: Yes, yes, you do.
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:20:12] Will: Because if you don't, you are one of the world's greatest monsters.
 
-[00:20:14] Adam: Well, it's it's you got to think about the fact that someone else is going to pick it up. You really want someone else picking up your shit? That's just terrible. That's ridiculous. What are you, a teenager
+[00:20:14] Adam: Well, it's you got to think about the fact that someone else is going to pick it up. You really want someone else picking up your shit? That's just terrible. That's ridiculous. What are you, a teenager
 
 [00:20:22] Will: You’re violating the social contract?
 
@@ -584,11 +584,11 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:21:40] Will: Like big sand, yeah.
 
-[00:21:41] Adam: So that it it moves and feels like an animal. It’s an actual thing. And then hot glue the feathers on because hot glue and feathers love each other like few things in the world. Yeah, that was that was one of my favorite days on the tour. The next day I didn't leave the bus all day because I was just spent.
+[00:21:41] Adam: So that it moves and feels like an animal. It’s an actual thing. And then hot glue the feathers on because hot glue and feathers love each other like few things in the world. Yeah, that was one of my favorite days on the tour. The next day I didn't leave the bus all day because I was just spent.
 
-[00:21:55] Will: Any other any other high points? I mean, you're 26.
+[00:21:55] Will: Any other high points? I mean, you're 26.
 
-[00:21:58] Frank Ippolito: Wait, did you? Was that the first time seeing the the Kubrick stuff?
+[00:21:58] Frank Ippolito: Wait, did you? Was that the first time seeing the Kubrick stuff?
 
 [00:22:01] Adam: No, I spent seven hours with it in L. A. And it's actually coming to San Francisco, so I'll get a third chance to hang out with it.
 
@@ -598,7 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:22:27] Will: Turns out that's where he lived.
 
-[00:22:28] Adam: Yeah, and then I saw a good friend of mine. Hung out with a good friend of mine, and then that evening hung out with more friends of mine, the [unclear: Curbys]. We had a lovely meal right up until it was time for the bus to leave. I saw lots and lots of close friends in Philly. I saw Len. Sorry, in Cleveland I saw Len. In Philly I saw Paul of Paul and Storm. In DC I saw Storm of Paul and Storm. In Philly in the evening I saw my friend Jill. I, you know, it's you have to find your level with touring. And the first time I toured, I didn't leave the bus and I didn't talk to or like hang out with anybody. I was just sort of super occupied. And the second time I made sure to leave the bus every day, but I didn't necessarily drop in on people in every city. This tour, I dropped in on everybody I knew in almost every city I was in, and it was fantastic.
+[00:22:28] Adam: Yeah, and then I saw a good friend of mine. Hung out with a good friend of mine, and then that evening hung out with more friends of mine, the [unclear: Curbys] We had a lovely meal right up until it was time for the bus to leave. I saw lots and lots of close friends in Philly. I saw Len. Sorry, in Cleveland I saw Len. In Philly I saw Paul of Paul and Storm. In DC I saw Storm of Paul and Storm. In Philly in the evening I saw my friend Jill. I it's you have to find your level with touring. And the first time I toured, I didn't leave the bus and I didn't talk to or like hang out with anybody. I was just sort of super occupied. And the second time I made sure to leave the bus every day, but I didn't necessarily drop in on people in every city. This tour, I dropped in on everybody I knew in almost every city I was in, and it was fantastic.
 
 [00:23:15] Will: Well, I mean, it's it's got to be. You're by the by the end of the first or second week of the tour, I have to imagine the show's pretty dialed in. You're making small changes, but it's not like you're spending hours every day thinking about what you're going to do that night.
 
@@ -608,7 +608,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:23:32] Adam: Yeah.
 
-[00:23:33] Will: And if you happen to be someplace that that somebody you don't see as often as you'd like is, then then why not go visit?
+[00:23:33] Will: And if you happen to be someplace that that somebody you don't see as often as you'd like is, then why not go visit?
 
 [00:23:37] Adam: And when I go through cities like New York and L. A. , this time in L. A. , I threw a big party at the Beer Garden at the Standard Hotel across about a mile away from the venue. In New York, I do the same thing every time I come through New York because it allows me to bring everyone I know into the same place.
 
@@ -622,7 +622,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:23:59] Norm: know the past.
 
-[00:24:02] Adam: Um, it was a great tour. It was really really fun. We're doing it again in the. We're gonna announce. We're gonna do another tour in the spring.
+[00:24:02] Adam: It was a great tour. It was really really fun. We're doing it again in the. We're gonna announce. We're gonna do another tour in the spring.
 
 [00:24:10] Frank Ippolito: In the states or
 
@@ -630,7 +630,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:24:11] Frank Ippolito: Are you gonna do one in Europe ever?
 
-[00:24:12] Adam: We are looking at Europe. It's expensive to take all of our gear across an ocean, and so those costs have to be have to be figured out. But eventually, yes, we do want to do the UK, for which there's a bunch of demand, and Europe, especially Northern Europe, Netherlands, Norway. Big lots of
+[00:24:12] Adam: We are looking at Europe. It's expensive to take all of our gear across an ocean, and so those costs have to be figured out. But eventually, yes, we do want to do the UK, for which there's a bunch of demand, and Europe, especially Northern Europe, Netherlands, Norway. Big lots of
 
 [00:24:33] Will: tested's real big in Scandinavia for some reason. I don't
 
@@ -640,11 +640,11 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:24:41] Frank Ippolito: I think maybe last year or something like that.
 
-[00:24:43] Adam: What do they—what do they do?
+[00:24:43] Adam: What do they do?
 
 [00:24:43] Frank Ippolito: A month? They sent They send a container over there, and then yeah,
 
-[00:24:46] Adam: yeah, it's got to it's got to leave like eight weeks beforehand.
+[00:24:46] Adam: yeah, it's got to leave like eight weeks beforehand.
 
 [00:24:49] Frank Ippolito: Yeah, I've I've helped them pack those containers before. Wow,
 
@@ -658,7 +658,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:25:19] Will: Oh, we shot tour. We shot a tour of your bus last year, not this year.
 
-[00:25:23] Adam: This, this, this. My bus this year was different. It was Sheryl Crow's old bus.
+[00:25:23] Adam: This. My bus this year was different. It was Sheryl Crow's old bus.
 
 [00:25:27] Norm: Uh huh. Ooh.
 
@@ -702,7 +702,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:26:36] Frank Ippolito: They’re horrible.
 
-[00:26:39] Adam: Right, and they they can be really exhausting. I know Traci Des Jardins talked about being on on different versions of them, and they're they're rough on the contestants. But I like the ones that show craft. Face Off is one that that that it puts craft center
+[00:26:39] Adam: Right, and they can be really exhausting. I know Traci Des Jardins talked about being on different versions of them, and they're rough on the contestants. But I like the ones that show craft. Face Off is one that that that it puts craft center
 
 [00:26:53] Frank Ippolito: It does. But watching watching the Master Chef Junior, I was just like, oh my god, those kids—they're just ruined for the rest of their life.
 
@@ -716,7 +716,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:27:04] Adam: They foment a real camaraderie among all of the kids, and Gordon and the other guy and Joe are all part of that, and you get to watch them be really, really sweet. And there's this big article that came out recently that talked about the fact that. When the cameras aren't rolling, Gordon will step in and help somebody whip something or show them a better way to chop it. These these kids aren't just preternatural geniuses; they are getting some training in cooking while they're working on the show.
 
-[00:27:27] Will: But but then they murder one every week on camera.
+[00:27:27] Will: But then they murder one every week on camera.
 
 [00:27:29] Adam: No no no. Well, the thing is, is that yes, it's a competition show, but you get to watch that. It's not like when people get sent away; everyone's like, " Yeah, I wanted that guy to go." There are no rivalries among these kids. They all want each other to succeed, and that infuses it with a totally different energy than any other competition.
 
@@ -732,7 +732,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:28:12] Frank Ippolito: The BBC versions of any competition shows are much nicer.
 
-[00:28:15] Adam: But Gordon is very specifically like his his stock in trade here is I'm an asshole, right? I'm the asshole. But in in in Kitchen Nightmares, there's a BBC one in France where he helps this vegetarian restaurant in Paris, right? Terrible idea. And he helps put them back on their feet, and the restaurant closes. And he goes back at the end of the show two months later to see how they did, and they closed. And he had specifically found them this like 22 year old Scottish girl to be their chef because he really liked her attitude, and he thought she had what it took. And he sat down with her at lunch, and he's like, " So it just closed? Tell me the story." She told him, and he's like, " Right, if they don't know what to do with you, I do. Come back to London, and I'll set you up." And he puts her in one of his kitchens, and you get to see the fact that this guy prizes real craft and is loyal to the people that work for him. And you know, I've heard he is a yeller, like a like you know part of that kitchen culture, but also fiercely loyal to the people that he really loves. That That are crafted.
+[00:28:15] Adam: But Gordon is very specifically like his his stock in trade here is I'm an asshole, right? I'm the asshole. But in Kitchen Nightmares, there's a BBC one in France where he helps this vegetarian restaurant in Paris, right? Terrible idea. And he helps put them back on their feet, and the restaurant closes. And he goes back at the end of the show two months later to see how they did, and they closed. And he had specifically found them this like 22 year old Scottish girl to be their chef because he really liked her attitude, and he thought she had what it took. And he sat down with her at lunch, and he's like, " So it just closed? Tell me the story." She told him, and he's like, " Right, if they don't know what to do with you, I do. Come back to London, and I'll set you up." And he puts her in one of his kitchens, and you get to see the fact that this guy prizes real craft and is loyal to the people that work for him. And I've heard he is a yeller, like a like you know part of that kitchen culture, but also fiercely loyal to the people that he really loves. That That are crafted.
 
 [00:29:12] Will: If you make it through the gauntlet,
 
@@ -752,7 +752,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:29:58] Frank Ippolito: Okay. I think that I have these like really kind of weird like PTSD flashbacks when I see that because I see how things are edited and how things are cut, and I'm like. Oh my God! I know what those guys are going through. I know what they're not showing. Like you can feel what they're not showing, and because I've been in that situation, I'm just like, Oh my God! These kids are going to be so worked over after this.
 
-[00:30:18] Adam: And very specifically, the part that makes me nervous on that front is, you know, all of these reality shows cut to the participants'
+[00:30:18] Adam: And very specifically, the part that makes me nervous on that front is all of these reality shows cut to the participants'
 
 [00:30:27] Will: confessional
 
@@ -766,17 +766,17 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:31:32] Will: The first season, right?
 
-[00:31:32] Frank Ippolito: On on both seasons, they would say, " Oh, were you really mad at that person?" I'd say, " No, I wasn't mad. I wasn’t. Yeah." Like,
+[00:31:32] Frank Ippolito: On both seasons, they would say, " Oh, were you really mad at that person?" I'd say, " No, I wasn't mad. I wasn’t. Yeah." Like,
 
 [00:31:39] Norm: can you fight back?
 
-[00:31:41] Frank Ippolito: Yeah, you can fight back because if you don't say it to them, they can't they can't air it.
+[00:31:41] Frank Ippolito: Yeah, you can fight back because if you don't say it to them, they can't air it.
 
 [00:31:45] Will: You have to give those words for a story.
 
-[00:31:47] Frank Ippolito: Yeah, so if you if you craft the way you say things so that it won't be like that dude's a dick.
+[00:31:47] Frank Ippolito: Yeah, so if you craft the way you say things so that it won't be like that dude's a dick.
 
-[00:31:52] Adam: But let me let me also put it another way, thinking both from a performer and producer standpoint, and I've told this to people who are on reality television, both scripted reality, like I guess mine's scripted reality.
+[00:31:52] Adam: But let me also put it another way, thinking both from a performer and producer standpoint, and I've told this to people who are on reality television, both scripted reality, like I guess mine's scripted reality.
 
 [00:32:04] Will: I think that's the category you're in.
 
@@ -792,7 +792,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:32:35] Unknown speaker: You're smarter than me.
 
-[00:32:36] Adam: It doesn't matter what story they're going to cut with. They're they tend to, they tend to. Producers will tend to go for the easiest story they can see, yeah, because they've got a lot of stories to tell. Those, how many cameras? 16, 20 cameras running constantly. They're editing thousands of hours of footage down to 50 minutes per week. Their job is tough. Oh yeah, so they're looking for the low hanging fruit. The trick is, if you're one of the contestants, you don't have to give them exactly what they're asking for. You can, but you'll be in better position if you give them something else that works.
+[00:32:36] Adam: It doesn't matter what story they're going to cut with. They're they tend to. Producers will tend to go for the easiest story they can see, yeah, because they've got a lot of stories to tell. Those, how many cameras? 16, 20 cameras running constantly. They're editing thousands of hours of footage down to 50 minutes per week. Their job is tough. Oh yeah, so they're looking for the low hanging fruit. The trick is, if you're one of the contestants, you don't have to give them exactly what they're asking for. You can, but you'll be in better position if you give them something else that works.
 
 [00:33:06] Will: The thing that makes me crazy about competition reality.
 
@@ -816,7 +816,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:34:04] Norm: Stain, for stain, like.
 
-[00:34:06] Will: Um. I don't know how you ended up on this, but
+[00:34:06] Will: I don't know how you ended up on this, but
 
 [00:34:10] Frank Ippolito: [unclear: that’s tour.]
 

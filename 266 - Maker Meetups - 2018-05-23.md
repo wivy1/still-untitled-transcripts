@@ -48,13 +48,13 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:01:46] Will: Really, why are the engine nacelles hard?
 
-[00:01:47] Adam: they're just they're a pain in the butt to to model, right? Everything else you could kind of do with plywood, but those you you can't quite. The Vallejo Mercs came up with this. I don't know if it was Vallejo Mercs, but the the guy driving it came up with a great solution for both. The bubble window was a skylight he cut up.
+[00:01:47] Adam: they're just they're a pain in the butt to model, right? Everything else you could kind of do with plywood, but those you can't quite. The Vallejo Mercs came up with this. I don't know if it was Vallejo Mercs, but the guy driving it came up with a great solution for both. The bubble window was a skylight he cut up.
 
 [00:02:04] Will: Oh man, that's super smart.
 
 [00:02:05] Adam: I know. And the engines were old conga drums. They were the perfect. Oh man,
 
-[00:02:11] Norm: they're long and and
+[00:02:11] Norm: they're long and
 
 [00:02:13] Adam: they're fatter at the front than they are at the end, and they cut them up and put some details on the sides, and they were.
 
@@ -76,15 +76,15 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:02:30] Unknown speaker (Norm or Adam): too?
 
-[00:02:30] Norm: One of the people we met, a guy named Adam Adam Woodworth, who who makes foam Star Wars quadcopter. So he he
+[00:02:30] Norm: One of the people we met, a guy named Adam Adam Woodworth, who who makes foam Star Wars quadcopter. So he
 
 [00:02:41] Adam: Oh, did he do that?
 
-[00:02:42] Norm: Well, he he also he works for Google. Also, did
+[00:02:42] Norm: Well, he also he works for Google. Also, did
 
 [00:02:44] Adam: he do the Tyridium shuttle that I saw recently?
 
-[00:02:47] Norm: Is uh that yeah the Imperial shuttle? Yeah, yeah. Yeah. So he said that one. So the Imperial shuttle that not only does it fly, but also the wings go up and down.
+[00:02:47] Norm: Is that yeah the Imperial shuttle? Yeah, yeah. Yeah. So he said that one. So the Imperial shuttle that not only does it fly, but also the wings go up and down.
 
 [00:02:56] Adam: No, it's so
 
@@ -96,7 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:03:05] Unknown speaker (Adam or Will or Norm): Oh, it's all just big sail.
 
-[00:03:05] Norm: But because he was flying it indoors at Maker Faire in their their cage, it was perfect, perfect. And he's done a he's done you know a Slave One which flies upright. He's done an Imperial Droid which goes, and he's an X-wing that goes a VTOL. Oh,
+[00:03:05] Norm: But because he was flying it indoors at Maker Faire in their cage, it was perfect, perfect. And he's done a he's done you know a Slave One which flies upright. He's done an Imperial Droid which goes, and he's an X-wing that goes a VTOL. Oh,
 
 [00:03:23] Adam: he does an Imperial droid?
 
@@ -112,7 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:03:25] Adam: Oh, right.
 
-[00:03:25] Norm: that is a three wheeled vehicle and fits like an adult, and the land speeder almost fits perfectly around that. And he he what it has is has accelerator, no brakes, but has
+[00:03:25] Norm: that is a three wheeled vehicle and fits like an adult, and the land speeder almost fits perfectly around that. And he what it has is has accelerator, no brakes, but has
 
 [00:03:25] Will: Reverse?
 
@@ -120,7 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:04:06] Will: Well, you can like release the transmission.
 
-[00:04:08] Norm: You you. Lift up the back wheels, and then you start drifting.
+[00:04:08] Norm: You. Lift up the back wheels, and then you start drifting.
 
 [00:04:12] Will: Wow!
 
@@ -140,15 +140,15 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:04:20] Adam: Oh man, this sounds. Do you have footage?
 
-[00:04:22] Norm: I I have footage.
+[00:04:22] Norm: I have footage.
 
 [00:04:22] Adam: It'll go up.
 
-[00:04:22] Norm: There's a video on the site right now about it, and we can build one. The the razor thing is like $250.
+[00:04:22] Norm: There's a video on the site right now about it, and we can build one. The razor thing is like $250.
 
 [00:04:28] Adam: We got to build one.
 
-[00:04:29] Norm: And yeah, and and it's just taking apart the land speeder, putting it on top, and doing some minor tweaks.
+[00:04:29] Norm: And yeah, and it's just taking apart the land speeder, putting it on top, and doing some minor tweaks.
 
 [00:04:33] Will: I think instead of building one, I think you should build two. You're
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:04:42] Will: hopefully not get any injuries.
 
-[00:04:47] Adam: The the the Maker Faire. I keep wanting to say Comic Con because they they feel quite similar in a in a love of what we're doing fan aspect. Like Everyone there is there to play,
+[00:04:47] Adam: The Maker Faire. I keep wanting to say Comic Con because they feel quite similar in a love of what we're doing fan aspect. Like Everyone there is there to play,
 
 [00:04:47] Unknown speaker: Yeah.
 
@@ -188,7 +188,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:05:51] Adam: No, one of them came by me and like said hello.
 
-[00:05:53] Will: So I listened to him talk about how he designed that whole thing. I wasn't going to talk about this, but it's great. So we'll they designed it so they wouldn't waste a ton of helium. So they they wanted to make one bottle of helium last for 48 hours or something insane.
+[00:05:53] Will: So I listened to him talk about how he designed that whole thing. I wasn't going to talk about this, but it's great. So we'll they designed it so they wouldn't waste a ton of helium. So they wanted to make one bottle of helium last for 48 hours or something insane.
 
 [00:06:05] Adam: So they did a helium air mixture.
 
@@ -196,11 +196,11 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:06:15] Adam: Wouldn't he use a Venturi?
 
-[00:06:16] Will: I I I missed that part because I was chasing a five-year-old. But the upshot was one tank of gas lasts a really long time, and the the bubble mixture that they devised is very robust. So the bubbles hold their shape. So they had boxes that were maybe three feet by three three feet or two feet by two feet. Yeah. That had a bubbler in the bottom that was making the bubbles form, and then that would force up the bubbles in a structure in a matrix. Yeah. And then they had forms like oh it was it was like a Play-Doh Fun Factory. Wow. So the forms at the top would shape them into stars or mushrooms or whatever, and then they just cut them off. They were solid enough they could cut them off with a piece of PVC pipe, and then they just kind of float up and go where the wind took them.
+[00:06:16] Will: I missed that part because I was chasing a five-year-old. But the upshot was one tank of gas lasts a really long time, and the bubble mixture that they devised is very robust. So the bubbles hold their shape. So they had boxes that were maybe three feet by three three feet or two feet by two feet. Yeah. That had a bubbler in the bottom that was making the bubbles form, and then that would force up the bubbles in a structure in a matrix. Yeah. And then they had forms like oh it was like a Play-Doh Fun Factory. Wow. So the forms at the top would shape them into stars or mushrooms or whatever, and then they just cut them off. They were solid enough they could cut them off with a piece of PVC pipe, and then they just kind of float up and go where the wind took them.
 
 [00:06:16] Unknown speaker (Will or Norm): That's magic.
 
-[00:06:16] Unknown speaker (Will or Adam): And and like [unclear: no, I know / I know].
+[00:06:16] Unknown speaker (Will or Adam): And like [unclear: no, I know / I know]
 
 [00:06:58] Adam: one of them like moved by me and I was like wow that's amazing.
 
@@ -214,19 +214,19 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:07:09] Norm: To Adam's point about this year having things like cosplay and prop making, I mean full full. Disclosure: Will and I are on the advisory board, and we have good relationships with Make. Like one of the things that in conversations with the people putting on the convention ahead of Maker Faire is letting them know that we'd love to see more of these things
 
-[00:07:26] Will: and different. Like, like I went in and talked about virtual reality and mixed reality and stuff like that. We talked about, and then we ended up talking about board games. So they, they, I don't think we made it in time. We, we had the conversation in time to get them in for for this San Mateo, although there were some board game people there. But like designing board game, a board game is a designed object just like a car or a rocket or anything else, and
+[00:07:26] Will: and different. Like I went in and talked about virtual reality and mixed reality and stuff like that. We talked about, and then we ended up talking about board games. So they, I don't think we made it in time. We had the conversation in time to get them in for this San Mateo, although there were some board game people there. But like designing board game, a board game is a designed object just like a car or a rocket or anything else, and
 
 [00:07:46] Adam: they that has a rabid and dedicated fandom and ecosystem. Yeah,
 
-[00:07:52] Will: well, and in a way that like video games are, video games are more egalitarian now than they have been since the '80s or '90s. But it's still you know depending on the type of game you want, it's a big investment to make a game. A board game is something that you can take dice and paper and cards,
+[00:07:52] Will: well, and in a way that like video games are more egalitarian now than they have been since the '80s or '90s. But it's still you know depending on the type of game you want, it's a big investment to make a game. A board game is something that you can take dice and paper and cards,
 
 [00:07:52] Adam: yeah,
 
-[00:07:52] Will: and and you know do your basic design for practically nothing,
+[00:07:52] Will: and you know do your basic design for practically nothing,
 
 [00:07:52] Adam: totally,
 
-[00:07:52] Will: and just you know practice and figure out what your game is. So yeah, it's it's good stuff.
+[00:07:52] Will: and just you know practice and figure out what your game is. So yeah, it's good stuff.
 
 [00:08:19] Norm: Adam, on Sunday, you also were there to give your. Now it's officially called the Sunday sermon. It's
 
@@ -242,11 +242,11 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:08:55] Will: Norm did it. That Norm right there.
 
-[00:08:56] Adam: This year, I I knew that I wanted to talk about sharing ideas and things and materials and processes. I knew I wanted to talk about sharing your toys, and that's the only thing I held in my brain. So this is sometimes how I do this. I just held that thought in my brain. And Sunday morning, I got up at seven a.m. and in 90 minutes, I wrote that 14-minute piece that I that I spoke, and I was really surprised where it went. I said that on stage, I was I didn't realize it was going to go this philosophical, as it were. But I was really pleased with with how it came out, and the response has been incredibly lovely.
+[00:08:56] Adam: This year, I I knew that I wanted to talk about sharing ideas and things and materials and processes. I knew I wanted to talk about sharing your toys, and that's the only thing I held in my brain. So this is sometimes how I do this. I just held that thought in my brain. And Sunday morning, I got up at seven a.m. and in 90 minutes, I wrote that 14-minute piece that I spoke, and I was really surprised where it went. I said that on stage, I was I didn't realize it was going to go this philosophical, as it were. But I was really pleased with how it came out, and the response has been incredibly lovely.
 
-[00:09:34] Norm: Yeah, we're gonna put the full audio of that after this podcast. But you said it didn't it went somewhere you didn't expect. Is in form like in in structure or just in theme? Like what was it before it ended up being? What it ended up being?
+[00:09:34] Norm: Yeah, we're gonna put the full audio of that after this podcast. But you said it didn't it went somewhere you didn't expect. Is in form like in structure or just in theme? Like what was it before it ended up being? What it ended up being?
 
-[00:09:48] Adam: Um, well, so I just started by talking about the different ways in which people haven't shared with me in the past, and how I found that, and the ways in which I find sharing, uh, again, my stuff, my processes, my knowledge, my things, um, how I find that to be invigorating and self-perpetuating in terms of the energy it takes to make stuff and to be part of a community, um. But the the the probably the last couple of minutes, I I just went straight towards the the the raw philosophy of why that's so important to me and why so it's so important right now. And then I talked about being able to listen to other people's stories. I've talked a lot about telling our stories, and frankly, lately I've been confronting the fact that there are many situations in which I don't listen enough. This has been something. This has been something that I've known about and been dealing with my whole life. But I decided to talk about that on stage and not from a vantage point of I know this, so you should follow this. It's that we really need to listen to the stories of the people whose experience is radically different than ours. And you know, I I it I was surprised when I wrote it how true this was. But I said, you know, shutting out the voices of others has never been a path to greatness. This is like. That is one of the most unassailable things I have ever written down. Of like, yep, nope, that checks out. I am never, I can defend that with my life.
+[00:09:48] Adam: Um, well, so I just started by talking about the different ways in which people haven't shared with me in the past, and how I found that, and the ways in which I find sharing again, my stuff, my processes, my knowledge, my things how I find that to be invigorating and self-perpetuating in terms of the energy it takes to make stuff and to be part of a community. But the probably the last couple of minutes, I I just went straight towards the raw philosophy of why that's so important to me and why so it's so important right now. And then I talked about being able to listen to other people's stories. I've talked a lot about telling our stories, and frankly, lately I've been confronting the fact that there are many situations in which I don't listen enough. This has been something. This has been something that I've known about and been dealing with my whole life. But I decided to talk about that on stage and not from a vantage point of I know this, so you should follow this. It's that we really need to listen to the stories of the people whose experience is radically different than ours. And I I it I was surprised when I wrote it how true this was. But I said shutting out the voices of others has never been a path to greatness. This is like. That is one of the most unassailable things I have ever written down. Of like, yep, nope, that checks out. I am never, I can defend that with my life.
 
 [00:11:22] Norm: And I love that sharing defies the laws of physics.
 
@@ -254,19 +254,19 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:11:26] Will: Yeah. Fight entropy, man.
 
-[00:11:28] Norm: Yeah. But but also like sharing and listening are the acts, but generosity, which is what you started with, is the motivation.
+[00:11:28] Norm: Yeah. But also like sharing and listening are the acts, but generosity, which is what you started with, is the motivation.
 
-[00:11:37] Adam: Well, and it's this, and it's the side product. I mean, sitting there and listening to someone else's experience and watching and and really engaging. Look, I I recently a few weeks ago I was at dinner with someone who was being a little bit of a blowhard, and I was watching them talk to me, and I was thinking, Wow, this is a little boring. But then I was thinking, how many people have I buttonholed from the other side of this exact equation? How many? Oh my God, so many! I am going to sit here and listen to this guy, and I'm going to ask him more questions about the things he's talking about, and I watched. Him just light up, and I was like, " Right, we all want to be seen and heard, and it's it's a it's a great practice to listen. And I I I am not as good at it as I wish I was, and I seek to be better.
+[00:11:37] Adam: Well, and it's this, and it's the side product. I mean, sitting there and listening to someone else's experience and watching and really engaging. Look, I I recently a few weeks ago I was at dinner with someone who was being a little bit of a blowhard, and I was watching them talk to me, and I was thinking, Wow, this is a little boring. But then I was thinking, how many people have I buttonholed from the other side of this exact equation? How many? Oh my God, so many! I am going to sit here and listen to this guy, and I'm going to ask him more questions about the things he's talking about, and I watched. Him just light up, and I was like, " Right, we all want to be seen and heard, and it's it's a it's a great practice to listen. And I I I am not as good at it as I wish I was, and I seek to be better.
 
-[00:12:32] Norm: Yeah, I think that's all that's all there to say about it. It's worth totally listening to the videos on the site. But again, if you're listening to the podcast, [unclear: we’re going to / I’m going to / I want to] put that at the end of the podcast.
+[00:12:32] Norm: Yeah, I think that's all there to say about it. It's worth totally listening to the videos on the site. But again, if you're listening to the podcast, [unclear: we’re going to / I’m going to / I want to] put that at the end of the podcast.
 
 [00:12:42] Adam: Cool. Also signed autographs for a couple of hours. Such great stories. People bring stuff to give me. They bring stuff to show me. A couple of young illustrators did drawings with beautiful. I mean, it's intense when some 13 year old kid brings their sketchbook for me to sign and said, " I started drawing because of watching your videos on Tested, and they're so much better at drawing than I will ever be, and that is like awesome.
 
-[00:13:08] Will: But that's great. I mean, that like that that stuff like that's the thing that I love. I've said this before, I know, but the thing that I love about Maker Faire is walking around and looking at five year olds who are tired of looking at robots because I'm like, oh right, if there's a five year old that's that's They've seen more robots in the first five minutes walking around Maker Faire than I saw until I was 20, probably.
+[00:13:08] Will: But that's great. I mean, that like that that stuff like that's the thing that I love. I've said this before, I know, but the thing that I love about Maker Faire is walking around and looking at five year olds who are tired of looking at robots because I'm like, oh right, if there's a five year old that's They've seen more robots in the first five minutes walking around Maker Faire than I saw until I was 20, probably.
 
 [00:13:08] Adam: Yeah.
 
-[00:13:08] Will: And like the things that these kids, we're we're we're already starting to see it. The kids, you know, a few years ago when we saw the kids that made the Battlestar Galactica simulator, they were like high school kids. They've been coming to Maker Faire since they were eight, and when they were 15, they decided they wanted to build a three-axis space sim. You know, like a a flight trainer, cockpit flight trainer. Um, we see stuff like it's like open ROV. Those guys have been coming to Maker Faire since I've been coming to Maker Faire.
+[00:13:08] Will: And like the things that these kids, we're already starting to see it. The kids, you know, a few years ago when we saw the kids that made the Battlestar Galactica simulator, they were like high school kids. They've been coming to Maker Faire since they were eight, and when they were 15, they decided they wanted to build a three-axis space sim. Like a flight trainer, cockpit flight trainer. We see stuff like it's like open ROV. Those guys have been coming to Maker Faire since I've been coming to Maker Faire.
 
 [00:13:08] Adam: Yeah, yeah.
 
@@ -274,11 +274,11 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:14:11] Adam: Actually, some little girl at my autograph signing, she was like, " I I have made some robots." I was like, " Oh, have you made any robots recently?" And she's like, " Nah, just an underwater one."
 
-[00:14:20] Will: Yeah, yeah. Like the the things the things that the these kids are exposed to. Shapes the way they view the world, and like
+[00:14:20] Will: Yeah, yeah. Like the things that the these kids are exposed to. Shapes the way they view the world, and like
 
 [00:14:20] Unknown speaker (Adam or Will): And what's possible
 
-[00:14:20] Will: and and what's possible for them to do. And my daughter walks away from this; she's five. She walks away from this, and she says, " Oh, I want to be. I want to make everything. I want to do everything when I grow up." What do you want? Did you see anything you might want to do when you grow up? I want to do everything.
+[00:14:20] Will: and what's possible for them to do. And my daughter walks away from this; she's five. She walks away from this, and she says, " Oh, I want to be. I want to make everything. I want to do everything when I grow up." What do you want? Did you see anything you might want to do when you grow up? I want to do everything.
 
 [00:14:42] Adam: Everything. You know what else I love about Maker Faire is how many of our awesome friends and colleagues come to town.
 
@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:16:02] Will: Gorilla walker.
 
-[00:16:03] Norm: I was surprised you didn't want to come in on, on your speech in that.
+[00:16:03] Norm: I was surprised you didn't want to come in on your speech in that.
 
 [00:16:05] Will: I understand.
 
@@ -320,7 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:16:14] Adam: It’s a beautiful device.
 
-[00:16:15] Norm: It's it's not like a Strandbeest linkage system. It
+[00:16:15] Norm: It's not like a Strandbeest linkage system. It
 
 [00:16:18] Will: looks like it is, but, no.
 
@@ -334,17 +334,17 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:16:44] Norm: Yeah,
 
-[00:16:44] Will: like that was part of part of his thing.
+[00:16:44] Will: like that was part of his thing.
 
 [00:16:46] Adam: There was another guy there in a Strandbeest wheelchair.
 
 [00:16:49] Norm: Yes. Yes. Oh, so elegant,
 
-[00:16:51] Adam: so elegant. And he he he was telling me he had me sign the first. I think it was the first part that failed on it. Oh, cool. And he said he was he had built it for Burning Man last year and it had failed just before leaving for Burning Man, so he couldn't bring it. Um, and so he's like, I was. He's like, I'm here at Maker Faire learning new ways that it fails.
+[00:16:51] Adam: so elegant. And he was telling me he had me sign the first. I think it was the first part that failed on it. Oh, cool. And he said he was he had built it for Burning Man last year and it had failed just before leaving for Burning Man, so he couldn't bring it. And so he's like, I was. He's like, I'm here at Maker Faire learning new ways that it fails.
 
 [00:16:51] Will: Yeah,
 
-[00:16:51] Adam: and it it was very smooth, and I kept looking underneath for wheels. No wheels. That is solely on the footpath.
+[00:16:51] Adam: and it was very smooth, and I kept looking underneath for wheels. No wheels. That is solely on the footpath.
 
 [00:17:16] Norm: So many feet.
 
@@ -352,15 +352,15 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:17:17] Adam: There’s a lot of Strandbeests there that have wheels as a backup, not this one.
 
-[00:17:21] Will: Yeah. So, and it's not just the big scale stuff. It's not the stuff that somebody spends 1,000 hours on some enormous project or 200,000 hours on a huge enormous project like the prosthesis. Um. There were there were people there was a there was a team that 3D prints marble mazes like little fidget mazes where the marbles go through and they had built they built a bunch of incredible designs they were in a little booth in one of the big big big rooms but they had designed a Sisyphus climber
+[00:17:21] Will: Yeah. So, and it's not just the big scale stuff. It's not the stuff that somebody spends 1,000 hours on some enormous project or 200,000 hours on a huge enormous project like the prosthesis. There were people there was a team that 3D prints marble mazes like little fidget mazes where the marbles go through and they had built they built a bunch of incredible designs they were in a little booth in one of the big big big rooms but they had designed a Sisyphus climber
 
 [00:17:21] Adam: oh
 
-[00:17:21] Will: that used an incredibly clever magnetic link like magnetic armature to to kind of like so okay it's a it's a cork it's a screw like a screw on the outside the marble rides the screw down when it when it gets to the top
+[00:17:21] Will: that used an incredibly clever magnetic link like magnetic armature to kind of like so okay it's a cork it's a screw like a screw on the outside the marble rides the screw down when it gets to the top
 
 [00:17:21] Norm: yeah
 
-[00:17:21] Will: and then there's a magnet that just rotates around the inside of a cylinder on the inside of the screw that rides it back up to the top of the of the thing and they designed it they worked on it enough so that like it's 3D printed the angle of the slope was right so that the magnet wouldn't catch the ball on the way down
+[00:17:21] Will: and then there's a magnet that just rotates around the inside of a cylinder on the inside of the screw that rides it back up to the top of the thing and they designed it they worked on it enough so that like it's 3D printed the angle of the slope was right so that the magnet wouldn't catch the ball on the way down
 
 [00:17:21] Norm: right
 
@@ -368,21 +368,21 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:17:21] Norm: wow
 
-[00:17:21] Will: and it was it's like it's just it's just somebody was like I want to make this thing I think it's going to be really cool and then they spent the time to figure it out and like they solved it's a problem that didn't. exist. There's no obvious, you know, Like it's not a, it's not, it's neat, right?
+[00:17:21] Will: and it was it's like it's just somebody was like I want to make this thing I think it's going to be really cool and then they spent the time to figure it out and like they solved it's a problem that didn't. exist. There's no obvious Like it's not a, it's not, it's neat, right?
 
 [00:17:21] Norm: Yeah.
 
-[00:17:21] Will: The the entirety of it is that it's neat, and that stuff is incredible.
+[00:17:21] Will: The entirety of it is that it's neat, and that stuff is incredible.
 
-[00:18:40] Adam: Uh, I got inspired, and I realized also that we go into full production on Mythbusters Junior very soon.
+[00:18:40] Adam: I got inspired, and I realized also that we go into full production on Mythbusters Junior very soon.
 
 [00:18:40] Will: Yeah.
 
-[00:18:40] Adam: Um, and that I realized, oh, I've got to build my Comic Con costume now.
+[00:18:40] Adam: And that I realized, oh, I've got to build my Comic Con costume now.
 
 [00:18:40] Will: Oh, right.
 
-[00:18:40] Adam: Because I'm gonna time is gonna get short very quickly, so I made great strides on on my Comic Con build yesterday.
+[00:18:40] Adam: Because I'm gonna time is gonna get short very quickly, so I made great strides on my Comic Con build yesterday.
 
 [00:18:58] Norm: I'm like, Adam, it's May. This we've never seen you work on a Comic Con costume in May before.
 
@@ -392,7 +392,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:19:08] Will: really early.
 
-[00:19:09] Adam: I'm just making sure I don't get caught out. I I also have before Comic Con, I'm also heading to do a to an artist colony to do some construction of a special project I'm working on. Um, and so that too is also something that I have to get up and running, and I might be using photogrammetry of some old data that I gathered in order to make this other project work.
+[00:19:09] Adam: I'm just making sure I don't get caught out. I also have before Comic Con, I'm also heading to do a to an artist colony to do some construction of a special project I'm working on. And so that too is also something that I have to get up and running, and I might be using photogrammetry of some old data that I gathered in order to make this other project work.
 
 [00:19:35] Norm: That's cool.
 
@@ -402,7 +402,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:19:37] Will: Anything else you saw that was exceptional?
 
-[00:19:39] Norm: Well, one of the things I wanted to point out is that Adam talks about a lot of people coming into town, right? And it's New York is officially the World Maker Faire, but I met a lot of people who had come from other countries, from Australia, from England, for Bay Area Maker Faire, and there was like definitely a Silicon Valley vibe to some of the projects there. I never thought a Maker Faire in my mind was never like a Comic Con or Dragon Con. It was always like the the event for the hours from 10 to 6. That's the fair. But when we went to a Comic Con, there's a lot of after parties, right? And this is the first year I heard about a lot of the after stuff that went on. A lot of people, like Bill and Laura, who met up at restaurants and bars and and and groups that set up meetups after Maker Faire, and I think it's something that we'd love to see more of.
+[00:19:39] Norm: Well, one of the things I wanted to point out is that Adam talks about a lot of people coming into town, right? And it's New York is officially the World Maker Faire, but I met a lot of people who had come from other countries, from Australia, from England, for Bay Area Maker Faire, and there was like definitely a Silicon Valley vibe to some of the projects there. I never thought a Maker Faire in my mind was never like a Comic Con or Dragon Con. It was always like the event for the hours from 10 to 6. That's the fair. But when we went to a Comic Con, there's a lot of after parties, right? And this is the first year I heard about a lot of the after stuff that went on. A lot of people, like Bill and Laura, who met up at restaurants and bars and groups that set up meetups after Maker Faire, and I think it's something that we'd love to see more of.
 
 [00:20:22] Will: Yeah, I think that'd be great.
 
@@ -410,7 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:20:28] Adam: Very little time to really engage
 
-[00:20:30] Norm: and and to meet your fellow people. Yeah. Afterward, at a Shared space close to the fairgrounds. I think is something that I would love to join more of those next year.
+[00:20:30] Norm: and to meet your fellow people. Yeah. Afterward, at a Shared space close to the fairgrounds. I think is something that I would love to join more of those next year.
 
 [00:20:39] Will: I think that would be cool.
 
@@ -430,15 +430,15 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:20:52] Will: Oh.
 
-[00:20:52] Norm: But we did see some trains in one point in in the past year. One group, model train builders who make steam real steam trains that run on Welsh coal, clean Welsh coal, and they they. Not electric, not electric.
+[00:20:52] Norm: But we did see some trains in one point in the past year. One group, model train builders who make steam real steam trains that run on Welsh coal, clean Welsh coal, and they. Not electric.
 
 [00:21:11] Will: There's no such thing as clean coal, Norm.
 
-[00:21:11] Norm: I know. I know the the cleanest you could have it. The most sanctioned. coal.
+[00:21:11] Norm: I know. I know the cleanest you could have it. The most sanctioned. coal.
 
 [00:21:15] Will: there you go. The pieces of coal that they use are about this big. They're about about a half an inch
 
-[00:21:20] Norm: square. The engineers are scooping the coal into the burners and explaining how at that small scale they have to run. You know, they have to tune their engine, make sure the cooling's there, the the they self lubricate, and they run around the track. And because there's no engineer on the train. They have to make sure it all works because if you run a train, you got to change the power for elevation and braking.
+[00:21:20] Norm: square. The engineers are scooping the coal into the burners and explaining how at that small scale they have to run. They have to tune their engine, make sure the cooling's there, the they self lubricate, and they run around the track. And because there's no engineer on the train. They have to make sure it all works because if you run a train, you got to change the power for elevation and braking.
 
 [00:21:45] Adam: That's true. That's
 
@@ -450,11 +450,11 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:22:06] Norm: So you do no adjustments needed for elevation.
 
-[00:22:07] Will: Right. So they don't adjust speed and stuff, and they don't, you know, crash right coming down the hill. And what they've done is they have four articulated legs that are like the sliding kind of tripod legs with the with the friction mounts, but they put round bubble levels on each end of each platform. So they level the first one, and then they level the second one, and they just keep working their way around like they're laying tracks. And as long as each individual piece is level. After the first one, then when they get to the other side, then it connects.
+[00:22:07] Will: Right. So they don't adjust speed and stuff, and they don't, you know, crash right coming down the hill. And what they've done is they have four articulated legs that are like the sliding kind of tripod legs with the friction mounts, but they put round bubble levels on each end of each platform. So they level the first one, and then they level the second one, and they just keep working their way around like they're laying tracks. And as long as each individual piece is level. After the first one, then when they get to the other side, then it connects.
 
 [00:22:38] Unknown speaker (Adam or unknown speaker): Oh, yeah, I guess you're right.
 
-[00:22:38] Adam: You know, they they make connected bubble levels for pool tables.
+[00:22:38] Adam: They make connected bubble levels for pool tables.
 
 [00:22:44] Will: Oh, like on a bar
 
@@ -508,11 +508,11 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:24:21] Adam: So inspiring.
 
-[00:24:22] Will: Um, hey, shout out to the R2 and BB-8 builders clubs because they are always there in force.
+[00:24:22] Will: Hey, shout out to the R2 and BB-8 builders clubs because they are always there in force.
 
 [00:24:22] Adam: They are,
 
-[00:24:22] Will: and the thing that they do is magic. Like if you want to, if you want to smile a lot, I have. This is the closest I've ever felt to being inside your Chewbacca costume. But if you walk around and follow some people driving R2's,
+[00:24:22] Will: and the thing that they do is magic. Like if you want to smile a lot, I have. This is the closest I've ever felt to being inside your Chewbacca costume. But if you walk around and follow some people driving R2's,
 
 [00:24:22] Adam: yeah.
 
@@ -528,7 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:24:56] Adam: awesome.
 
-[00:24:56] Will: It is the best. And like those those people spend thousands of hours building these robots. They take them out. They drive them out into the crowd of people at Maker Faire, and it's got to be scary and exciting and all the all of the things. But it's it's one of my favorite things.
+[00:24:56] Will: It is the best. And like those those people spend thousands of hours building these robots. They take them out. They drive them out into the crowd of people at Maker Faire, and it's got to be scary and exciting and all the all of the things. But it's one of my favorite things.
 
 [00:25:25] Adam: So awesome!
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:25:30] Will: A lot of plane travel.
 
-[00:25:31] Adam: I was yeah, I was in I was on United going to Florida and back, and so I watched it twice on the way there and once on the way back. Can I tell you that movie gets better every single time you watch it? I cry every time, and man. I can't figure out who's the villain anymore. I I agree entirely with Killmonger, except that he's a monster.
+[00:25:31] Adam: I was yeah, I was in I was on United going to Florida and back, and so I watched it twice on the way there and once on the way back. Can I tell you that movie gets better every single time you watch it? I cry every time, and man. I can't figure out who's the villain anymore. I agree entirely with Killmonger, except that he's a monster.
 
 [00:25:50] Will: Yeah, except for the you know yeah, other than the murder, mass murder problem.
 
@@ -550,7 +550,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:26:05] Norm: Yes.
 
-[00:25:55] Adam: Um, that was.
+[00:25:55] Adam: That was.
 
 [00:26:05] Norm: I saw you in the cave practicing your whip yesterday.
 
@@ -602,7 +602,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:27:00] Norm: which is a subtle reminder that we all have homework this week. Because I'm sure we'll be talking about the movie next week.
 
-[00:27:09] Adam: Can I tell you what I'm nervous about about Solo? And I have I have not watched a single trailer.
+[00:27:09] Adam: Can I tell you what I'm nervous about about Solo? And I have not watched a single trailer.
 
 [00:27:09] Norm: Yeah,
 
@@ -626,7 +626,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:27:35] Adam: Okay. All right.
 
-[00:27:35] Will: Because there was a there was a real talk about what Andy Serkis does and how there's a direct lineage from Peter Mayhew and Kenny Baker and Anthony Daniels.
+[00:27:35] Will: Because there was a real talk about what Andy Serkis does and how there's a direct lineage from Peter Mayhew and Kenny Baker and Anthony Daniels.
 
 [00:27:58] Adam: Oh, that's a lovely thing. You're totally right.
 
@@ -636,7 +636,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:28:02] Adam: Andy Serkis and Josh Brolin and
 
-[00:28:04] Will: exactly how that's never been really recognized as a separate as a as a as a like for a long time the guys in the suits were not given serious performer credit.
+[00:28:04] Will: exactly how that's never been really recognized as a separate as a like for a long time the guys in the suits were not given serious performer credit.
 
 [00:28:04] Adam: Right. Right. Right.
 
@@ -644,15 +644,15 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:28:18] Norm: Terry Notary and yeah,
 
-[00:28:19] Will: but but yeah, but it's still it's they're kind of too
+[00:28:19] Will: but yeah, but it's still it's they're kind of too
 
 [00:28:23] Adam: yeah, it’s still in this nether region of acting
 
 [00:28:23] Will: Yeah.
 
-[00:28:23] Adam: that's not that's not getting its full due.
+[00:28:23] Adam: that's not getting its full due.
 
-[00:28:29] Will: Well, you you can't see their faces Adam,
+[00:28:29] Will: Well, you can't see their faces Adam,
 
 [00:28:31] Norm: so it's not real acting. I got two more things before we wrap up. One related to puppetry. There's a great video that's being shared around on Twitter last week. Of an outtake from a Jim Henson production. It's Frank Oz.
 
@@ -668,7 +668,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:28:48] Will: The outtake.
 
-[00:28:50] Norm: If you the outtake, if you watch it, it's like there are two videos, total of like three minutes, but it will make you smile and and laugh. It's basically they stay in character.
+[00:28:50] Norm: If you the outtake, if you watch it, it's like there are two videos, total of like three minutes, but it will make you smile and laugh. It's basically they stay in character.
 
 [00:28:50] Adam: Yeah.
 
@@ -716,7 +716,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:30:56] Adam: Oh wow! There you go. So I know what you're doing next month.
 
-[00:30:58] Will: So yeah, I was gonna say this is the other thing about Maker Faire is if you're into something weird and you have a heart, like you don't have the time to go drill down through 3,000 forum posts to figure out how you meet other people who are into this weird thing. Yeah. I was talking to some tiny houses people at Maker Faire, and I'm not super into tiny houses, but like it's an interesting topic. And I was like, " How did you get into this?" Well, actually, we came to Maker Faire last year. There were some tiny houses people here, and and you’re like like that's the power of getting all these people in the same place. That's that's super cool. Yeah.
+[00:30:58] Will: So yeah, I was gonna say this is the other thing about Maker Faire is if you're into something weird and you have a heart, like you don't have the time to go drill down through 3,000 forum posts to figure out how you meet other people who are into this weird thing. Yeah. I was talking to some tiny houses people at Maker Faire, and I'm not super into tiny houses, but like it's an interesting topic. And I was like, " How did you get into this?" Well, actually, we came to Maker Faire last year. There were some tiny houses people here, and you’re like that's the power of getting all these people in the same place. That's super cool. Yeah.
 
 [00:31:28] Norm: I was blown away.
 
@@ -724,15 +724,15 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:31:29] Norm: Yeah.
 
-[00:31:29] Will: I can't believe that you use this this 18th century technology, telephone, 19th century technology.
+[00:31:29] Will: I can't believe that you use this 18th century technology, telephone, 19th century technology.
 
 [00:31:35] Adam: Margaret, Margaret, hook me up to Pennsylvania 6-5000.
 
-[00:31:39] Norm: Uh, next week I think we'll probably be talking about solo.
+[00:31:39] Norm: Next week I think we'll probably be talking about solo.
 
 [00:31:42] Will: Oh yeah, yeah, yeah, I’ll have to go see it this weekend.
 
-[00:31:43] Norm: yeah. Or or Deadpool. I don't know. We'll choose our poison. Yeah, one of those. They're both supposed to be good.
+[00:31:43] Norm: yeah. Or Deadpool. I don't know. We'll choose our poison. Yeah, one of those. They're both supposed to be good.
 
 [00:31:49] Will: Did you guys see that that on Reddit today? Fans of Donald Glover have taken over, not the bad the Donald, but the slightly less bad the Donald subreddit, and made that the subreddit for the one true Donald.
 
@@ -764,11 +764,11 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:32:38] Norm: Bye. We'll see you next time.
 
-[00:33:14] Adam: Hello. All right. I can't shake hands with everyone yet. Hello, hello, Maker Faire. Another big hurrah for Rabid Transit, please. Thank you guys for keeping me warm, and to the Vallejo Mercs who got me here and the got me there in the in the Land Speeder 501st. I love you guys.
+[00:33:14] Adam: Hello. All right. I can't shake hands with everyone yet. Hello, hello, Maker Faire. Another big hurrah for Rabid Transit, please. Thank you guys for keeping me warm, and to the Vallejo Mercs who got me here and the got me there in the Land Speeder 501st. I love you guys.
 
 [00:33:34] Unknown audience voice: Ah,
 
-[00:33:35] Adam: here's another year. Um, I uh, I've been thinking about what I was going to say this morning for weeks. I wrote it down this morning, and I didn't expect it to go where it went. But here we go.
+[00:33:35] Adam: here's another year. I I've been thinking about what I was going to say this morning for weeks. I wrote it down this morning, and I didn't expect it to go where it went. But here we go.
 
 My life is centered around the stories that we tell each other. It is centered around the products of our making, and the stories that those objects bring with them, as well as the stories they tell. But I have ignored, sometimes, a key aspect of what happens when we make, and that aspect is generosity. Our making, in and of itself, is a radical and deeply generous human act. When we construct, code, sew, or bake something new into existence, we are no longer passive observers or simple receivers of the realities around us. We declare ourselves participants. We are installing light on a path that others may choose to follow. Whenever we put something into the world that didn't exist, we're trying to solve a problem that we see. It might simply be. How to paint a portrait of a person in front of us, or it might be how to elicit a specific emotion with sound. It might be how to safely pull a shark from the water for tagging with $20 worth of local hardware. It might be how to turn oneself into an approximation of a favorite superhero, or how to bypass a local crumbling infrastructure to ensure the safe distribution of medicine to far-flung and hard-to-serve communities.
 

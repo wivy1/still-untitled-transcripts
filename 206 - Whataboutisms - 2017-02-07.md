@@ -52,7 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:01:25] Simone: What's the biggest thing that's happened?
 
-[00:01:26] Adam: The biggest thing is that I was in. I went to Europe. I just was in Los Angeles and Europe for a couple of weeks. I've been filming a job for a client, which will become apparent in the next few couple of months. Working with a wonderful co-host, science communicator Alie Ward. She's fantastic and really awesome. And so I, my son also, thing two performed in London as part of an a cappella conference that was happening there with his vocal troupe from Oakland School for the Arts. Okay. Um. So. It happened to be that I was able to dovetail a business trip on going to London, so I flew to London on a Friday, saw him perform, hung out there Friday and Saturday, flew to Berlin on Sunday, spent 24 hours in Berlin, saw two of the oldest friends I have in the world, the amazing Stephen and Dagmar, who met because when I got married the first time, Steve Stephen didn't get the address to my bachelor party and was in the wrong hotel
+[00:01:26] Adam: The biggest thing is that I was in. I went to Europe. I just was in Los Angeles and Europe for a couple of weeks. I've been filming a job for a client, which will become apparent in the next few couple of months. Working with a wonderful co-host, science communicator Alie Ward. She's fantastic and really awesome. And so I, my son also, thing two performed in London as part of an a cappella conference that was happening there with his vocal troupe from Oakland School for the Arts. Okay. So. It happened to be that I was able to dovetail a business trip on going to London, so I flew to London on a Friday, saw him perform, hung out there Friday and Saturday, flew to Berlin on Sunday, spent 24 hours in Berlin, saw two of the oldest friends I have in the world, the amazing Stephen and Dagmar, who met because when I got married the first time, Steve Stephen didn't get the address to my bachelor party and was in the wrong hotel
 
 [00:02:26] Simone: Oh.
 
@@ -68,7 +68,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:02:34] Simone: That is an amazing story.
 
-[00:02:35] Adam: And they they had a daughter, Marlena. Marlena, I was I think one of the very first humans to meet her when she was fresh on this planet, and she's now 16 and amazing. And I we got to sit there, two of my oldest friends and I, in a in a restaurant in Berlin, looking at our teenagers being like full adults sitting in front of us. It was awesome. So then we went to from Berlin. We went to Rostock, and then a couple of other towns, finishing up in Papenburg. I got a helicopter flight out into the North Sea as part of this job, which was pretty amazing. And then from there, 16 hours in Amsterdam before flying home. And I have not been to Amsterdam. Holy cow! It's gorgeous.
+[00:02:35] Adam: And they had a daughter, Marlena. Marlena, I was I think one of the very first humans to meet her when she was fresh on this planet, and she's now 16 and amazing. And I we got to sit there, two of my oldest friends and I, in a restaurant in Berlin, looking at our teenagers being like full adults sitting in front of us. It was awesome. So then we went to from Berlin. We went to Rostock, and then a couple of other towns, finishing up in Papenburg. I got a helicopter flight out into the North Sea as part of this job, which was pretty amazing. And then from there, 16 hours in Amsterdam before flying home. And I have not been to Amsterdam. Holy cow! It's gorgeous.
 
 [00:03:22] Simone: Yeah, you've never been.
 
@@ -82,7 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:03:27] Norm: 10 years ago. Yeah.
 
-[00:03:29] Adam: So, so I know that there is a a word that they have that means like that specifically means like that warm feeling you have when you're with family at the holidays. All of Amsterdam feels like that word, like the windows. There's no curtains on the windows. It's just inside of every house. You can see this warm tableau of European domesticity. Of
+[00:03:29] Adam: So, so I know that there is a word that they have that means like that specifically means like that warm feeling you have when you're with family at the holidays. All of Amsterdam feels like that word the windows. There's no curtains on the windows. It's just inside of every house. You can see this warm tableau of European domesticity. Of
 
 [00:03:47] Norm: is there something in the air?
 
@@ -114,13 +114,13 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:04:05] Adam: I totally forgot. I forgot about. Yeah.
 
-[00:04:09] Simone: But how do you handle? Like, I feel when I do a trip, and and I kind of try to do it in bulk. But even just three pit stops, it really gets to me. How do you do it with so many different stops and so many different things? Like
+[00:04:09] Simone: But how do you handle? Like, I feel when I do a trip, and I kind of try to do it in bulk. But even just three pit stops, it really gets to me. How do you do it with so many different stops and so many different things? Like
 
 [00:04:23] Adam: through hard experience,
 
 [00:04:23] Unknown speaker: What's the trick to the trade?
 
-[00:04:23] Adam: I have learned to eat well. I try not to eat too much crap because it has a direct, like literally, if I eat, and and I have, I've eaten the mini bar in many a hotel room on a late night where I couldn't sleep, and it really, it has a long tail of feeling crappy. I don't drink, so that helps me attenuate my my my mood on the road without too much difficulty. But meditation. I make sure I get like seven hours of sleep a night, and I like I didn't get seven contiguous hours this whole trip, but I would snatch two hours here, three hours there, two and a half hours here.
+[00:04:23] Adam: I have learned to eat well. I try not to eat too much crap because it has a direct, like literally, if I eat, and I have, I've eaten the mini bar in many a hotel room on a late night where I couldn't sleep, and it really, it has a long tail of feeling crappy. I don't drink, so that helps me attenuate my mood on the road without too much difficulty. But meditation. I make sure I get like seven hours of sleep a night, and I like I didn't get seven contiguous hours this whole trip, but I would snatch two hours here, three hours there, two and a half hours here.
 
 [00:05:04] Norm: How was thing two as a traveling companion?
 
@@ -130,13 +130,13 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:05:26] Adam: Yes.
 
-[00:05:26] Simone: Yeah, I was mind blown. I kind of thought of it as like a okay, like let's go and support and kind of be like yay, but it was I was like at the front of the of the crowd. I was sitting and dancing in my chair, which nobody else was,
+[00:05:26] Simone: Yeah, I was mind blown. I kind of thought of it as like a okay, like let's go and support and kind of be like yay, but it was I was like at the front of the crowd. I was sitting and dancing in my chair, which nobody else was,
 
 [00:05:26] Adam: Aren't those kids amazing?
 
 [00:05:26] Simone: but they were amazing.
 
-[00:05:48] Adam: So this is this group is Oakland School for the Arts choir called Vocal Rush. They do a lot of different gigs. They Do they were playing at Yoshi's the night you saw them, Yoshi's Jazz Club in in in Oakland. But they also do corporate gigs. You can hire them for your corporate event. They're not that expensive, and they're incredible. I mean, really, like mind-blowingly great. And I love traveling with them. I love going to other. I went to Memphis with them last year. I saw them all in London, and I watched them perform. And the the the London acapella conference was just lovely. So this is like great acapella groups from all over the world performing. You know, showing you what acapella looks like from all these different cultural standpoints.
+[00:05:48] Adam: So this is this group is Oakland School for the Arts choir called Vocal Rush. They do a lot of different gigs. They Do they were playing at Yoshi's the night you saw them, Yoshi's Jazz Club in Oakland. But they also do corporate gigs. You can hire them for your corporate event. They're not that expensive, and they're incredible. I mean, really, like mind-blowingly great. And I love traveling with them. I love going to other. I went to Memphis with them last year. I saw them all in London, and I watched them perform. And the London acapella conference was just lovely. So this is like great acapella groups from all over the world performing. Showing you what acapella looks like from all these different cultural standpoints.
 
 [00:06:32] Simone: Proud parent.
 
@@ -148,11 +148,11 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:06:35] Adam: Yeah,
 
-[00:06:35] Norm: I'm so jealous because I did not put two and two together that she's she's a she acts on one of my favorite shows.
+[00:06:35] Norm: I'm so jealous because I did not put two and two together that she's a she acts on one of my favorite shows.
 
 [00:06:35] Adam: What's that?
 
-[00:06:35] Norm: Um, You're the worst.
+[00:06:35] Norm: You're the worst.
 
 [00:06:35] Adam: Oh, right, right, right.
 
@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:06:35] Norm: Yeah, I know, and she's been a ton of stuff too, Stan Against Evil. But yeah,
 
-[00:07:01] Adam: Um, yeah, Janet's amazing, and her and Cole Stratton. I, I cannot. And the all the whole organization team of Sketchfest blows my mind that they're all sweet, friendly, lovely people who manage who herd these cats around San Francisco, these comedians, and it's always a whole bunch of amazing shows when Sketchfest is here. Go and see all your comedy heroes from Kids in the Hall to Monty Python to Spinal Tap to Key and Peele.
+[00:07:01] Adam: Um, yeah, Janet's amazing, and her and Cole Stratton. I cannot. And the all the whole organization team of Sketchfest blows my mind that they're all sweet, friendly, lovely people who manage who herd these cats around San Francisco, these comedians, and it's always a whole bunch of amazing shows when Sketchfest is here. Go and see all your comedy heroes from Kids in the Hall to Monty Python to Spinal Tap to Key and Peele.
 
 [00:07:01] Unknown speaker: Oh, look at that.
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:07:36] Norm: Very cool.
 
-[00:07:36] Adam: What else happened? It, it, look, you know, tested viewers know this happened, but I was in London and I got kind of political on Twitter.
+[00:07:36] Adam: What else happened? It, look tested viewers know this happened, but I was in London and I got kind of political on Twitter.
 
 [00:07:54] Norm: Well, you were traveling during. I mean, lots of lots has happened in the political world since we last podcasted.
 
@@ -182,19 +182,19 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:08:03] Simone: Oh,
 
-[00:08:04] Adam: And look, I'm going to express my opinion about politics from a specific vantage point, and it may be different than yours, and I respect that. I I was reminded that Dorothy Parker used to hate answering the phone, and she used to answer the phone by saying, " What fresh hell is this?" And that is what I felt like checking the newspaper every morning while I was traveling. It was a difficult trip, and I have specific problems with some of the stuff that's going on, and I tweeted about them, and I tried my best, and I think I succeeded largely to tweet from a place of mutual respect and an attempt to understand and explain without getting polemic, without name calling, without trivializing.
+[00:08:04] Adam: And look, I'm going to express my opinion about politics from a specific vantage point, and it may be different than yours, and I respect that. I was reminded that Dorothy Parker used to hate answering the phone, and she used to answer the phone by saying, " What fresh hell is this?" And that is what I felt like checking the newspaper every morning while I was traveling. It was a difficult trip, and I have specific problems with some of the stuff that's going on, and I tweeted about them, and I tried my best, and I think I succeeded largely to tweet from a place of mutual respect and an attempt to understand and explain without getting polemic, without name calling, without trivializing.
 
 [00:08:45] Norm: It was extreme civility.
 
 [00:08:46] Adam: Well, I think that there's a look. There's a lot of name calling on both sides of the fence. I totally acknowledge that, and I don't think that it's very useful. And I think a lot of people are expressing their anger, which is important and great. I am interested not just in expressing my political feelings to the people I agree with, but also to those that I disagree with. That eventually, hopefully, we can find common ground.
 
-[00:09:06] Simone: I think it's such a difficult thing because I mean, Twitter is just like an echo chamber. I realize that the people who follow me tend to agree with my opinions, and I follow the people who agree with my opinions. And as soon as it goes outside of that realm, it gets really uncomfortable. Like when when when people who are, I mean, in particular, Trump supporters kind of latch onto your tweets, and it just gets really nasty. And I think it's such a difficult thing having like a good constructive conversation when people get really, really pissed.
+[00:09:06] Simone: I think it's such a difficult thing because I mean, Twitter is just like an echo chamber. I realize that the people who follow me tend to agree with my opinions, and I follow the people who agree with my opinions. And as soon as it goes outside of that realm, it gets really uncomfortable. Like when people who are, I mean, in particular, Trump supporters kind of latch onto your tweets, and it just gets really nasty. And I think it's such a difficult thing having like a good constructive conversation when people get really, really pissed.
 
 [00:09:36] Norm: And you can debate whether it's possible to have a constructive conversation in 140 characters. Like, is that the right forum?
 
-[00:09:42] Adam: I look. It may it may or may not be for better or worse. It is a forum I'm most comfortable in right now, and I felt like I was having some very reasonable, some very reasonable back and forth with people who disagreed with me, but then. I did not see the level of nastiness. I know other friends of mine have seen, and that definitely changes things. And I don't think there's any place for that. I think that when people get bullying, or dismissive, or directly insulting, or especially even threatening, I don't think that's actually lending anything to.
+[00:09:42] Adam: I look. It may or may not be for better or worse. It is a forum I'm most comfortable in right now, and I felt like I was having some very reasonable back and forth with people who disagreed with me, but then. I did not see the level of nastiness. I know other friends of mine have seen, and that definitely changes things. And I don't think there's any place for that. I think that when people get bullying, or dismissive, or directly insulting, or especially even threatening, I don't think that's actually lending anything to.
 
-[00:10:17] Simone: It's really difficult because I feel that my I kind of revert to wanting to kind of make fun of people and mock people, and I feel that that's what a lot of the late shows do as well, where it's like turning it into comedy, which is a way of dealing with it, and and that a lot of people can like draw strength from. But in some way, I also realize that just like increases the divide as well because you're mocking people.
+[00:10:17] Simone: It's really difficult because I feel that my I kind of revert to wanting to kind of make fun of people and mock people, and I feel that that's what a lot of the late shows do as well, where it's like turning it into comedy, which is a way of dealing with it, and that a lot of people can like draw strength from. But in some way, I also realize that just like increases the divide as well because you're mocking people.
 
 [00:10:39] Adam: Yeah,
 
@@ -206,9 +206,9 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:10:42] Simone: yeah,
 
-[00:10:43] Adam: I take it on faith that the majority of people who disagree with me still have the same impulses that I do, which is that they want the world to be better for their kids than it was for them. That they want a good future for their kids and for the people they love around them. I really believe that most people want that. Even if we disagree as to the methods to achieve that, now if someone out there is just a racist and they think they're better than other folks for some ridiculous reason of the lottery of their birth, I have no use for that, and I am not even going to engage with arguing about that because I it's it's not even wrong. So I just let that one go.
+[00:10:43] Adam: I take it on faith that the majority of people who disagree with me still have the same impulses that I do, which is that they want the world to be better for their kids than it was for them. That they want a good future for their kids and for the people they love around them. I really believe that most people want that. Even if we disagree as to the methods to achieve that, now if someone out there is just a racist and they think they're better than other folks for some ridiculous reason of the lottery of their birth, I have no use for that, and I am not even going to engage with arguing about that because I it's not even wrong. So I just let that one go.
 
-[00:11:22] Norm: And so much of it is emotional, and that's why, like, so much of arguing is is not about the the substance, but about the feeling.
+[00:11:22] Norm: And so much of it is emotional, and that's why so much of arguing is is not about the substance, but about the feeling.
 
 [00:11:30] Adam: It feels like the stakes are really high. It genuinely feels like the stakes are really high, and at the point that I was tweeting, I was sitting there in my hotel room in London, unable to sleep from like two a.m. to six a.m. Alternatively, getting choked up and totally worked up. Anyway, suffice to say, I, I feel an important need to find a balance, and I have been really working on that balance over the past few couple of weeks to. Continue to tweet about the stuff that I love, just like people building stuff that's awesome to them, but also engaging.
 
@@ -220,13 +220,13 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:12:12] Adam: is this because people are particularly threatening or shitty?
 
-[00:12:15] Simone: No, no, no, no. It has it hasn't been that bad, but just because it feels like it, it just gets under your skin. All the stuff that's happening, and it's really it is hard not to to to be engaged in it, and at the same time keep an emotional distance to it. I've I just feel that it really creeps in into into everything, and I'm also like, I mean, raging on Twitter in all its glory, but I'm also like, is what is that actually helping?
+[00:12:15] Simone: No, no, no, no. It has it hasn't been that bad, but just because it feels like it just gets under your skin. All the stuff that's happening, and it's really it is hard not to be engaged in it, and at the same time keep an emotional distance to it. I've I just feel that it really creeps in into into everything, and I'm also like, I mean, raging on Twitter in all its glory, but I'm also like, is what is that actually helping?
 
-[00:12:39] Adam: Well, and that's like to that point, I, I read the comments on Tested, and I know that a bunch of our Tested listeners disagree with me politically, but appreciate that we've talked about it here in a balanced way. And I, you know, I exhort anybody who really understands that they disagree with us on a political level to still understand that the feeling that you've had is a common feeling that anybody has when they don't feel like they have a voice in their government or their culture.
+[00:12:39] Adam: Well, and that's like to that point, I, I read the comments on Tested, and I know that a bunch of our Tested listeners disagree with me politically, but appreciate that we've talked about it here in a balanced way. And I I exhort anybody who really understands that they disagree with us on a political level to still understand that the feeling that you've had is a common feeling that anybody has when they don't feel like they have a voice in their government or their culture.
 
-[00:13:04] Simone: It's I don't know. It's just difficult to to know what actually makes a difference. Like I was at SFO and protesting, and it's also like it's not like people are going to be like, " Oh wow, that Swedish girl came there. Now we finally have to listen." Like
+[00:13:04] Simone: It's I don't know. It's just difficult to know what actually makes a difference. Like I was at SFO and protesting, and it's also like it's not like people are going to be like, " Oh wow, that Swedish girl came there. Now we finally have to listen." Like
 
-[00:13:19] Adam: yes, but and that so there's a Gandhi quote which I love, which is, " It may feel that what you're doing is insignificant, but it's vital that you do it." And those numbers of people respectfully protesting, lending their voice, nonviolent noncooperation, and I recognize even there are liberal voices that totally disagree with me on this, but to me that has a real weight to it. And the protests around the country in airports, the lawyer pools working together to make sure that we are still a country of laws where people have the have the rights enshrined in our constitution is really vital. And I I really appreciated watching how that those protests. Played out around the country,
+[00:13:19] Adam: yes, but and that so there's a Gandhi quote which I love, which is, " It may feel that what you're doing is insignificant, but it's vital that you do it." And those numbers of people respectfully protesting, lending their voice, nonviolent noncooperation, and I recognize even there are liberal voices that totally disagree with me on this, but to me that has a real weight to it. And the protests around the country in airports, the lawyer pools working together to make sure that we are still a country of laws where people have the rights enshrined in our constitution is really vital. And I I really appreciated watching how that those protests. Played out around the country,
 
 [00:14:03] Norm: and it motivates me to be more informed, to be better informed, and to support the institutions like news, like journalism that we have maybe taken for granted over the past couple of cycles.
 
@@ -268,23 +268,23 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:15:58] Norm: How's that?
 
-[00:16:00] Adam: Dude, these three books just get better and better and better. Death's End is dense and in and intense. I'm about a third of the way in. I started it yesterday morning. I took yesterday off.
+[00:16:00] Adam: Dude, these three books just get better and better. Death's End is dense and in and intense. I'm about a third of the way in. I started it yesterday morning. I took yesterday off.
 
 [00:16:14] Simone: [unclear: Ah, and read the book / To read the book? / True.]
 
-[00:16:15] Adam: just to not work in the shop because I got back from I got back from Amsterdam and I was here the next morning plowing away on a 12-hour day to get stuff done for Brain Candy. We're finishing up all the props for Brain Candy, and by the way, um, the video of my ping pong machine gun, I have so radically improved it.
+[00:16:15] Adam: just to not work in the shop because I got back from Amsterdam and I was here the next morning plowing away on a 12-hour day to get stuff done for Brain Candy. We're finishing up all the props for Brain Candy, and by the way the video of my ping pong machine gun, I have so radically improved it.
 
 [00:16:15] Simone: Yeah.
 
-[00:16:15] Adam: Oh yeah. On Saturday, that's what I spent the day doing. Um, holy cow! I've got a really amazing device, and it's it's pretty unique.
+[00:16:15] Adam: Oh yeah. On Saturday, that's what I spent the day doing. Holy cow! I've got a really amazing device, and it's pretty unique.
 
-[00:16:42] Simone: Yeah. Fun stuff, Norm. What's what what what's good in your life other than Ripley being amazing?
+[00:16:42] Simone: Yeah. Fun stuff, Norm. What's what what's good in your life other than Ripley being amazing?
 
 [00:16:50] Norm: She pooped in the house twice.
 
 [00:16:50] Simone: Oh, really?
 
-[00:16:50] Norm: Yeah, yeah. We left her with someone to take care of her while I was on vacation, and there's some training might have been undone. Um, I've been going through a. So we have we have a couple of laser cutters in the office, and you know, a long time ago, Adam, we talked about recasting, right? The controversy with recasting, and that's the idea that people buy buy props or buy things and then make a mold of them themselves and then start selling them.
+[00:16:50] Norm: Yeah, yeah. We left her with someone to take care of her while I was on vacation, and there's some training might have been undone. I've been going through a. So we have a couple of laser cutters in the office, and you know, a long time ago, Adam, we talked about recasting, right? The controversy with recasting, and that's the idea that people buy buy props or buy things and then make a mold of them themselves and then start selling them.
 
 [00:17:16] Adam: Well, and to be specific, let's just be really clear here. Within the prop collecting community, if you own the original version of a prop and you throw it into rubber and make castings available, that's genuinely considered okay. Yeah. But if you are a prop, if you have made your own version of that prop, you've sculpted your own Sankara stones or your own Blade Runner gun, and somebody else takes pieces of that or takes that and sells it as theirs, that's recasting, and that's considered really shitty.
 
@@ -294,25 +294,25 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:18:07] Norm: I'm not selling it. No, no, no.
 
-[00:18:08] Adam: Like the, the article that I read about entrepreneurs who look for kickstarters that have a lot of [unclear: baggage / backing] and then jump before,
+[00:18:08] Adam: Like the article that I read about entrepreneurs who look for kickstarters that have a lot of [unclear: baggage / backing] and then jump before,
 
 [00:18:14] Norm: yeah,
 
-[00:18:14] Adam: jump in before. That's that's the worst. That makes me really angry.
+[00:18:14] Adam: jump in before. That's the worst. That makes me really angry.
 
 [00:18:14] Norm: Yeah.
 
-[00:18:14] Adam: Um. But I, I, if it's for your personal use and you want to see something made in a different material, I think that's totally reasonable.
+[00:18:14] Adam: But I, I, if it's for your personal use and you want to see something made in a different material, I think that's totally reasonable.
 
 [00:18:27] Simone: As like a creator, if I were to make something and make a kit, and I could see that other people were excited about it and they wanted to build on top of it and make it like develop it or build it in other materials, that would probably just make me happy. And I feel that that's like such an intricate or like big part of the maker community of sharing it and not being like, no, this is the end product and this is what you're supposed to do with it. I can't see it in my mind.
 
 [00:18:49] Norm: Yeah, all I could hear was the creator's voice. Like, why don't you just buy two? Why didn't you buy two or three of them?
 
-[00:18:54] Adam: Yeah, but you, you wanted it in a different material.
+[00:18:54] Adam: Yeah, but you wanted it in a different material.
 
 [00:18:56] Norm: Yeah, yeah. But I can also once I've designed the files, I can make as many as I want my own.
 
-[00:19:00] Adam: Yeah, I guess. But I mean, as long as you're not providing those files to other people and and taking up their market share. To me, again, I still think you're you're within you're within a reasonable moral ground. Again, that's arguable, but I feel pretty good.
+[00:19:00] Adam: Yeah, I guess. But I mean, as long as you're not providing those files to other people and taking up their market share. To me, again, I still think you're within a reasonable moral ground. Again, that's arguable, but I feel pretty good.
 
 [00:19:15] Simone: Yeah, no, gosh,
 
@@ -320,7 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:19:18] Simone: going on. You're you're okay You're not.
 
-[00:19:20] Adam: Um, let's see what else has happened. Oh, I watched Doctor Strange. Have you seen Doctor Strange?
+[00:19:20] Adam: Let's see what else has happened. Oh, I watched Doctor Strange. Have you seen Doctor Strange?
 
 [00:19:25] Norm: Yes.
 
@@ -330,29 +330,29 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:19:26] Norm: Yeah.
 
-[00:19:29] Adam: Um, I really enjoyed it. It was very, very, very trippy.
+[00:19:29] Adam: I really enjoyed it. It was very, very, very trippy.
 
 [00:19:34] Simone: I thought it was really cheesy.
 
-[00:19:35] Adam: Yeah, it is cheesy. I totally agree with that, and it's very difficult. Hugh, uh, what's his name? Benedict Cumberbatch's magnificent voice, um, becomes very tinny when it's in an American accent. I mean, I recognize that was part of the point.
+[00:19:35] Adam: Yeah, it is cheesy. I totally agree with that, and it's very difficult. Hugh what's his name? Benedict Cumberbatch's magnificent voice becomes very tinny when it's in an American accent. I mean, I recognize that was part of the point.
 
 [00:19:35] Unknown speaker: Yeah. Yeah.
 
-[00:19:49] Simone: I just I just feel really bad because I feel that Stranger or Doctor Strange and the Star Trek movie that we watched are like
+[00:19:49] Simone: I just feel really bad because I feel that Stranger or Doctor Strange and the Star Trek movie that we watched are like
 
 [00:19:55] Norm: Beyond, yeah.
 
-[00:19:56] Simone: two like movies that kind of you like the tested people are like Simone have to watch this and I've fallen asleep both times. I'm like I'm I'm a fraud.
+[00:19:56] Simone: two like movies that kind of you the tested people are like Simone have to watch this and I've fallen asleep both times. I'm like I'm I'm a fraud.
 
 [00:20:07] Norm: You don't have to watch anything.
 
-[00:20:08] Adam: There's no, there's no requirement to get in the club.
+[00:20:08] Adam: There's no requirement to get in the club.
 
 [00:20:11] Simone: It's not in the job description.
 
 [00:20:13] Adam: No, no, not even a little bit.
 
-[00:20:15] Simone: No, I mean, I did. I did appreciate, like, ever since I didn't, I've joined Tested. I've started appreciating movie props more. I did appreciate a lot of the props that they had in there, and thought that they had a lot of really beautiful items in it.
+[00:20:15] Simone: No, I mean, I did. I did appreciate ever since I didn't, I've joined Tested. I've started appreciating movie props more. I did appreciate a lot of the props that they had in there, and thought that they had a lot of really beautiful items in it.
 
 [00:20:29] Adam: I agree. I thought the yeah, I loved his coat.
 
@@ -362,23 +362,23 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:20:33] Simone: I did not like the asymmetric cut on his coat or like on his cloak. That really put me off because it just looked like it was like sewn a little bit wrong.
 
-[00:20:45] Adam: I um. I also I also love love love love Tilda Swinton.
+[00:20:45] Adam: I. I also love love love love Tilda Swinton.
 
 [00:20:51] Simone: Who's that?
 
-[00:20:52] Adam: Tilda Swinton is the ancient one. Um, but she's an actress. She's been in everything from Snowpiercer, Orlando, Michael Clayton. She's an incredible British actress. She's So beautiful.
+[00:20:52] Adam: Tilda Swinton is the ancient one. But she's an actress. She's been in everything from Snowpiercer, Orlando, Michael Clayton. She's an incredible British actress. She's So beautiful.
 
 [00:21:04] Simone: Oh right, yeah.
 
-[00:21:05] Adam: Yeah. Okay. She's she's um she's an amazing amazing performer.
+[00:21:05] Adam: Yeah. Okay. She's an amazing amazing performer.
 
 [00:21:09] Simone: She's bald in the movie.
 
 [00:21:10] Adam: Yes. Yes. She is bald in the movie. Bald as a ping pong ball.
 
-[00:21:13] Norm: The finale of that film, I love. And the last thing I'll say is that the the finale action sequence was so innovative. Like I've never seen an action sequence done using time that way.
+[00:21:13] Norm: The finale of that film, I love. And the last thing I'll say is that the finale action sequence was so innovative. Like I've never seen an action sequence done using time that way.
 
-[00:21:23] Adam: Yeah. Yeah. Um. And actually, I liked some of the jokes in it. There's one point in which he's facing off against the bad guy. This is not a spoiler alert, but the bad guy's like, " No, my way is the true way." And Doctor Strange goes, " Look at your face." Um. Again, one of my favorite jokes is when the main character of a movie says exactly what you're thinking. You can only be evil. Um.
+[00:21:23] Adam: Yeah. Yeah. And actually, I liked some of the jokes in it. There's one point in which he's facing off against the bad guy. This is not a spoiler alert, but the bad guy's like, " No, my way is the true way." And Doctor Strange goes, " Look at your face." Again, one of my favorite jokes is when the main character of a movie says exactly what you're thinking. You can only be evil.
 
 [00:21:46] Simone: That's good. Good. Good movies is good. I've been building a lot of stuff.
 
@@ -400,13 +400,13 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:22:21] Adam: I totally agree. It's a, it's meditative.
 
-[00:22:24] Simone: Yeah. No. And also, but I get so carried away that I'm like, I, I work for 10 hours and like my body is just like shaking. And you forget to eat. Like I get really caught up in it.
+[00:22:24] Simone: Yeah. No. And also, but I get so carried away that I'm like, I, I work for 10 hours and my body is just like shaking. And you forget to eat. Like I get really caught up in it.
 
 [00:22:38] Adam: Yeah.
 
-[00:22:38] Simone: Uh, and it's kind of hard to be like, no, Simo, you need to like lay on the couch for a while and take it easy.
+[00:22:38] Simone: And it's kind of hard to be like, no, Simo, you need to like lay on the couch for a while and take it easy.
 
-[00:22:44] Adam: Yeah. Um. I um. I came back from Amsterdam and I had some packages to open and I started opening them and I cut my finger.
+[00:22:44] Adam: Yeah. I. I came back from Amsterdam and I had some packages to open and I started opening them and I cut my finger.
 
 [00:22:44] Simone: Oh no.
 
@@ -416,25 +416,25 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:22:55] Adam: Because I was like, you should stop doing. You might feel like it's time to do some work, but clearly, you are not qualified right now.
 
-[00:23:03] Simone: It is, yeah. I feel like I'm gonna hurt myself one one day badly because you're just like, no, I'm just gonna keep on going. I just need to finish this step. Also, I have this weird thing where I want to do everything myself. Like I have plenty plenty of friends that I could call in to like help out. So they built a loft bed in in my apartment, and they built it way too high, and I was like, I'm gonna lower it.
+[00:23:03] Simone: It is, yeah. I feel like I'm gonna hurt myself one one day badly because you're just like, no, I'm just gonna keep on going. I just need to finish this step. Also, I have this weird thing where I want to do everything myself. Like I have plenty plenty of friends that I could call in to like help out. So they built a loft bed in my apartment, and they built it way too high, and I was like, I'm gonna lower it.
 
 [00:23:03] Adam: Yourself,
 
 [00:23:03] Simone: and it was it's a pretty big. Like they built the bed like a fucking house. Like it's heavy. I bet it it's like leaning on like two 200-300 pounds. And I'm like, no, I'm just gonna lower it. I could call over my friend, but no, I'm just gonna do it myself. And I just, I don't know. It's just a lot of folly.
 
-[00:23:42] Adam: I, I do the same thing. Um, I I had I used to have a benchtop Enco Mill here. It weighs 600 pounds, and I got it onto its stand myself alone here. And I I did it carefully. Don't worry. But I love doing stuff like that. I'm like you. I I'm not gonna call people on a Sunday. I'm just gonna be like, let's just work through this problem.
+[00:23:42] Adam: I do the same thing. I had I used to have a benchtop Enco Mill here. It weighs 600 pounds, and I got it onto its stand myself alone here. And I I did it carefully. Don't worry. But I love doing stuff like that. I'm like you. I I'm not gonna call people on a Sunday. I'm just gonna be like, let's just work through this problem.
 
-[00:23:42] Simone: Yeah, it's also like it is. Extra satisfying because you're like, no, I did it myself. Yeah, I just like lowered it. You figure it out how to how to do it. I mean, it's a sweaty process, like, because I got these really strong. What what are those like cable? No,
+[00:23:42] Simone: Yeah, it's also like it is. Extra satisfying because you're like, no, I did it myself. Yeah, I just like lowered it. You figure it out how to do it. I mean, it's a sweaty process because I got these really strong. What are those like cable? No,
 
 [00:24:17] Adam: yeah, straps,
 
-[00:24:18] Simone: straps. Yeah, that you have for for cars. So I got to find a few of those and like threw them over one of the ribs in my house and and and lower it. It was really sweaty when I did it and kind of nerve wracking because I was like, this thing could just like fall straight down the staircase, but it worked out fine. But yeah, it's it's it's stupid. You should just call people because you can also like break your back. Nobody would notice.
+[00:24:18] Simone: straps. Yeah, that you have for cars. So I got to find a few of those and like threw them over one of the ribs in my house and lower it. It was really sweaty when I did it and kind of nerve wracking because I was like, this thing could just like fall straight down the staircase, but it worked out fine. But yeah, it's stupid. You should just call people because you can also like break your back. Nobody would notice.
 
 [00:24:40] Norm: It's your equivalent of going into from the grocery store with all the grocery bags in one go.
 
 [00:24:45] Simone: Yeah, right.
 
-[00:24:46] Adam: Yep. Um, I
+[00:24:46] Adam: Yep. I
 
 [00:24:48] Simone: living on the wild side.
 
@@ -446,15 +446,15 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:24:54] Simone: the guitar thing.
 
-[00:24:54] Adam: Well, the guitar. Both my sons play guitar really well. They're both far better musicians than I will ever be, which is awesome. Uh, and. I have decided to put a. I decided for Brain Candy. I wanted a song in the show, and a friend of mine, who's a wonderful musician, Ken Pattengale from the Milk Carton Kids, wrote this beautiful song for our show, specifically for Brain Candy, for the ukulele. And I've been playing the ukulele and practicing the song so that we can sing it on stage. It's really really fun. First of all, that's really fun. Second of all, I've been playing ukulele. I have a couple of them, and I realized I wanted a deeper tone out of the ukulele, so I bought a baritone uke, which I'm not going to use on the tour. But I also I liked the deeper tone, and then I realized this is almost a guitar. So I went to my son, thing too, and I was like, " Is there a guitar that's a little smaller? Because I can't deal with the dreadnought, the big size guitar that everyone plays." And he said, " Oh yeah, you want a parlor guitar?" And I was like, " And the neck is too thin for my fat fingers." And he's like, " Oh, you want a classical neck?" So I bought a parlor guitar with a classical neck and. It's been really fun. I've just been slowly learning some chords and learning some songs.
+[00:24:54] Adam: Well, the guitar. Both my sons play guitar really well. They're both far better musicians than I will ever be, which is awesome. And. I have decided to put a. I decided for Brain Candy. I wanted a song in the show, and a friend of mine, who's a wonderful musician, Ken Pattengale from the Milk Carton Kids, wrote this beautiful song for our show, specifically for Brain Candy, for the ukulele. And I've been playing the ukulele and practicing the song so that we can sing it on stage. It's really really fun. First of all, that's really fun. Second of all, I've been playing ukulele. I have a couple of them, and I realized I wanted a deeper tone out of the ukulele, so I bought a baritone uke, which I'm not going to use on the tour. But I also I liked the deeper tone, and then I realized this is almost a guitar. So I went to my son, thing too, and I was like, " Is there a guitar that's a little smaller? Because I can't deal with the dreadnought, the big size guitar that everyone plays." And he said, " Oh yeah, you want a parlor guitar?" And I was like, " And the neck is too thin for my fat fingers." And he's like, " Oh, you want a classical neck?" So I bought a parlor guitar with a classical neck and. It's been really fun. I've just been slowly learning some chords and learning some songs.
 
 [00:26:04] Simone: It's funny; it's a slippery slope. You start with like the tiniest like ukulele, and then you are going to have like one a cello or whatever. I just need something bigger.
 
-[00:26:12] Adam: I I was told by my son's music teacher at his old school that the biggest secret in music is that the standup bass is by far the most fun instrument to play physically. That, like, if you get good at it, it is just super. She's like, " Oh my god, there is nothing better." No, I can believe that. I mean, if you go and see Penn and Teller's stage show in Vegas, Penn and Jonesy is their their musical director and plays beautiful, amazing jazz piano as the audience is coming in, and Penn is often playing with him on the standup bass,
+[00:26:12] Adam: I was told by my son's music teacher at his old school that the biggest secret in music is that the standup bass is by far the most fun instrument to play physically. That if you get good at it is just super. She's like, " Oh my god, there is nothing better." No, I can believe that. I mean, if you go and see Penn and Teller's stage show in Vegas, Penn and Jonesy is their musical director and plays beautiful, amazing jazz piano as the audience is coming in, and Penn is often playing with him on the standup bass,
 
 [00:26:27] Unknown speaker: yeah,
 
-[00:26:27] Adam: which is you know, it's the bass is almost as tall as Penn.
+[00:26:27] Adam: which is it's the bass is almost as tall as Penn.
 
 [00:26:49] Simone: Can I request a song for on your ukulele if you are going to learn a new song?
 
@@ -474,9 +474,9 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:27:30] Simone: yeah, they just recorded the last episode, so I totally missed that one.
 
-[00:27:34] Adam: You know, you could take an old episode and redub your voice on top.
+[00:27:34] Adam: You could take an old episode and redub your voice on top.
 
-[00:27:38] Simone: Yeah, so I've done that with my friend. We actually, this is a fun game. I can recommend it. We, my friend Daniel Beauchamp and I, used to watch Adventure Time episodes that we hadn't watched before without the audio, and we'd do our own voiceovers and and improvise on top of it. It's trippy because even watching it with the voice, you have no idea what's going on. So without the audio, it's even more confusing, and it's really fun to. Yeah.
+[00:27:38] Simone: Yeah, so I've done that with my friend. We actually, this is a fun game. I can recommend it. We, my friend Daniel Beauchamp and I, used to watch Adventure Time episodes that we hadn't watched before without the audio, and we'd do our own voiceovers and improvise on top of it. It's trippy because even watching it with the voice, you have no idea what's going on. So without the audio, it's even more confusing, and it's really fun to. Yeah.
 
 [00:28:07] Adam: Yeah, I bet.
 
@@ -496,7 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:28:20] Simone: Really? What's this?
 
-[00:28:32] Adam: Phineas and Ferb? Oh, Phineas and Ferb is a wonderful animated show. It's deeply invested with the heart of making and problem solving and a critical thinking way of looking at the world. It's it's fantastic.
+[00:28:32] Adam: Phineas and Ferb? Oh, Phineas and Ferb is a wonderful animated show. It's deeply invested with the heart of making and problem solving and a critical thinking way of looking at the world. It's fantastic.
 
 [00:28:46] Simone: And you did a voiceover for that?
 
@@ -514,19 +514,19 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:29:23] Adam: No,
 
-[00:29:23] Simone: I I can get behind that.
+[00:29:23] Simone: I can get behind that.
 
 [00:29:25] Adam: face for radio, as they say in the halls of NPR.
 
 [00:29:27] Norm: You guys talked to Angus about this about voiceover work.
 
-[00:29:32] Adam: Um, you know, I we haven't.
+[00:29:32] Adam: I we haven't.
 
 [00:29:34] Norm: Yeah,
 
 [00:29:34] Simone: Oh, really?
 
-[00:29:34] Norm: you know, and that's a tease because the guys haven't seen this yet. But one of our new friends is Angus MacLane, who's a Pixar director and
+[00:29:34] Norm: And that's a tease because the guys haven't seen this yet. But one of our new friends is Angus MacLane, who's a Pixar director and
 
 [00:29:46] Adam: master Lego builder.
 
@@ -568,7 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:31:00] Simone: No, I don't. I but I never clean. But I do have a label maker, and it's the most satisfying thing. I just want to label everything.
 
-[00:31:11] Adam: They're the best. They're the best. And you know, every label carries two, Every label from a label maker carries two messages. One is, " Here's what's in this." The other is, " I have a label maker."
+[00:31:11] Adam: They're the best. They're the best. And every label carries two, Every label from a label maker carries two messages. One is, " Here's what's in this." The other is, " I have a label maker."
 
 [00:31:22] Simone: Yes.
 
@@ -588,7 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:31:34] Simone: Just label all the things.
 
-[00:31:35] Adam: No, and since Tom Sachs gave me one of those whiteout pens, and I've been replacing my label maker labels with with written white pen because it's much more visible from farther away. And my eyes are getting older.
+[00:31:35] Adam: No, and since Tom Sachs gave me one of those whiteout pens, and I've been replacing my label maker labels with written white pen because it's much more visible from farther away. And my eyes are getting older.
 
 [00:31:49] Simone: A little bit more personalized. Yeah, I don't like that you can't choose the font in the label maker.
 
@@ -608,7 +608,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:32:19] Simone: What's the smoke video? What type of smoke stuff?
 
-[00:32:21] Adam: The smoke machine, the smoke machine build?
+[00:32:21] Adam: The smoke machine build?
 
 [00:32:23] Norm: Oh no, no, no!
 
@@ -622,17 +622,17 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:33:12] Adam: Yeah, it's any kind of disco fog machine or theater fog.
 
-[00:33:15] Simone: But I am wondering, couldn't you make that as a part of like your home automation? So your your home knows like when you are about to come home, so
+[00:33:15] Simone: But I am wondering, couldn't you make that as a part of like your home automation? So your home knows like when you are about to come home, so
 
 [00:33:22] Adam: it could just throw a little atmosphere.
 
-[00:33:23] Simone: You come walk out. Like walk in in a cloud of smoke, and you just appear.
+[00:33:23] Simone: You come walk out. Like walk in a cloud of smoke, and you just appear.
 
 [00:33:27] Adam: Oh, Simone, we could totally make that work.
 
 [00:33:29] Simone: I just want more dramatic entrances in my life.
 
-[00:33:33] Adam: That's that's totally possible. You could completely do that. You'd need a proximity sensor and have to fire up the smoke machine like half an hour before you got half an hour before you left.
+[00:33:33] Adam: That's totally possible. You could completely do that. You'd need a proximity sensor and have to fire up the smoke machine like half an hour before you got half an hour before you left.
 
 [00:33:43] Norm: Alexa,
 
@@ -644,13 +644,13 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:33:50] Simone: Yeah, no, that that'd be great. I feel that there needs to be more smoke machines in everyday life.
 
-[00:33:55] Adam: Okay, um, I I can I can hook you up. I have a couple of extras here.
+[00:33:55] Adam: Okay I I can hook you up. I have a couple of extras here.
 
 [00:33:59] Norm: Yeah, and since Adam's been gone, we've been doing a lot of build projects in the office. Things that will be unveiled on the site. Sean and Jeremy, things I want to tell everyone they work. They're working on a new video series for us. It's called Bits to Atoms. Their first project we just unveiled last week was a Mame cabinet. They turned a Coleco old school. Like Donkey Kong style, small tabletop arcade cabinet into an arcade Mame machine, and it's all 3D printed. Um, well, you'll be pleased. Sean was able to model and 3D print dovetails into his
 
 [00:33:59] Adam: Awesome.
 
-[00:33:59] Norm: into his pieces that all perfectly fit together. Um, and Jeremy did the software, and we have all those files online so people can can follow along and build their own.
+[00:33:59] Norm: into his pieces that all perfectly fit together. And Jeremy did the software, and we have all those files online so people can can follow along and build their own.
 
 [00:34:40] Adam: That's awesome!
 
@@ -674,9 +674,9 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:34:55] Norm: We're going. We're going abroad for a fun trip.
 
-[00:34:57] Simone: You know what? That it was such a fun trip, and then my brother is coming as well. Um, and he really wants to go to the Alps and ski, and I hate skiing because I had a really traumatic experience with a lift or with one of the ski lifts where I got it in my face. They are terrifying, and it gives me such a bellyache. I'd rather just like walk up the mountain. So that whole trip now is I dread it because I might have to go skiing.
+[00:34:57] Simone: You know what? That it was such a fun trip, and then my brother is coming as well. And he really wants to go to the Alps and ski, and I hate skiing because I had a really traumatic experience with a lift or with one of the ski lifts where I got it in my face. They are terrifying, and it gives me such a bellyache. I'd rather just like walk up the mountain. So that whole trip now is I dread it because I might have to go skiing.
 
-[00:35:24] Adam: When when thing thing one and two and I drove across the country, we went to we went. God, I can't remember where it was, but we rode a ski lift in the summer to the top of a mountain.
+[00:35:24] Adam: When thing thing one and two and I drove across the country, we went to we went. God, I can't remember where it was, but we rode a ski lift in the summer to the top of a mountain.
 
 [00:35:36] Norm: Really, that's even scarier
 
@@ -712,7 +712,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:36:46] Norm: There you go.
 
-[00:36:47] Adam: Still tickets available for most shows. We're sold out of a few of them. So if you're thinking about coming, um, come. Uh, the thing that I've been saying to people is, brain candy is that feeling of understanding in your head, right? So the I came across this one fact I love while reading a paper about combustion because that's the kind of thing I do in my spare time, and this paper said combustion is an exothermic reaction that uses hydrocarbons and oxygen to create heat and light. That's pretty unassailable, and they asked rhetorically, " What is the opposite of combustion? " And they pointed out that photosynthesis. Is an endothermic reaction that uses CO2 and light and heat to create oxygen and hydrocarbons. So the opposite of a fire is a plant.
+[00:36:47] Adam: Still tickets available for most shows. We're sold out of a few of them. So if you're thinking about coming come. The thing that I've been saying to people is, brain candy is that feeling of understanding in your head, right? So the I came across this one fact I love while reading a paper about combustion because that's the kind of thing I do in my spare time, and this paper said combustion is an exothermic reaction that uses hydrocarbons and oxygen to create heat and light. That's pretty unassailable, and they asked rhetorically, " What is the opposite of combustion? " And they pointed out that photosynthesis. Is an endothermic reaction that uses CO2 and light and heat to create oxygen and hydrocarbons. So the opposite of a fire is a plant.
 
 [00:37:38] Unknown speaker: Wow!
 

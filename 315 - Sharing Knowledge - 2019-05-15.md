@@ -48,13 +48,13 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:01:34] Adam: My wife pointed out, " Do you think that he was actually trying to get you to notice this? Because this would be precisely what I would take pleasure in."
 
-[00:01:43] Norm: That's a that's a very meta Amazon review because I know authors probably read reviews all the time, right? Or publicists.
+[00:01:43] Norm: That's a very meta Amazon review because I know authors probably read reviews all the time, right? Or publicists.
 
-[00:01:50] Adam: Well, I bet you come across this, Kevin, that I have in my dealings online. In many cases, become my own  signal-to-noise ratio. When I explore a project like the ZF-1 from the Fifth Element, for instance, and then I write about it, I wrote about it in Wired, I talked about it in a talk, and then I start to and then we did a tested video on it. Then I start to do research on it a year later, and I find oh that's oh that's mine, yeah. Oh this is oh wait that's mine.
+[00:01:50] Adam: Well, I bet you come across this, Kevin, that I have in my dealings online. In many cases, become my own signal-to-noise ratio. When I explore a project like the ZF-1 from the Fifth Element, for instance, and then I write about it, I wrote about it in Wired, I talked about it in a talk, and then I start to and then we did a tested video on it. Then I start to do research on it a year later, and I find oh that's mine, yeah. Oh this is oh wait that's mine.
 
 [00:02:17] Kevin: Exactly. I had that same experience. I was looking up the word superorganism for a talk, and I went to Wikipedia, and there was the definition was my quoting me, and it was like wait a minute this is like this is not very reliable if you're quoting me.
 
-[00:02:36] Adam: Well, so along those lines, I was giving a talk, a corporate talk. I was writing a corporate talk that I was giving the next day, and I wanted to talk about Richard Feynman, and I wanted to tell the story about Richard Feynman famously was having dinner with a friend, and they were having spaghetti, and as the friend was breaking the spaghetti, he said, you know Dick, I noticed that the spaghetti doesn't break cleanly. This extra piece chips off in the middle, and that's you that's. That's interesting from a material science standpoint, and Feynman was so fascinated by this that they never got to dinner. They broke every piece of pasta in the house, and that's a great that's a classic Feynman story. Like you can be a Nobel laureate and still within spaghetti lies something that, by the way, didn't get figured out from a physics standpoint until quite recently.
+[00:02:36] Adam: Well, so along those lines, I was giving a talk, a corporate talk. I was writing a corporate talk that I was giving the next day, and I wanted to talk about Richard Feynman, and I wanted to tell the story about Richard Feynman famously was having dinner with a friend, and they were having spaghetti, and as the friend was breaking the spaghetti, he said Dick, I noticed that the spaghetti doesn't break cleanly. This extra piece chips off in the middle, and that's you that's. That's interesting from a material science standpoint, and Feynman was so fascinated by this that they never got to dinner. They broke every piece of pasta in the house, and that's a great that's a classic Feynman story. Like you can be a Nobel laureate and still within spaghetti lies something that, by the way, didn't get figured out from a physics standpoint until quite recently.
 
 [00:03:17] Kevin: Right, it was actually very complicated.
 
@@ -62,7 +62,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:03:38] Norm: Small world. I think it's a problem that Google and search in general doesn't do well because they they your results are so much you know just feedback based on on the clicks that you lose the sense of chronology of information of what has happened since and the call response and what happens when people engage with information.
 
-[00:03:59] Adam: Well, I think that each of us has also. I mean, I've definitely developed interesting techniques for filtering the information that I that I look at. For instance, if I want to understand, if I if there's a new object in the world and I'm thinking about obtaining it, I'll often go to eBay and search from the highest price, because that will help me understand the scope of the landscape of this object that I'm dealing with. What people consider it's worth. What are the various versions of it that exist? I have found sometimes by using Google with in incognito mode.
+[00:03:59] Adam: Well, I think that each of us has also. I mean, I've definitely developed interesting techniques for filtering the information that I look at. For instance, if I want to understand, if I if there's a new object in the world and I'm thinking about obtaining it, I'll often go to eBay and search from the highest price, because that will help me understand the scope of the landscape of this object that I'm dealing with. What people consider it's worth. What are the various versions of it that exist? I have found sometimes by using Google with in incognito mode.
 
 [00:04:33] Unknown speaker (Norm or Kevin or Kevin then Norm): Mm hmm. Yep.
 
@@ -78,7 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:04:37] Norm: Wow.
 
-[00:04:37] Adam: Um, I mean, you know, there's going to be within this information economy that we're continuing to exist in. I think there'll be lots of different ways in which we do that.
+[00:04:37] Adam: I mean there's going to be within this information economy that we're continuing to exist in. I think there'll be lots of different ways in which we do that.
 
 [00:04:37] Norm: Right. The incognito mode is a that is a premium. I mean, it we do not experience the world that way. For it's rarer and rarer. Everything we experience [unclear: ∅ / in the] world is influenced by our interactions with it.
 
@@ -98,7 +98,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:05:40] Norm: Right. So you want something new?
 
-[00:05:41] Adam: [unclear: I would like / I want. I would like] to be taken to new places when I'm when I'm starting to go down a rabbit hole.
+[00:05:41] Adam: [unclear: I would like / I want. I would like] to be taken to new places when I'm starting to go down a rabbit hole.
 
 [00:05:46] Norm: I'm surprised that they don't track that and they don't surface.
 
@@ -122,7 +122,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:06:24] Unknown speaker (Adam then Kevin or Adam or Norm or Kevin or unidentified speaker then Kevin then unidentified speaker): What is your Amazon history look like?
 
-[00:06:24] Kevin: Right. So I think it can be a lot more creative in that in that way. But but one of the things that that I've been harping on recently is I think this role of YouTube tutorials is far underappreciated.
+[00:06:24] Kevin: Right. So I think it can be a lot more creative in that way. But one of the things that that I've been harping on recently is I think this role of YouTube tutorials is far underappreciated.
 
 [00:06:38] Adam: Totally.
 
@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:06:38] Kevin: technical stuff.
 
-[00:07:02] Adam: The number of, and I find myself really invigorated by the sheer generosity of it because while there are a lot of high-profile players, like us, like you know, Man at Arms and other maker channels, Clickspring, etc. There's tons of those. There are also for every one of those, there's like 1,000 of some guy in his shop in the winter in Connecticut who's like, I just learned this new thing with a hammer. Let me show this to you and walks you through it. I have learned to fix so many things by just watching. Like, oh, okay, that's pretty straightforward.
+[00:07:02] Adam: The number of, and I find myself really invigorated by the sheer generosity of it because while there are a lot of high-profile players, like us, like Man at Arms and other maker channels, Clickspring, etc. There's tons of those. There are also for every one of those, there's like 1,000 of some guy in his shop in the winter in Connecticut who's like, I just learned this new thing with a hammer. Let me show this to you and walks you through it. I have learned to fix so many things by just watching. Like, oh, okay, that's pretty straightforward.
 
 [00:07:34] Kevin: [unclear: Right, it’s the yeah, it’s it’s / Right. Leaking faucet. Yeah, it’s, it’s].
 
@@ -142,7 +142,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:07:36] Norm: [unclear: just like that / And just like that]. It is precious too because at a flip of a switch, could all go away.
 
-[00:07:43] Kevin: Right. So one of, but it's it's not just in the making world. My point was that even in like the world of science, like if I wanted to find out something very technical, what I look for is a journal club, and a journal club is informal groups of people in the technical world, [unclear: ∅ / science]. scientists who share a paper. Every week, so one person decides that they're going to read this paper and they're going to report on that paper to all their other members of their journal club
+[00:07:43] Kevin: Right. So one of, but it's not just in the making world. My point was that even in like the world of science, like if I wanted to find out something very technical, what I look for is a journal club, and a journal club is informal groups of people in the technical world, [unclear: ∅ / science] scientists who share a paper. Every week, so one person decides that they're going to read this paper and they're going to report on that paper to all their other members of their journal club
 
 [00:07:43] Adam: via YouTube.
 
@@ -154,7 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:08:25] Adam: Oh man!
 
-[00:08:25] Kevin: And then this is the way you you learn. Like if you want to know, you know, millimeter wave beamforming in G five five G, this is where you go to look for a journal club report on YouTube. So it's not just the making, which is certainly accelerating, but even in the scientific and technical world, if you want to learn about a new paper, you see the person giving the presentation, reading the paper, and then discussing it. So it's a huge underappreciated. Catalyst
+[00:08:25] Kevin: And then this is the way you learn. Like if you want to know millimeter wave beamforming in G five five G, this is where you go to look for a journal club report on YouTube. So it's not just the making, which is certainly accelerating, but even in the scientific and technical world, if you want to learn about a new paper, you see the person giving the presentation, reading the paper, and then discussing it. So it's a huge underappreciated. Catalyst
 
 [00:09:01] Adam: totally
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:09:04] Kevin: Yes,
 
-[00:09:04] Norm: and and very difficult to be democratized.
+[00:09:04] Norm: and very difficult to be democratized.
 
 [00:09:10] Adam: But it's also like if you want someone to explain. I mean, I've read a lot of scientific papers, and I mean, I've I've been mystified by a lot of scientific papers. Having someone having the luxury of someone who can explain it to you,
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:09:30] Norm: It fills that hole between the abstract and the paper.
 
-[00:09:33] Adam: This is this is the um this is the advanced version of something I remember teaching my son. Thing Two, he was trying to figure out how to fix maybe our router or some aspect of technology in our house, and I said, " Do a search for the problem and then add the word forum,
+[00:09:33] Adam: This is the advanced version of something I remember teaching my son. Thing Two, he was trying to figure out how to fix maybe our router or some aspect of technology in our house, and I said, " Do a search for the problem and then add the word forum,
 
 [00:09:49] Kevin: right?
 
@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:10:26] Norm: Thread closed.
 
-[00:10:27] Adam: I will tell you that there is one thing I have not yet been able to solve via YouTube, which is the house we bought here in the Mission District had been renovated by a wonderful designer, and he had used these super advanced Grohe faucets in the showers, and these are single hands and they temperature controls and they're they're beautiful, but [unclear: they’re so / they’re not. they’re so] they're ludicrously complex. And at some point about. Probably five six years ago, we had some issue with our water heater, and a plumber came by and said, " Oh, you know, I could do a power flush of this water heater, and then you won't have to replace it." And he did this sort of—I don't know what he did—but some sort of concussive water hammer thing to it. And what it ended up doing was sending rust particles out to the screen traps of every goddamn faucet in my house. And it didn't affect most of the faucets, but it absolutely slayed the two Grohe faucets. And so now, I—he tried to fix it. He made it so much worse because this is a crazy complex system where you literally should be using a temperature probe and adjusting a screw in order to get the differential. And so then I went onto YouTube and I looked at a here is a professional taking apart a Grohe, putting it back together, and it still didn't work. And I am still in the throes. I eventually had to set the hottest heat of my water heater to just what I can stand in a bath.
+[00:10:27] Adam: I will tell you that there is one thing I have not yet been able to solve via YouTube, which is the house we bought here in the Mission District had been renovated by a wonderful designer, and he had used these super advanced Grohe faucets in the showers, and these are single hands and they temperature controls and they're beautiful, but [unclear: they’re so / they’re not. they’re so] they're ludicrously complex. And at some point about. Probably five six years ago, we had some issue with our water heater, and a plumber came by and said, " Oh, you know, I could do a power flush of this water heater, and then you won't have to replace it." And he did this sort of—I don't know what he did—but some sort of concussive water hammer thing to it. And what it ended up doing was sending rust particles out to the screen traps of every goddamn faucet in my house. And it didn't affect most of the faucets, but it absolutely slayed the two Grohe faucets. And so now, I—he tried to fix it. He made it so much worse because this is a crazy complex system where you literally should be using a temperature probe and adjusting a screw in order to get the differential. And so then I went onto YouTube and I looked at a here is a professional taking apart a Grohe, putting it back together, and it still didn't work. And I am still in the throes. I eventually had to set the hottest heat of my water heater to just what I can stand in a bath.
 
 [00:11:52] Kevin: [unclear: Right. Right. Right / Right. Right],
 
@@ -222,7 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:11:58] Unknown speaker (Kevin or Adam): Somebody out there.
 
-[00:11:58] Kevin: This is this is solicitation. Somebody out there, make the tutorial for repairing.
+[00:11:58] Kevin: This is solicitation. Somebody out there, make the tutorial for repairing.
 
 [00:12:04] Adam: Help me fix my. Help me, Obi Wan Kenobi. You're my only hope.
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:12:08] Norm: Adam, you started talking about your book and reading reviews, and you just came back from some travel. How how was the these stops in the book tour?
 
-[00:12:18] Adam: Wonderful. I opened the book tour in Boston, and then into New York, where I read at Union Square, then to Toledo, Cleveland, and Pittsburgh. At every reading, the the hunger for people to talk about the stuff that the book is about, about creative process, about contributing to your culture, about the difficulties we encounter on the bench, and how those are analogous to our lives. The questions are at a depth that I have not encountered before in public speaking, and I'm really enjoying, sort of laying myself bare too. I'm being much more Personal about the way in which I'm talking about this material, in the same way that I have, you know, on tested videos, frequently expressed. Wow, this build is kicking my ass, and I feel really dark right now, and I don't want to keep working. Just that expression of being honest about the difficulties is something that I prize, and I think it's one of my responsibilities as a citizen. So it's delightful to talk to crowds, and even especially the questions from young [unclear: kids / kids. kids] are pretty spectacular.
+[00:12:18] Adam: Wonderful. I opened the book tour in Boston, and then into New York, where I read at Union Square, then to Toledo, Cleveland, and Pittsburgh. At every reading, the hunger for people to talk about the stuff that the book is about, about creative process, about contributing to your culture, about the difficulties we encounter on the bench, and how those are analogous to our lives. The questions are at a depth that I have not encountered before in public speaking, and I'm really enjoying, sort of laying myself bare too. I'm being much more Personal about the way in which I'm talking about this material, in the same way that I have on tested videos, frequently expressed. Wow, this build is kicking my ass, and I feel really dark right now, and I don't want to keep working. Just that expression of being honest about the difficulties is something that I prize, and I think it's one of my responsibilities as a citizen. So it's delightful to talk to crowds, and even especially the questions from young [unclear: kids / kids. kids] are pretty spectacular.
 
 [00:13:22] Kevin: I always find even in YouTube videos back there, watching things that don't work, the dead ends, the stuff that failed, to be far more instructive, and even in some ways more entertaining
 
@@ -260,9 +260,9 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:14:20] Norm: in problem solving.
 
-[00:14:23] Adam: I mean, I think that you can watch a lot of videos of people, of people doing how-to's, and you feel like you're watching them succeed constantly at something you don’t know, [unclear: ∅ / Right]. which makes us feel when we hit failures like, well, I'm just not as smart as that guy.
+[00:14:23] Adam: I mean, I think that you can watch a lot of videos of people doing how-to's, and you feel like you're watching them succeed constantly at something you don’t know, [unclear: ∅ / Right] which makes us feel when we hit failures like, well, I'm just not as smart as that guy.
 
-[00:14:37] Kevin: Right, but you know, like even watching the making of, I like to see all the designs that were disapproved. Right, all the alternative versions of things that they said, well, this doesn't work. Like that would tell you something very, very important.
+[00:14:37] Kevin: Right, but like even watching the making of, I like to see all the designs that were disapproved. Right, all the alternative versions of things that they said, well, this doesn't work. Like that would tell you something very, very important.
 
 [00:14:52] Adam: That's something I love about over the past couple of dozen years. Has been a Almost every big aesthetic film, usually like Star Wars or special effects or Guillermo del Toro films, comes out with a commensurate book, The Art of, and that will often show you the iterative journey of how many hundreds of drawings Mike Mignola and all the art department made for Hellboy villains,
 
@@ -272,9 +272,9 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:15:22] Kevin: Yeah, it's much more instructive talking about the things that don't work. Oh,
 
-[00:15:26] Norm: and I could I could go for more because you get those double page spreads with like here are eight versions of the character design. I want a full essay about each one and why they didn't go for that one.
+[00:15:26] Norm: and I could go for more because you get those double page spreads with like here are eight versions of the character design. I want a full essay about each one and why they didn't go for that one.
 
-[00:15:36] Adam: So speaking of that, I um, I I watched. I said to Kevin earlier that I watched Aliens the other night. I was so wired from my talk in Cleveland, I went back to my hotel room and I didn't sleep for another four hours. So I was like, I better watch Aliens, and I loved it. And then I was like, I want to watch a making of Aliens. So I found this video from 2004, the making of Aliens, and it's funny that now you go on the you you. Take a video tour of the set of the Marvel Universe, and it's all rosy, and everyone's like, " This is great." But 2004, they were removed enough from the production of Aliens that everyone was really talking openly about what a shitty production it was for so many of the people on it. And it was sort of really refreshing to hear these people complain and say, " Oh yeah, no, I did the best work of my career." [unclear: ∅ / and] Man, what a nightmare! And they, they, every single one of them appreciates the final product and under like, this is a thing, and it's a real abiding thing. But holy hell, it was it was hard to get there. It's like it's like reading the early issues of Cinefex when people were like, " Well, the art director didn't really know what he wanted, so he figured it out." They won't say that now, but back then you you now you have to kind of read between the lines.
+[00:15:36] Adam: So speaking of that, I I I watched. I said to Kevin earlier that I watched Aliens the other night. I was so wired from my talk in Cleveland, I went back to my hotel room and I didn't sleep for another four hours. So I was like, I better watch Aliens, and I loved it. And then I was like, I want to watch a making of Aliens. So I found this video from 2004, the making of Aliens, and it's funny that now you go on the you. Take a video tour of the set of the Marvel Universe, and it's all rosy, and everyone's like, " This is great." But 2004, they were removed enough from the production of Aliens that everyone was really talking openly about what a shitty production it was for so many of the people on it. And it was sort of really refreshing to hear these people complain and say, " Oh yeah, no, I did the best work of my career." [unclear: ∅ / and] Man, what a nightmare! And they, every single one of them appreciates the final product and under like, this is a thing, and it's a real abiding thing. But holy hell, it was hard to get there. It's like reading the early issues of Cinefex when people were like, " Well, the art director didn't really know what he wanted, so he figured it out." They won't say that now, but back then you now you have to kind of read between the lines.
 
 [00:17:53] Kevin: My experience in working on very complicated projects is that even on a regular basis, like a monthly issue of Wired, each issue. Was a miracle that it actually existed on deadline. I mean, every time you think after years and years of doing on a regular basis that it would get easier, it doesn't. All that happens is that you move up the threshold of what you accept, and so each one is has a near death experience before the end. And you're like, it's a miracle that it came out this month.
 
@@ -304,7 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:20:01] Adam: Oh, that's great!
 
-[00:20:01] Kevin: And so it's a little book that has the best of the two years of Recomendos that we've, you know, accumulated over time. So there's things like recommendations of an app. We were just talking about RoboCall, an app that I recommend for people to take off spam off of your phone.
+[00:20:01] Kevin: And so it's a little book that has the best of the two years of Recomendos that we've accumulated over time. So there's things like recommendations of an app. We were just talking about RoboCall, an app that I recommend for people to take off spam off of your phone.
 
 [00:20:01] Adam: Yeah.
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:20:37] Kevin: There's a little compact photo printer. Stuff like that.
 
-[00:20:54] Adam: I I remember you telling me once that you were making little magazines even as a kid.
+[00:20:54] Adam: I remember you telling me once that you were making little magazines even as a kid.
 
 [00:20:54] Kevin: Yes.
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:21:58] Kevin: It is.
 
-[00:21:58] Adam: You break the spell, and right, it adds this whole new in the in the same way that a spider's web is potentially an extension of its nervous system.
+[00:21:58] Adam: You break the spell, and right, it adds this whole new in the same way that a spider's web is potentially an extension of its nervous system.
 
 [00:21:58] Kevin: Right,
 
@@ -350,7 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:22:15] Kevin: Right,
 
-[00:22:15] Norm: right, and if you are looking, if you know that you need something in a category, I am going to go there and I am going to find the best. But these open my eyes up to possible things, whole categories that [unclear: you know existed / I didn’t know existed], and doesn't need to be the best. It's just this is a good, good enough, and it's it's great.
+[00:22:15] Norm: right, and if you are looking, if you know that you need something in a category, I am going to go there and I am going to find the best. But these open my eyes up to possible things, whole categories that [unclear: you know existed / I didn’t know existed] and doesn't need to be the best. It's just this is a good, good enough, and it's great.
 
 [00:22:38] Adam: It also reminds me of the pleasure of being a kid and flipping through the sharper image catalog when it was a real catalog, not just all sharper image branded stuff. And then a couple years later, when I discovered American Science and Surplus.
 
@@ -362,11 +362,11 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:22:57] Adam: and just the. All of the possibilities.
 
-[00:22:58] Kevin: So they'd have you know, two foot Fresnel lens, and you think, what could I do
+[00:22:58] Kevin: So they'd have two foot Fresnel lens, and you think, what could I do
 
 [00:22:58] Adam: Right.
 
-[00:22:58] Kevin: with a two foot Fresnel? If I had, if only I had, like you know, $20, and you were a kid. But what could I do with a two foot Fresnel lens? And that is the beginning of creativity, of art, of science.
+[00:22:58] Kevin: with a two foot Fresnel? If I had, if only I had, like$20, and you were a kid. But what could I do with a two foot Fresnel lens? And that is the beginning of creativity, of art, of science.
 
 [00:23:15] Adam: Exactly.
 
@@ -374,9 +374,9 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:23:18] Kevin: I spend a lot of time. I'm headed to China again. I go back to China a lot. One of my constant messages to people in America listening is, wake up to China. There's something happening. They have been, as a culture, a copy culture, as America was in relationship to the Europe for very long time. We were copy. We were pirates. We stole everything, and eventually, by by becoming a student, we became masters. We generated our own. And China has been the same way. They've been copying, ripping off stuff from America and the West, but they are very rapidly starting to innovate. And I'm going there to see the kind of innovation that they're coming up with, and it's they don't there's no product right now that is breakthrough, but they are working very hard, and I can easily imagine some electric car coming out of China that was really well designed, well crafted, and everybody in the world wanted one.
 
-[00:24:21] Adam: Well, you know, I was just in New Zealand with our mutual friend Richard Taylor, and he was showing me incredible pictures. He goes one one week a month now to work on the various projects he has in China, and he talks with such surpassing joy about the level of craftsmanship, and he's always driving from one place to another and stopping because he sees through a garage someone's making something, and he stops and he talks to them, and then ends up with these incredible stories of this craftsmanship. He finds entire towns devoted to carving friezes out of trees, and this level of engagement with materials and with the quality of craftsmanship that's. Absolutely jaw dropping.
+[00:24:21] Adam: Well I was just in New Zealand with our mutual friend Richard Taylor, and he was showing me incredible pictures. He goes one one week a month now to work on the various projects he has in China, and he talks with such surpassing joy about the level of craftsmanship, and he's always driving from one place to another and stopping because he sees through a garage someone's making something, and he stops and he talks to them, and then ends up with these incredible stories of this craftsmanship. He finds entire towns devoted to carving friezes out of trees, and this level of engagement with materials and with the quality of craftsmanship that's. Absolutely jaw dropping.
 
-[00:25:02] Kevin: Yes. So China has been innovating in the area of excellence, like the Japanese, where you kind of like how we take something, we'll try to perfect it in incremental, and they have done that well. And so people have things manufactured [unclear: ∅ / They’ve manufactured] in China not because it's the cheapest, but because it's the best. It actually is the world best manufacturing. But they're going to move to actually make up new things. And the thing that they have been holding back culturally was, on average, again, this is a stereotypical broad view, but on average, they did not embrace failure as much as, say, the West or Silicon Valley has, and they didn't question authority. And both of those two attributes are essential to have a culture that's innovative. You've got to you've got to embrace and tolerate failure, as we were just talking, and you have to question authority.
+[00:25:02] Kevin: Yes. So China has been innovating in the area of excellence, like the Japanese, where you kind of like how we take something, we'll try to perfect it in incremental, and they have done that well. And so people have things manufactured [unclear: ∅ / They’ve manufactured] in China not because it's the cheapest, but because it's the best. It actually is the world best manufacturing. But they're going to move to actually make up new things. And the thing that they have been holding back culturally was, on average, again, this is a stereotypical broad view, but on average, they did not embrace failure as much as, say, the West or Silicon Valley has, and they didn't question authority. And both of those two attributes are essential to have a culture that's innovative. You've got to embrace and tolerate failure, as we were just talking, and you have to question authority.
 
 [00:25:02] Adam: Yeah.
 
@@ -422,11 +422,11 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:27:04] Kevin: And when you, I'm curious as an author just to hear your reply. When you have a book engagement and you have an audience, do you do a reading from it, or is it mostly Q and A?
 
-[00:27:15] Adam: It's both. I I've been playing around with what I'm reading at the front end. I'd like to, ideally, my my the format I'm really enjoying is reading for just about 20 minutes, doing an intro and read that takes about 20 minutes, and then spending 40 minutes answering questions from the audience.
+[00:27:15] Adam: It's both. I I've been playing around with what I'm reading at the front end. I'd like to, ideally, my the format I'm really enjoying is reading for just about 20 minutes, doing an intro and read that takes about 20 minutes, and then spending 40 minutes answering questions from the audience.
 
 [00:27:33] Kevin: Have you considered actually giving a presentation with slides and things?
 
-[00:27:37] Adam: I I haven't up till now simply because I love the loose format of. Well, number one, I love the loose format of the Q and A, and I also that what I've been reading is the last chapter, or is actually the last half of the last chapter, because. It's not a spoiler. It is the central thesis of the book.
+[00:27:37] Adam: I haven't up till now simply because I love the loose format of. Well, number one, I love the loose format of the Q and A, and I also that what I've been reading is the last chapter, or is actually the last half of the last chapter, because. It's not a spoiler. It is the central thesis of the book.
 
 [00:27:55] Unknown speaker (Kevin or Norm): Great.
 
@@ -436,7 +436,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:27:58] Kevin: Yeah.
 
-[00:27:58] Adam: And the very first time I I read the last chapter out loud to my wife, I got really choked up. I had written these words, I had labored over them, but hearing them extant. And in fact, I will tell you that as I read the last chapter, I'm constantly editing. I'm constantly changing word order and sentence structure, and I'm actually making notes for the next edition as as I feel like I like certain flourishes because there's things that work better when you say them out loud than when you read them.
+[00:27:58] Adam: And the very first time I I read the last chapter out loud to my wife, I got really choked up. I had written these words, I had labored over them, but hearing them extant. And in fact, I will tell you that as I read the last chapter, I'm constantly editing. I'm constantly changing word order and sentence structure, and I'm actually making notes for the next edition as I feel like I like certain flourishes because there's things that work better when you say them out loud than when you read them.
 
 [00:28:28] Kevin: Yeah, a lot of authors like to read their work out loud before they finally submit it.
 
@@ -444,11 +444,11 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:28:46] Kevin: Yeah, that’s really good. So, will you be talking? You know what you're going to talk about? at Maker Faire.
 
-[00:28:50] Adam: I, you know, I don't. And this is—I've given lots of different talks, and actually, I don't know if I've credited you with this on this podcast, but you are my gateway drug to giving talks, Kevin. For the longest time, I would do public speaking. I did it for ILM, and then I was doing it for MythBusters. But it was mostly as a—you know—oh, here we go. This is a gig. I'll do this kind of talk. [unclear: And then / Yeah. Yeah. Yeah] we were at an IDEO quickie where people give quick eight-minute presentations, and I gave one [unclear: in / of] the Maltese Falcon. And I came down, and you said that was great. You should workshop that.
+[00:28:50] Adam: I I don't. And this is—I've given lots of different talks, and actually, I don't know if I've credited you with this on this podcast, but you are my gateway drug to giving talks, Kevin. For the longest time, I would do public speaking. I did it for ILM, and then I was doing it for MythBusters. But it was mostly as a—you know—oh, here we go. This is a gig. I'll do this kind of talk. [unclear: And then / Yeah. Yeah. Yeah] we were at an IDEO quickie where people give quick eight-minute presentations, and I gave one [unclear: in / of] the Maltese Falcon. And I came down, and you said that was great. You should workshop that.
 
 [00:29:23] Kevin: Right.
 
-[00:29:23] Adam: There's a fine talk within there somewhere, and it became my first TED talk, and changed my life actually. So I that that is an example of a talk that I workshopped and labored over and memorized and adjusted the structure until it felt totally natural. And when I gave my second TED talk on cosplay, that was when I had written my wife and I workshopped it over several days, recording it at the end of each day of writing, so I could hear just where I was full of shit and then adjust those transitions. And by the time I gave it, I had forgotten it. So that it just came out as a natural thing, but at Maker Faire, I seek the opposite. At Maker Faire, I come up with my concept late, and I make only the barest notes because I want to show the work. I want to show the the unfinished hemline of my talk. I feel that it's incumbent on me there at Maker Faire to be more exposed and raw. It's a long way of saying I haven't done any homework.
+[00:29:23] Adam: There's a fine talk within there somewhere, and it became my first TED talk, and changed my life actually. So I that that is an example of a talk that I workshopped and labored over and memorized and adjusted the structure until it felt totally natural. And when I gave my second TED talk on cosplay, that was when I had written my wife and I workshopped it over several days, recording it at the end of each day of writing, so I could hear just where I was full of shit and then adjust those transitions. And by the time I gave it, I had forgotten it. So that it just came out as a natural thing, but at Maker Faire, I seek the opposite. At Maker Faire, I come up with my concept late, and I make only the barest notes because I want to show the work. I want to show the unfinished hemline of my talk. I feel that it's incumbent on me there at Maker Faire to be more exposed and raw. It's a long way of saying I haven't done any homework.
 
 [00:30:18] Norm: You got a lot. There is a lot more to do.
 
@@ -468,13 +468,13 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:31:08] Adam: Oh my gosh! Yes, yes, indeed, absolutely. [unclear: I, I, I / I], every year I really look forward to the conversations I get to have with makers at Maker Faire.
 
-[00:31:16] Kevin: What are you looking for at Norm Maker Faire? What are you going to seek out? Where Where you first?
+[00:31:16] Kevin: What are you looking for at Norm Maker Faire? What are you going to seek out? Where you first?
 
 [00:31:20] Norm: I always go to that the big expo hall.
 
 [00:31:20] Kevin: Okay.
 
-[00:31:20] Norm: You know, there's the dark room. There's the stuff outside. The expo halls where people have small 10 by 10 booths. And last year they had a big train group, European train.
+[00:31:20] Norm: There's the dark room. There's the stuff outside. The expo halls where people have small 10 by 10 booths. And last year they had a big train group, European train.
 
 [00:31:20] Adam: Oh yeah, I love that model trains. Seven and a half inch scale or HO or small
 
@@ -492,11 +492,11 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:32:01] Kevin: felting. Yeah, somehow I don't know. I don't see enough of that. I guess.
 
-[00:32:03] Norm: Yeah, and that's the place where they do a lot of where kids can go and just sit there and and play and kind of do workshop.
+[00:32:03] Norm: Yeah, and that's the place where they do a lot of where kids can go and just sit there and play and kind of do workshop.
 
 [00:32:10] Kevin: Right. Exactly.
 
-[00:32:11] Adam: I love the exposing. I love how much exposure there is at Maker Faire to just every possible execution of objects from from a bench from any kind of bench you can imagine.
+[00:32:11] Adam: I love the exposing. I love how much exposure there is at Maker Faire to just every possible execution of objects from a bench from any kind of bench you can imagine.
 
 [00:32:23] Kevin: Yeah,
 
@@ -510,9 +510,9 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:32:39] Kevin: So, so it's a film based on your time at Weta.
 
-[00:32:42] Norm: Uh, kind of. Yes. Um, I guess we should probably explain it. Yeah, we spent a week there with the idea of making a short film that Adam conceived of
+[00:32:42] Norm: Kind of. Yes. I guess we should probably explain it. Yeah, we spent a week there with the idea of making a short film that Adam conceived of
 
-[00:32:52] Adam: that would that would highlight all the different physical. Departments at Weta Workshop: mold making and painting, and the filmmaking and prosthetics and
+[00:32:52] Adam: that would highlight all the different physical. Departments at Weta Workshop: mold making and painting, and the filmmaking and prosthetics and
 
 [00:33:01] Norm: creature design,
 
@@ -524,17 +524,17 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:33:03] Kevin: and you would not have expected that. At least I did not expect that. Just the depth of the talent and the history of all the stuff that they've made over time, and all the what's the word I want? All the new things. I mean, I was shown things that I did not have not seen anywhere else. I'm like, they look like materials that maybe came from outer space or something in terms of what they're made of. Like I couldn't identify it, and so I was like, I couldn't identify how how it was made. What is that process? And so there was this sort of wondrous variety of ways of making things that were present in that workshop.
 
-[00:33:52] Adam: Well, and and that mix between the old and the new,
+[00:33:52] Adam: Well, and that mix between the old and the new,
 
 [00:33:52] Kevin: Right.
 
-[00:33:52] Adam: because Richard is Richard Taylor who runs Weta Workshop is Always looking for brand new technologies at the very cutting edge. Working with 3D printing companies, using their prototypes for stuff that might be useful to him to see what they can do, and yet they're also doing some of the oldest techniques for making there is. I I had one laugh when they were saying, when the Hobbit was shot in 4K, and when movies are shot in 4K, it puts an extra burden on the makeup artists and the prop makers because there is so much more detail extant on the screen. Um, Weta didn't have to make much of a pivot because they were already layering in all of that storytelling into every object they made. That was just built right into the ethos of the place.
+[00:33:52] Adam: because Richard is Richard Taylor who runs Weta Workshop is Always looking for brand new technologies at the very cutting edge. Working with 3D printing companies, using their prototypes for stuff that might be useful to him to see what they can do, and yet they're also doing some of the oldest techniques for making there is. I had one laugh when they were saying, when the Hobbit was shot in 4K, and when movies are shot in 4K, it puts an extra burden on the makeup artists and the prop makers because there is so much more detail extant on the screen. Weta didn't have to make much of a pivot because they were already layering in all of that storytelling into every object they made. That was just built right into the ethos of the place.
 
 [00:34:33] Kevin: Well, look forward to the
 
-[00:34:35] Norm: yeah, yeah, it's all in service of a finished piece of creative process, a film, a you know, art exhibit.
+[00:34:35] Norm: yeah, yeah, it's all in service of a finished piece of creative process, a film, a art exhibit.
 
-[00:34:42] Adam: It was really so much fun to work on, even up to and including Richard Taylor operating the blood and gore effects and and messing with us on set, actually inhibiting the filmmaking process just to screw around and have fun.
+[00:34:42] Adam: It was really so much fun to work on, even up to and including Richard Taylor operating the blood and gore effects and messing with us on set, actually inhibiting the filmmaking process just to screw around and have fun.
 
 [00:34:55] Norm: Simone's there right now.
 

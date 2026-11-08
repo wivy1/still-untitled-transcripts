@@ -48,13 +48,13 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:02:28] Norm: Oh, but we are in real time right now.
 
-[00:02:30] Adam: Yeah, we are in real time. Things are happening. Real things are happening. Yeah. Um. So we're recording this on Monday. This goes up on Tuesday. Um. This morning, um. Our our great and good friend, and tested contributor and all around genius Simone Giertz, released a video on YouTube about having the fact that she is has a brain tumor.
+[00:02:30] Adam: Yeah, we are in real time. Things are happening. Real things are happening. Yeah. So we're recording this on Monday. This goes up on Tuesday. This morning. Our great and good friend, and tested contributor and all around genius Simone Giertz, released a video on YouTube about having the fact that she is has a brain tumor.
 
 [00:02:51] Norm: Yeah. Yeah.
 
-[00:02:51] Adam: Um. Now, if that's news you're just hearing for the first time, know that it is most likely benign. Um. The prognosis is excellent. She feels positive about it. It is a very intense thing, as she says. Plot twist.
+[00:02:51] Adam: Now, if that's news you're just hearing for the first time, know that it is most likely benign. The prognosis is excellent. She feels positive about it. It is a very intense thing, as she says. Plot twist.
 
-[00:03:07] Will: Yeah. Well, you know, you should stop this and go watch her video right now on her channel.
+[00:03:07] Will: Yeah. Well you should stop this and go watch her video right now on her channel.
 
 [00:03:11] Adam: Indeed.
 
@@ -62,15 +62,15 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:03:14] Adam: She really does, and she's. I mean, I'm really impressed that she released the video to talk to her fans, and she really. I mean, that's one the reason that she did it, and she states that outright.
 
-[00:03:23] Norm: In the weird, her life being what's been for the past two years, and the whirlwind that it has, like, I think it would be weird for not to do it, but it's also so incredibly brave.
+[00:03:23] Norm: In the weird, her life being what's been for the past two years, and the whirlwind that it has I think it would be weird for not to do it, but it's also so incredibly brave.
 
 [00:03:33] Adam: Yeah,
 
 [00:03:33] Norm: to put yourself out there,
 
-[00:03:34] Adam: it is incredible, and you know, she mentions in her video that her TED talk is going live in a couple of weeks, and I was lucky enough to be there and watch her do it, and we haven't spoken, we haven't done the podcast since then. You know, the thing that was beautiful and amazing about Simone's TED talk that I saw was she brought all of her confidence and vulnerability to the act of giving that talk, and. She does. It's it's what Simone does so well. It's like seeing everything you think is awesome about a person brought extent out of their work.
+[00:03:34] Adam: it is incredible, and she mentions in her video that her TED talk is going live in a couple of weeks, and I was lucky enough to be there and watch her do it, and we haven't spoken, we haven't done the podcast since then. You know, the thing that was beautiful and amazing about Simone's TED talk that I saw was she brought all of her confidence and vulnerability to the act of giving that talk, and. She does. It's what Simone does so well. It's like seeing everything you think is awesome about a person brought extent out of their work.
 
-[00:04:08] Will: I mean that that's the thing. That's the thing that struck me the first time I saw her YouTube channel. I think the first thing I saw was probably the robot where she the the wake up robot where she got her hair tangled in the
+[00:04:08] Will: I mean that that's the thing. That's the thing that struck me the first time I saw her YouTube channel. I think the first thing I saw was probably the robot where she the wake up robot where she got her hair tangled in the
 
 [00:04:19] Adam: Oh, man.
 
@@ -78,13 +78,13 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:04:20] Adam: that hurts every time I see that
 
-[00:04:21] Will: and I was like like the the the incredible like who posts this like it's such a good video and like we would have had an extended conversation about whether we should post that and she just put it out there it's like hey let it rip it's this is funny and it's good and she owned it and you know she said in her video this morning that she really loves her brain I think a lot of us do I think we all you know she she's got a good brain
+[00:04:21] Will: and I was like the incredible like who posts this like it's such a good video and we would have had an extended conversation about whether we should post that and she just put it out there it's like hey let it rip it's this is funny and it's good and she owned it and you know she said in her video this morning that she really loves her brain I think a lot of us do I think we all you know she she's got a good brain
 
 [00:04:46] Adam: yeah
 
-[00:04:46] Will: I'm glad that she's where she's gonna get good care taken of it and and
+[00:04:46] Will: I'm glad that she's where she's gonna get good care taken of it and
 
-[00:04:51] Adam: she has an amazing group of support around her and uh. You know she is a she's really I'm I'm not articulate about this I'm still like as we watched the video this morning my mom and my wife and my friend we all were passing around a box of Kleenex because it's an intense thing to go to see your friend go through
+[00:04:51] Adam: she has an amazing group of support around her and. You know she is a she's really I'm I'm not articulate about this I'm still like as we watched the video this morning my mom and my wife and my friend we all were passing around a box of Kleenex because it's an intense thing to go to see your friend go through
 
 [00:05:11] Will: yeah
 
@@ -102,9 +102,9 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:05:32] Adam: kindergarten cop maybe it's a tumor it's not a tumor get to the chopper
 
-[00:05:37] Will: but yeah check the video on her channel check her Patreon page she posted an update for Patreon backers that said a lot of the same stuff that was in the in the thing but but yeah I mean we hope that Simone's surgery goes well and she gets better soon
+[00:05:37] Will: but yeah check the video on her channel check her Patreon page she posted an update for Patreon backers that said a lot of the same stuff that was in the thing but yeah I mean we hope that Simone's surgery goes well and she gets better soon
 
-[00:05:50] Adam: she is also young which is it's Excellent to catch this sort of thing early rather than late. It seems to be a very slow-growing tumor. All of this is like there's many things about this that are on the side of good, and she's young and strong and healthy, and that is that is awesome,
+[00:05:50] Adam: she is also young which is it's Excellent to catch this sort of thing early rather than late. It seems to be a very slow-growing tumor. All of this is like there's many things about this that are on the side of good, and she's young and strong and healthy, and that is awesome,
 
 [00:06:07] Will: and hopefully good at following doctors' instructions.
 
@@ -120,15 +120,15 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:06:29] Will: look, you got to have contingencies planned.
 
-[00:06:30] Adam: No, I met two different people with prosthetic feet at TED. Um, uh, famously, Aimee Mullins, Olympian Aimee Mullins, was there, and uh, you know, all I want to do is design feet for people who have prosthetic feet.
+[00:06:30] Adam: No, I met two different people with prosthetic feet at TED. Famously, Aimee Mullins, Olympian Aimee Mullins, was there, and all I want to do is design feet for people who have prosthetic feet.
 
-[00:06:43] Will: Oh, I I there's a whole community for that, you know. There's like there's like maker communities that build
+[00:06:43] Will: Oh, I I there's a whole community for that. There's like maker communities that build
 
 [00:06:49] Norm: 3D printed,
 
 [00:06:49] Will: 3D printed low cost.
 
-[00:06:50] Adam: Foam. Following this a lot, I really I really dig it.
+[00:06:50] Adam: Foam. Following this a lot, I really dig it.
 
 [00:06:53] Will: Yeah, one of my parents' friends has a prosthetic arm, and she just. She doesn't like to wear it because it's uncomfortable and it sucks. And I see the new things that are coming out now, and yeah.
 
@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:07:58] Will: Are you putting all these kids into some sort of arena? And at the end of the day, one kid will remain.
 
-[00:08:03] Adam: Six kids enter, One kid leave. No, it's not a competition show. We're not eliminating them. No, my my my north star for this are things like the Great British Bake Off and Top Chef Junior, Master Chef Junior,
+[00:08:03] Adam: Six kids enter, One kid leave. No, it's not a competition show. We're not eliminating them. No, my north star for this are things like the Great British Bake Off and Top Chef Junior, Master Chef Junior,
 
 [00:08:15] Will: Master Chef Junior. They've eliminated people from Master Chef Junior.
 
@@ -152,11 +152,11 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:08:18] Will: Good.
 
-[00:08:18] Adam: We are we are celebrating collaboration, cooperation, methodological rigor, rigor, fun, entertainment, color, explanation. I
+[00:08:18] Adam: We are celebrating collaboration, cooperation, methodological rigor, rigor, fun, entertainment, color, explanation. I
 
 [00:08:29] Will: awesome.
 
-[00:08:29] Adam: I literally spent all day today in in a production meeting, and it's so exciting. Brought back a huge portion of the original MythBusters crew. We are filming it. We're filming it at the old Industrial Light and Magic model shop where I worked 20 years ago.
+[00:08:29] Adam: I literally spent all day today in a production meeting, and it's so exciting. Brought back a huge portion of the original MythBusters crew. We are filming it. We're filming it at the old Industrial Light and Magic model shop where I worked 20 years ago.
 
 [00:08:45] Norm: Oh, that's right.
 
@@ -164,13 +164,13 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:08:46] Will: worlds are colliding. Wow.
 
-[00:08:48] Norm: Oh, that's that's wonderful.
+[00:08:48] Norm: Oh, that's wonderful.
 
-[00:08:49] Adam: It's great. We're I mean, so we're in pre-production right now. We're going to start shooting quite soon, and you should see episodes of this. Before the end of the year, obviously we will keep you deeply posted
+[00:08:49] Adam: It's great. So we're in pre-production right now. We're going to start shooting quite soon, and you should see episodes of this. Before the end of the year, obviously we will keep you deeply posted
 
 [00:08:58] Unknown speaker: Yeah.
 
-[00:08:58] Adam: And Tested. We'll go and visit the set and give you some insider insider dirt on how that's going and and and how we're doing it.
+[00:08:58] Adam: And Tested. We'll go and visit the set and give you some insider insider dirt on how that's going and how we're doing it.
 
 [00:09:07] Norm: Very cool.
 
@@ -178,7 +178,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:09:09] Norm: I mean, it's the DNA of something that you were intimately familiar with for 15 years, and yet a format that's not the same.
 
-[00:09:17] Adam: Not the same, and yeah, I get to look at it from a different vantage point. I get to I get to use I get to use this expertise I got in a different way, in a in a similar way, but different. And frankly, I've been in San Francisco now for almost 30 years, and it feels like there are chunks of the entire arc of my three decades here that are coming into play in this. People that I've worked with, places that I've worked, you know, resources that I am going to count on, and that's really exciting.
+[00:09:17] Adam: Not the same, and yeah, I get to look at it from a different vantage point. I get to use this expertise I got in a different way, in a similar way, but different. And frankly, I've been in San Francisco now for almost 30 years, and it feels like there are chunks of the entire arc of my three decades here that are coming into play in this. People that I've worked with, places that I've worked resources that I am going to count on, and that's really exciting.
 
 [00:09:47] Will: Very, very cool.
 
@@ -214,13 +214,13 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:10:56] Norm: Wow.
 
-[00:10:56] Adam: Um. So yes, it has all led to this because apparently a little movie just came out.
+[00:10:56] Adam: So yes, it has all led to this because apparently a little movie just came out.
 
 [00:11:02] Norm: Yes.
 
-[00:11:03] Will: Uh, the blockers thing. There's a chicken, and then there's blockers after. I don't know what that's supposed to mean.
+[00:11:03] Will: The blockers thing. There's a chicken, and then there's blockers after. I don't know what that's supposed to mean.
 
-[00:11:10] Adam: Yeah, I, I, uh,
+[00:11:10] Adam: Yeah, I, I
 
 [00:11:12] Will: oh, oh, no, no, you're talking about the most ambitious crossover of all time.
 
@@ -236,13 +236,13 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:11:25] Will: I didn't get the Deadpool trailer before mine.
 
-[00:11:27] Adam: Oh, it's great. There's here's one of the lines when when Cable is like taunting Deadpool. Deadpool goes, " Ooh, dark. Are you sure you're not from the DC universe?
+[00:11:27] Adam: Oh, it's great. There's here's one of the lines when Cable is like taunting Deadpool. Deadpool goes, " Ooh, dark. Are you sure you're not from the DC universe?
 
 [00:11:37] Norm: Oh, that's deep cut
 
-[00:11:39] Will: for burn on a weekend that the the new Marvel movie outgrossed the big crossover DC movie in three days.
+[00:11:39] Will: for burn on a weekend that the new Marvel movie outgrossed the big crossover DC movie in three days.
 
-[00:11:49] Adam: Outgrossed the entirety of of Justice League
+[00:11:49] Adam: Outgrossed the entirety of Justice League
 
 [00:11:52] Will: Run.
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:12:23] Will: I didn't make it twice.
 
-[00:12:24] Adam: I I actually went.
+[00:12:24] Adam: I actually went.
 
 [00:00:00] Unknown speaker: See you tomorrow morning.
 
@@ -278,15 +278,15 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:12:46] Adam: Unbelievable how big a Thanos fan Kishore Hari actually is.
 
-[00:12:50] Will: I've gotten I've gotten my friend Mike is a huge Thanos fan too, and I didn't realize that there were Thanos fans before I had a conversation with him.. He's like, yeah, it's kind of an interesting world.
+[00:12:50] Will: I've gotten my friend Mike is a huge Thanos fan too, and I didn't realize that there were Thanos fans before I had a conversation with him.. He's like, yeah, it's kind of an interesting world.
 
 [00:13:01] Norm: So let's set it up for us, Adam. What was it like watching the movie with Kishore?
 
-[00:13:04] Adam: Kishore is delightful to watch with. Kishore, as as a good dyed-in-the-wool nerd, geek, and fan, got almost uncontrollably excited. You know, there's a little bit of a hum in Kishore's frame leading up to the film.
+[00:13:04] Adam: Kishore is delightful to watch with. Kishore, as a good dyed-in-the-wool nerd, geek, and fan, got almost uncontrollably excited. There's a little bit of a hum in Kishore's frame leading up to the film.
 
 [00:13:22] Will: I can see that.
 
-[00:13:23] Adam: He he showed me the Thanos figure that he's had for decades. He brought it with him and it sat on our. So we went to the Alamo Drafthouse here, a few blocks away in the Mission, and we enjoyed. I enjoyed a grilled cheese sandwich while and a milkshake while I watched this wonderful movie.
+[00:13:23] Adam: He showed me the Thanos figure that he's had for decades. He brought it with him and it sat on our. So we went to the Alamo Drafthouse here, a few blocks away in the Mission, and we enjoyed. I enjoyed a grilled cheese sandwich while and a milkshake while I watched this wonderful movie.
 
 [00:13:40] Will: Was it like Thor's grilled cheese sandwich or a
 
@@ -320,7 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:14:15] Adam: And I have stopped watching trailers because at some point last year I was really excited about a movie and I'd watched all the trailers and the movie was such a piece of shit and I can't even remember what it was. I've rejected it out of my brain. That I've stopped watching trailers for movies I'm excited about, and I literally have seen, had seen nothing about Infinity War.
 
-[00:14:34] Will: So I, I've been doing the no. I'm not. I'm not as like Joey. If you go see a movie with Joey, he puts his head down, covers his ears during the trailers before the movie. I don't go to that quite quite that far, but I I came in cold to this as well. And if I see a trailer in the theater, that's great. Otherwise, I kind of just don't seek them out. And and it was I was really pleased. It was a good experience.
+[00:14:34] Will: So I, I've been doing the no. I'm not. I'm not as like Joey. If you go see a movie with Joey, he puts his head down, covers his ears during the trailers before the movie. I don't go to that quite quite that far, but I I came in cold to this as well. And if I see a trailer in the theater, that's great. Otherwise, I kind of just don't seek them out. And it was I was really pleased. It was a good experience.
 
 [00:14:52] Norm: Rating out of 10.
 
@@ -340,9 +340,9 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:15:06] Adam: And and calling my my buddy Davey and I said he's like what did you think and I was like oh man one of my top 10 just got bumped
 
-[00:15:16] Will: Gina Gina and I Gina and I literally walked left the IMAX for that and turned around and went and bought tickets and went back and watched it again
+[00:15:16] Will: Gina and I literally walked left the IMAX for that and turned around and went and bought tickets and went back and watched it again
 
-[00:15:22] Adam: and and this so I really enjoyed this bit out of watching this movie like sitting through it as a viewer holy hell it does not let up it is it is a rare case where it really is significant that you know what's what's what has gone before it
+[00:15:22] Adam: and this so I really enjoyed this bit out of watching this movie like sitting through it as a viewer holy hell it does not let up it is a rare case where it really is significant that you know what's what's what has gone before it
 
 [00:15:37] Norm: yeah and I think
 
@@ -388,13 +388,13 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:16:58] Adam: I found the 3D not bad. I didn't find it incredibly necessary, but I never do, and it's real 3D, so I didn't find it quite as onerous on my eyes and the dimness.
 
-[00:17:08] Norm: Yeah. So the IMAX showing will have additional content above and below what you'd see in the the 21 by 9 frame.
+[00:17:08] Norm: Yeah. So the IMAX showing will have additional content above and below what you'd see in the 21 by 9 frame.
 
 [00:17:14] Will: See, I was thinking about. Gina hasn't been yet, so I was thinking about taking her to see the Dolby at the Metreon.
 
 [00:17:19] Norm: I'm sure that would be just as good.
 
-[00:17:20] Will: Which see, which which we saw, I think, Last Jedi there, and it was the best theater experience I think I've ever had. I saw a 2D screening; thought it was fine. I thought it was good.
+[00:17:20] Will: Which see, which we saw, I think, Last Jedi there, and it was the best theater experience I think I've ever had. I saw a 2D screening; thought it was fine. I thought it was good.
 
 [00:17:28] Adam: I always prefer those.
 
@@ -426,7 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:18:20] Will: Right, he looks like a scrotum.
 
-[00:18:21] Adam: Yeah, I just wasn't sure how I was going to take it. And I will say, you know, we were lucky enough to enjoy War for Planet of the Apes last year with Andy Serkis and all of those incredible performers in motion, incredible motion capture performances. And Josh Brolin's performance as Thanos is one that belongs in that canon. It has so much subtlety and depth to it. You under, you feel, you get to see so much more of that character.
+[00:18:21] Adam: Yeah, I just wasn't sure how I was going to take it. And I will say we were lucky enough to enjoy War for Planet of the Apes last year with Andy Serkis and all of those incredible performers in motion, incredible motion capture performances. And Josh Brolin's performance as Thanos is one that belongs in that canon. It has so much subtlety and depth to it. You under, you feel, you get to see so much more of that character.
 
 [00:18:46] Norm: So again, not going to spoilers. The Thanos character first appeared at the end of Avengers, and that was before they cast Josh Brolin. So they had a CG face already for that, and had to kind of meld that with their interpretation of Josh Brolin as Thanos.
 
@@ -434,7 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:19:02] Norm: He appeared. I think by the time he was in Guardians, it was already him. But Thanos, as you see in the comics, and as you see in the early films, has this armor all around him, and it's not a spoiler to say that they were so confident in his performance that he didn't need the armor to hide any of it. They put him bare.
 
-[00:19:22] Adam: Brolin is an incredible actor. Brolin is. I mean, so we saw the trailer for Deadpool Two, in which he plays a different Marvel villain named Cable, and again, like, go watch Sicario. He's a terrifying villain, no matter how you ask for his villainy to be delivered.
+[00:19:22] Adam: Brolin is an incredible actor. Brolin is. I mean, so we saw the trailer for Deadpool Two, in which he plays a different Marvel villain named Cable, and again go watch Sicario. He's a terrifying villain, no matter how you ask for his villainy to be delivered.
 
 [00:19:39] Norm: He would've been such a great Batman.
 
@@ -450,7 +450,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:19:47] Adam: in his head
 
-[00:19:49] Will: So the thing, the thing, the big. Usually, I see a movie like I watched Blade Runner, which was a fantastic film last year, and I kind of was able to take in. Plot and set design and props and characters and the whole thing all in one pass. And this movie was just so so relentless and overwhelming without being tiring.
+[00:19:49] Will: So the thing, the big. Usually, I see a movie like I watched Blade Runner, which was a fantastic film last year, and I kind of was able to take in. Plot and set design and props and characters and the whole thing all in one pass. And this movie was just so so relentless and overwhelming without being tiring.
 
 [00:20:05] Adam: I agree.
 
@@ -458,7 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:20:10] Adam: No, me too.
 
-[00:20:10] Will: to kind of be able to pay attention to costumes and stuff. Because I I like a lot of the costume design. Obviously, builds on the work from the previous 17 movies in the franchise. There were no obvious CG. Like if you think about Ultron, that opening sequence was really spectacularly bad CG. The one where they're attacking the castle and and and taking out the last Hydra.
+[00:20:10] Will: to kind of be able to pay attention to costumes and stuff. Because I I like a lot of the costume design. Obviously, builds on the work from the previous 17 movies in the franchise. There were no obvious CG. Like if you think about Ultron, that opening sequence was really spectacularly bad CG. The one where they're attacking the castle and taking out the last Hydra.
 
 [00:20:34] Adam: Several shots in that they're like
 
@@ -468,7 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:20:38] Will: Yeah. There were no obvious flaws here. I mean, there was one place that kind of the pacing and thematic elements weren't great, but the rest of it was really good. I thought
 
-[00:20:46] Norm: I would go so far to say that, like in the first Avengers movie, which was built up with two Iron Man films, a Thor film, and a Captain America film, there are many different styles and tones that different directors had put on those films, Kenneth Branagh and Thor, and Jon Favreau and Iron Man, Iron Man two that that Joss Whedon had to meld together with either audio cues or visual elements that still made a cohesive film. Age of Ultron didn't have to do that, and this is the first film because of so many new characters that never met each other and never been in the same film before. The Russo brothers had to do that, and I think they still retained a lot of like the tone and the humor and the visual styles of different directors in one cohesive story, and that's an accomplishment.
+[00:20:46] Norm: I would go so far to say that, like in the first Avengers movie, which was built up with two Iron Man films, a Thor film, and a Captain America film, there are many different styles and tones that different directors had put on those films, Kenneth Branagh and Thor, and Jon Favreau and Iron Man two that that Joss Whedon had to meld together with either audio cues or visual elements that still made a cohesive film. Age of Ultron didn't have to do that, and this is the first film because of so many new characters that never met each other and never been in the same film before. The Russo brothers had to do that, and I think they still retained a lot of like the tone and the humor and the visual styles of different directors in one cohesive story, and that's an accomplishment.
 
 [00:21:30] Will: There's a wonderful thing that they do across all of the Marvel films where two characters meet each other, and you've known the characters for years at this point. So I want to say at one point it's what's her name who played Robin on How I Met Your Mother. She's like she's a few years older.
 
@@ -476,7 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:21:46] Adam: Smulders,
 
-[00:21:46] Will: right? Cobie Smulders. She has a moment where she meets somebody. She's like she get in the. Oh, it's when she meets Sam in in in. Winter Soldier, the Falcon.
+[00:21:46] Will: right? Cobie Smulders. She has a moment where she meets somebody. She's like she get in the. Oh, it's when she meets Sam in. Winter Soldier, the Falcon.
 
 [00:21:57] Adam: Right.
 
@@ -484,7 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:22:07] Adam: Well, and this movie has got like at least 10 of those moments.
 
-[00:22:09] Norm: So I like that, but I would also say it's a little bit of a crutch, right? I mean, it's fine. I mean, I enjoy it, but it is a it's a it's a it's a thing that the directors and the writers know they have in their in their arsenal to say we're going to be instant easy win, easy laugh, easy satisfaction.
+[00:22:09] Norm: So I like that, but I would also say it's a little bit of a crutch, right? I mean, it's fine. I mean, I enjoy it, but it is a it's a thing that the directors and the writers know they have in their arsenal to say we're going to be instant easy win, easy laugh, easy satisfaction.
 
 [00:22:28] Adam: This isn't too much of a spoiler because you know that they all end up meeting each other at some point, but there's a point in which one of the characters says to another, " Wait, you know Thor?" And for me, the point of that is, oh, maybe shit is not as bad as I thought it was if I'm traveling in a group where these connections have already been made. Like I felt a little more cradled by positivity at that moment. You know what I mean?
 
@@ -498,19 +498,19 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:23:00] Norm: it's the very same thing that happens, and I mean, a lot of what you're paying for is the convergence of, and it's a testament that you love Guardians for a different reason than you love Thor, and for a different reason than you love Winter Soldier, and the fact that they can share the same screen time, that is something that only like Marvel can do.
 
-[00:23:17] Will: And that's the good, like that's a lot of what's good about these big mashup movies, right? Is when you see it started with The Incredibles for me, really, when when when the two kids realize that they can make the force field hamster ball in The Incredibles and like go super fast and get away, and like they're stronger together. It happened again in The Avengers when Thor and Captain America and Iron Man are fighting, and Thor whacks Captain America's shield and like the the the forest levels,
+[00:23:17] Will: And that's the good, like that's a lot of what's good about these big mashup movies, right? Is when you see it started with The Incredibles for me, really, when the two kids realize that they can make the force field hamster ball in The Incredibles and like go super fast and get away, and like they're stronger together. It happened again in The Avengers when Thor and Captain America and Iron Man are fighting, and Thor whacks Captain America's shield and like the forest levels,
 
 [00:23:40] Adam: yeah.
 
-[00:23:40] Will: Captain America gets laser beamed, but like it's it's it's such an amazing moment, and they do it so well in this movie all the way through. Like I just had the feels all the way through this this film, and I wasn't expecting it.
+[00:23:40] Will: Captain America gets laser beamed, but like it's such an amazing moment, and they do it so well in this movie all the way through. Like I just had the feels all the way through this film, and I wasn't expecting it.
 
 [00:23:54] Adam: Let's talk spoilers.
 
 [00:23:56] Norm: Let's do it.
 
-[00:23:56] Adam: Okay, so we're now waving. If you don't want this movie spoiled, and you really shouldn't let it get spoiled for you, you should go in cold.
+[00:23:56] Adam: Okay, so we're now waving. If you don't want this movie spoiled, and you really shouldn't let it get spoiled for you should go in cold.
 
-[00:24:02] Norm: It's a spoiler movie. You know, on our other podcast, we have an LED light that we switch on.
+[00:24:02] Norm: It's a spoiler movie. On our other podcast, we have an LED light that we switch on.
 
 [00:24:05] Adam: Oh, really?
 
@@ -530,7 +530,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:24:19] Adam: I could make one.
 
-[00:24:21] Norm: Let's okay. Spoilers. We are we are in that territory.
+[00:24:21] Norm: Let's okay. Spoilers. We are in that territory.
 
 [00:24:24] Adam: We are in this territory. Holy hell! Was the ending of I just I really have to go right to the ending.
 
@@ -558,7 +558,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:25:23] Will: That was amazing. That was so good.
 
-[00:25:24] Norm: The first person who disappears is, is Bucky, and and when he disappears, like people, and then you realize it would be more,
+[00:25:24] Norm: The first person who disappears is, is Bucky, and when he disappears, like people, and then you realize it would be more,
 
 [00:25:34] Adam: yeah, more
 
@@ -566,7 +566,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:25:36] Adam: more, even more than half. Well, but
 
-[00:25:37] Norm: yeah, it is, and with with Iron Man on on Titan, it's like five out of seven. You know, he's left there with with Mantis, and
+[00:25:37] Norm: yeah, it is, and with Iron Man on Titan, it's like five out of seven. He's left there with Mantis, and
 
 [00:25:48] Will: that's it, right?
 
@@ -574,7 +574,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:25:51] Will: Well, and Rocket survives.
 
-[00:25:52] Norm: Yes. But a rocket is on is on Earth.
+[00:25:52] Norm: Yes. But a rocket is on Earth.
 
 [00:25:55] Will: It is on Earth.
 
@@ -582,7 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:26:08] Will: Oh wow!
 
-[00:26:08] Norm: Yeah, where people are like, oh, that's it for Iron Man. That's it for right. Where it's it's a one-two punch is the way I describe it. One punch is at the end of this movie. Everyone you didn't expect,
+[00:26:08] Norm: Yeah, where people are like, oh, that's it for Iron Man. That's it for right. Where it's a one-two punch is the way I describe it. One punch is at the end of this movie. Everyone you didn't expect,
 
 [00:26:18] Will: right?
 
@@ -634,9 +634,9 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:27:11] Will: Oh, dude, I I think they're all going to have to go outside time to reset the timeline, and they'll end up trapped outside the universe.
 
-[00:27:16] Adam: Um, I, I, yeah. So I found that I found that really intense.
+[00:27:16] Adam: I, yeah. So I found that really intense.
 
-[00:27:20] Norm: Now you didn't have the Max Landis, you know, death is not real in comics feel. We're like, okay, now like eight people have died. There, that means it's not real.
+[00:27:20] Norm: Now you didn't have the Max Landis death is not real in comics feel. We're like, okay, now like eight people have died. There, that means it's not real.
 
 [00:27:29] Adam: No, no, no. Actually, I will tell you as as the as the. I didn't buy. I didn't take any of the. I didn't really take any of the deaths on the chin. Not even Loki's. And
 
@@ -664,7 +664,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:28:00] Norm: He died twice. His beloved killed him, and then he was brought back to have some his stone torn out of his head. And when he turned to black and white, oh, his eyes went blank. That was unnerving.
 
-[00:28:11] Adam: Yeah. Um. And and and and Vision and the and the Scarlet Witch are, you know. So I did go back and watch Civil War. I didn't watch Age of Ultron. I watched Winter Soldier again, and I watched a bunch of the Avengers.
+[00:28:11] Adam: Yeah. And Vision and the Scarlet Witch are. So I did go back and watch Civil War. I didn't watch Age of Ultron. I watched Winter Soldier again, and I watched a bunch of the Avengers.
 
 [00:28:24] Will: Did you watch Thor?
 
@@ -680,7 +680,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:28:31] Norm: It's so funny now you realize that they let Taika Waititi do whatever he want because didn't matter they were gonna kill him all in the first five minutes of this film.
 
-[00:28:39] Adam: Um, that was really intense. And you know, I I thought the opening of that film, just opening on that destruction, was super intense. Um, I and
+[00:28:39] Adam: That was really intense. And I I thought the opening of that film, just opening on that destruction, was super intense. I and
 
 [00:28:48] Norm: the Thor Thanos is for the children of Thanos.
 
@@ -690,13 +690,13 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:28:52] Norm: The children of Thanos. Ebony Maw, the four.
 
-[00:28:56] Adam: Yeah. Terrifying. No, and also actually. They were they were really scary villains. I enjoyed how scary and awful they were.
+[00:28:56] Adam: Yeah. Terrifying. No, and also actually. They were really scary villains. I enjoyed how scary and awful they were.
 
-[00:29:03] Will: So that that like of all the Marvel movies, with the exception of maybe the ones that well the ones the ones where Loki was the villain, strong villain. All the rest of the Marvel movies have kind of shitty villains.
+[00:29:03] Will: So that that like of all the Marvel movies, with the exception of maybe the ones that well the ones where Loki was the villain, strong villain. All the rest of the Marvel movies have kind of shitty villains.
 
 [00:29:15] Adam: Yeah, they had a Loki problem.
 
-[00:29:17] Will: Yeah, and and this is the first time not only that they have one good villain, they had five really strong villains here.
+[00:29:17] Will: Yeah, and this is the first time not only that they have one good villain, they had five really strong villains here.
 
 [00:29:22] Adam: Five good villains and five great non non human facial structures. I mean, just
 
@@ -704,7 +704,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:29:30] Adam: Yeah.
 
-[00:29:31] Norm: That tone quality. He's the magic one. The tone quality of the the the woman one was played by Carrie Coon.
+[00:29:31] Norm: That tone quality. He's the magic one. The tone quality of the woman one was played by Carrie Coon.
 
 [00:29:37] Will: She had the horns with blue, blue.
 
@@ -712,13 +712,13 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:29:42] Adam: incredible.
 
-[00:29:43] Norm: Um, and and then there were two other. Terry Notary did the giant hulking one.
+[00:29:43] Norm: And then there were two other. Terry Notary did the giant hulking one.
 
 [00:29:47] Will: Okay.
 
 [00:29:47] Norm: Oh, the fact that they got the Hulk fight out of the way in the beginning.
 
-[00:29:50] Will: I I
+[00:29:50] Will: I
 
 [00:29:51] Adam: I was that that was one thing that I kept on being disappointed and like, come on, Hulk! I was like. We I wanted more Hulk. I wanted
 
@@ -738,11 +738,11 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:30:22] Will: Ruffalo really
 
-[00:30:23] Adam: you know so I I watched um I read uh that long oral history of Avengers
+[00:30:23] Adam: So I I watched I read that long oral history of Avengers
 
 [00:30:31] Norm: yeah
 
-[00:30:31] Adam: with Joss Whedon and a bunch of the folks and one of the things I really appreciated and changed the way I watched some of this movie was Whedon says um well if we had any plot difficulties we would just put um Robert Downey Jr in the heads up display to give some linking exposition between one scene and the next and he says and the best part about it is Downey is such an amazing actor. You can literally show up at his house, put a black curtain behind him, film him in close up, and he can do any emotion you want instantly, and just allows you to link some more shit into your movie. So
+[00:30:31] Adam: with Joss Whedon and a bunch of the folks and one of the things I really appreciated and changed the way I watched some of this movie was Whedon says um well if we had any plot difficulties we would just put Robert Downey Jr in the heads up display to give some linking exposition between one scene and the next and he says and the best part about it is Downey is such an amazing actor. You can literally show up at his house, put a black curtain behind him, film him in close up, and he can do any emotion you want instantly, and just allows you to link some more shit into your movie. So
 
 [00:31:02] Will: that's why Robert Downey Jr. has the Tony Stark mustache and beard all the time now.
 
@@ -758,7 +758,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:31:53] Norm: And they didn't. So I can feel what you mean, Adam, by wanting that Hulk busting out of the Hulkbuster.
 
-[00:31:59] Adam: Also, I, you know, for some reason, the the one of my all time favorite Marvel moments is Hulk and Thor post fight in Ragnarok, where Hulk is like, " Yeah, but you don't like fire like Hulk like Hulk like real fire,
+[00:31:59] Adam: Also, I for some reason, the one of my all time favorite Marvel moments is Hulk and Thor post fight in Ragnarok, where Hulk is like, " Yeah, but you don't like fire like Hulk like Hulk like real fire,
 
 [00:32:14] Norm: yeah, real personality.
 
@@ -770,7 +770,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:32:30] Adam: Mother. No, you've stolen her drapes.
 
-[00:32:33] Will: It is it is exceptional, and it plays so well in this movie. And so much of this movie is driven by actually, but like half of the half of the plot is driven by Thor,
+[00:32:33] Will: It is exceptional, and it plays so well in this movie. And so much of this movie is driven by actually, but like half of the plot is driven by Thor,
 
 [00:32:40] Adam: yeah,
 
@@ -792,13 +792,13 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:33:07] Norm: It was difficult for a Game of Thrones fan to separate, be taken out of the moment a little bit by basically just seeing his character.
 
-[00:33:15] Adam: That's that's really not Peter.
+[00:33:15] Adam: That's really not Peter.
 
 [00:33:16] Will: That's kind of on you, dude.
 
 [00:33:17] Norm: No, no, I guess not.
 
-[00:33:18] Will: I think like part of the the other part of that sequence was really neat for me is you see the the wake that Thanos leaves behind him. Like you get you get a hint of that on the spaceship at the beginning. You see it on Titan and the other places that he's been. You see it in the Gamora flashbacks, which which we have to talk about in a minute. But the but the but the Dinklage world where he just like leaves the one guy behind that can help him and kills everybody else because it's the easiest thing to do.
+[00:33:18] Will: I think like part of the other part of that sequence was really neat for me is you see the wake that Thanos leaves behind him. Like you get a hint of that on the spaceship at the beginning. You see it on Titan and the other places that he's been. You see it in the Gamora flashbacks, which we have to talk about in a minute. But the Dinklage world where he just like leaves the one guy behind that can help him and kills everybody else because it's the easiest thing to do.
 
 [00:33:43] Norm: Well, it also establishes some continuity in the. Science fantasy aspect of all, like what does this gauntlet mean? Well, it was made in the same place Thor's hammer was made
 
@@ -808,15 +808,15 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:33:54] Adam: And I appreciated that.
 
-[00:33:57] Will: Yeah, it's it's a return to the Arthur C. Clarkeian, you know, technology so advanced we think it's magic view of the Asgardian civilization, which is good.
+[00:33:57] Will: Yeah, it's a return to the Arthur C. Clarkeian technology so advanced we think it's magic view of the Asgardian civilization, which is good.
 
-[00:34:04] Adam: Yeah. Um, I loved, I loved Groot. I loved the fact that Thor speaks Groot.
+[00:34:04] Adam: Yeah. I loved Groot. I loved the fact that Thor speaks Groot.
 
 [00:34:09] Norm: Yes, yes, it’s elective.
 
 [00:34:11] Adam: Yeah,
 
-[00:34:11] Norm: it was a lot. Yeah, yeah. No, that was great. Uh, so Gamora.
+[00:34:11] Norm: it was a lot. Yeah, yeah. No, that was great. So Gamora.
 
 [00:34:15] Will: Yeah.
 
@@ -830,17 +830,17 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:34:38] Adam: okay, yeah, yeah, because that's one of my favorite fight reveal emotional cores in any of the film,
 
-[00:34:44] Norm: and you see that their their bitter relationship. Being an abusive one from their father, that coming to fulfillment with Thanos,
+[00:34:44] Norm: and you see that their bitter relationship. Being an abusive one from their father, that coming to fulfillment with Thanos,
 
-[00:34:52] Will: yeah, and it makes both Thanos more scary and Gamora more compelling character. So that when when they kill her off midway through the movie, it's also much more effective
+[00:34:52] Will: yeah, and it makes both Thanos more scary and Gamora more compelling character. So that when they kill her off midway through the movie, it's also much more effective
 
 [00:34:59] Adam: Red Skull shows up.
 
 [00:35:00] Norm: Amazing.
 
-[00:35:00] Will: That was that was
+[00:35:00] Will: That was
 
-[00:35:01] Norm: What a what a treat.
+[00:35:01] Norm: What a treat.
 
 [00:35:02] Will: And the whole audience was like, I heard a whole audience go.
 
@@ -862,7 +862,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:36:28] Adam: But more discrete, those are more discrete franchises.
 
-[00:36:31] Norm: Well, I'm saying that in terms of the big event being like a two parter, you know, Harry Potter Part One,
+[00:36:31] Norm: Well, I'm saying that in terms of the big event being like a two parter Harry Potter Part One,
 
 [00:36:35] Adam: sure, sure,
 
@@ -874,9 +874,9 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:36:45] Adam: yeah, exactly like that.
 
-[00:36:46] Norm: I read on Twitter someone said, and I I really agree with this analogy, and it's not a judgment on the film, but it really is like wrestling. You know, it's it's you're watching for the spectacle. There's going to be ups and downs. No one really goes away, but you're just waiting to see who comes out with the belt at the end.
+[00:36:46] Norm: I read on Twitter someone said, and I I really agree with this analogy, and it's not a judgment on the film, but it really is like wrestling. It's you're watching for the spectacle. There's going to be ups and downs. No one really goes away, but you're just waiting to see who comes out with the belt at the end.
 
-[00:37:01] Adam: So, and and part of that spectacle that Marvel has always gotten right is the emotional aspect of the spectacle. And you're right; the whole Gamora Thanos centerpiece of Thanos has to give up something he loves, and that's when his daughter finds out that he loves her is as he kills her.
+[00:37:01] Adam: So, and part of that spectacle that Marvel has always gotten right is the emotional aspect of the spectacle. And you're right; the whole Gamora Thanos centerpiece of Thanos has to give up something he loves, and that's when his daughter finds out that he loves her is as he kills her.
 
 [00:37:18] Will: I mean that that was that was an amazing twist because she's sitting there, she's like, " Well, I'm totally safe now. You're boned, you lose here." And he's like, " No." And he cries
 
@@ -890,9 +890,9 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:37:31] Adam: Right.
 
-[00:37:31] Norm: It couldn't it couldn't be a fake emotion.
+[00:37:31] Norm: It couldn't be a fake emotion.
 
-[00:37:33] Adam: Couldn't be the other way around. Yeah. Um. I I found that really intense. And frankly, as as as the Film was closing, and you see Thanos watching a sunrise. Do you know what I heard in my head? I heard Washington's speech from one last time. I want to live under a fig tree.
+[00:37:33] Adam: Couldn't be the other way around. Yeah. I found that really intense. And frankly, as the Film was closing, and you see Thanos watching a sunrise. Do you know what I heard in my head? I heard Washington's speech from one last time. I want to live under a fig tree.
 
 [00:37:54] Norm: What's a legacy? Planting seeds you'll never see.
 
@@ -904,7 +904,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:38:18] Will: Oh yeah,
 
-[00:38:18] Adam: but that's another one. That's another one of the of the hey the meta. And actually, going back to Civil War, where Tom Holland goes, you know that Shield doesn't obey any of the laws of physics.
+[00:38:18] Adam: but that's another one. That's another one of the hey the meta. And actually, going back to Civil War, where Tom Holland goes, you know that Shield doesn't obey any of the laws of physics.
 
 [00:38:29] Will: Oh yes. Well, I mean, the number of seeds that were planted through the last 10 or 12 movies to make this movie land
 
@@ -916,7 +916,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:38:46] Will: but it had to be there for this movie to work.
 
-[00:38:49] Norm: The The only thing that offends are people who want completed box sets because they'll never be complete.
+[00:38:49] Norm: The only thing that offends are people who want completed box sets because they'll never be complete.
 
 [00:38:56] Will: Yeah,
 
@@ -932,7 +932,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:39:28] Norm: We don't trade lives.
 
-[00:39:30] Adam: Yeah, we don't trade lives. I, I feel that. But
+[00:39:30] Adam: Yeah, we don't trade lives. I feel that. But
 
 [00:39:31] Norm: and also Doctor Strange giving it up was part of the plan. He saw 14,000,605 versions, and guess what? The only one in which they win, he has to give it up.
 
@@ -940,7 +940,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:39:41] Adam: That was intense, and Benedict Wong is gone somewhere so he could help out.
 
-[00:39:46] Will: He's the new Supreme Sorcerer Supreme for the next movie, probably right. I, I, the the meet the the. I'm gonna call it a meet cute because that's kind of what it was when Tony Stark and Doctor Strange meet.
+[00:39:46] Will: He's the new Supreme Sorcerer Supreme for the next movie, probably right. I, the meet the. I'm gonna call it a meet cute because that's kind of what it was when Tony Stark and Doctor Strange meet.
 
 [00:40:01] Adam: That was the best.
 
@@ -950,17 +950,17 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:40:00] Will: like these these guys have the same origin, right? They're exactly the same character. They're you know ego maniac, super capable assholes who are cut down to size.
 
-[00:40:09] Norm: They didn't mention their facial hair, thankfully. That would have been too easy, too easy.
+[00:40:09] Norm: They didn't mention their facial hair, thankfully. That would have been too easy.
 
 [00:40:14] Will: Right? They have the same beard.
 
 [00:40:16] Norm: Right. Yeah.
 
-[00:40:16] Will: Wow. Um. But but yeah, like like that. Even that was like that was the part that I was like, surely they're not gonna put. And then they just jam them right up against each other for the whole movie.
+[00:40:16] Will: Wow. But yeah that. Even that was like that was the part that I was like, surely they're not gonna put. And then they just jam them right up against each other for the whole movie.
 
 [00:40:25] Adam: And actually, I thought Doctor Strange's cameo in Ragnarok was completely delightful.
 
-[00:40:30] Will: Oh yeah, that was that was. You didn't like it?
+[00:40:30] Will: Oh yeah, that was. You didn't like it?
 
 [00:40:32] Norm: Oh, it's the beginning. I was wondering where it was. Yeah, yeah.
 
@@ -972,13 +972,13 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:40:40] Will: I've been falling for 30 minutes. Such a good like that movie. So much of that movie lands so well, and the like that I don't drink like that whole. Yeah, that's a really fantastic. sequence.
 
-[00:40:50] Adam: Ragnarok is Ragnarok is completely. I think the most rewatchable film.
+[00:40:50] Adam: Ragnarok is completely. I think the most rewatchable film.
 
 [00:40:56] Will: I've watched it at least four or five times.
 
 [00:40:57] Adam: Ragnarok is totally rewatchable. Winter Soldier. I can't watch that movie enough times. Original Iron Man. I can't watch that enough times.
 
-[00:41:06] Will: I went back and watched all of those before the Civil War. Actually, watches pretty well, but it it gets a little. The only
+[00:41:06] Will: I went back and watched all of those before the Civil War. Actually, watches pretty well, but it gets a little. The only
 
 [00:41:11] Adam: Civil War gets tiring to me.
 
@@ -1008,7 +1008,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:41:57] Will: Yeah,
 
-[00:41:57] Adam: I wanted more Shuri. I don't know why I had to waste time watching Shuri do something she didn't complete and then not show up for the rest of the movie. I want, I want nothing but to see Shuri use her brain and incredible personality to do awesome.
+[00:41:57] Adam: I wanted more Shuri. I don't know why I had to waste time watching Shuri do something she didn't complete and then not show up for the rest of the movie. I want nothing but to see Shuri use her brain and incredible personality to do awesome.
 
 [00:42:10] Will: I have good news for you, Adam. There is a Black Panther movie coming.
 
@@ -1016,13 +1016,13 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:42:13] Will: He's dead. So
 
-[00:42:16] Adam: yeah, what? Yeah, I, I, I don't disagree with you. I, I thought that the emotional aspects of the Black Panther fight, like the horror of the of the of the Wakanda general realizing they're just killing themselves to get through the barrier, that those little moments this film delivers in spades to help sink into you. The gravity of what's happening.
+[00:42:16] Adam: yeah, what? Yeah, I, I, I don't disagree with you. I thought that the emotional aspects of the Black Panther fight, like the horror of the Wakanda general realizing they're just killing themselves to get through the barrier, that those little moments this film delivers in spades to help sink into you. The gravity of what's happening.
 
-[00:42:39] Norm: Well, it's also a problem that I think directors face when you have characters of vastly different power scales, right? The Russo brothers, who did Winter Soldier and Civil War, a lot of that, like the best fight, is in Winter Soldier when they're running across the the freeway and Bucky with a knife fighting Captain America. That great, like, fast pace action choreography,
+[00:42:39] Norm: Well, it's also a problem that I think directors face when you have characters of vastly different power scales, right? The Russo brothers, who did Winter Soldier and Civil War, a lot of that, like the best fight, is in Winter Soldier when they're running across the freeway and Bucky with a knife fighting Captain America. That great fast pace action choreography,
 
 [00:43:01] Adam: all shot in Cleveland,
 
-[00:43:02] Will: like the the the knife drops, the pickups, the slow-mo,
+[00:43:02] Will: like the knife drops, the pickups, the slow-mo,
 
 [00:43:04] Norm: cranking up the shutter for that stuff. That's tough to do when you're asking them to have, you know, them fight 1,000 space dogs.
 
@@ -1030,13 +1030,13 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:43:15] Adam: Captain America, who's arguably one of the most human. I love watching him with his new shields from new vibranium shields.
 
-[00:43:22] Will: But but but they don't. They did a good job escalating. Like if they had started that fight with Hulk and Thor there, it would have been a really tedious action sequence akin to any of the ones, any of the bad ones in Ultron, right? But without Without those two characters, you have essentially humans facing this supernatural threat, and then and then it escalates, and all of a sudden Thor warps in from the Bifrost or whatever, and
+[00:43:22] Will: But they don't. They did a good job escalating. Like if they had started that fight with Hulk and Thor there, it would have been a really tedious action sequence akin to any of the ones, any of the bad ones in Ultron, right? But without Without those two characters, you have essentially humans facing this supernatural threat, and then it escalates, and all of a sudden Thor warps in from the Bifrost or whatever, and
 
 [00:43:45] Adam: actually also I loved Thanos hurling around Hulk, that was intense, and like what can not I know Hulk can't be killed, but wow you can knock him out it turns out, and I was reading that oral history of Avengers and Whedon was talking about how I think if I remember correctly he was talking it was tough to sell the studio, on the ragdoll Loki
 
 [00:44:08] Norm: yeah
 
-[00:44:09] Adam: bit because they thought it was trivializing of the character, and and John Knoll I think was talked about in another interview I read a couple years ago how difficult that scene was to get correct to make it feel like it had the right amount of weight and it didn't go too much into cartoon land
+[00:44:09] Adam: bit because they thought it was trivializing of the character, and John Knoll I think was talked about in another interview I read a couple years ago how difficult that scene was to get correct to make it feel like it had the right amount of weight and it didn't go too much into cartoon land
 
 [00:44:25] Norm: one of the biggest applause
 
@@ -1050,7 +1050,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:44:49] Will: No, they have one more left, right?
 
-[00:44:50] Adam: No, but but at least they get to they get to go to Hawaii or something for like a month, right?
+[00:44:50] Adam: No, but at least they get to go to Hawaii or something for like a month, right?
 
 [00:44:55] Norm: Promote promo tour.
 
@@ -1058,11 +1058,11 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:44:57] Norm: unending.
 
-[00:44:58] Will: I I feel like like the the having the the big challenge of this movie is having of all of these movies is having the gods, the Thors, and the Hulks, and and all of those guys fighting alongside Black Widow and Hawkeye and and Ant Man and and Captain America.
+[00:44:58] Will: I feel like the having the big challenge of this movie is having of all of these movies is having the gods, the Thors, and the Hulks, and all of those guys fighting alongside Black Widow and Hawkeye and Ant Man and Captain America.
 
 [00:45:13] Adam: Yeah, yeah.
 
-[00:45:14] Will: and it it it worked in a way that I didn't expect to be like like if you look at Ultron, it failed because it wasn't emotionally resonant. There was no nothing. At no point did I think, oh, this is the the bad thing that happened at the end of Ultron is. A bunch of faceless people died, and we never saw it, and it it caused a bunch of strife that that went forward in the in the Marvel universe. To me, this felt like the dark middle chapter that we needed Ultron to be in an Avengers trilogy.
+[00:45:14] Will: and it worked in a way that I didn't expect to be like if you look at Ultron, it failed because it wasn't emotionally resonant. There was no nothing. At no point did I think, oh, this is the bad thing that happened at the end of Ultron is. A bunch of faceless people died, and we never saw it, and it caused a bunch of strife that that went forward in the Marvel universe. To me, this felt like the dark middle chapter that we needed Ultron to be in an Avengers trilogy.
 
 [00:45:40] Adam: Yeah.
 
@@ -1070,7 +1070,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:45:43] Norm: I'll disagree and say that what Ultron and the first Avengers had that this film didn't had, and that Civil War didn't have, was like it being the stakes being in a real environment. In Avengers, it was in New York, people were running away, they were saving people. In Ultron, they were trying to save an entire city. When you have the airport fight in Civil War and here in an empty Wakandan field, different stakes there.
 
-[00:46:04] Adam: I I felt the stakes. I felt the stakes for the universe each time. I was I was there. There is something this film had that no previous Marvel movie has had, which was that I went and saw it in a little bit of costume.
+[00:46:04] Adam: I felt the stakes. I felt the stakes for the universe each time. I was there. There is something this film had that no previous Marvel movie has had, which was that I went and saw it in a little bit of costume.
 
 [00:46:17] Will: Oh, what you wear?
 
@@ -1090,7 +1090,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:46:49] Will: It's like a motorcycle jacket.
 
-[00:46:50] Adam: Yeah. Um. Uh. Indy Magnoli makes one of those, and it's fantastic. It's really beautifully cut, and it's sized correctly. And I own one, and it's great. So I wore that, and I recently bought um a beautiful, beautiful. As I've said before, cosplay ordering stuff online is often an exercise in degrees of disappointment. I bought a pair of Captain America gloves from a seller on Etsy who goes by the name Like Linda, and they are a pair of the finest piece of cosplay manufacturer I have I have enjoyed in my time. They are just
+[00:46:50] Adam: Yeah. Indy Magnoli makes one of those, and it's fantastic. It's really beautifully cut, and it's sized correctly. And I own one, and it's great. So I wore that, and I recently bought a beautiful, beautiful. As I've said before, cosplay ordering stuff online is often an exercise in degrees of disappointment. I bought a pair of Captain America gloves from a seller on Etsy who goes by the name Like Linda, and they are a pair of the finest piece of cosplay manufacturer I have enjoyed in my time. They are just
 
 [00:47:23] Norm: you wore the gloves. And jacket?
 
@@ -1104,17 +1104,17 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:47:30] Adam: It's a casual cosplay, and I enjoyed every minute of it.
 
-[00:47:33] Will: I I I have to say when when all the characters were killed at the end of the film, the the way they kind of created the power structure so that you see you see where people end up based on how how they at what time period they died in that sequence is what I felt like. Oh, so you know, like like you Drax gets dusted and Groot goes after him, and you're thinking, oh, at least at least each of these Drax is great, but at least they didn't take Groot, right? And then Groot goes, and then Strange goes.
+[00:47:33] Will: I have to say when all the characters were killed at the end of the film, the way they kind of created the power structure so that you see where people end up based on how how they at what time period they died in that sequence is what I felt like. Oh, so you Drax gets dusted and Groot goes after him, and you're thinking, oh, at least each of these Drax is great, but at least they didn't take Groot, right? And then Groot goes, and then Strange goes.
 
-[00:48:08] Adam: Oh yeah, they they played it onto the emotional.
+[00:48:08] Adam: Oh yeah, they played it onto the emotional.
 
-[00:48:10] Will: Like they they they were pulling strings at a real high level.
+[00:48:10] Will: Like they were pulling strings at a real high level.
 
 [00:48:13] Norm: They didn't need the logic in the comics. It's a snap of finger, and everyone's gone. Here for the cinematic purposes, they let it linger.
 
 [00:48:20] Adam: They let you see each one.
 
-[00:48:20] Norm: And they let they let Peter Parker cry out to Tony Stark.
+[00:48:20] Norm: And they let Peter Parker cry out to Tony Stark.
 
 [00:48:24] Adam: And because I hadn't seen any of the. Trailers. I had no idea that people were going to die in this movie. I kept on thinking, " How do they get out of this?" Well, wait. I got a really wow. I got. There's got a lot of work to do. And then the credits came up.
 
@@ -1124,11 +1124,11 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:48:40] Norm: Thanos will return.
 
-[00:48:42] Will: That was that was
+[00:48:42] Will: That was
 
 [00:48:43] Adam: Brolin. I'm so blown away by Brolin's performance in it. This movie, to me, like the most important aspect of getting it over the top, so that you were really involved emotionally, was that performance. And I'm so happy they got. something so good.
 
-[00:48:56] Norm: I know you haven't seen Justice League, but that is a contrast. The the villain Justice League, also a CG character.
+[00:48:56] Norm: I know you haven't seen Justice League, but that is a contrast. The villain Justice League, also a CG character.
 
 [00:49:01] Will: Who's the villain in Justice League?
 
@@ -1138,9 +1138,9 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:49:03] Will: Oh right.
 
-[00:49:04] Norm: Yeah. Contrasted with just both in performance, the capture, the rendering. This is on levels of Gollum, and and and I think it's going to be a a big milestone in performance capture characters.
+[00:49:04] Norm: Yeah. Contrasted with just both in performance, the capture, the rendering. This is on levels of Gollum, and I think it's going to be a big milestone in performance capture characters.
 
-[00:49:19] Adam: It's time. Look, I I will say if Oscar time comes around and Brolin gets an award and Andy Serkis does not, I will be enraged because Andy has been the absolute The the Shackleton, the Peary, the Amundsen of this zone of acting performance. But I agree with you. It is.
+[00:49:19] Adam: It's time. Look, I I will say if Oscar time comes around and Brolin gets an award and Andy Serkis does not, I will be enraged because Andy has been the absolute The Shackleton, the Peary, the Amundsen of this zone of acting performance. But I agree with you. It is.
 
 [00:49:40] Will: What did Serkis do this year?
 
@@ -1148,7 +1148,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:49:44] Will: Is that last year?
 
-[00:49:44] Adam: Yeah, no, I know. I I'm not. Okay. I'm just saying, if Brolin wins and Andy Serkis isn't somewhere in the world already having gotten a big award for that, that would be sad to me. That would be an injustice. But the the Academy needs to wake up to the idea that there are new ways that performance can be celebrated because these are these are brand. This is a brand new field.
+[00:49:44] Adam: Yeah, no, I know. I I'm not. Okay. I'm just saying, if Brolin wins and Andy Serkis isn't somewhere in the world already having gotten a big award for that, that would be sad to me. That would be an injustice. But the Academy needs to wake up to the idea that there are new ways that performance can be celebrated because these are brand. This is a brand new field.
 
 [00:50:07] Will: I mean, I I have to imagine that this is an incredibly difficult thing to do to sit in a small room with a bunch of dots on your face, looking at a camera that's three feet away from you.
 
@@ -1164,7 +1164,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:50:31] Will: Well, that so. Norm pointed this out earlier, but like as Thanos got as the glove got more powerful, Thanos was wearing less and less clothing. The whole way through the movie.
 
-[00:50:37] Adam: oh, interesting. It's so I I I I can't wait to see I can't wait to see more detailed shots of the filming of the filming gauntlet. I I I've not been a fan up till now, but now I'm a fan.
+[00:50:37] Adam: oh, interesting. It's so I I can't wait to see I can't wait to see more detailed shots of the filming gauntlet. I I've not been a fan up till now, but now I'm a fan.
 
 [00:50:53] Will: You're ready to go.
 
@@ -1228,13 +1228,13 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:51:41] Adam: Yeah, Lord of the Rings were only a year between.
 
-[00:51:43] Will: I didn't. I was not old enough to see Empire in theaters. I was like six when it came out, and I saw I saw them in the wrong order. I saw Star Wars and then Jedi and then Empire. Did this land? You, I'm sure, saw them in theaters.
+[00:51:43] Will: I didn't. I was not old enough to see Empire in theaters. I was like six when it came out, and I saw them in the wrong order. I saw Star Wars and then Jedi and then Empire. Did this land? You, I'm sure, saw them in theaters.
 
 [00:51:54] Adam: Yeah, yeah.
 
 [00:51:54] Will: Did this land the same way for you as a human?
 
-[00:51:57] Adam: Um, I remember being blown away by Empire, and that year, what year did the Muppet movie came out? Muppet movie is 1980,
+[00:51:57] Adam: I remember being blown away by Empire, and that year, what year did the Muppet movie came out? Muppet movie is 1980,
 
 [00:52:05] Will: 79. I saw theaters when my sister was born.
 
@@ -1246,7 +1246,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:52:13] Will: Okay.
 
-[00:52:14] Adam: and I think I ended up seeing it several more times. Um, but yeah, no, it was all anybody talked about back then. Well, actually, 1979, 1980. If you look at the big summer blockbusters, every single one of them is a masterpiece at this point.
+[00:52:14] Adam: and I think I ended up seeing it several more times. But yeah, no, it was all anybody talked about back then. Well, actually, 1979, 1980. If you look at the big summer blockbusters, every single one of them is a masterpiece at this point.
 
 [00:52:28] Will: Like, yeah,
 
@@ -1254,7 +1254,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:52:29] Will: from like Close Encounters.
 
-[00:52:30] Adam: 1978, all the way through like 1980. Five, you had just this incredible string every single year. Um, it's hard for me to go back to my my at that point 13 year old brain and and re reconstitute the excitement.
+[00:52:30] Adam: 1978, all the way through like 1980. Five, you had just this incredible string every single year. It's hard for me to go back to my at that point 13 year old brain and re reconstitute the excitement.
 
 [00:52:47] Will: You're aware of different stuff now than you are then.
 
@@ -1264,7 +1264,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:52:58] Adam: Right, right.
 
-[00:52:59] Will: Um, and I was it was tainted by knowing the meta that people have contracts and that people are on.
+[00:52:59] Will: And I was it was tainted by knowing the meta that people have contracts and that people are on.
 
 [00:53:04] Adam: I haven't paid attention to any of that contractual discussion, so I'm psyched.
 
@@ -1278,7 +1278,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:53:20] Will: Yeah, yeah.
 
-[00:53:21] Adam: Um, yeah. Uh, these are cotton. These are the best shirts.
+[00:53:21] Adam: Um, yeah. These are cotton. These are the best shirts.
 
 [00:53:25] Will: I'm wearing one too. It's not Savage Industries, but they're very soft.
 

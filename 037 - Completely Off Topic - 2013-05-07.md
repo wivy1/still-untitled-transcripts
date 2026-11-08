@@ -22,7 +22,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:00:13] Will: You don't. I could just say I'm Will, or I could go into the Adam Savage Project. You never know.
 
-[00:00:18] Norm: At that point, you know, people are hovering their hand above the spacebar, pause and delete, or—
+[00:00:18] Norm: At that point people are hovering their hand above the spacebar, pause and delete, or—
 
 [00:00:23] Will: Yeah, continue on.
 
@@ -32,7 +32,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:00:24] Adam: What's going to happen?
 
-[00:00:25] Will: Is this, is this about that? Is this about that Cameron Crowe movie with the kid that nobody ever saw again, and what's her name? No, because, you know, Almost Famous, the original— Oh.
+[00:00:25] Will: Is this about that? Is this about that Cameron Crowe movie with the kid that nobody ever saw again, and what's her name? No, because Almost Famous, the original— Oh.
 
 [00:00:33] Adam: Fugit, Patrick Fugit, who starred in Almost Famous.
 
@@ -60,13 +60,13 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:00:56] Norm: Yeah, he's really good.
 
-[00:00:57] Adam: Patrick Fugit from, from, from Almost Famous.
+[00:00:57] Adam: Patrick Fugit from Almost Famous.
 
 [00:01:00] Will: It was originally called—
 
 [00:01:01] Adam: Still Untitled. One of our favorite movies. One of my wife's and my favorite movies.
 
-[00:01:04] Will: Oh, it's, it's something that Gene and I watch annually.
+[00:01:04] Will: Oh, it's something that Gene and I watch annually.
 
 [00:01:07] Norm: Who wouldn't want to be a golden god?
 
@@ -76,19 +76,19 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:01:11] Will: It's, it's a wonderful—if, if you have not watched it, and that's one of the few movies I've seen that the director's cut version, the super long, like everything, nothing was cut out. All the stuff that Cameron Crowe shot that he liked, it's all in there, and it's great.
 
-[00:01:21] Adam: Well, we talked about this, right? Did we talk about the, the, the, the, uh, Stairway to Heaven scene?
+[00:01:21] Adam: Well, we talked about this, right? Did we talk about the Stairway to Heaven scene?
 
-[00:01:26] Will: The, the "I'm a Golden God"?
+[00:01:26] Will: The "I'm a Golden God"
 
 [00:01:28] Adam: No.
 
-[00:01:28] Will: Oh, the, the plane.
+[00:01:28] Will: Oh, the plane.
 
 [00:01:29] Adam: No.
 
 [00:01:30] Will: What's the Stairway to Heaven scene?
 
-[00:01:31] Adam: Okay, this is a little bit of a derail, but it's a good story. So, one of the key scenes in Almost Famous that Cameron Crowe wrote into the film is, uh, the kid, in order to convince his mom that rock and roll has soul and is a real art form, plays her Stairway to Heaven, and in the film, it was supposed to happen in real time. So that they basically—the movie stops while you look at him and Frances McDormand listening to the song in real time. The whole—and Crowe was like, "It was my favorite scene in the movie. It made it through all 50 drafts of the script. And if you had asked me at the beginning and at the end what scene is going to be the soul of this movie, I would have said that scene." And the moment they got in the editing room, he's like, "It's got to go. It totally doesn't work. It's too—"
+[00:01:31] Adam: Okay, this is a little bit of a derail, but it's a good story. So, one of the key scenes in Almost Famous that Cameron Crowe wrote into the film is the kid, in order to convince his mom that rock and roll has soul and is a real art form, plays her Stairway to Heaven, and in the film, it was supposed to happen in real time. So that they basically—the movie stops while you look at him and Frances McDormand listening to the song in real time. The whole—and Crowe was like, "It was my favorite scene in the movie. It made it through all 50 drafts of the script. And if you had asked me at the beginning and at the end what scene is going to be the soul of this movie, I would have said that scene." And the moment they got in the editing room, he's like, "It's got to go. It totally doesn't work. It's too—"
 
 [00:02:18] Will: It's not in the director's cut.
 
@@ -106,11 +106,11 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:02:51] Adam: And it's a great scene. But you can totally imagine it. It just killed the pace of the movie.
 
-[00:02:55] Will: It's one of those movies I bought like three times on, on—I bought all three DVD releases.
+[00:02:55] Will: It's one of those movies I bought like three times on—I bought all three DVD releases.
 
 [00:03:00] Adam: And why did you? Because they still assume that you don't own their digital media, right?
 
-[00:03:03] Will: Of course not. Of course. Um, that's a different topic.
+[00:03:03] Will: Of course not. Of course. That's a different topic.
 
 [00:03:06] Norm: More and more directors should do that, though. Interesting ones.
 
@@ -120,9 +120,9 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:03:11] Will: The Looper director.
 
-[00:03:11] Norm: Rian, Rian. Syncing up, having additional audio tracks, or, you know, tell you to find things that maybe they can get rights to, or be more interesting later, and then syncing it up.
+[00:03:11] Norm: Rian, Rian. Syncing up, having additional audio tracks, or tell you to find things that maybe they can get rights to, or be more interesting later, and then syncing it up.
 
-[00:03:21] Adam: That's amazing. You know, I, I also like the fact that when the Coen brothers did a director's cut of, um, Blood Simple, the director's cut is actually shorter.
+[00:03:21] Adam: That's amazing. I also like the fact that when the Coen brothers did a director's cut of Blood Simple, the director's cut is actually shorter.
 
 [00:03:31] Will: Really?
 
@@ -136,11 +136,11 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:03:49] Adam: The director's cut is not nearly as good as the theatrical release, in my opinion, and for the following reason: it spells out too much. Oh, right! It starts answering all these questions that you had that you didn't want, you don't need answers to.
 
-[00:04:06] Will: We're Americans; we need answers for everything. You know, one that surprised me. We were going to talk about something else, but maybe we should just talk about director's cuts.
+[00:04:06] Will: We're Americans; we need answers for everything. One that surprised me. We were going to talk about something else, but maybe we should just talk about director's cuts.
 
 [00:04:14] Adam: Well, it's extra materials, fun moments, because I got a couple of stories on that one.
 
-[00:04:17] Will: The, the, the two—the one summer Terminator Salvation and Wolverine both came out at the same time. They were both bad movies in the theater.
+[00:04:17] Will: The two—the one summer Terminator Salvation and Wolverine both came out at the same time. They were both bad movies in the theater.
 
 [00:04:23] Unknown speaker: And they both sucked.
 
@@ -152,7 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:04:33] Will: Have you watched either of them?
 
-[00:04:34] Norm: The movie, the movie itself lost me so much. There's no way that a director's cut—
+[00:04:34] Norm: The movie itself lost me so much. There's no way that a director's cut—
 
 [00:04:38] Adam: Wait, which one?
 
@@ -166,7 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:04:41] Adam: Oh, it's goofy, but very enjoyable.
 
-[00:04:44] Norm: Wait, wait, wait, wait, wait! Hold on, hold on, Adam. Because if we're gonna tarry on that—
+[00:04:44] Norm: Wait, wait, wait, wait, wait! Hold on, Adam. Because if we're gonna tarry on that—
 
 [00:04:46] Unknown speaker: Oh, here we go.
 
@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:04:54] Adam: I do believe I watched it out of the corner of my eye. I don't think I sat in front of it. I think it was on in a room I was in for the whole time. So I was able to peek in. But go ahead and tell me why it's great.
 
-[00:05:02] Norm: It's about mutants, and it's a Fox movie, so they have all the rights to all the mutants. In the beginning of the movie, I'm going to mix relatively quick. Wolverine, in his, in his old days, he's teamed up with a bunch of other mutants, and there's a scene where they all show off their powers. One guy can teleport. One guy, Wolverine has the claws. Sabretooth is vicious, and one guy, Agent Zero, his ability is that he can fire bullets. He has this crazy choreographed scene where he fires amazing bullets. He's an Asian dude.
+[00:05:02] Norm: It's about mutants, and it's a Fox movie, so they have all the rights to all the mutants. In the beginning of the movie, I'm going to mix relatively quick. Wolverine, in his old days, he's teamed up with a bunch of other mutants, and there's a scene where they all show off their powers. One guy can teleport. One guy, Wolverine has the claws. Sabretooth is vicious, and one guy, Agent Zero, his ability is that he can fire bullets. He has this crazy choreographed scene where he fires amazing bullets. He's an Asian dude.
 
 [00:05:23] Adam: Yeah.
 
@@ -214,7 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:06:00] Adam: Wolverine's brother.
 
-[00:06:01] Norm: No, no, no. The, the guy who gave him this adamantium skeleton.
+[00:06:01] Norm: No, no, no. The guy who gave him this adamantium skeleton.
 
 [00:06:04] Adam: Right, right. Sorry, it's—
 
@@ -232,7 +232,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:06:47] Norm: And you didn't give that gun to him.
 
-[00:06:50] Adam: That's good. That is absolutely the kind of thing that can totally lose me. My, my friend David loves the bit that is like in Batman Dark Knight Rises: "No one has ever gotten out of this prison, except for an 11-year-old girl." But extra materials, I exhort you to go and watch the extra materials commentary for The Matrix, the first DVD release of The Matrix.
+[00:06:50] Adam: That's good. That is absolutely the kind of thing that can totally lose me. My friend David loves the bit that is like in Batman Dark Knight Rises: "No one has ever gotten out of this prison, except for an 11-year-old girl." But extra materials, I exhort you to go and watch the extra materials commentary for The Matrix, the first DVD release of The Matrix.
 
 [00:07:19] Unknown speaker: Who's on it?
 
@@ -244,7 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:07:35] Will: Was it? Was it—
 
-[00:07:36] Norm: We couldn't, we couldn't get the brothers or the siblings. Right. We couldn't get Keanu Reeves or Morris Fishburne.
+[00:07:36] Norm: We couldn't get the brothers or the siblings. Right. We couldn't get Keanu Reeves or Morris Fishburne.
 
 [00:07:40] Will: So was it—they were all in the room at the same time, talking to each other? Yeah. It's not like the one where they—one person talks and they're—the other person talks. They're watching completely different screenings.
 
@@ -256,11 +256,11 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:07:49] Unknown speaker: Ooh.
 
-[00:07:50] Adam: Because when you're listening to it, um, I, I don't want to make anyone look bad here because it's just clear that they didn't really get along very well. Not Gaeta and Moss, but the editor and Gaeta, like. The editor was really—I think it was the editor. I—I don't want to say it was the editor. I can't remember the crew position, but the guy who was one of the key crew people—he was trying to move things forward. So at one point, there's a—when the shot when Neo takes the pill and you go into his mouth and everything, and the editor says to Gaeta, "John, I think you might want to talk about the visual style here that you guys chose to do this." And Gaeta literally goes, "What?" He literally—you hear him totally do that—
+[00:07:50] Adam: Because when you're listening to it I, I don't want to make anyone look bad here because it's just clear that they didn't really get along very well. Not Gaeta and Moss, but the editor and Gaeta, like. The editor was really—I think it was the editor. I don't want to say it was the editor. I can't remember the crew position, but the guy who was one of the key crew people—he was trying to move things forward. So at one point, there's a—when the shot when Neo takes the pill and you go into his mouth and everything, and the editor says to Gaeta, "John, I think you might want to talk about the visual style here that you guys chose to do this." And Gaeta literally goes, "What?" He literally—you hear him totally do that—
 
 [00:08:39] Norm: And that made the cut.
 
-[00:08:40] Adam: I will say, oh yeah, they just—they just ran with it. I don't know if you remember, but Matrix helped establish DVD as a—
+[00:08:40] Adam: I will say, oh yeah, they just ran with it. I don't know if you remember, but Matrix helped establish DVD as a—
 
 [00:08:46] Unknown speaker: Oh, yeah.
 
@@ -286,7 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:09:21] Adam: It might not be as bad as I remember because I really remember like Gaeta appearing in my head, going, "Oh, what?"
 
-[00:09:30] Will: So not to, not to harp on the Almost Famous wagon, but the one with Cameron Crowe and his mom where they watch the movie together.
+[00:09:30] Will: So not to harp on the Almost Famous wagon, but the one with Cameron Crowe and his mom where they watch the movie together.
 
 [00:09:37] Adam: No, I haven't seen that.
 
@@ -296,11 +296,11 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:09:40] Unknown speaker: Wow.
 
-[00:09:41] Will: Fantastic. Because she's, she is like—you, you listen to her and you hear Frances McDormand, which I know is like weird because you're talking about the woman playing the woman playing. Yeah. Fantastic.
+[00:09:41] Will: Fantastic. Because she's, she is like—you listen to her and you hear Frances McDormand, which I know is like weird because you're talking about the woman playing. Yeah. Fantastic.
 
 [00:09:50] Adam: Really?
 
-[00:09:50] Will: Yeah. Really, totally worth watching. I think it's only on like the, the Still Untitled version of—
+[00:09:50] Will: Yeah. Really, totally worth watching. I think it's only on like the Still Untitled version of—
 
 [00:09:56] Adam: You know—
 
@@ -320,13 +320,13 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:10:32] Adam: Yeah.
 
-[00:10:32] Norm: The production, I mean, like it's, um—
+[00:10:32] Norm: The production, I mean, like it's—
 
 [00:10:33] Will: They have rights.
 
-[00:10:35] Norm: Yeah, with distribution and, and who produce that DVD for that market? I mean, they do their own art, art for the DVD.
+[00:10:35] Norm: Yeah, with distribution and who produce that DVD for that market? I mean, they do their own art, art for the DVD.
 
-[00:10:40] Adam: I'll tell you. I'll tell you another DVD, uh, extra materials weirdness, and this one's directed right at my employer, Discovery. Discovery, so MythBusters has shot, um—we shoot and edit a 48-minute cut for international television, but in the US it's 42.5 minutes.
+[00:10:40] Adam: I'll tell you. I'll tell you another DVD extra materials weirdness, and this one's directed right at my employer, Discovery. Discovery, so MythBusters has shot—we shoot and edit a 48-minute cut for international television, but in the US it's 42.5 minutes.
 
 [00:10:57] Will: So hold on, we're getting screwed out of six minutes of Mythb—MythBusters every week?
 
@@ -352,21 +352,21 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:11:23] Norm: It's a simple decision.
 
-[00:11:24] Adam: Yeah. I, I, I've mentioned it to them, and hopefully maybe this will galvanize them into action.
+[00:11:24] Adam: Yeah. I, I've mentioned it to them, and hopefully maybe this will galvanize them into action.
 
-[00:11:29] Will: The, the, the upswell of rage from the listeners of Still Untitled.
+[00:11:29] Will: The upswell of rage from the listeners of Still Untitled.
 
 [00:11:33] Adam: Exactly.
 
-[00:11:34] Norm: And this is a perfect place to request people, I mean, listening to this and watching this to list your favorite commentaries, because we want to, we want to hear them and see them.
+[00:11:34] Norm: And this is a perfect place to request people, I mean, listening to this and watching this to list your favorite commentaries, because we want to hear them and see them.
 
-[00:11:41] Will: I, I love when Gene and I are playing board games. I love to put on a movie that we're familiar with.
+[00:11:41] Will: I love when Gene and I are playing board games. I love to put on a movie that we're familiar with.
 
 [00:11:45] Adam: Oh.
 
 [00:11:45] Will: We'll play the board game, run the commentary, and it's something you can totally pay attention to when you're not taking your turn or whatever. And it's great because if you're playing something that takes a little bit of thought, you take like four or five minutes.
 
-[00:11:53] Norm: Arnold Schwarzenegger's commentary for, um—
+[00:11:53] Norm: Arnold Schwarzenegger's commentary for—
 
 [00:11:56] Will: Oh, this one's good.
 
@@ -396,11 +396,11 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:12:41] Will: Ooh.
 
-[00:12:43] Adam: Um, it is Val Kilmer's solo commentary for Spartan, the David Mamet movie.
+[00:12:43] Adam: It is Val Kilmer's solo commentary for Spartan, the David Mamet movie.
 
 [00:12:50] Will: Really?
 
-[00:12:51] Adam: And Spartan is one of my favorite movies. Yeah. I love Spartan. I've seen it like five times. And my wife and I use, you know, lines—movies have callback lines that you—
+[00:12:51] Adam: And Spartan is one of my favorite movies. Yeah. I love Spartan. I've seen it like five times. And my wife and I use lines—movies have callback lines that you—
 
 [00:13:00] Will: Yeah.
 
@@ -412,17 +412,17 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:13:29] Will: Oh my God! It's a look in his psyche at that point of his career.
 
-[00:13:33] Adam: And he's, and, you know, he calls him, he, he ribs Mamet endlessly. You know, calls him Mister Mamet and talks about how pretentious he is. Clearly loves Mamet.
+[00:13:33] Adam: And he's, and he calls him, he ribs Mamet endlessly. Calls him Mister Mamet and talks about how pretentious he is. Clearly loves Mamet.
 
 [00:13:41] Will: Yeah.
 
-[00:13:42] Adam: Um, and also gives you some lovely insight into his character about how difficult certain things—about the moral journey of his character. Um, and again, it's a terrific, it, it's a terrific enhancement on an already great movie. So much so that I've introduced two other people to the commentary by sitting down and watching it.
+[00:13:42] Adam: And also gives you some lovely insight into his character about how difficult certain things—about the moral journey of his character. And again, it's a terrific, it, it's a terrific enhancement on an already great movie. So much so that I've introduced two other people to the commentary by sitting down and watching it.
 
-[00:14:02] Will: I, I would, I'm gonna, I'm gonna go load that up.
+[00:14:02] Will: I would, I'm gonna go load that up.
 
 [00:14:04] Adam: Yeah.
 
-[00:14:05] Will: Um, another great Val Kilmer commentary is the one with him and Robert Downey Jr.—
+[00:14:05] Will: Another great Val Kilmer commentary is the one with him and Robert Downey Jr.—
 
 [00:14:10] Adam: For Kiss Kiss Bang Bang. Another totally undersung, but brilliant movie.
 
@@ -442,17 +442,17 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:14:22] Adam: Okay, we'll talk about it after this.
 
-[00:14:24] Norm: Uh, the best description I read was that it was a—this is either a great Shane Black movie masquerading as a superhero movie, or a superhero movie masquerading as a Shane Black movie. I don't know which one it is, but I'm happy with either way.
+[00:14:24] Norm: The best description I read was that it was a—this is either a great Shane Black movie masquerading as a superhero movie, or a superhero movie masquerading as a Shane Black movie. I don't know which one it is, but I'm happy with either way.
 
 [00:14:35] Will: Oh, that's so good!
 
-[00:14:36] Adam: I have also heard tales. A friend of mine just wrote to me and said that, uh, that Superman, Superman—
+[00:14:36] Adam: I have also heard tales. A friend of mine just wrote to me and said that that Superman, Superman—
 
 [00:14:45] Will: Man of Steel.
 
 [00:14:45] Adam: Man of Steel is the best superhero movie they've ever seen.
 
-[00:14:48] Norm: I, I believe it.
+[00:14:48] Norm: I believe it.
 
 [00:14:49] Unknown speaker: The trailer was so good.
 
@@ -460,11 +460,11 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:14:51] Norm: Yeah.
 
-[00:14:51] Will: I, I, I just load up the trailer sometimes and watch it and kind of cry quietly. I'm glad that something this beautiful exists in the world, even if the movie is shit. I can be happy with the trailer—
+[00:14:51] Will: I just load up the trailer sometimes and watch it and kind of cry quietly. I'm glad that something this beautiful exists in the world, even if the movie is shit. I can be happy with the trailer—
 
 [00:15:00] Norm: And the music from the trailer.
 
-[00:15:01] Will: Um, any other, any other gems? Where—oh, we actually, we still have loads of time. I, I—the, the, there, there was, uh, the Ghostbusters one.
+[00:15:01] Will: Any other gems? Where—oh, we actually, we still have loads of time. I—the, there was the Ghostbusters one.
 
 [00:15:11] Adam: Yeah.
 
@@ -502,7 +502,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:15:47] Will: Everything works.
 
-[00:15:48] Adam: I love the Stay Puft Marshmallow Man, and I was surprised to see that in that, uh, someone just released a, uh, informational poster of movie monster sizes—
+[00:15:48] Adam: I love the Stay Puft Marshmallow Man, and I was surprised to see that in that someone just released a informational poster of movie monster sizes—
 
 [00:15:57] Unknown speaker: Mm-hmm.
 
@@ -524,7 +524,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:16:23] Adam: Could—yeah, but I like to think of him as from Hooper.
 
-[00:16:26] Will: Well, I, I grew up—I'm going to go ahead and tell you, Airwolf, featuring the, the comic stylings of Ernest Borgnine, was a regular viewing in my household when I was 10 years old or however old I was.
+[00:16:26] Will: Well, I, I grew up—I'm going to go ahead and tell you, Airwolf, featuring the comic stylings of Ernest Borgnine, was a regular viewing in my household when I was 10 years old or however old I was.
 
 [00:16:37] Adam: So The Stunt Man is a really dark movie starring Peter O'Toole as a crazy director, and I think, I could be wrong on this, it's Jan-Michael Vincent, and someone will no doubt correct me if I am wrong.
 
@@ -544,7 +544,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:17:23] Adam: A guy in a monkey suit.
 
-[00:17:25] Will: Um, the Kevin Smith movies have great commentaries as a general rule.
+[00:17:25] Will: The Kevin Smith movies have great commentaries as a general rule.
 
 [00:17:28] Adam: I would have no doubt about that.
 
@@ -558,7 +558,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:17:39] Will: Oh, yeah.
 
-[00:17:40] Adam: Right, like a lot of times in, in literature and other stuff about movies, you have to read between the lines to realize, like, "Oh wow, that must have been shitty, shitty, shitty." Like in the, uh, Cinefex about Titanic, which I know for many of the people who worked on it was one of the hardest movies to work on ever. And there's one point in Cinefex, they're like, "Yeah, we needed a 45-foot-long Titanic, and we built it in 60 days with 100 model makers." And I think that sounds like a Dantean terror.
+[00:17:40] Adam: Right, like a lot of times in literature and other stuff about movies, you have to read between the lines to realize, like, "Oh wow, that must have been shitty, shitty, shitty." Like in the Cinefex about Titanic, which I know for many of the people who worked on it was one of the hardest movies to work on ever. And there's one point in Cinefex, they're like, "Yeah, we needed a 45-foot-long Titanic, and we built it in 60 days with 100 model makers." And I think that sounds like a Dantean terror.
 
 [00:18:13] Will: Wow.
 
@@ -580,7 +580,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:18:33] Adam: He never screamed at us. He's a very, very nice man.
 
-[00:18:36] Will: I'm—as long as the model comes out on time, everything's cool. Um, let's see. What else? What other? What other? What other?
+[00:18:36] Will: I'm—as long as the model comes out on time, everything's cool. Let's see. What else? What other? What other? What other?
 
 [00:18:43] Adam: What other great commentaries?
 
@@ -590,7 +590,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:18:47] Norm: Different cuts.
 
-[00:18:48] Adam: So I'll tell you, um, my wife and I are big J.J. Abrams fans and big television fans, and so we've done things like watched Felicity. She loves—we've watched Felicity early shows and watched the commentary on those, and that led us to, uh, uh, Herskovitz, who then did Thirtysomething and Once and Again. Uh, and if you've ever seen Once and Again, it is where Evan Rachel Wood first hit the ground running, and she plays, uh, the daughter of, uh, Billy Campbell or Sela Ward. I'm trying to remember. At any rate—
+[00:18:48] Adam: So I'll tell you my wife and I are big J.J. Abrams fans and big television fans, and so we've done things like watched Felicity. She loves—we've watched Felicity early shows and watched the commentary on those, and that led us to Herskovitz, who then did Thirtysomething and Once and Again. And if you've ever seen Once and Again, it is where Evan Rachel Wood first hit the ground running, and she plays the daughter of Billy Campbell or Sela Ward. I'm trying to remember. At any rate—
 
 [00:19:26] Will: Never seen Once and Again.
 
@@ -598,7 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:19:39] Will: The TV show?
 
-[00:19:40] Adam: The, the director of, of, of Once and Again, the creator?
+[00:19:40] Adam: The director of Once and Again, the creator?
 
 [00:19:45] Will: I think your Wi-Fi is down.
 
@@ -608,13 +608,13 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:19:49] Norm: Yep.
 
-[00:19:49] Will: Uh, you know, while Norm's looking that up, I got a, I got a shout out to the Simpsons commentaries.
+[00:19:49] Will: While Norm's looking that up, I got a shout out to the Simpsons commentaries.
 
 [00:19:53] Adam: Oh, really?
 
 [00:19:54] Will: When you get into—because it's usually like Al Jean and then whoever the writer was or lead writer was on that episode, and, and showrunners and whatever. They're awesome. Especially, I mean, I've listened through probably season five or six, and then I kind of ran out of steam because it turns out it's a lot of listening. But, but especially like season three when they hit the hard stride and like Conan was writing, writing great episodes. They brought in people from the old days to do the commentaries. They're almost all worth watching. Especially like go, go pick the ones for your favorite episodes.
 
-[00:20:24] Adam: So it's, it's Ed Zwick.
+[00:20:24] Adam: So it's Ed Zwick.
 
 [00:20:26] Will: Oh, okay.
 
@@ -624,9 +624,9 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:20:58] Will: That's awesome.
 
-[00:20:59] Adam: And then he'll show you a scene. There's another scene in one episode where she's got a secret, and the other daughter—you know, another little girl—knows the secret and sort of reveals it offhand. And Evan Rachel Wood, you see the penny drop behind her eyes when she realizes that her secret's out. And Zwick talks you through it on the commentary: "Watch her," he said. "Rewind this and watch this. Watch the—her eyes. Look there, she's got it. She's not reacting yet. Watch this. Now she's holding it back." Look at all that sophistication in like a 13- or 14-year-old girl. That's amazing.
+[00:20:59] Adam: And then he'll show you a scene. There's another scene in one episode where she's got a secret, and the other daughter—another little girl—knows the secret and sort of reveals it offhand. And Evan Rachel Wood, you see the penny drop behind her eyes when she realizes that her secret's out. And Zwick talks you through it on the commentary: "Watch her," he said. "Rewind this and watch this. Watch the—her eyes. Look there, she's got it. She's not reacting yet. Watch this. Now she's holding it back." Look at all that sophistication in like a 13- or 14-year-old girl. That's amazing.
 
-[00:21:34] Norm: And that's, that's why commentaries are so great. There's so much that goes into the production of a movie. Yeah. And all the shots they take and all the nuances and things that, you know, you can read a, a analysis and, and, and talk to a film student about it, but when you listen to the commentary, and they're just giving you a, a little bit—
+[00:21:34] Norm: And that's why commentaries are so great. There's so much that goes into the production of a movie. Yeah. And all the shots they take and all the nuances and things that you can read a analysis and talk to a film student about it, but when you listen to the commentary, and they're just giving you a little bit—
 
 [00:21:49] Adam: Yeah.
 
@@ -634,7 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:21:54] Adam: Yeah, we should get some. I'm sure we'll get some nice, fat lists of excellent commentaries at the end of this.
 
-[00:21:59] Will: I'm scrolling down the list of the best of all time. The, the philosophers and critics on Matrix is listed here. This is kind of an old list. There's nothing, nothing relatively recent.
+[00:21:59] Will: I'm scrolling down the list of the best of all time. The philosophers and critics on Matrix is listed here. This is kind of an old list. There's nothing, nothing relatively recent.
 
 [00:22:08] Norm: So what about we start with director's cuts and saying some director's cuts were shorter and some were longer, and—
 
@@ -646,41 +646,41 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:22:21] Will: So no comment, no, no narration?
 
-[00:22:23] Adam: No narration. Uh, I was surprised how much you—how much more you see without the narration. Like as soon as someone's talking at you, your visual cortex just starts to shut down as you process what they're saying.
+[00:22:23] Adam: No narration. I was surprised how much you—how much more you see without the narration. Like as soon as someone's talking at you, your visual cortex just starts to shut down as you process what they're saying.
 
 [00:22:36] Will: We should test that.
 
 [00:22:37] Adam: Hello, hands-free telephone use.
 
-[00:22:39] Will: Yeah, we should, we should put somebody in an MRI and test. Like, anyway—
+[00:22:39] Will: Yeah, we should put somebody in an MRI and test. Like, anyway—
 
 [00:22:43] Adam: I do believe that.
 
 [00:22:43] Will: Yeah, somebody's done that. I'm sure.
 
-[00:22:44] Adam: Uh, and then, uh, yeah, I was, I, I, I really—that's an example where whatever, however many director's cuts there were, three or four, I saw all of them.
+[00:22:44] Adam: And then, uh, yeah, I was, I, I, I really—that's an example where whatever, however many director's cuts there were, three or four, I saw all of them.
 
-[00:22:52] Norm: There were seven on, on, on the, the final, I think, right?
+[00:22:52] Norm: There were seven on the final, I think, right?
 
 [00:22:55] Adam: Yeah, exactly.
 
-[00:22:57] Will: Um, this—the one on the top of this list, and this is, I think, IGN's list, Screen Rant's list—is one that I have actually listened to and is fabulous. The Robert Downey Jr., Jack Black, Ben Stiller Tropic Thunder commentary is brilliant because, because Stiller provides a lot of background on the, on the production—
+[00:22:57] Will: This—the one on the top of this list, and this is, I think, IGN's list, Screen Rant's list—is one that I have actually listened to and is fabulous. The Robert Downey Jr., Jack Black, Ben Stiller Tropic Thunder commentary is brilliant because Stiller provides a lot of background on the production—
 
 [00:23:13] Adam: Yeah.
 
-[00:23:14] Will: Um, and then Jack Black and Robert Downey Jr. are just basically there to derail him constantly, push him over the edge, and it seems like it's probably Jack Black's finest role, so—
+[00:23:14] Will: And then Jack Black and Robert Downey Jr. are just basically there to derail him constantly, push him over the edge, and it seems like it's probably Jack Black's finest role, so—
 
 [00:23:23] Adam: I think I must take a look at that.
 
-[00:23:24] Will: Um, I guess that'll do it. Anything else we want to hit? Um, other, other extended versions that were better? I, I love the extended Lord of the Rings movies. I know that they're plodding.
+[00:23:24] Will: I guess that'll do it. Anything else we want to hit? Other, other extended versions that were better? I love the extended Lord of the Rings movies. I know that they're plodding.
 
 [00:23:33] Adam: I watched all of them, and I watched all of the Lord of the Rings commentary and extra materials.
 
-[00:23:38] Will: Who's on the comment? Is it, is it, um—
+[00:23:38] Will: Who's on the comment? Is it—
 
 [00:23:40] Adam: I can't remember. There's so many.
 
-[00:23:42] Will: Oh, really? The, the one I, I listened to, the one with, um, um, I kind of can't even remember his name. Who, who directed Lord of the Rings?
+[00:23:42] Will: Oh, really? The one I, I listened to, the one with I kind of can't even remember his name. Who, who directed Lord of the Rings?
 
 [00:23:48] Norm: Peter Jackson.
 
@@ -688,11 +688,11 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:23:51] Adam: Fran Walsh.
 
-[00:23:52] Will: And I think the production designer, which was, which was really good. But yeah. Okay, well, that'll do it for us this week.
+[00:23:52] Will: And I think the production designer, which was really good. But yeah. Okay, well, that'll do it for us this week.
 
 [00:23:58] Adam: Send us your list. We're gonna watch—we'll watch some of them.
 
-[00:24:01] Will: We'll call this one the off-topic episode. Yeah, post the list, post your favorites in the comments, and, and, uh, we'll make a list and put it on the site so that people can find it.
+[00:24:01] Will: We'll call this one the off-topic episode. Yeah, post the list, post your favorites in the comments, and we'll make a list and put it on the site so that people can find it.
 
 [00:24:08] Adam: Absolutely.
 

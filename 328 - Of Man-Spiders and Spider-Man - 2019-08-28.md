@@ -48,9 +48,9 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:00:57] Adam: He's a big guy. He said, " I like your lean look. Keep it up."
 
-[00:01:02] Will: You know he was he was the presidential advisor on physical fitness for most of my childhood.
+[00:01:02] Will: He was the presidential advisor on physical fitness for most of my childhood.
 
-[00:01:06] Adam: That's hilarious. Yeah, he's he's he's very funny in person.
+[00:01:06] Adam: That's hilarious. Yeah, he's very funny in person.
 
 [00:01:11] Will: I can imagine that.
 
@@ -64,7 +64,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:01:14] Adam: Yeah. I said, “Good morning, governor. How are you?”
 
-[00:01:19] Norm: I'm really curious what he like in in all his interactions.
+[00:01:19] Norm: I'm really curious what he like in all his interactions.
 
 [00:01:23] Adam: Yeah, I'm totally curious too,
 
@@ -92,7 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:02:05] Adam: He's a terrific actor, and he was a super sweet guy. We spent a little while chatting with him over there in the corner.
 
-[00:02:10] Will: I I heard from friends that Jason Momoa left a trail of swooning people in his wake everywhere he went.
+[00:02:10] Will: I heard from friends that Jason Momoa left a trail of swooning people in his wake everywhere he went.
 
 [00:02:16] Adam: That's what he does, even on television.
 
@@ -100,7 +100,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:02:20] Norm: But you did. You were there for you did an incognito.
 
-[00:02:23] Adam: I did. I did a Star Lord incognito, and this was one. This was a hasty, a hasty incognito. It was about three weeks ago that we were like, " Whoa, we're back from DC, and Silicon Valley is like just around the corner." So I scrambled, and for a mad scramble, I mean, this was the luxury of having this shop and these amazing people working with me. But Mel and Jen and Kayte Sabicer came in, and we put in like a full, probably all four of us for like six days.
+[00:02:23] Adam: I did. I did a Star Lord incognito, and this was one. This was a hasty incognito. It was about three weeks ago that we were like, " Whoa, we're back from DC, and Silicon Valley is like just around the corner." So I scrambled, and for a mad scramble, I mean, this was the luxury of having this shop and these amazing people working with me. But Mel and Jen and Kayte Sabicer came in, and we put in like a full, probably all four of us for like six days.
 
 [00:02:56] Norm: Yeah,
 
@@ -118,11 +118,11 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:03:56] Will: Yeah,
 
-[00:03:56] Adam: and then I gathered a couple of other parts and pieces, and then it turned out my friend Joe, who goes by Joatrash on the RPF, had been Monstrously delightfully obsessed with it, and supplied me with a bunch of 3D drawings that he had done to use for my mask and my guns, and my rocket controllers, and all of that came out great. I had some friends print them up. Carbon 3D did a little printing for me too. It was, it was. I'm so happy with how that costume came out.
+[00:03:56] Adam: and then I gathered a couple of other parts and pieces, and then it turned out my friend Joe, who goes by Joatrash on the RPF, had been Monstrously delightfully obsessed with it, and supplied me with a bunch of 3D drawings that he had done to use for my mask and my guns, and my rocket controllers, and all of that came out great. I had some friends print them up. Carbon 3D did a little printing for me too. It was. I'm so happy with how that costume came out.
 
 [00:04:25] Norm: Huge team effort. Yeah. You didn't feel like you had to do everything, but at the same time, while you could have done like 3D printing on the Walkman, you chose to do styrene build. You wanted to.
 
-[00:04:34] Adam: I thought that was a really fun one day build, and we haven't we haven't put that up yet. Yeah, so when we put that up, the thing I like about it is a lot of people look at that build and they’re like, ah, the $ 400 Walkman, and there are a lot of people are making resin ones that they sell on eBay and even Amazon for like $20. It's a really easy, great, high reward build. And by the way, we made we made a little, I think DXF of the graphic
+[00:04:34] Adam: I thought that was a really fun one day build, and we haven't put that up yet. Yeah, so when we put that up, the thing I like about it is a lot of people look at that build and they’re like, ah, the $ 400 Walkman, and there are a lot of people are making resin ones that they sell on eBay and even Amazon for like $20. It's a really easy, great, high reward build. And by the way, we made a little, I think DXF of the graphic
 
 [00:05:02] Norm: of the decal sheet
 
@@ -156,9 +156,9 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:06:00] Norm: Well, in the moment, it's like with every cosplay, you feel, and also maybe it's appropriate for Star Lord. You feel more awesome than you actually.
 
-[00:06:09] Adam: No, no, I should have committed more. I wanted to, I wanted to go. Farther, I wanted more dancing. I should have done a couple of twirls. That's all I'm thinking.
+[00:06:09] Adam: No, no, I should have committed more. I wanted to go. Farther, I wanted more dancing. I should have done a couple of twirls. That's all I'm thinking.
 
-[00:06:16] Will: To play Star Lord, you need a certain level of of complete
+[00:06:16] Will: To play Star Lord, you need a certain level of complete
 
 [00:06:16] Adam: Abandon.
 
@@ -168,7 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:06:23] Will: It's hard for any normal human being to do.
 
-[00:06:26] Adam: Um, So yeah, I watched that and I was like, ah, I wish my dancing was a little more over the top. But the fan, I mean, I got found instantly. My my, I didn't realize that it's like it's like how much of your forehead is totally visible.
+[00:06:26] Adam: So yeah, I watched that and I was like, ah, I wish my dancing was a little more over the top. But the fan, I mean, I got found instantly. My, I didn't realize that it's like how much of your forehead is totally visible.
 
 [00:06:38] Will: Yeah,
 
@@ -196,7 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:06:55] Will: Oh, man, that’s uncomfortable.
 
-[00:06:55] Adam: I mean, I guess I could have overcome the the tensile strength of the sintered nylon that made the helmet, but that would have been an ugly scene.
+[00:06:55] Adam: I mean, I guess I could have overcome the tensile strength of the sintered nylon that made the helmet, but that would have been an ugly scene.
 
 [00:07:04] Will: Destroyed the helmet
 
@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:07:12] Adam: Oh, really?
 
-[00:07:12] Will: Because I thought, as as like a four year old watching that on TV, I thought, oh, if you get too angry, you're just going to turn green.
+[00:07:12] Will: Because I thought, as like a four year old watching that on TV, I thought, oh, if you get too angry, you're just going to turn green.
 
 [00:07:12] Unknown speaker: You’re going to turn green.
 
@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:07:31] Adam: Yeah. Yeah. He looks fabulous. He he's, I mean, I I'm not sure how old he is, but he looks 20 years younger than that.
 
-[00:07:37] Will: He he keeps popping up. He popped up in cameos, for what are the Hulks? Was the Ed Norton one?
+[00:07:37] Will: He keeps popping up. He popped up in cameos, for what are the Hulks? Was the Ed Norton one?
 
 [00:07:42] Adam: Oh, did he?
 
@@ -244,7 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:07:50] Will: Anything else?
 
-[00:07:50] Norm: He was in that movie. Uh, you know, he was a whole plot point in that movie with Paul Rudd
+[00:07:50] Norm: He was in that movie. He was a whole plot point in that movie with Paul Rudd
 
 [00:07:54] Adam: and I Love You, man.
 
@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:08:07] Unknown (Norm or Will): Yeah.
 
-[00:08:08] Norm: And um, I mean, artist alley, I think for a con like this size, is the best place. Uh, where artists have small, you know. Small tables, and you can you find all sorts of diverse art. There was someone there doing Miyazaki inspired art, but set in San Francisco, like Catbus running through the Golden Gate Bridge.
+[00:08:08] Norm: And I mean, artist alley, I think for a con like this size, is the best place. Where artists have small. Small tables, and you can you find all sorts of diverse art. There was someone there doing Miyazaki inspired art, but set in San Francisco, like Catbus running through the Golden Gate Bridge.
 
 [00:08:23] Will: Oh, man. Really?
 
@@ -286,9 +286,9 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:09:04] Will: lost wax sculpting?
 
-[00:09:05] Adam: That's awesome. That's rad. I love Silicon Valley Con. It's a. It is a delightful. It's lovely that it's homegrown, but I also the fan interactions just feel more and more. Like a like a long term friendship.
+[00:09:05] Adam: That's awesome. That's rad. I love Silicon Valley Con. It's a. It is a delightful. It's lovely that it's homegrown, but I also the fan interactions just feel more and more. Like a long term friendship.
 
-[00:09:18] Will: I was I was I had intended to come this year and was sad that I had to cancel, but next year I'll be there. It sounds like it's a really good time. It
+[00:09:18] Will: I was I had intended to come this year and was sad that I had to cancel, but next year I'll be there. It sounds like it's a really good time. It
 
 [00:09:24] Adam: was fabulous.
 
@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:09:55] Will: That's the worst thing ever.
 
-[00:09:56] Norm: And then put it over a bodysuit, over a harness, and then stretch. You know, one of those like those like nylon or spandex costumes you can get that perfectly fit over, and then tore holes in that so the fur pops out, and then did their own sculpting hair punching for the mask.
+[00:09:56] Norm: And then put it over a bodysuit, over a harness, and then stretch. One of those like nylon or spandex costumes you can get that perfectly fit over, and then tore holes in that so the fur pops out, and then did their own sculpting hair punching for the mask.
 
 [00:10:13] Will: I'm just
 
@@ -330,13 +330,13 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:10:25] Norm: I think we have all finally seen Spider Man.
 
-[00:10:31] Adam: Yeah, I watched Far From Home this weekend. This last week we were in a secret location, and I watched I watched it in the hotel.
+[00:10:31] Adam: Yeah, I watched Far From Home this weekend. This last week we were in a secret location, and I watched it in the hotel.
 
 [00:10:37] Will: So before we talk about Spider Man,
 
 [00:10:37] Adam: yeah,
 
-[00:10:37] Will: people should go see Booksmart. It's not in theaters anymore. It's out on on demand. I think now
+[00:10:37] Will: people should go see Booksmart. It's not in theaters anymore. It's out on demand. I think now
 
 [00:10:43] Adam: I'm dying to see it.
 
@@ -356,7 +356,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:11:04] Adam: Welcome to the internet.
 
-[00:11:05] Will: But yeah, it's it's it's very worth watching. It's very sweet.
+[00:11:05] Will: But yeah, it's very worth watching. It's very sweet.
 
 [00:11:08] Adam: I can't wait. The trailer made me super excited. I just wasn't able to get out to see it in theaters. Sorry,
 
@@ -376,11 +376,11 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:11:32] Will: Yeah,
 
-[00:11:32] Adam: I loved. I I loved watching Jake Gyllenhaal and realizing and knowing that he insisted on a real physical IRL costume.
+[00:11:32] Adam: I loved. I loved watching Jake Gyllenhaal and realizing and knowing that he insisted on a real physical IRL costume.
 
 [00:11:32] Norm: Yeah,
 
-[00:11:32] Adam: they they offered him a digital costume.
+[00:11:32] Adam: they offered him a digital costume.
 
 [00:11:32] Will: Oh,
 
@@ -394,7 +394,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:12:13] Adam: And they address some of the issues of Endgame. Post Endgame,
 
-[00:12:13] Will: they they I mean
+[00:12:13] Will: they I mean
 
 [00:12:13] Adam: they elide well more issues than they actually.
 
@@ -422,11 +422,11 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:12:46] Norm: Or are there people who like pretended to disappear?
 
-[00:12:49] Will: That was that was my favorite.
+[00:12:49] Will: That was my favorite.
 
 [00:12:51] Adam: So sure,
 
-[00:12:51] Norm: right, and and never disappeared and and didn't age and and created new lives. I mean, the only way to really approach it is through comedy, which is how it opens and which is the way they do it. Right? They they introduce the idea of the blip, the people coming back from the snap, and you know Aunt May has that throwaway line how she popped up and
+[00:12:51] Norm: right, and never disappeared and didn't age and created new lives. I mean, the only way to really approach it is through comedy, which is how it opens and which is the way they do it. Right? They introduce the idea of the blip, the people coming back from the snap, and you know Aunt May has that throwaway line how she popped up and
 
 [00:13:09] Adam: what wait to remind me of her throwaway line
 
@@ -434,7 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:13:13] Will: I went back to my apartment. She
 
-[00:13:14] Norm: popped in apartment and and and the the new family living there thought she was like
+[00:13:14] Norm: popped in apartment and the new family living there thought she was like
 
 [00:13:19] Will: grandmother thought I was a mistress. The kids thought I was a home invader or something.
 
@@ -458,7 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:14:00] Adam: I remember we yeah we had a morning radio station on the PA that two students did, and it was exactly that annoying.
 
-[00:14:06] Will: We did, we did. I was in the.
+[00:14:06] Will: We did. I was in the.
 
 [00:14:08] Norm: It was all the like people who wanted to be DJs. We all had those friends. We all did friends.
 
@@ -508,19 +508,19 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:15:10] Norm: it was in Holland. That was the best when he's in. Well, he's he pops in Holland and he's with the other the footballers, and they're just like the nicest folks because everyone's super nice. They’re gonna borrow your cellphone. Yeah, no problem. Here you go.
 
-[00:15:21] Will: I was like, " Where are you?" And it's some in cup. You know, yeah, he's like, " Can you just say it into the phone?" It was so. It was all like the good European movie road trip tropes jammed into a Spider-Man movie, which I really appreciated.
+[00:15:21] Will: I was like, " Where are you?" And it's some in cup. Yeah, he's like, " Can you just say it into the phone?" It was so. It was all like the good European movie road trip tropes jammed into a Spider-Man movie, which I really appreciated.
 
 [00:15:33] Norm: I did think that Homecoming did a better job of feeling like a teen, like a John Hughes movie, or a classic '80s coming-of-age movie.
 
-[00:15:42] Adam: Right. I yeah. I I just I I agree. I concur.
+[00:15:42] Adam: Right. I yeah. I just I I agree. I concur.
 
 [00:15:46] Will: I mean, Homecoming. Homecoming is about asking a girl out on a date.
 
 [00:15:51] Norm: Yeah, the whole movie,
 
-[00:15:52] Will: and and then yeah, the whole movie, yeah,
+[00:15:52] Will: and then yeah, the whole movie, yeah,
 
-[00:15:53] Norm: and the big twist in Homecoming, which we were, it's too late. We can spoil it with Michael Keaton being the father. That's what the the best idea ever. The feeling that the you know projecting the feeling that a young boy has to ask to meet the father of his date, that feeling also meant. Combining with being the arch villain,
+[00:15:53] Norm: and the big twist in Homecoming, which we were, it's too late. We can spoil it with Michael Keaton being the father. That's what the best idea ever. The feeling that the you know projecting the feeling that a young boy has to ask to meet the father of his date, that feeling also meant. Combining with being the arch villain,
 
 [00:15:53] Adam: right, right,
 
@@ -542,7 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:18:04] Norm: Yeah, let's go right in. There are many spoilers to talk about.
 
-[00:18:10] Adam: The, the, so I want to talk about the first spoiler.
+[00:18:10] Adam: The, so I want to talk about the first spoiler.
 
 [00:18:10] Will: want to give people a second so they can like they can turn off
 
@@ -554,13 +554,13 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:18:20] Will: I I mean,
 
-[00:18:21] Adam: and and it's heartbreaking twice. One because you realize that he has fooled him. Because the moment he hands him over, I was like, oh, that was really quick. There, Spider Man, and then he hands it over, and then Jake Gyllenhaal turns to the the group and is like, get this stupid costume off me. And it's it's insult to injury. It's the con, and then there's the fact that he has no respect for his opponent.
+[00:18:21] Adam: and it's heartbreaking twice. One because you realize that he has fooled him. Because the moment he hands him over, I was like, oh, that was really quick. There, Spider Man, and then he hands it over, and then Jake Gyllenhaal turns to the group and is like, get this stupid costume off me. And it's insult to injury. It's the con, and then there's the fact that he has no respect for his opponent.
 
 [00:18:42] Will: Oh well, I you know I don't know that I don't I didn't feel like he had no respect for his opponent. I felt like he was just kind of a sociopath.
 
 [00:18:48] Adam: Yeah, well, six one potato potato.
 
-[00:18:52] Norm: But you wanted it to bring to be true the the mentorship the the the hole that was in Peter Parker's life when Tony died. You wanted that fun. You felt like there was a genuine
+[00:18:52] Norm: But you wanted it to bring to be true the mentorship the hole that was in Peter Parker's life when Tony died. You wanted that fun. You felt like there was a genuine
 
 [00:18:52] Adam: absolutely
 
@@ -568,29 +568,29 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:19:04] Will: They're sitting on the roof. They're talking about life and girls and Tony Stark.
 
-[00:19:07] Norm: And I think that's the success of the film because it's hard to go into this film when they say Mysterio is the the other character to not do a quick Wikipedia search and read that Mysterio is a villain in the comics.
+[00:19:07] Norm: And I think that's the success of the film because it's hard to go into this film when they say Mysterio is the other character to not do a quick Wikipedia search and read that Mysterio is a villain in the comics.
 
 [00:19:07] Adam: Well, and
 
 [00:19:07] Norm: and so. They do a good job of trying to subvert at least that expectation initially.
 
-[00:19:24] Adam: And to be to be honest, that scene where they're talking on the roof is one of those. Here's what Marvel gets so right is here's a kid in a superhero suit sitting on the corner of a roof, and a guy named Mysterio is landing next to him, and all you're paying attention to is the character dialogue.
+[00:19:24] Adam: And to be honest, that scene where they're talking on the roof is one of those. Here's what Marvel gets so right is here's a kid in a superhero suit sitting on the corner of a roof, and a guy named Mysterio is landing next to him, and all you're paying attention to is the character dialogue.
 
-[00:19:43] Will: Well, and and that that's yeah,
+[00:19:43] Will: Well, and that that's yeah,
 
 [00:19:43] Adam: that's amazing. Perfect.
 
-[00:19:43] Will: Well, and and the thing that they do, the thing that they've done with Spider-Man really well in both the MCU and the Sony films, is that I mean, I guess they're they're both MCU in the Tom Holland era, is that they've made it really clear that he is aware of his of his limits as Spider-Man. Like he he has the choice at the end of of of Homecoming to become an Avenger and be like the universe's Spider-Man. He's like, I want to be your friendly neighborhood Spider-Man. I'm not ready for this yet. I want to go be a high school kid.
+[00:19:43] Will: Well, and the thing that they do, the thing that they've done with Spider-Man really well in both the MCU and the Sony films, is that I mean, I guess they're both MCU in the Tom Holland era, is that they've made it really clear that he is aware of his limits as Spider-Man. Like he has the choice at the end of Homecoming to become an Avenger and be like the universe's Spider-Man. He's like, I want to be your friendly neighborhood Spider-Man. I'm not ready for this yet. I want to go be a high school kid.
 
 [00:20:12] Norm: The Washington Monument was the tallest he'd ever climbed. He was more about five story buildings than 100 story buildings.
 
-[00:20:17] Will: Yeah, like there's no there's not even that moment from Spider-Verse where Miles Morales takes the leap of faith and. You know, falls into the into the city from the 40 40 story building.
+[00:20:17] Will: Yeah, like there's no there's not even that moment from Spider-Verse where Miles Morales takes the leap of faith and. Falls into the city from the 40 40 story building.
 
 [00:20:17] Norm: Yep.
 
-[00:20:17] Will: Yeah, and and this movie continues to reinforce that. But this movie is about that struggle of him feeling like he needs to fill the void that was left by Tony Stark, and also find the father figure that Tony Stark that he lost when Tony Stark dies.
+[00:20:17] Will: Yeah, and this movie continues to reinforce that. But this movie is about that struggle of him feeling like he needs to fill the void that was left by Tony Stark, and also find the father figure that Tony Stark that he lost when Tony Stark dies.
 
-[00:20:43] Adam: And also, he's a. I think that this the the desire to keep it small is is right. It's from some trauma, right? Like, and that's pretty clearly part of the character is his his sense of fortitude. Is that he wants? He needs to keep it small, and he needs to still somehow be 16. That's a tremendous amount of self awareness for a kid in the middle of adolescence who also happens to be an Avenger.
+[00:20:43] Adam: And also, he's a. I think that this the desire to keep it small is is right. It's from some trauma, right? Like, and that's pretty clearly part of the character is his his sense of fortitude. Is that he wants? He needs to keep it small, and he needs to still somehow be 16. That's a tremendous amount of self awareness for a kid in the middle of adolescence who also happens to be an Avenger.
 
 [00:21:11] Norm: And to the credit of you know the Marvel Studios and the writers and the filmmakers, they can communicate all that with. Out having to show Ben Parker's Uncle Ben's death,
 
@@ -602,13 +602,13 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:21:26] Adam: They also do also a huge shout out to how great Zendaya is.
 
-[00:21:30] Will: Yeah, she's astounding. Like the scene on the bridge when she when the the scene when he reveals that he's Spider Man and she jumps ahead and it's like you're Spider Man, right? And he's like, No, I'm not. I'm that wasn't what I was going to tell you.
+[00:21:30] Will: Yeah, she's astounding. Like the scene on the bridge when she when the scene when he reveals that he's Spider Man and she jumps ahead and it's like you're Spider Man, right? And he's like, No, I'm not. I'm that wasn't what I was going to tell you.
 
 [00:21:42] Norm: But then the vulnerability they both have when they lie, then lie to each other. Is that why you were following me?
 
 [00:21:42] Adam: Yeah,
 
-[00:21:42] Norm: and then that again is the heart of it. Is the the the teenage relationship that
+[00:21:42] Norm: and then that again is the heart of it. Is the teenage relationship that
 
 [00:21:52] Adam: well, and
 
@@ -618,17 +618,17 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:22:04] Will: I don't. I haven't. I don't. I
 
-[00:22:06] Adam: think that she. I think that the character is is slightly on the spectrum. I think it's what makes her that gives her that slightly flat delivery. Uh,
+[00:22:06] Adam: think that she. I think that the character is is slightly on the spectrum. I think it's what makes her that gives her that slightly flat delivery.
 
-[00:22:16] Will: she does a lot of face acting, like like there's a lot of expressiveness.
+[00:22:16] Will: she does a lot of face acting, like there's a lot of expressiveness.
 
 [00:22:16] Adam: Yeah,
 
-[00:22:16] Will: it's the thing. Watching the movie three times, I'm like, oh, wow, she's doing a lot with her eyes in this bit, and it's it's it's clearly like I I agree. I I don't. I think now that you say that, I see it, but I hadn't thought about it.
+[00:22:16] Will: it's the thing. Watching the movie three times, I'm like, oh, wow, she's doing a lot with her eyes in this bit, and it's clearly like I I agree. I don't. I think now that you say that, I see it, but I hadn't thought about it.
 
-[00:22:32] Adam: So that's an interesting thing that like maybe he doesn't see that she's more like him than he realizes. But she's fantastic in both movies. I just I she's very compelling and very real, and uh they don't they don't just make her a cardboard cutout at all.
+[00:22:32] Adam: So that's an interesting thing that like maybe he doesn't see that she's more like him than he realizes. But she's fantastic in both movies. I just I she's very compelling and very real, and they don't just make her a cardboard cutout at all.
 
-[00:22:48] Will: She she was really served well by the first movie. Not you not realizing that she's MJ until the very end of the film, and her kind of debt. You you think she's like the female sidekick, deadpan, you know, comic relief character, and then you're like, oh, oh, wait, I missed something important here. Um, the the thing that the thing that I love is um. Him figuring out the Edith bit, like the Edith, is a really lovely MacGuffin for this movie because it actually gives him way too much power.
+[00:22:48] Will: She was really served well by the first movie. Not you not realizing that she's MJ until the very end of the film, and her kind of debt. You think she's like the female sidekick, deadpan comic relief character, and then you're like, oh, oh, wait, I missed something important here. The thing that I love is. Him figuring out the Edith bit, like the Edith, is a really lovely MacGuffin for this movie because it actually gives him way too much power.
 
 [00:23:18] Adam: It's incredible.
 
@@ -638,13 +638,13 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:23:26] Will: Yeah, I figured you were already working on it.
 
-[00:23:27] Norm: They were saying that those sunglasses, which are the sunglasses or the the glasses that Robert Downey Jr. wears in like the previous films, right? The big ones they only look that way because Robert Downey Jr. is the only person could pull those off as Iron Man as a prop choice. Like the actors pick their hairstyle, pick their props, and glasses, and yeah, he could pick for the Tony Stark character. That's the one; no one could pull it off, and that's why they look so goofy.
+[00:23:27] Norm: They were saying that those sunglasses, which are the sunglasses or the glasses that Robert Downey Jr. wears in like the previous films, right? The big ones they only look that way because Robert Downey Jr. is the only person could pull those off as Iron Man as a prop choice. Like the actors pick their hairstyle, pick their props, and glasses, and yeah, he could pick for the Tony Stark character. That's the one; no one could pull it off, and that's why they look so goofy.
 
 [00:23:52] Adam: They're awesome,
 
 [00:23:54] Norm: which work for their the AR story mechanic.
 
-[00:23:56] Will: So, so there is a couple. I think that the scene that was the CG scene where Tony, where where Spider Man fights Mysterio, and he realizes
+[00:23:56] Will: So, so there is a couple. I think that the scene that was the CG scene where Tony, where Spider Man fights Mysterio, and he realizes
 
 [00:24:07] Norm: in Berlin,
 
@@ -660,7 +660,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:24:12] Norm: Right, right, yeah.
 
-[00:24:19] Will: where it's all like maybe it's CG, maybe it's real, we don't know. And they did such a good job keeping it grounded, so you could actually follow the action. And and then you don't know, like the switch switch o change o on Nick Fury four times in that movie is astounding. Like like he he comes up, he confesses to Nick Fury. He's like, " Here's who I told." He's like, " Oh well, that's unfortunate." And then when
+[00:24:19] Will: where it's all like maybe it's CG, maybe it's real, we don't know. And they did such a good job keeping it grounded, so you could actually follow the action. And then you don't know the switch o change o on Nick Fury four times in that movie is astounding. Like he comes up, he confesses to Nick Fury. He's like, " Here's who I told." He's like, " Oh well, that's unfortunate." And then when
 
 [00:24:38] Norm: Yeah.
 
@@ -670,7 +670,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:24:42] Will: Yeah, you’re right.
 
-[00:24:42] Norm: in illusion. And so for someone who doesn't have his Peter Tingle, you know, for most of the film can't navigate.
+[00:24:42] Norm: in illusion. And so for someone who doesn't have his Peter Tingle for most of the film can't navigate.
 
 [00:24:42] Will: Please don’t say that.
 
@@ -678,7 +678,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:25:01] Adam: The look on his face every time that got spoken was so delightful.
 
-[00:25:05] Will: So, but but I mean, but the thing about that sequence, the the the Mysterio fight, is they could have just done a bunch of quick cuts. You had no idea what was going on with the fight, and they didn't. They they they kept the through line through the fight and actually kept you on.
+[00:25:05] Will: So, but I mean, but the thing about that sequence, the Mysterio fight, is they could have just done a bunch of quick cuts. You had no idea what was going on with the fight, and they didn't. They kept the through line through the fight and actually kept you on.
 
 [00:25:17] Norm: So you were trying to
 
@@ -692,13 +692,13 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:25:24] Will: yeah
 
-[00:25:24] Norm: yeah what I also like was that you know with the mysterious reveal right one of the best parts about the the comics whenever comics try to make like a superhero real they just add more support cast right? No, Iron Man the realistic version of Iron Man has like a team of 100 technicians that helps him put him on and this is what they did for the villain a realistic version of how a villain works well he has a whole support team that he directs he's a director and they I love that him going back to the the the the steaming of the cape right that the vanity of that that that bit was so funny
+[00:25:24] Norm: yeah what I also like was that you know with the mysterious reveal right one of the best parts about the comics whenever comics try to make like a superhero real they just add more support cast right? No, Iron Man the realistic version of Iron Man has like a team of 100 technicians that helps him put him on and this is what they did for the villain a realistic version of how a villain works well he has a whole support team that he directs he's a director and they I love that him going back to the steaming of the cape right that the vanity of that that that bit was so funny
 
 [00:25:56] Will: well that and the whole idea of his his actual supervillain costume being a 3D motion capture suit
 
 [00:25:56] Norm: yeah what's wrong with my hand?
 
-[00:26:04] Adam: yeah very very um and so to tie up this coming of age discussion I forgot so this is a slightly tangential but it's germane yesterday I drove thing two to the airport to go to college.
+[00:26:04] Adam: yeah very very and so to tie up this coming of age discussion I forgot so this is a slightly tangential but it's germane yesterday I drove thing two to the airport to go to college.
 
 [00:26:04] Will: Oh wow!
 
@@ -716,13 +716,13 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:26:39] Norm: Wow! Did you have to put on some some black light?
 
-[00:26:43] Adam: No, no, it wasn't that bad. But driving back from the airport, so I like did I did a double duty. I put the dogs in the car so I could take them to the dog park on my way back from the airport, and like I drop him off, give him a big hug. He's a big, strapping young lad. He's like two inches taller than me, and give him this big hug and put him on the plane. And I'm driving back, and like Guardians is on, and I'm. How can I try to explain? Yeah, totally. I might have I might have gotten a little weepy.
+[00:26:43] Adam: No, no, it wasn't that bad. But driving back from the airport, so I like did I did a double duty. I put the dogs in the car so I could take them to the dog park on my way back from the airport, and like I drop him off, give him a big hug. He's a big, strapping young lad. He's like two inches taller than me, and give him this big hug and put him on the plane. And I'm driving back, and like Guardians is on, and I'm. How can I try to explain? Yeah, totally. I might have gotten a little weepy.
 
-[00:27:09] Will: I I love so we'll talk. I guess we'll talk about the Sony MCU stuff in a minute, maybe or not. But the thing that I'm most bummed about with that is that. Potentially, we lose Happy Hogan in the Spider Verse.
+[00:27:09] Will: I love so we'll talk. I guess we'll talk about the Sony MCU stuff in a minute, maybe or not. But the thing that I'm most bummed about with that is that. Potentially, we lose Happy Hogan in the Spider Verse.
 
 [00:27:22] Adam: That would kill me. That would kill me if we lost Happy and Aunt May because I love that pairing.
 
-[00:27:26] Will: Well, Aunt May, we we get
+[00:27:26] Will: Well, Aunt May, we get
 
 [00:27:28] Adam: no, I know, but the Happy Aunt May,
 
@@ -730,7 +730,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:27:32] Norm: just a summer fling.
 
-[00:27:35] Will: But but like the surprise. Oh, Happy is the new is the father figure. Is the like the sequence in the in the plane above Holland when Happy is like, look, dude, you're in charge, but I'm here to help you.
+[00:27:35] Will: But like the surprise. Oh, Happy is the new is the father figure. Is the like the sequence in the plane above Holland when Happy is like, look, dude, you're in charge, but I'm here to help you.
 
 [00:27:35] Adam: Yeah,
 
@@ -742,17 +742,17 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:27:52] Adam: and puts enough into it both as a director and an actor that it brings this whole new dimension.
 
-[00:28:08] Norm: He does in Homecoming too. There's a whole thing where he's in the insecurity of Favreau, even though he is the best friend and the right hand guy. For Tony Stark, he's like he went. He wanted to be head of security. Wanted to be in like, like a equipment management
+[00:28:08] Norm: He does in Homecoming too. There's a whole thing where he's in the insecurity of Favreau, even though he is the best friend and the right hand guy. For Tony Stark, he's like he went. He wanted to be head of security. Wanted to be in like a equipment management
 
 [00:28:21] Will: It’s password,
 
 [00:28:22] Norm: right? Yeah,
 
-[00:28:24] Will: yeah. But but like Favreau Favreau is it's amazing because it's all of this is this thing that Favreau started 12 years ago. Yeah, like all of this spun out of one movie basically.
+[00:28:24] Will: yeah. But like Favreau Favreau is it's amazing because it's all of this is this thing that Favreau started 12 years ago. Yeah, like all of this spun out of one movie basically.
 
 [00:28:38] Adam: Right. Let's see how this goes.
 
-[00:28:39] Norm: Yeah, and you can tell when he talks about it on interviews and when he does a chef show how delighted he is just to be a, a player.
+[00:28:39] Norm: Yeah, and you can tell when he talks about it on interviews and when he does a chef show how delighted he is just to be a player.
 
 [00:28:39] Adam: Yes,
 
@@ -762,19 +762,19 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:28:51] Will: Yeah.
 
-[00:28:51] Adam: Right. There's there's it's just he's I I just everything he does is infused with the feeling of can I can't believe I get to do this, and and then delivers times five.
+[00:28:51] Adam: Right. There's there's it's just he's I I just everything he does is infused with the feeling of can I can't believe I get to do this, and then delivers times five.
 
 [00:29:09] Will: Well, I think that's why. I think that's why Iron Man landed the way it did. I think that's why Iron Man two is is you know problems with script aside is still it's still entertaining.
 
 [00:29:09] Adam: Yeah,
 
-[00:29:09] Will: and and I think I mean I think because he came at from a place of a fan it it it colors the whole thing and it set the right tone for everything that came after that.
+[00:29:09] Will: and I think I mean I think because he came at from a place of a fan it colors the whole thing and it set the right tone for everything that came after that.
 
 [00:29:29] Adam: Yeah, he hit this perfect tonal balance for a superhero film. Yeah, just stunning. My hat is off to Favreau,
 
 [00:29:36] Will: Jon Favreau. You are okay,
 
-[00:29:38] Norm: and of course, you know,
+[00:29:38] Norm: and of course
 
 [00:29:40] Adam: gosh darn it, people like you.
 
@@ -806,13 +806,13 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:30:54] Will: There's there's a thing that Tom Holland does, but
 
-[00:30:55] Norm: he's still doing it. I mean, he's he's going to be Spider Man. He's he's come out and said it may be different in terms of how it's connected, but they're they're making more Spider Man films. The the people in front of camera are presumably the same people. I mean, as long as The creative team, I think, is there. Well, I'm excited for it.
+[00:30:55] Norm: he's still doing it. I mean, he's going to be Spider Man. He's come out and said it may be different in terms of how it's connected, but they're making more Spider Man films. The people in front of camera are presumably the same people. I mean, as long as The creative team, I think, is there. Well, I'm excited for it.
 
 [00:31:15] Will: I mean, the thing that Tom Holland brings is in a is like Tom Holland seems like he's okay not being cool, which is a thing that's important for Spider Man.
 
 [00:31:15] Adam: Yeah,
 
-[00:31:15] Will: and like even Tobey Maguire, Tobey Maguire was pretty cool in most of those movies.
+[00:31:15] Will: and like even Tobey Maguire was pretty cool in most of those movies.
 
 [00:31:29] Norm: Spider Man three?
 
@@ -824,11 +824,11 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:31:34] Norm: Yeah,
 
-[00:31:35] Will: yeah, yeah. That's I like like as a Spider Man bit that works.
+[00:31:35] Will: yeah, yeah. That's I like as a Spider Man bit that works.
 
 [00:31:38] Adam: Yeah, it totally does.
 
-[00:31:39] Will: But, but maybe I don't know if Tobey Maguire is the man to. Anyway, I'm just I am I am I don't care about the cameos. I don't care about the crossover. I care about losing Happy because I feel like that that that father figure anchor is important for where Spider Man the character is right now.
+[00:31:39] Will: But maybe I don't know if Tobey Maguire is the man to. Anyway, I'm just I am I don't care about the cameos. I don't care about the crossover. I care about losing Happy because I feel like that that that father figure anchor is important for where Spider Man the character is right now.
 
 [00:31:57] Adam: This is so. This is one where having working in the entertainment industry, where I get to hear sometimes the inside baseball of deals that fall through or got made, I've heard I I know enough of these things to know. That the story is rarely what you think the story is.
 
@@ -844,11 +844,11 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:32:50] Adam: And so they should be.
 
-[00:32:51] Will: Well, and and Sony came out and said a couple days ago that that they were they completely understand Disney's lack of a lack of interest in putting someone whose time is as valuable as Feige's on a product that that they don't own.
+[00:32:51] Will: Well, and Sony came out and said a couple days ago that that they were they completely understand Disney's lack of a lack of interest in putting someone whose time is as valuable as Feige's on a product that that they don't own.
 
 [00:33:05] Adam: Right. Right.
 
-[00:33:05] Will: Right. Which is which is fair.
+[00:33:05] Will: Right. Which is fair.
 
 [00:33:07] Adam: Totally.
 
@@ -904,7 +904,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:34:40] Adam: That's it. The delay for Project Egress posting that video has been that we're working hard on making sure that we have a structure that can highlight all of our collaborators. So Jen Schachter has been doing a tremendous amount of project management, making sure that when we launch, we have all that support. And I cannot wait for you to see this. These live builds, man, I'm so excited about.
 
-[00:35:03] Will: People started sending in, sending in their own doors.
+[00:35:03] Will: People started sending in their own doors.
 
 [00:35:07] Adam: Their
 
@@ -922,7 +922,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:35:23] Will: So more more live builds in the future, though.
 
-[00:35:25] Adam: Oh God, yeah. No, this is a whole new kind of theater. It it turns out that I have this one piece of institutional knowledge above most others I got from MythBusters is the ability to design a project that I can really probably get done in front of a crowd by the end of that day.
+[00:35:25] Adam: Oh God, yeah. No, this is a whole new kind of theater. It turns out that I have this one piece of institutional knowledge above most others I got from MythBusters is the ability to design a project that I can really probably get done in front of a crowd by the end of that day.
 
 [00:35:41] Norm: It's very highly specific.
 
@@ -932,7 +932,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:35:51] Will: it's a real. Yeah, that's a real. That's a real niche market there, Adam. Congratulations.
 
-[00:35:56] Adam: It is, but there's a way in which, like, when you when you're in your own head trying to fit something together, and you get it to go, and you hear a crowd behind you, go, oh, and you're like, oh, it's like your own mental landscape being voiced by this Greek chorus around you.
+[00:35:56] Adam: It is, but there's a way in which when you when you're in your own head trying to fit something together, and you get it to go, and you hear a crowd behind you, go, oh, and you're like, oh, it's like your own mental landscape being voiced by this Greek chorus around you.
 
 [00:36:09] Will: There was a moment in that build when I was watching on the live stream when you were trying to get the window in, I think, and you just picked up the mallet and started working on it. And there were gasps, like the audience gasped, and then when it went in, they were like, " Ooh, it's very good. It's very satisfying."
 
@@ -944,15 +944,15 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:36:42] Adam: yeah. The mothership is there. It's lovely. Such a beautiful model.
 
-[00:36:45] Will: Um, the the way the restoration stuff works there is that video was really good and lovely.
+[00:36:45] Will: The way the restoration stuff works there is that video was really good and lovely.
 
-[00:36:50] Adam: And everyone there is having so they they are as excited as you want them to be about what they get to touch and fix.
+[00:36:50] Adam: And everyone there is having so they are as excited as you want them to be about what they get to touch and fix.
 
 [00:36:57] Will: So when I went to the Garber facility 25 years ago, probably which is up in Maryland, which is where they do like the big, it's where they like restored the Enola Gay and that kind of stuff. The people that were working there was were a mix of like young people that were employees and like retirees that were volunteering time,
 
 [00:36:57] Adam: yeah,
 
-[00:36:57] Will: and just doing the kind of like the the the kind of the grunt work, like the small brushing and the Taking stuff off and putting it back on, and all that, and a lot of more ones that that had been at that time were had repaired those. What was it? A B-19, B-25. I can't remember. Anyway, World War Two era bombers because they served and were the mechanics for World War Two era bombers. It was so cool. So cool.
+[00:36:57] Will: and just doing the kind of like the kind of the grunt work, like the small brushing and the Taking stuff off and putting it back on, and all that, and a lot of more ones that that had been at that time were had repaired those. What was it? A B-19, B-25. I can't remember. Anyway, World War Two era bombers because they served and were the mechanics for World War Two era bombers. It was so cool. So cool.
 
 [00:37:35] Adam: The first time I saw the flying fortress and I saw the beautiful clear plastic gunner's ball on the underside. I saw one of those up close and I was like, " Oh my god! I understand another 30% of George Lucas's aesthetic." How did they make so many Star Wars ships exemplified by that one ball?
 
@@ -978,7 +978,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:38:26] Will: [unclear: this is not getting anxious / Getting anxious].
 
-[00:38:27] Norm: All right, all right. And there is a new clip from Rise of the Skywalker.
+[00:38:27] Norm: All right. And there is a new clip from Rise of the Skywalker.
 
 [00:38:32] Adam: No, God, right. I have to watch that.
 

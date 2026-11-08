@@ -16,7 +16,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:00:08] Adam: I just knew that would...
 
-[00:00:09] Will: You know, puberty is a real bitch.
+[00:00:09] Will: Puberty is a real bitch.
 
 [00:00:11] Adam: I knew that would upset you just a tiny bit.
 
@@ -46,7 +46,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:00:56] Norm: I don't want to have this conversation.
 
-[00:00:56] Adam: What we what we end up so this year 2020 August 2020 is the 30th anniversary of my arrival in San Francisco.
+[00:00:56] Adam: What we end up so this year 2020 August 2020 is the 30th anniversary of my arrival in San Francisco.
 
 [00:01:05] Will: Wow, really?
 
@@ -54,15 +54,15 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:01:05] Will: It's the 20th anniversary of my arrival in San Francisco.
 
-[00:01:09] Adam: It's um, it's the what?
+[00:01:09] Adam: It's the what?
 
-[00:01:10] Will: June is. I came out in I came out in July
+[00:01:10] Will: June is. I came out in July
 
 [00:01:13] Adam: of 2000.
 
 [00:01:14] Will: Of 2000, ah,
 
-[00:01:15] Adam: my kids were already, uh, a year old.
+[00:01:15] Adam: my kids were already a year old.
 
 [00:01:20] Norm: Wow.
 
@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:01:29] Norm: I've been here since 1984.
 
-[00:01:30] Adam: No, no, no, but like, yeah, longer than like I'm now dealing with doctors and police that are that are younger than how long I've lived in San Francisco.
+[00:01:30] Adam: No, no, no, but like, yeah, longer than like I'm now dealing with doctors and police that are younger than how long I've lived in San Francisco.
 
 [00:01:36] Norm: Yeah, it's true. It's scary.
 
@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:02:29] Adam: The screen ratio to where you were sitting was lovely. Yeah, terrific little theater. So don't just if you're going to go to San Francisco's Alamo Drafthouse and you're wondering is Theater Five too small for this big cinema experience I want? The answer is no, it's not too small.
 
-[00:02:43] Will: Yeah, no. it, it, I'm going to this Dolby Cinema at the Metreon tomorrow. So.
+[00:02:43] Will: Yeah, no. it, I'm going to this Dolby Cinema at the Metreon tomorrow. So.
 
 [00:02:48] Adam: Oh, you are.
 
@@ -136,15 +136,15 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:02:49] Will: Yeah, I'm going there.
 
-[00:02:50] Adam: I thought some of the low-end rum. I actually, from a, we could just start. I thought from a sound design place, the low-end, uh, rumbles were stellar in the theater. Like, whoa, very physical experience with some of the
+[00:02:50] Adam: I thought some of the low-end rum. I actually, from a, we could just start. I thought from a sound design place, the low-end rumbles were stellar in the theater. Like, whoa, very physical experience with some of the
 
-[00:03:04] Norm: lot, lot of uh.
+[00:03:04] Norm: lot, lot of.
 
 [00:03:04] Will: the sound design. Yeah,
 
 [00:03:06] Norm: Lucasfilm. They like to flex their audio chops.
 
-[00:03:10] Will: I I think it was the best sounding lightsabers.
+[00:03:10] Will: I think it was the best sounding lightsabers.
 
 [00:03:14] Adam: I agree.
 
@@ -164,9 +164,9 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:03:33] Will: Yep.
 
-[00:03:33] Norm: You know, so we'll get the five minute impressions. Of course, people may already have read like some reviews and the Rotten Tomatoes score, whatever. Fresh out of the movie theaters, both of you, uh, Will, let's go.
+[00:03:33] Norm: So we'll get the five minute impressions. Of course, people may already have read like some reviews and the Rotten Tomatoes score, whatever. Fresh out of the movie theaters, both of you Will, let's go.
 
-[00:03:45] Will: I yeah, it was fine. There were, uh, so.
+[00:03:45] Will: I yeah, it was fine. There were so.
 
 [00:03:51] Adam: You were disappointed.
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:04:01] Norm: Well known.
 
-[00:04:02] Will: I love that. Um, Rian Johnson opened up that world, right? He he opened up the Force to people who weren't Skywalkers and who weren't Palpatines. And you know he left you. The last shot of that movie is of a little kid who is presumably a slave on a bad planet, using the force to call up a broom, and that to me says, "Hey, look, the force is back out there. We're gonna we're gonna see some Jedis, and we're gonna see some people who aren't children of Anakin Skywalker,
+[00:04:02] Will: I love that. Rian Johnson opened up that world, right? He opened up the Force to people who weren't Skywalkers and who weren't Palpatines. And you know he left you. The last shot of that movie is of a little kid who is presumably a slave on a bad planet, using the force to call up a broom, and that to me says, "Hey, look, the force is back out there. We're gonna we're gonna see some Jedis, and we're gonna see some people who aren't children of Anakin Skywalker,
 
 [00:04:33] Norm: right? Right?
 
@@ -182,7 +182,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:04:45] Norm: Wait, what are we doing right now?
 
-[00:04:46] Will: To be, Okay, I'm gonna make one YouTube video. No, like, look, it's a fine movie. It was. It was well constructed. It was plotted well. All that stuff works. The characters are great. The performances are amazing.
+[00:04:46] Will: To be, Okay, I'm gonna make one YouTube video. No look, it's a fine movie. It was. It was well constructed. It was plotted well. All that stuff works. The characters are great. The performances are amazing.
 
 [00:04:56] Adam: The performances are amazing across the board. Everybody in the cast does stellar, exciting, complicated, lovely work. And I'm kind of. I haven't read any of the. Literature about it.
 
@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:05:10] Adam: and how well that felt. All the performances were stunning. The music is actually some of the—it's like maybe my favorite Star Wars score ever.
 
-[00:05:30] Will: It it wraps up all of the the best themes from all of the Star Wars movies. Like there's there's Duel of the Fates, there's Leia's theme, there's Luke's theme, there's the Imperial March. It's it's A plus. Like John if John Williams is
+[00:05:30] Will: It wraps up all of the best themes from all of the Star Wars movies. Like there's there's Duel of the Fates, there's Leia's theme, there's Luke's theme, there's the Imperial March. It's A plus. Like John if John Williams is
 
 [00:05:45] Adam: that's the last one.
 
@@ -202,9 +202,9 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:05:47] Norm: I'm making faces.
 
-[00:05:48] Will: You know, he's making squishy faces.
+[00:05:48] Will: He's making squishy faces.
 
-[00:05:49] Norm: I didn't I didn't think the music was spectacular. I I I like the new music that was introduced in Force Awakens. Rey's theme was one of my favorites.
+[00:05:49] Norm: I didn't think the music was spectacular. I like the new music that was introduced in Force Awakens. Rey's theme was one of my favorites.
 
 [00:05:58] Will: Rey's theme's great.
 
@@ -212,7 +212,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:06:26] Adam: It's the coda, yeah.
 
-[00:05:58] Norm: it's the reveals, and and because the last film, Last Jedi, did not satisfy for some people in terms of the revelations. Going into this, I think there was an expectation that J.J. Abrams coming in and doing the writing with Chris Terrio would address some of that, and so I couldn't enjoy the film. I feel like in the first viewing as much as I would have wanted to because I was also just waiting for shoes to drop,
+[00:05:58] Norm: it's the reveals, and because the last film, Last Jedi, did not satisfy for some people in terms of the revelations. Going into this, I think there was an expectation that J.J. Abrams coming in and doing the writing with Chris Terrio would address some of that, and so I couldn't enjoy the film. I feel like in the first viewing as much as I would have wanted to because I was also just waiting for shoes to drop,
 
 [00:06:52] Adam: right?
 
@@ -228,19 +228,19 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:07:12] Adam: This is nine movies and 40 years of filmmaking,
 
-[00:07:14] Norm: and so theoretically, like you have the same opportunity to to you know close the book in a way and make you feel something as an audience. And I kept on thinking back, wow, there is no they. I see they want to have a portals moment here. They want to have a Cap's Mjolnir moment here, but like I didn't feel it.
+[00:07:14] Norm: and so theoretically, like you have the same opportunity to you know close the book in a way and make you feel something as an audience. And I kept on thinking back, wow, there is no they. I see they want to have a portals moment here. They want to have a Cap's Mjolnir moment here, but like I didn't feel it.
 
 [00:07:35] Adam: I look.
 
 [00:07:36] Will: There were a couple times I felt it.
 
-[00:07:37] Adam: There were a couple times. There was actually. I I got I got misty a few times. I will also say, it is a thankless task to be asked to write the end of such a deeply culturally important saga as this. Like I wouldn't take on this task.
+[00:07:37] Adam: There were a couple times. There was actually. I got misty a few times. I will also say, it is a thankless task to be asked to write the end of such a deeply culturally important saga as this. Like I wouldn't take on this task.
 
 [00:07:56] Will: No, no, no, no,
 
 [00:07:56] Adam: for anything. I know what I was thinking. And I wouldn't wish it on my worst enemy.
 
-[00:08:00] Norm: I I uh uh going back to Watchmen. I'm like, wow. I wish the nostalgia pill was real, and everyone leaving this movie was forced to take the J.J. Abrams nostalgia pill of making and writing this film
+[00:08:00] Norm: I going back to Watchmen. I'm like, wow. I wish the nostalgia pill was real, and everyone leaving this movie was forced to take the J.J. Abrams nostalgia pill of making and writing this film
 
 [00:08:13] Adam: to know what
 
@@ -252,19 +252,19 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:08:17] Will: Man, I wish I could take the pill for the first time I saw it.
 
-[00:08:17] Norm: We as armchair, you know, moviegoers, and like we could never, as much as we want to empathize with, we would never know the rigors of that.
+[00:08:17] Norm: We as armchair moviegoers, and like we could never, as much as we want to empathize with, we would never know the rigors of that.
 
-[00:08:26] Adam: I need to see it again. I I was not disappointed by it as Will was, but I was not as emotionally moved as I was hoping to be.
+[00:08:26] Adam: I need to see it again. I was not disappointed by it as Will was, but I was not as emotionally moved as I was hoping to be.
 
-[00:08:35] Will: But I mean, that's that's kind of what I like.
+[00:08:35] Will: But I mean, that's kind of what I like.
 
-[00:08:37] Adam: But that's also like, what what could you give me after all this time?
+[00:08:37] Adam: But that's also like, what could you give me after all this time?
 
-[00:08:42] Will: I, You know, you want on something that is the end of a 40 year, 11 movie saga or something.
+[00:08:42] Will: I you want on something that is the end of a 40 year, 11 movie saga or something.
 
 [00:08:48] Adam: But every one of us has our own experience of it. So how do you?
 
-[00:08:53] Will: But you want you want some sort of closure. You want to you want to put a tidy bow on it. You know, and you know
+[00:08:53] Will: But you want some sort of closure. You want to put a tidy bow on it. And you know
 
 [00:08:57] Norm: the movie review line that I hate so much now is. It's not for everyone. Like, what movie is for everyone?
 
@@ -276,31 +276,31 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:09:06] Adam: It's a mixed bag. It's a melting pot, really.
 
-[00:09:09] Will: No, I. So look, did it's it's we, you know, we talked about sticking the landing last week with Watchmen,
+[00:09:09] Will: No, I. So look, did it's we talked about sticking the landing last week with Watchmen,
 
 [00:09:16] Adam: Mm-hmm.
 
-[00:09:09] Will: and I I didn't want I I wasn't expecting a landing to be stuck. You know, it's too much to ask for Watchmen and Endgame and and 15 other things that came out this year to stick the landing. What what I was hoping for was a resolution that felt just and right. And I don't think I can talk about why I'm disappointed in that without getting into spoilers.
+[00:09:09] Will: and I I didn't want I I wasn't expecting a landing to be stuck. It's too much to ask for Watchmen and Endgame and 15 other things that came out this year to stick the landing. What I was hoping for was a resolution that felt just and right. And I don't think I can talk about why I'm disappointed in that without getting into spoilers.
 
 [00:09:35] Adam: Sure. No, that's and we can get there. We can get there in a second.
 
 [00:09:38] Will: Okay.
 
-[00:09:39] Norm: Um, And we will.
+[00:09:39] Norm: And we will.
 
-[00:09:40] Adam: And we will. I also thought more and more and more these big tentpole films, even if they're terrible, they're beautiful, and that's something this film also is in spades, like. It used to be you'd see the Ralph McQuarrie paintings of Star Wars, and then you see what they shot. And you'd be like, " Wow, they they got as close as they could for 1977 or 81 or 83."
+[00:09:40] Adam: And we will. I also thought more and more these big tentpole films, even if they're terrible, they're beautiful, and that's something this film also is in spades, like. It used to be you'd see the Ralph McQuarrie paintings of Star Wars, and then you see what they shot. And you'd be like, " Wow, they they got as close as they could for 1977 or 81 or 83."
 
 [00:10:04] Unknown speaker: Mm-hmm.
 
-[00:09:40] Adam: And now it's like all of those master shots really do feel like those paintings brought to life with all the depth and all the beautiful variants and and incredible detail.
+[00:09:40] Adam: And now it's like all of those master shots really do feel like those paintings brought to life with all the depth and all the beautiful variants and incredible detail.
 
-[00:10:18] Norm: It's Funny in that one of my criticisms or one of my let's not say criticisms, one of my disappointments in the Mandalorian is that the the end credits art concept art that's shown. Oh God,
+[00:10:18] Norm: It's Funny in that one of my criticisms or one of my let's not say criticisms, one of my disappointments in the Mandalorian is that the end credits art concept art that's shown. Oh God,
 
 [00:10:30] Will: I love that.
 
 [00:10:31] Norm: Is I think better than in some ways the visuals of the show itself.
 
-[00:10:34] Adam: Again, actually, I so I have a theory about that one, which is they're not they have they have a lower budget.
+[00:10:34] Adam: Again, actually, I so I have a theory about that one, which is they're not they have a lower budget.
 
 [00:10:42] Norm: Yeah, absolutely. Right?
 
@@ -310,13 +310,13 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:10:45] Adam: and to me that makes it feel very much like old Star Wars.
 
-[00:10:47] Norm: Yes, yes. And the and and but to your point, this movie I feel like the concept art and what they put on screen is equal.
+[00:10:47] Norm: Yes, yes. And the and but to your point, this movie I feel like the concept art and what they put on screen is equal.
 
 [00:10:55] Adam: It's One to one.
 
 [00:10:56] Norm: Yeah,
 
-[00:10:56] Adam: yeah. I mean, when we when we get and talk about the the art of the Rise of Skywalker coffee table book, it's going to be delicious. Like you're just gonna you know spend a week in there.
+[00:10:56] Adam: yeah. I mean, when we get and talk about the art of the Rise of Skywalker coffee table book, it's going to be delicious. Like you're just gonna you know spend a week in there.
 
 [00:11:07] Norm: Every frame is like a painting.
 
@@ -324,7 +324,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:11:10] Adam: that's a good name for a podcast.
 
-[00:11:12] Will: Somebody's making a podcast about that. In in in each of the two predecessors to this film, Force Awakens and Rise and Last Jedi, like I I missed the spectacle. You know, the Return of the Jedi spectacle, the big space battle, the attack of the sorry, the Revenge of the Sith spectacle of the that that cold open in Revenge of the Sith. This is my favorite Star Wars space battle.
+[00:11:12] Will: Somebody's making a podcast about that. In each of the two predecessors to this film, Force Awakens and Rise and Last Jedi, like I I missed the spectacle. You know, the Return of the Jedi spectacle, the big space battle, the attack of the sorry, the Revenge of the Sith spectacle of the that that cold open in Revenge of the Sith. This is my favorite Star Wars space battle.
 
 [00:11:30] Adam: Is it really? I find it so overwhelming. I can't stand it.
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:11:42] Unknown speaker: Totally.
 
-[00:11:38] Will: and I love seeing it executed in a way that didn't look like a CG cartoon and looked like it looked like it could have been done with just an unbelievable amount of model work.
+[00:11:38] Will: and I love seeing it executed in a way that didn't look like a CG cartoon and looked like it could have been done with just an unbelievable amount of model work.
 
 [00:11:50] Adam: Yeah, yeah.
 
@@ -352,11 +352,11 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:12:13] Adam: Ah, okay.
 
-[00:12:14] Will: If we if we want to get into the thing.
+[00:12:14] Will: If we want to get into the thing.
 
 [00:12:16] Adam: yeah yeah yeah, if that's where you want to start. But what was your unearned moment?
 
-[00:12:19] Will: The Hux, the Hux turn, the Hux turn. We know he's a snivelly weasel the whole time, right? But it's the most obvious setup in the world. You walk, he's in there, he has a gun. There's a couple of stormtroopers. They're about to execute you. He's like, I want to do this, and then he just guns down the stormtroopers, and he's like, I'm the spy, and you're just like, Oh, come the on.
+[00:12:19] Will: The Hux turn. We know he's a snivelly weasel the whole time, right? But it's the most obvious setup in the world. You walk, he's in there, he has a gun. There's a couple of stormtroopers. They're about to execute you. He's like, I want to do this, and then he just guns down the stormtroopers, and he's like, I'm the spy, and you're just like, Oh, come the on.
 
 [00:12:41] Norm: So I was less disappointed about the reveal than the execution of it, which sounds like you're in the same boat there.
 
@@ -374,17 +374,17 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:13:11] Norm: Yeah, that was a little cheese.
 
-[00:13:13] Will: Like it's it's it's the thing. If you think about if you think about like the situations that they got the characters into in Breaking Bad, for example, and the way that that that team would write them out of those those situations,
+[00:13:13] Will: Like it's the thing. If you think about like the situations that they got the characters into in Breaking Bad, for example, and the way that that that team would write them out of those those situations,
 
 [00:13:23] Norm: peril,
 
-[00:13:23] Will: like the the peril they were in was very well established. It's an easy peril. So and then it's the cheapest way out, like stuff. And there's a ton of stuff...
+[00:13:23] Will: like the peril they were in was very well established. It's an easy peril. So and then it's the cheapest way out, like stuff. And there's a ton of stuff...
 
 [00:13:30] Adam: Not in Breaking Bad though.
 
 [00:13:31] Will: No, no, no, no. I'm talking about in this movie.
 
-[00:13:32] Adam: Right, right, right. So that's the that that is that is the the most amazing thing to watch a great screenwriter do is put their character in the corner of a painted room and figure out how they get themselves out. And Breaking Bad every single time does it with. Cleverness and ingenuity, and you're always surprised by.
+[00:13:32] Adam: Right, right, right. So that's the that that is that is the most amazing thing to watch a great screenwriter do is put their character in the corner of a painted room and figure out how they get themselves out. And Breaking Bad every single time does it with. Cleverness and ingenuity, and you're always surprised by.
 
 [00:13:51] Will: But it's fair.
 
@@ -396,7 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:13:55] Will: Yeah, deus ex...
 
-[00:13:57] Adam: It's it's fine to use a coincidence to get your characters into trouble. It's not okay to use a coincidence to get your characters out of trouble. Um, I I had some trouble with the plot on this one because it felt a little overly, uh, overly obvious. Oh, really? 16 hours? 16 hours? That's all we have with all of us. Like all these big ships. Now it turns out with light speed, no one's more than five minutes from any planet.
+[00:13:57] Adam: It's fine to use a coincidence to get your characters into trouble. It's not okay to use a coincidence to get your characters out of trouble. I had some trouble with the plot on this one because it felt a little overly overly obvious. Oh, really? 16 hours? 16 hours? That's all we have with all of us. Like all these big ships. Now it turns out with light speed, no one's more than five minutes from any planet.
 
 [00:14:19] Norm: Oh, the physics of Star Wars have never made sense.
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:14:22] Adam: This one, the universe gets compressed to a very tiny degree at this point.
 
-[00:14:26] Norm: Yeah, I mean, you can you can see Starkiller Fire, all the worlds of the New Republic and Resistance can see the Starkiller blast. I mean, I'm fine with that.
+[00:14:26] Norm: Yeah, I mean, you can see Starkiller Fire, all the worlds of the New Republic and Resistance can see the Starkiller blast. I mean, I'm fine with that.
 
 [00:14:33] Will: Look, the
 
@@ -422,11 +422,11 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:14:46] Norm: Yeah. Right.
 
-[00:14:46] Will: Well, Chewie too. I mean, between Chewie and Lando. You got you got both all the everything's represented there.
+[00:14:46] Will: Well, Chewie too. I mean, between Chewie and Lando. You got both all the everything's represented there.
 
 [00:14:53] Adam: You know what? And for this, a big shout out to the actor whose name escapes me right now because I'm a terrible person who's took over the mantle.
 
-[00:15:00] Norm: Joonas Eunice. Um, I forget his, uh, Joonas is his name.
+[00:15:00] Norm: Joonas Eunice. I forget his Joonas is his name.
 
 [00:15:05] Adam: Fabulous, Chewie performer,
 
@@ -434,7 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:15:08] Adam: really, really, really wonderful. Peter Mayhew, an amazing human being, passed away recently, and it's very sad. Chewbacca, I've always said, is my favorite non-human character in film, and frankly, I was a little afraid of this because I haven't seen Solo because I was too afraid to watch what they how Chewbacca would work out in that. And in this one, I thought the characterization was terrific.
 
-[00:15:30] Norm: I hope that won't bring let you go back and, and watch Solo, appreciating that performance.
+[00:15:30] Norm: I hope that won't bring let you go back and watch Solo, appreciating that performance.
 
 [00:15:36] Adam: I think so.
 
@@ -460,29 +460,29 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:15:56] Will: I want to come to see Baby Yoda.
 
-[00:15:57] Adam: We Really, really, really would like to find out about his use of the force. We're going to build an egg pod. You know, we're going to take care of all this. Please, if you worked on the Baby Yoda team,
+[00:15:57] Adam: We Really, really, really would like to find out about his use of the force. We're going to build an egg pod. We're going to take care of all this. Please, if you worked on the Baby Yoda team,
 
 [00:16:05] Norm: reach out.
 
-[00:16:06] Adam: Reach out. You you know someone who knows how to get a hold of us.
+[00:16:06] Adam: Reach out. You know someone who knows how to get a hold of us.
 
-[00:16:09] Will: So so um, I was going to say the the Chewie moments were the ones that got me for the had real I was profoundly upset for when when you feel like Chewie dies, you know, in that in that little red herring, that sleight of
+[00:16:09] Will: So so I was going to say the Chewie moments were the ones that got me for the had real I was profoundly upset for when you feel like Chewie dies in that little red herring, that sleight of
 
 [00:16:23] Adam: yeah,
 
-[00:16:23] Will: another kind of cheap sleight of hand. Um,
+[00:16:23] Will: another kind of cheap sleight of hand.
 
 [00:16:26] Adam: that felt that that felt a little yeah easy.
 
 [00:16:29] Will: Yeah. Oh. Oh. There must have been a second ship. Oh. Oh. Oh. Okay. That makes sense.
 
-[00:16:34] Norm: Well, they never really went into like the the they never they never felt the death in a way that I thought it was going to be a lasting death.
+[00:16:34] Norm: Well, they never really went into like the they never felt the death in a way that I thought it was going to be a lasting death.
 
-[00:16:42] Will: I I felt like it was a lasting death.
+[00:16:42] Will: I felt like it was a lasting death.
 
-[00:16:44] Adam: I knew I knew beyond a shadow of a doubt that he was not dead.
+[00:16:44] Adam: I knew beyond a shadow of a doubt that he was not dead.
 
-[00:16:47] Will: So I assumed I assumed coming into this that everybody everyone was on the table.
+[00:16:47] Will: So I assumed coming into this that everybody everyone was on the table.
 
 [00:16:52] Norm: I did.
 
@@ -514,15 +514,15 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:17:37] Norm: he's plugged in, and yeah.
 
-[00:17:39] Will: The the the I mean the big look if we want to get to the thing that is the unearned thing that made me like I was with the movie right up until about the last 10 minutes, and then we got to the bit where the Emperor—Rey does the business with the Force and the lightsabers, and I'm like, fuck yeah, kill the Emperor with his own. Bad force juice, and then then she dies,
+[00:17:39] Will: The I mean the big look if we want to get to the thing that is the unearned thing that made me like I was with the movie right up until about the last 10 minutes, and then we got to the bit where the Emperor—Rey does the business with the Force and the lightsabers, and I'm like, fuck yeah, kill the Emperor with his own. Bad force juice, and then she dies,
 
 [00:17:57] Unknown speaker: Force juice.
 
-[00:17:39] Will: and and Kylo Ren comes up, and it's like, oh yeah, he's going to give his life back to bring her back to life. This is going to be amazing.
+[00:17:39] Will: and Kylo Ren comes up, and it's like, oh yeah, he's going to give his life back to bring her back to life. This is going to be amazing.
 
 [00:18:05] Norm: Oh, and
 
-[00:18:06] Will: and I'm like, I'm with it. I'm I'm I'm good to go. And then she comes back to life, and she's like, Adam Driver, you're so dreamy, mwah. And I'm like, well,
+[00:18:06] Will: and I'm like, I'm with it. I'm good to go. And then she comes back to life, and she's like, Adam Driver, you're so dreamy, mwah. And I'm like, well,
 
 [00:18:18] Adam: the kiss.
 
@@ -534,9 +534,9 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:18:24] Will: Oh god, the Scully Mulder kiss was this in 1998. It's the same thing. It's yeah. It's it's just like these characters don't need to have a relationship at all.
 
-[00:18:31] Adam: If You remember in the Scully Mulder kiss, it was New Year's Eve. They're in a hospital. They saw the countdown on a television, and they were like, oh, it's it's midnight, and they just looked at each other and kissed. And when they separated, she said, I don't know what all the fuss was about, and then they never talked about it again in the whole series. Genius way to deal with that kiss.
+[00:18:31] Adam: If You remember in the Scully Mulder kiss, it was New Year's Eve. They're in a hospital. They saw the countdown on a television, and they were like, oh, it's midnight, and they just looked at each other and kissed. And when they separated, she said, I don't know what all the fuss was about, and then they never talked about it again in the whole series. Genius way to deal with that kiss.
 
-[00:18:52] Norm: Good job, Chris Carter. But yeah, I agree. Completely unnecessary. They could have had a friendship or bond or whatever that was. That, you know, in Ben, like what she saw in Ben, her whole thing with like I want to take his hand, ah, didn't didn't really feel it there. I will say the Emperor was scary.
+[00:18:52] Norm: Good job, Chris Carter. But yeah, I agree. Completely unnecessary. They could have had a friendship or bond or whatever that was. That in Ben, like what she saw in Ben, her whole thing with like I want to take his hand, ah, didn't didn't really feel it there. I will say the Emperor was scary.
 
 [00:19:12] Will: Yeah,
 
@@ -546,9 +546,9 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:19:29] Will: The hologram?
 
-[00:19:29] Adam: Yeah, with it, and it was they cast a female actress. They had big eye prosthetics, and they projected like cow's eyes onto the prosthetics. Like there was this whole weird thing they did that made it super creepy. Like I'm still creeped out by the Empire Emperor, the Empire Emperor projection.
+[00:19:29] Adam: Yeah, with it, and it was they cast a female actress. They had big eye prosthetics, and they projected like cow's eyes onto the prosthetics. Like there was this whole weird thing they did that made it super creepy. Like I'm still creeped out by the Empire Emperor projection.
 
-[00:19:47] Will: I I liked I liked the Emperor hanging with all the tubes and stuff keeping him alive.
+[00:19:47] Will: I liked the Emperor hanging with all the tubes and stuff keeping him alive.
 
 [00:19:51] Adam: That was awesome.
 
@@ -560,7 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:19:54] Adam: yeah very body horror from Akira kind of thing.
 
-[00:19:57] Will: And the thing that I loved, the thing that I did love about this that is actually good is he solved the problem from Return of the Jedi, which is. How can Luke defeat evil without becoming evil himself? And you know, by forcing, by by returning his own, using his own power against him, yada yada.
+[00:19:57] Will: And the thing that I loved, the thing that I did love about this that is actually good is he solved the problem from Return of the Jedi, which is. How can Luke defeat evil without becoming evil himself? And by forcing, by by returning his own, using his own power against him, yada yada.
 
 [00:20:10] Adam: His Spider Tingle.
 
@@ -570,11 +570,11 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:20:13] Will: Tingle. That's what it is.
 
-[00:20:13] Norm: They, you know, how people were up in arms after the last Jedi because of the the newfound force powers, right? Like, how can Luke force project himself across the galaxy on another planet? Like, it's fiction. It's fantasy, folks. It felt like Disney did this thing where they introduced, and we're gonna have minor Mandalorian spoilers here in the penultimate episode of the season of Mandalorian, episode seven, the most recent one, where Baby Yoda gives life force to revive Carl Weathers' character, and that was a way to ease new viewers into like
+[00:20:13] Norm: They, you know, how people were up in arms after the last Jedi because of the newfound force powers, right? Like, how can Luke force project himself across the galaxy on another planet? Like, it's fiction. It's fantasy, folks. It felt like Disney did this thing where they introduced, and we're gonna have minor Mandalorian spoilers here in the penultimate episode of the season of Mandalorian, episode seven, the most recent one, where Baby Yoda gives life force to revive Carl Weathers' character, and that was a way to ease new viewers into like
 
 [00:20:52] Will: I was totally ready for that. I was like, oh, this is a new thing for the force.
 
-[00:20:53] Norm: Yes, exactly. And they they did this little bit of kind of this world building synergy without having like exact connections.
+[00:20:53] Norm: Yes, exactly. And they did this little bit of kind of this world building synergy without having like exact connections.
 
 [00:21:02] Adam: which I thought was really neat,
 
@@ -586,11 +586,11 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:21:15] Will: yeah.
 
-[00:21:15] Norm: Hmm. The the moment and the sound design for the moment where she feels all the Jedi that have lived in the past within her
+[00:21:15] Norm: Hmm. The moment and the sound design for the moment where she feels all the Jedi that have lived in the past within her
 
 [00:21:24] Will: that was lovely. Yeah,
 
-[00:21:25] Norm: that was that was like the port. Yeah, all the voices, and I wish they could have made that like lingered on that a little more.
+[00:21:25] Norm: that was like the port. Yeah, all the voices, and I wish they could have made that like lingered on that a little more.
 
 [00:21:32] Adam: So, this you have actually alighted on the one problem I had with the film overall is that I wanted more spaces of quiet and lingering and character building, and you know that's the kind of thing that's almost often missing and often a thing the studio fights against tooth and nail in any big studio picture. Remember, famously, Joss Whedon spent all production trying to keep the Hawkeye farmhouse scene in the Avengers,
 
@@ -600,19 +600,19 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:22:14] Will: They're human. It makes them human.
 
-[00:22:16] Adam: Yeah, and I I wanted some of that because this movie felt like a pod race in in the just unending stream of relentless
+[00:22:16] Adam: Yeah, and I I wanted some of that because this movie felt like a pod race in the just unending stream of relentless
 
 [00:22:25] Norm: barrels along.
 
 [00:22:26] Adam: Yeah,
 
-[00:22:26] Norm: you know, Martin Scorsese criticized Marvel films and called them not cinema, and then said, " Oh, what he meant was that they're theme park rides." And this leans into literally being a theme park ride.
+[00:22:26] Norm: Martin Scorsese criticized Marvel films and called them not cinema, and then said, " Oh, what he meant was that they're theme park rides." And this leans into literally being a theme park ride.
 
-[00:22:37] Adam: Yeah, you know, it's funny that he says that. I I had a real problem with his letter and his explanation of of of that whole thing because I still feel like there are ways in which he's talking to 1980s Steven Spielberg. He's talking about the second Raiders film with like that
+[00:22:37] Adam: Yeah it's funny that he says that. I had a real problem with his letter and his explanation of that whole thing because I still feel like there are ways in which he's talking to 1980s Steven Spielberg. He's talking about the second Raiders film with like that
 
 [00:22:56] Will: that literally had a roller coaster sequence.
 
-[00:22:57] Adam: you knew was going to be a theme park ride on the tracks of the of the mining, and you know the Marvel films. To be honest, for me, they tend to lack those really obvious action sequences that someone was hoping some Imagineers could turn into a gazillion dollar enterprise,
+[00:22:57] Adam: you knew was going to be a theme park ride on the tracks of the mining, and you know the Marvel films. To be honest, for me, they tend to lack those really obvious action sequences that someone was hoping some Imagineers could turn into a gazillion dollar enterprise,
 
 [00:23:11] Will: or that they would turn into a video game,
 
@@ -690,7 +690,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:25:07] Will: Yeah, he means he's going to sell a lot of toys.
 
-[00:25:09] Adam: He he somehow knew who Rey's parents were.
+[00:25:09] Adam: He somehow knew who Rey's parents were.
 
 [00:25:11] Norm: No thank you. No thank you.
 
@@ -720,7 +720,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:25:42] Adam: delightful bot.
 
-[00:25:43] Norm: And Matt Denton, you know, friend of Tested, who's guest on the pod. You know, helped work on all those droids.
+[00:25:43] Norm: And Matt Denton friend of Tested, who's guest on the pod. Helped work on all those droids.
 
 [00:25:48] Adam: Did he really?
 
@@ -760,9 +760,9 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:26:31] Will: C-3PO wearing clothes is very funny to me, and I'm not sure why.
 
-[00:26:34] Norm: But you know, it's planet to planet to planet. I mean, there literally was a sequence in this movie where they hyperspace quickly from planet to planet to planet, and it's a dangerous thing to do. And this, you know, this movie felt like that. You were light speed skipping. Yep.
+[00:26:34] Norm: But it's planet to planet. I mean, there literally was a sequence in this movie where they hyperspace quickly from planet to planet, and it's a dangerous thing to do. And this, you know, this movie felt like that. You were light speed skipping. Yep.
 
-[00:26:47] Will: How? How? Who was the? Do you know who the actress was? Who was the other stormtrooper? The one that they found on on Endor.
+[00:26:47] Will: How? How? Who was the? Do you know who the actress was? Who was the other stormtrooper? The one that they found on Endor.
 
 [00:26:54] Norm: I don't know her name.
 
@@ -770,9 +770,9 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:26:56] Will: Yeah. She was good. Like all, like. I thought there wasn't very much Rose. We didn't see much Rose.
 
-[00:27:01] Norm: So I and I felt like that storyline, still underdeveloped, came at the cost of the the Rose storyline, which again, yeah, this is a consequence of different writers, different team coming in and inheriting a story. But I really like the idea that Finn found his people and in people in that they're ex troopers, and he wasn't alone. And they gave some kind of like uniting reason why they all pushed back.
+[00:27:01] Norm: So I and I felt like that storyline, still underdeveloped, came at the cost of the Rose storyline, which again, yeah, this is a consequence of different writers, different team coming in and inheriting a story. But I really like the idea that Finn found his people and in people in that they're ex troopers, and he wasn't alone. And they gave some kind of like uniting reason why they all pushed back.
 
-[00:27:26] Will: See, I felt like there wasn't the thing that bummed me out is that I felt like um, uh, Rey definitely got her conclusion right. Um, Poe got his conclusion. He's the he's the leader that the the the rebellion needs now. I felt like Finn kind of didn't get didn't
+[00:27:26] Will: See, I felt like there wasn't the thing that bummed me out is that I felt like Rey definitely got her conclusion right. Poe got his conclusion. He's the leader that the rebellion needs now. I felt like Finn kind of didn't get didn't
 
 [00:27:43] Norm: yeah Poe Poe got his
 
@@ -794,11 +794,11 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:28:03] Will: Oh,
 
-[00:28:03] Norm: but he was there when when the flotilla comes in, when the armada comes in.
+[00:28:03] Norm: but he was there when the flotilla comes in, when the armada comes in.
 
 [00:28:07] Will: But
 
-[00:28:07] Norm: he's one of the, you know,
+[00:28:07] Norm: he's one of the
 
 [00:28:09] Will: he's one of the other guys.
 
@@ -822,7 +822,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:28:28] Will: he had a good run.
 
-[00:28:29] Norm: Um, Lin-Manuel was cameoed at the end.
+[00:28:29] Norm: Lin-Manuel was cameoed at the end.
 
 [00:28:32] Will: Oh, I didn't see him.
 
@@ -840,7 +840,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:28:46] Norm: Warwick Davis was in there.
 
-[00:28:47] Will: The the Ewoks victory song.
+[00:28:47] Will: The Ewoks victory song.
 
 [00:28:48] Adam: The Ewoks. I can't stand Ewoks.
 
@@ -866,9 +866,9 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:29:39] Will: 10,000 years of peace. They're cool. Everything's good.
 
-[00:29:41] Norm: It could have been a good place to to lay some cool seeds in.
+[00:29:41] Norm: It could have been a good place to lay some cool seeds in.
 
-[00:29:45] Adam: I think that's being done on the set of The Mandalorian, and I I am super ecstatic about that. I I I hear what you are saying. I think it's reasonable to take a period of some a break.
+[00:29:45] Adam: I think that's being done on the set of The Mandalorian, and I I am super ecstatic about that. I hear what you are saying. I think it's reasonable to take a period of some a break.
 
 [00:29:58] Norm: Yeah,
 
@@ -886,7 +886,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:30:33] Will: Yeah, yeah. movie." Well, I mean, it's—I mean, look, movie executives should pay less attention to YouTube and more, more to the work, right? Like, look at look at the work.
 
-[00:30:45] Adam: I am, um, look at the work and look at specifically the prop that I wanted to make from this movie, the Sith Wayfinder.
+[00:30:45] Adam: I am look at the work and look at specifically the prop that I wanted to make from this movie, the Sith Wayfinder.
 
 [00:30:52] Will: Yeah, that cute, that
 
@@ -926,7 +926,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:31:32] Adam: I thought the idea. So
 
-[00:31:34] Will: his shrug when he when he pulls it back from behind his head and it's like oh yeah okay I got this
+[00:31:34] Will: his shrug when he pulls it back from behind his head and it's like oh yeah okay I got this
 
 [00:31:39] Adam: that was
 
@@ -938,7 +938,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:31:41] Adam: Adam Driver
 
-[00:31:42] Will: like the kiss aside Adam Driver and Daisy Ridley both their their their performances against each other in this film are exceptional.
+[00:31:42] Will: like the kiss aside Adam Driver and Daisy Ridley both their performances against each other in this film are exceptional.
 
 [00:31:53] Adam: I totally agree.
 
@@ -972,9 +972,9 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:32:49] Unknown speaker: Exactly.
 
-[00:32:49] Will: bring them all in. It's it it is more. I'm, I'm gonna go see it again because Gina hasn't seen it yet either, and it's um it's stupendous.
+[00:32:49] Will: bring them all in. It's it is more. I'm gonna go see it again because Gina hasn't seen it yet either, and it's stupendous.
 
-[00:32:56] Norm: I am really curious from people out there, you know, yes, what when you think what you think about it, but also what the theater experience has been like. I think
+[00:32:56] Norm: I am really curious from people out there yes, what when you think what you think about it, but also what the theater experience has been like. I think
 
 [00:33:03] Adam: right.
 
@@ -996,7 +996,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:33:36] Adam: Is this our last podcast of the year?
 
-[00:33:37] Norm: This might... I was just going to say I think this is our final one of the year. I don't think we're going to be able to reconvene. We'll we will take New Year's Eve off. Maybe I'll throw a, a episode from the archive for people to
+[00:33:37] Norm: This might... I was just going to say I think this is our final one of the year. I don't think we're going to be able to reconvene. We'll we will take New Year's Eve off. Maybe I'll throw a episode from the archive for people to
 
 [00:33:47] Unknown speaker: Best of.
 
@@ -1006,7 +1006,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:33:51] Norm: Ah, that's not a bad idea. So have a wonderful Christmas. Have a happy New Year. We're going to be back with a lot of cool stuff.
 
-[00:34:00] Adam: Oh my God, 2020 is shaping up to be. You know, it's funny. People always say things like this. Oh, the next year's shaping up to be great.
+[00:34:00] Adam: Oh my God, 2020 is shaping up to be. It's funny. People always say things like this. Oh, the next year's shaping up to be great.
 
 [00:34:09] Norm: But guess what? We filmed so much of it for January.
 
@@ -1014,7 +1014,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:34:13] Norm: we can tell you it's good.
 
-[00:34:14] Adam: Yeah, it's really good. It's very exciting. Tested 2020 is going to be an awesome year. Um, thank you. Yeah, guys.
+[00:34:14] Adam: Yeah, it's really good. It's very exciting. Tested 2020 is going to be an awesome year. Thank you. Yeah, guys.
 
 [00:34:22] Will: Thanks,
 

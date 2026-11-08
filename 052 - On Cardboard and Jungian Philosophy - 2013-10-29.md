@@ -18,7 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:00:17] Adam: Yes, yes, yes. But this is it's rare that Still Untitled gets recorded here in the tested home office.
 
-[00:00:22] Will: No, we were here having we had a meeting. Yeah, very fancy. Um. So it's it's uh it's Monday morning. We just we did Octobercast this weekend. You thank you for coming by on Saturday morning.
+[00:00:22] Will: No, we were here having we had a meeting. Yeah, very fancy. So it's Monday morning. We just we did Octobercast this weekend. You thank you for coming by on Saturday morning.
 
 [00:00:33] Adam: Absolutely, that was a lot of fun.
 
@@ -40,13 +40,13 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:01:40] Norm: Does that require practice, like in a mirror?
 
-[00:01:42] Adam: Well, I need. I need that. It's just that it's it's very specific. Like if someone comes up and wants an autograph, and they've been a little, it's weird. People can be weirdly aggressive in a way that you only get if you're standing next to them. Yeah, they'll have a. There's just a thing that happens that some people can be weirdly aggressive. Even though they're asking you for something,
+[00:01:42] Adam: Well, I need. I need that. It's just that it's very specific. Like if someone comes up and wants an autograph, and they've been a little, it's weird. People can be weirdly aggressive in a way that you only get if you're standing next to them. Yeah, they'll have a. There's just a thing that happens that some people can be weirdly aggressive. Even though they're asking you for something,
 
 [00:02:02] Will: they don't mean. I don't.
 
 [00:02:02] Norm: They entered your space, and you entered their space.
 
-[00:02:04] Adam: No, I don't think that they mean it as intentional. But there is there is a way some people can ask for an autograph, which is sort of like if you give me any crap for me asking you for this autograph, I am going to tell everyone you are a dick.
+[00:02:04] Adam: No, I don't think that they mean it as intentional. But there is a way some people can ask for an autograph, which is sort of like if you give me any crap for me asking you for this autograph, I am going to tell everyone you are a dick.
 
 [00:02:15] Will: Yeah,
 
@@ -60,11 +60,11 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:03:01] Will: Waiting to Talk
 
-[00:03:02] Norm: I'm so sorry. from from the weekend, uh, when we had Veronica on,
+[00:03:02] Norm: I'm so sorry. from the weekend when we had Veronica on,
 
 [00:03:06] Adam: Yeah.
 
-[00:03:06] Norm: and, uh, she was talking about books and literature, she's a huge book nerd,
+[00:03:06] Norm: and she was talking about books and literature, she's a huge book nerd,
 
 [00:03:10] Adam: Yeah.
 
@@ -76,11 +76,11 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:03:41] Will: That was only eight or nine hours in. That was early.
 
-[00:03:43] Adam: Great. Um. I have gone through this. Like I've I've filmed MythBusters either in a terrible mood or without enough sleep, or sometimes I've been sick. You know,
+[00:03:43] Adam: Great. I have gone through this. Like I've I've filmed MythBusters either in a terrible mood or without enough sleep, or sometimes I've been sick. You know,
 
 [00:03:55] Will: the show must go on.
 
-[00:03:55] Adam: The show must go on, and it would take an either a very light shooting week or a very bad sickness for me to or Jamie to take a day off. It has happened, but. I have spent whole days filming where I'm just I'm just like this. Okay, what are we going to do next? Okay, uh, is camera rolling? Camera set. So what I plan to do, and I'm every I'm putting everything into what's on camera and nothing else. And my crew actually often thinks it's quite hilarious because they, to them it's a great show.
+[00:03:55] Adam: The show must go on, and it would take an either a very light shooting week or a very bad sickness for me to or Jamie to take a day off. It has happened, but. I have spent whole days filming where I'm just like this. Okay, what are we going to do next? Okay is camera rolling? Camera set. So what I plan to do, and I'm every I'm putting everything into what's on camera and nothing else. And my crew actually often thinks it's quite hilarious because they, to them it's a great show.
 
 [00:04:24] Will: It's like the robot turns on. It's hysterical.
 
@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:04:27] Will: Put some more batteries in Adam.
 
-[00:04:29] Adam: My my soundo Matty Jepson on the show. He's been with us for like seven or eight years. He's always incredibly complimentary about that, and that in and of itself also helps feed the energy that I'm putting out for the show because it's exhausting. When you're sick to be doing that,
+[00:04:29] Adam: My soundo Matty Jepson on the show. He's been with us for like seven or eight years. He's always incredibly complimentary about that, and that in and of itself also helps feed the energy that I'm putting out for the show because it's exhausting. When you're sick to be doing that,
 
 [00:04:44] Will: yeah. We once built Lego when I had 104 degree fever.
 
@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:05:59] Norm: Hey guys, Cardboard.
 
-[00:06:00] Adam: all in his all in his flavors, all up in his flavor saver,
+[00:06:00] Adam: all in his flavors, all up in his flavor saver,
 
 [00:06:03] Will: Norm. That's the flavor you don't want to save, Norm. It's time for another perfect segue.
 
@@ -136,7 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:06:47] Norm: and we ended up with giving them cardboard.
 
-[00:06:49] Adam: So I went towards my my thinking on this was one corrugated cardboard was the first material I really sunk my teeth into, so it has a nostalgic thing. Second of all, a lot of submissions we got. I mean, so many of the submissions we got were incredibly creative and detailed and beautiful.
+[00:06:49] Adam: So I went towards my thinking on this was one corrugated cardboard was the first material I really sunk my teeth into, so it has a nostalgic thing. Second of all, a lot of submissions we got. I mean, so many of the submissions we got were incredibly creative and detailed and beautiful.
 
 [00:07:12] Will: Hundreds and hundreds of hours worth of work in some cases.
 
@@ -148,7 +148,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:07:38] Will: There's something that you can spend hundreds and hundreds of hours on, but that's not practical for the type of projects that you're going to want these people to work on. for the most part.
 
-[00:07:44] Adam: Exactly, and and you know, back when I used to interview people to work for me in special effects, you would very much gravitate towards the people who built something like a '57 Chevy, Chevy, instead of someone who built like their dragon that they designed, because the Chevy, I know what that's supposed to look like, so I know how close you got. So we asked people to build something in their house to replicate something in their house. Out of cardboard
+[00:07:44] Adam: Exactly, and back when I used to interview people to work for me in special effects, you would very much gravitate towards the people who built something like a '57 Chevy, Chevy, instead of someone who built like their dragon that they designed, because the Chevy, I know what that's supposed to look like, so I know how close you got. So we asked people to build something in their house to replicate something in their house. Out of cardboard
 
 [00:08:09] Will: at a one to one scale.
 
@@ -168,7 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:08:36] Will: also shocking.
 
-[00:08:37] Adam: My teacher, I hope he's listening. Gary Benton was a fantastic mentor in high school. He was still at my high school when I visited it seven or eight years ago, and that's 30 years on. He let me, he let me try everything that I wanted to try, and gave me enough structure and enough looseness that I really did get to kind of stretch my wings. And somewhere in my junior year, the beginning of the junior year, my other art teacher, Diane Masumian. Gave us a project to build something out of corrugated cardboard and only corrugated cardboard, no paint, no nothing, just cardboard.
+[00:08:37] Adam: My teacher, I hope he's listening. Gary Benton was a fantastic mentor in high school. He was still at my high school when I visited it seven or eight years ago, and that's 30 years on. He let me try everything that I wanted to try, and gave me enough structure and enough looseness that I really did get to kind of stretch my wings. And somewhere in my junior year, the beginning of the junior year, my other art teacher, Diane Masumian. Gave us a project to build something out of corrugated cardboard and only corrugated cardboard, no paint, no nothing, just cardboard.
 
 [00:00:00] Unknown speaker: Just cardboard.
 
@@ -206,13 +206,13 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:10:42] Adam: Right, right, right. I just, I still remember the feeling of cutting and making and just the glorious feeling.
 
-[00:10:49] Will: Well, and the neat thing about it is you, you need something to cut on that you don't care if it gets scarred up, whether it's a mat or a table or something.
+[00:10:49] Will: Well, and the neat thing about it is you need something to cut on that you don't care if it gets scarred up, whether it's a mat or a table or something.
 
 [00:10:55] Adam: Yeah.
 
 [00:10:55] Will: A whole bunch of razor blades, which are relatively safe and inexpensive,
 
-[00:10:59] Adam: and and single edge razor blades were still one of the best tools in my toolbox.
+[00:10:59] Adam: and single edge razor blades were still one of the best tools in my toolbox.
 
 [00:11:03] Will: Yeah. And then glue.
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:12:09] Will: Wow.
 
-[00:12:09] Adam: Everything. I I showed up for school and my first day of my senior year, and I went to the art room because there's a bunch of stuff that I wanted to see and I wanted to get. And it was all gone.
+[00:12:09] Adam: Everything. I showed up for school and my first day of my senior year, and I went to the art room because there's a bunch of stuff that I wanted to see and I wanted to get. And it was all gone.
 
 [00:12:21] Will: Oh my god.
 
@@ -240,7 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:12:37] Adam: I really did. I was that upset about it, and that crushed to lose seven or eight these these really important, vital things. I'd spent the last couple of years really pouring my heart into it. I will say that the result of that loss, I didn't really invest myself in making something for another two years. Like that, it threw me off my game. That.
 
-[00:13:03] Will: But that's that's terrible.
+[00:13:03] Will: But that's terrible.
 
 [00:13:04] Adam: yeah. It was awful. I haven't ever really spoken publicly about this, not by any design. It's just the cardboard brought this kind of streaming back, this terrible occurrence of all of these pieces going away.
 
@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:13:39] Adam: I can barely describe how sad and upset that I was. I mean, really, it was just terrible.
 
-[00:13:45] Will: You, you, yeah, if you haven't talked about it, you must have blocked it out at this point.
+[00:13:45] Will: You, yeah, if you haven't talked about it, you must have blocked it out at this point.
 
 [00:13:48] Norm: But the devastation that happened there only mirrors how high that art class brought you, and what that kind of creativity when you are exposed to it, and when you invest yourself into it, what that type of project can can develop.
 
@@ -278,7 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:14:29] Will: But he's probably about at 90 years old at this point.
 
-[00:14:33] Adam: I'm also cognizant of that with my kids. Right, and it's like you, you, it's, it's very tricky when you have kids that are interested in something because you're tempted, and of course, you need to sometimes use the things they're interested in to punish them to get their attention. But you know, Temple Grandin was very clear about that. Like, you know, if you got a kid and they're really interested in drawing, you never take away the drawing. You never take away their ability to do the thing that they're super interested in.
+[00:14:33] Adam: I'm also cognizant of that with my kids. Right, and it's like you, it's very tricky when you have kids that are interested in something because you're tempted, and of course, you need to sometimes use the things they're interested in to punish them to get their attention. But Temple Grandin was very clear about that. Like, you know, if you got a kid and they're really interested in drawing, you never take away the drawing. You never take away their ability to do the thing that they're super interested in.
 
 [00:15:00] Norm: And it's as an adult, you don't see it that way. Like the value that the maker has in what they're making, even if it's something as simple as cardboard, it. You can't get that
 
@@ -306,9 +306,9 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:15:51] Will: I mean, there were rules.
 
-[00:15:52] Norm: Switchblades, You know, butterfly knives.
+[00:15:52] Norm: Switchblades butterfly knives.
 
-[00:15:53] Will: No, it wasn't butterfly. No, it was like like, but the little Swiss Army knife.
+[00:15:53] Will: No, it wasn't butterfly. No, it was like, but the little Swiss Army knife.
 
 [00:15:56] Adam: You weren't in danger of losing your whole future.
 
@@ -318,13 +318,13 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:16:02] Will: stuff's crazy.
 
-[00:16:02] Adam: The ping pong ball gun. I had bought a, um, a pricer. Like a like a grocery store pricer, and I'd taken it apart and utilized.
+[00:16:02] Adam: The ping pong ball gun. I had bought a pricer. Like a grocery store pricer, and I'd taken it apart and utilized.
 
 [00:16:12] Will: Hold on, We should explain what that is because I bet a bunch of people have no idea.
 
 [00:16:15] Adam: Hold on a second, Jesus! Why does this keep on?
 
-[00:16:17] Will: So sorry. Oh no, it's okay. So the price gun was a thing that took a little. It spat out a little tiny square rectangular labels, maybe a half inch by a quarter of an inch, and the the the checker would set or the the the stock boy
+[00:16:17] Will: So sorry. Oh no, it's okay. So the price gun was a thing that took a little. It spat out a little tiny square rectangular labels, maybe a half inch by a quarter of an inch, and the checker would set or the stock boy
 
 [00:16:30] Adam: Oh, right, yeah, this is pre barcode
 
@@ -346,7 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:17:01] Norm: like fake pricing.
 
-[00:17:02] Will: Oh, yeah, yeah. This is, this is the same way. I was going to say
+[00:17:02] Will: Oh, yeah, yeah. This is the same way. I was going to say
 
 [00:17:03] Adam: actually taking the price from one thing and putting it on another. That that was what was shoplifting.
 
@@ -368,9 +368,9 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:17:35] Will: God, then you're suicidal. That's bad enough to cross.
 
-[00:17:38] Adam: But, but, but, so anyway, I took this price gun, which had a beautiful big fat white trigger, and I took it apart and attached that trigger to a string that went up and around to this fork. So you would actually put the the ping pong ball, in a hole drilled into it, and it threaded onto a long rod, which was a coat hanger, and then it was captured by a fork. And when you pulled the trigger, it lifted the fork and shot the ping pong ball out.
+[00:17:38] Adam: But, so anyway, I took this price gun, which had a beautiful big fat white trigger, and I took it apart and attached that trigger to a string that went up and around to this fork. So you would actually put the ping pong ball, in a hole drilled into it, and it threaded onto a long rod, which was a coat hanger, and then it was captured by a fork. And when you pulled the trigger, it lifted the fork and shot the ping pong ball out.
 
-[00:18:00] Will: So what was the the force—a spring or something?
+[00:18:00] Will: So what was the force—a spring or something?
 
 [00:18:02] Adam: A rubber band.
 
@@ -384,13 +384,13 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:18:19] Will: that's a great job.
 
-[00:18:19] Adam: When no one's looking, you go up into the the eight hundreds and you look at all the books about sex.
+[00:18:19] Adam: When no one's looking, you go up into the eight hundreds and you look at all the books about sex.
 
-[00:18:23] Will: If if you're like if you're like
+[00:18:23] Will: If you're like
 
 [00:18:25] Norm: another thing that's lost with the no no more Dewey Decimal System.
 
-[00:18:29] Will: Well, and the fact that, and the fact that every eight year old with a access to Google knows everything they need to know in excruciating detail.
+[00:18:29] Will: Well, and the fact that every eight year old with a access to Google knows everything they need to know in excruciating detail.
 
 [00:18:36] Norm: Back back in my day, I had to go to the library.
 
@@ -404,7 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:18:49] Will: Just look for the issues of National Geo with the spines that you couldn't tell they were National Geos.
 
-[00:18:53] Adam: All right. So moving on from that, that was another piece that got lost in that in that throwing away fever that my principal, had.
+[00:18:53] Adam: All right. So moving on from that, that was another piece that got lost in that throwing away fever that my principal, had.
 
 [00:19:00] Will: The Mr. Jones debacle.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:19:10] Will: You can say naughty words on this podcast.
 
-[00:19:12] Adam: I, I know. I tend to always think that kids might tune in, and I don't want to curse. You guys can curse, but
+[00:19:12] Adam: I know. I tend to always think that kids might tune in, and I don't want to curse. You guys can curse, but
 
 [00:19:17] Will: I don't think kids. Maybe okay. Kids should tune in. They learn a lot of good stuff.
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:19:48] Norm: No, two
 
-[00:19:49] Adam: really two per season. They chose them carefully. They do. They're nicely done. Well, yeah, they're nicely interlaced. Yes, huh? There was a wonderful list on Cracked a few months ago of, um, the you know how R rated, uh
+[00:19:49] Adam: really two per season. They chose them carefully. They do. They're nicely done. Well, yeah, they're nicely interlaced. Yes, huh? There was a wonderful list on Cracked a few months ago of the you know how R rated
 
 [00:20:01] Will: sorry
 
@@ -468,11 +468,11 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:20:25] Adam: perfectly done, perfectly timed.
 
-[00:20:26] Will: My my favorite part about the obscure F, uh, MPA rules about cursing are the implied F bombs when they'll say when when they'll when they'll get the F out, and then there's a strategic cut,
+[00:20:26] Will: My favorite part about the obscure F MPA rules about cursing are the implied F bombs when they'll say when they'll get the F out, and then there's a strategic cut,
 
 [00:20:41] Adam: Oh.
 
-[00:20:41] Will: So that you roll straight into something else, and you you fill it in. It's there, but they don't actually say it.
+[00:20:41] Will: So that you roll straight into something else, and you fill it in. It's there, but they don't actually say it.
 
 [00:20:47] Norm: Thanks, human brain.
 
@@ -486,11 +486,11 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:21:00] Will: And cardboard is was a was the great equalizer. That's why we chose cardboard.
 
-[00:21:04] Adam: It really was. It really was. It was, it was one of the first times I felt like I was like peeking above the clouds and realizing, oh, I could. I actually have a skill here, and I I can utilize it to do some really impressive stuff, and it's very exciting. It's an exciting sort of, um. Well, Jung always talked about the Parsifal Grail legend as a great analogy for male upbringing.
+[00:21:04] Adam: It really was. It really was. It was one of the first times I felt like I was like peeking above the clouds and realizing, oh, I could. I actually have a skill here, and I I can utilize it to do some really impressive stuff, and it's very exciting. It's an exciting sort of, um. Well, Jung always talked about the Parsifal Grail legend as a great analogy for male upbringing.
 
 [00:21:27] Will: Was this the like the Indiana Jones and the Last Crusade?
 
-[00:21:29] Adam: Well, no, uh, Carl Jung. Yes, yes. Uh, so, in his quest for the Grail in in the original Morte d'Arthur, uh, uh, Parsifal sets out to go find the Grail, and it takes him many years to find it. But early in his quest, he has a dream in which he sees it, but he doesn't know what the right question to ask is. And this coupled this, there's a second thing that happens early on in the Grail legend, which is that the land is sick because the king, the Fisher King, is sick, and he's called the Fisher King because when he was a child, he was traveling through the woods and he came upon an empty campsite with a fire pit and a fish roasting over the fire, and he was hungry. So he reached out to eat the fish, but he was burned by it. It burned him because it was hot. He burned and put his fingers in his mouth to salve the burn and tasted fish. And Jung says this is a perfect analogy for for youth, in which you can see a glimpse of what you are to become, and you can taste it, but you can't grab it. And it's it's a key moment in our in our in our making as humans that we we get there's a point at which we look above the clouds, and so it's it's written about twice in the Grail legend. Once where once with the Fisher King story, and the second time with the and it's that story that the movie The Fisher King by Richard LaGravenese is actually built on. And the second time is Parsifal seeing of the Grail early in his quest, but not knowing the right question to ask in order to achieve it. So it's sort of a it's the thing to strive for. And cardboard was that for me. It was the thing I realized that showed me what I could do. What I could strive for in terms of achieving excellence in making things.
+[00:21:29] Adam: Well, no Carl Jung. Yes, yes. So, in his quest for the Grail in the original Morte d'Arthur Parsifal sets out to go find the Grail, and it takes him many years to find it. But early in his quest, he has a dream in which he sees it, but he doesn't know what the right question to ask is. And this coupled this, there's a second thing that happens early on in the Grail legend, which is that the land is sick because the king, the Fisher King, is sick, and he's called the Fisher King because when he was a child, he was traveling through the woods and he came upon an empty campsite with a fire pit and a fish roasting over the fire, and he was hungry. So he reached out to eat the fish, but he was burned by it. It burned him because it was hot. He burned and put his fingers in his mouth to salve the burn and tasted fish. And Jung says this is a perfect analogy for youth, in which you can see a glimpse of what you are to become, and you can taste it, but you can't grab it. And it's a key moment in our making as humans that we get there's a point at which we look above the clouds, and so it's written about twice in the Grail legend. Once where once with the Fisher King story, and the second time with the and it's that story that the movie The Fisher King by Richard LaGravenese is actually built on. And the second time is Parsifal seeing of the Grail early in his quest, but not knowing the right question to ask in order to achieve it. So it's sort of a it's the thing to strive for. And cardboard was that for me. It was the thing I realized that showed me what I could do. What I could strive for in terms of achieving excellence in making things.
 
 [00:23:15] Will: Well, there you go.
 
@@ -526,7 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:24:32] Adam: that was good.
 
-[00:24:32] Will: If you if you don't enjoy this, that's it. This is what we got.
+[00:24:32] Will: If you don't enjoy this, that's it. This is what we got.
 
 [00:24:37] Adam: This is what we've got.
 

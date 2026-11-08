@@ -18,7 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:00:12] Will: How did you guys ring in the year?
 
-[00:00:15] Adam: Well, we we often have a party. We did this year. We had a very intimate party, about 20 close friends in San Francisco, and it was really nice, low key, families and some kids and friends, and it was it was great. Julia had the brilliance of ordering dumplings.
+[00:00:15] Adam: Well, we often have a party. We did this year. We had a very intimate party, about 20 close friends in San Francisco, and it was really nice, low key, families and some kids and friends, and it was great. Julia had the brilliance of ordering dumplings.
 
 [00:00:36] Will: Oh,
 
@@ -52,11 +52,11 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:01:48] Will: I've thought about doing that for a lot of things. Like I'm not sure how long a tube of toothpaste lasts in my house. It seems like between three and five months, maybe.
 
-[00:01:55] Adam: Yeah, it's well. You know, have you ever have you ever thought about doing? You know, those guys on the web who log everything all year long.
+[00:01:55] Adam: Yeah, it's well. Have you ever thought about doing? You know, those guys on the web who log everything all year long.
 
 [00:02:03] Will: Yeah, it seems like now's the time to start.
 
-[00:02:04] Adam: Yeah, right. I myself have been taking pictures. I've been i've I've built every day this year so far, and I know it's only the third day, fourth day,
+[00:02:04] Adam: Yeah, right. I myself have been taking pictures. I've been i've built every day this year so far, and I know it's only the third day, fourth day,
 
 [00:02:13] Will: fourth day,
 
@@ -64,15 +64,15 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:02:27] Norm: There's a psychology to the streak. of continuing to do something, whether it's for fitness or for creating something or making something. Jerry Seinfeld used to do it. He used to have a big calendar on his wall and mark a big X for every day he wrote right a joke. And then if you don't, once you have that hole there, like your brain doesn't want to. No, what bells against it?
 
-[00:02:45] Will: It's it's yeah. I mean, it's never stopping is an important thing.
+[00:02:45] Will: It's yeah. I mean, it's never stopping is an important thing.
 
 [00:02:49] Adam: How did you guys ring in the new year?
 
-[00:02:51] Will: Well, I was up in Sonoma with some friends. We we they had rented a house and said, hey. You guys want to come up? If you guys cook, we have a place to stay.
+[00:02:51] Will: Well, I was up in Sonoma with some friends. We they had rented a house and said, hey. You guys want to come up? If you guys cook, we have a place to stay.
 
 [00:02:58] Adam: Oh, nice!
 
-[00:02:58] Will: So, Gina and I and and the Munchkin went up, and we made a ton. We made way more food than needed than was needed, as as you kind of do. Yeah, I did the the Serious Eats prime rib twice for the holiday.
+[00:02:58] Will: So, Gina and I and the Munchkin went up, and we made a ton. We made way more food than needed than was needed, as you kind of do. Yeah, I did the Serious Eats prime rib twice for the holiday.
 
 [00:03:12] Adam: Oh, nice!
 
@@ -84,7 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:03:30] Norm: the emergency sous vide.
 
-[00:03:31] Will: The like who I was sitting there, I was like, I open the I opened the oven two hours before the the meat was supposed to be done because I was doing it. It's like you cook it at 150, 170 degrees as low as your oven goes. Yeah, and I opened the door and I stuck my hand in there. I was like, man, it feels a lot cooler than 170 degrees. Wait, it's room to,. Wait, this hasn't cooked at all. What's and and you know, it was the full on full on Christmas emergency. Yeah, and then it worked out, so it was all good. That's we had a really good time. Norm,
+[00:03:31] Will: The like who I was sitting there, I was like, I open the I opened the oven two hours before the meat was supposed to be done because I was doing it. It's like you cook it at 150, 170 degrees as low as your oven goes. Yeah, and I opened the door and I stuck my hand in there. I was like, man, it feels a lot cooler than 170 degrees. Wait, it's room to,. Wait, this hasn't cooked at all. What's and it was the full on Christmas emergency. Yeah, and then it worked out, so it was all good. That's we had a really good time. Norm,
 
 [00:03:57] Norm: I was over at a friend's place in Alameda. Some friends have tested. Hung out with Sean Charlesworth, Frank Ippolito, Rebecca Watson, and had a lovely New Year.
 
@@ -104,7 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:04:22] Will: Sorry, Norm.
 
-[00:04:23] Adam: No, I I'm actually not going to make a thing out of that because you know it's it's I've had a successful television show for 13 years, so to say I'm unemployed is I felt like dissing and shitting on people who are genuinely unemployed and looking for work, and I don't want to do that because being unemployed is tough and not simple.
+[00:04:23] Adam: No, I I'm actually not going to make a thing out of that because you know it's I've had a successful television show for 13 years, so to say I'm unemployed is I felt like dissing and shitting on people who are genuinely unemployed and looking for work, and I don't want to do that because being unemployed is tough and not simple.
 
 [00:04:42] Will: Yes, I'm a little bit on the other side of it.
 
@@ -112,9 +112,9 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:04:49] Adam: My schedule has changed radically, and many plans are being made.
 
-[00:04:52] Will: Going from having basically no free time. I mean, I, I, I thought I had no free time for a long time. Then I met you, and I realized you really had no free time. But but. Like just anytime the amount of free time you have expands, even if it comes with a decrease in the amount of available funds, it turns out you can do some constructive stuff with it.
+[00:04:52] Will: Going from having basically no free time. I mean, I, I, I thought I had no free time for a long time. Then I met you, and I realized you really had no free time. But. Like just anytime the amount of free time you have expands, even if it comes with a decrease in the amount of available funds, it turns out you can do some constructive stuff with it.
 
-[00:05:11] Adam: Absolutely, I'm I'm I'm just opening my head up to building things over. So over the last three days, for instance, I've been making a piece of Apollo hardware with my new sewing machine. I'll end up doing a piece on on tested about it. We'll shoot that next week. But it was just it's been liberating just to come in here for two or three hours and do something, and then go back home and chill out, take the dogs down to the park, have a latte,
+[00:05:11] Adam: Absolutely, I'm I'm I'm just opening my head up to building things over. So over the last three days, for instance, I've been making a piece of Apollo hardware with my new sewing machine. I'll end up doing a piece on tested about it. We'll shoot that next week. But it was just it's been liberating just to come in here for two or three hours and do something, and then go back home and chill out, take the dogs down to the park, have a latte,
 
 [00:05:34] Will: spend some time with your kids, 
 
@@ -148,17 +148,17 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:06:21] Will: He was unimpressed. I mean, I'm going to go and tell you. I've seen some people that were nonplussed before when you share information with them. He could not have been less plussed than the amount that he was.
 
-[00:06:34] Adam: I think that I think that impressing Nathan is a gargantuan achievement. Perhaps
+[00:06:34] Adam: I think that impressing Nathan is a gargantuan achievement. Perhaps
 
-[00:06:39] Will: he's maybe yeah. Anyway, I mean, I joke. I joke about intellectual ventures. I I had lunch with some of the guys from ChefSteps when they were down showing the Joule, which is their new immersion circulator.
+[00:06:39] Will: he's maybe yeah. Anyway, I mean, I joke. I joke about intellectual ventures. I had lunch with some of the guys from ChefSteps when they were down showing the Joule, which is their new immersion circulator.
 
 [00:06:49] Adam: I saw it up there in Seattle that same day. I hung out with Chris Young for a while.
 
-[00:06:53] Will: Yeah, he's Chris was down. He’s super super interesting guys. Really really smart. And they came out of a lot of those folks came from the Modernist Run and and and the stuff that Nathan like. There's a lot of good that comes out of IV. There's also a lot of bad, and we don't need to get into that here. We've talked about it before.
+[00:06:53] Will: Yeah, he's Chris was down. He’s super super interesting guys. Really really smart. And they came out of a lot of those folks came from the Modernist Run and the stuff that Nathan like. There's a lot of good that comes out of IV. There's also a lot of bad, and we don't need to get into that here. We've talked about it before.
 
 [00:07:07] Adam: But I really Chris is. I definitely want to do some coverage of Chris. for Tested, because he's doing some really cool stuff.
 
-[00:07:14] Will: Yeah, we. I mean, we did the we did a run up there a few months ago, and I think Norm, you should continue that. Or you know, if you want, I can run up. Send me, send me a, send me a trip to Seattle. I'm always around. We've got a lot of stuff to talk about. I I want to say something.
+[00:07:14] Will: Yeah, we. I mean, we did the we did a run up there a few months ago, and I think Norm, you should continue that. Or you know, if you want, I can run up. Send me a trip to Seattle. I'm always around. We've got a lot of stuff to talk about. I want to say something.
 
 [00:07:29] Adam: Yeah.
 
@@ -170,7 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:07:36] Adam: right
 
-[00:07:36] Will: is open are open until I think February 12th or February 16th. So that means ISS astronauts, the next wave of ISS astronauts, the next class, private spaceflight, so Dragon and and the SpaceX and the Boeing capsules
+[00:07:36] Will: is open are open until I think February 12th or February 16th. So that means ISS astronauts, the next wave of ISS astronauts, the next class, private spaceflight, so Dragon and the SpaceX and the Boeing capsules
 
 [00:07:50] Norm: still goes through NASA.
 
@@ -178,9 +178,9 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:07:52] Norm: Yep.
 
-[00:07:52] Will: And then also the Orion, so that's the Moon and Mars applications. So presumably. You could go to the USA job site and and be the first person that puts foot on Mars.
+[00:07:52] Will: And then also the Orion, so that's the Moon and Mars applications. So presumably. You could go to the USA job site and be the first person that puts foot on Mars.
 
-[00:08:06] Adam: I I don't want to go to Mars.
+[00:08:06] Adam: I don't want to go to Mars.
 
 [00:08:07] Will: I know you don't want to go.
 
@@ -192,7 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:08:16] Norm: You are.
 
-[00:08:17] Will: Can I get a recommendation? Do I know anybody? You know, put in a good word for me. I'm out there.
+[00:08:17] Will: Can I get a recommendation? Do I know anybody? Put in a good word for me. I'm out there.
 
 [00:08:22] Adam: Yeah, I, I, maybe I'll ask Chris to write me a letter.
 
@@ -210,17 +210,17 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:08:35] Adam: I've been to space with people who aren't good in space, and I wouldn't go. No. Yeah. I'm imagining the worst case scenario of Chris letting me down easy.
 
-[00:08:44] Will: I like that you immediately go to the Chuck Yeager pilot, test pilot slash astronaut slash no airline pilot voice. Yeah. Um. The interesting thing to me, just kind of looking over the site. David Newstrom posted it the other day on our Twitter.
+[00:08:44] Will: I like that you immediately go to the Chuck Yeager pilot, test pilot slash astronaut slash no airline pilot voice. Yeah. The interesting thing to me, just kind of looking over the site. David Newstrom posted it the other day on our Twitter.
 
 [00:08:58] Adam: David Newman.
 
-[00:08:59] Will: Newman, sorry, Newstrom. I don't know where I get Newstrom from, but and she like the the criteria are really interesting. It's it's super worth looking at. It's like bachelor of science. They have specific degree requirements, so it's engineering science, no technical degrees, like. But but it's stuff that a lot of people have, so you may be more qualified to be an astronaut than you think you have.
+[00:08:59] Will: Newman, sorry, Newstrom. I don't know where I get Newstrom from, but and she like the criteria are really interesting. It's super worth looking at. It's like bachelor of science. They have specific degree requirements, so it's engineering science, no technical degrees, like. But it's stuff that a lot of people have, so you may be more qualified to be an astronaut than you think you have.
 
 [00:09:23] Norm: It's not just pilots.
 
 [00:09:23] Adam: I have a High school diploma. What about my package design classes from the School of Visual Arts?
 
-[00:09:26] Will: That's probably that's pretty good. You used to you used to be a professor. That counts. Do you have an honorary doctorate?
+[00:09:26] Will: That's probably that's pretty good. You used to be a professor. That counts. Do you have an honorary doctorate?
 
 [00:09:31] Adam: I do have an honorary doctorate from the University of Twente in the Netherlands.
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:10:07] Will: Okay,
 
-[00:10:07] Adam: he was a mailman for like a decade and a half, and he writes about it. It's intense and, per Bukowski, dark as hell. He, I think, in the in the middle of the book, he stopped. He worked for them for a few years and then stopped, and then worked for them again. And in the second half of the book, when he's like, I went back to the post office because somebody told me something. I am still trying to find that guy. He wrote.
+[00:10:07] Adam: he was a mailman for like a decade and a half, and he writes about it. It's intense and, per Bukowski, dark as hell. He, I think, in the middle of the book, he stopped. He worked for them for a few years and then stopped, and then worked for them again. And in the second half of the book, when he's like, I went back to the post office because somebody told me something. I am still trying to find that guy. He wrote.
 
 [00:10:34] Will: Okay,
 
@@ -276,15 +276,15 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:12:49] Adam: Yeah,
 
-[00:12:49] Will: it's it's. I have the same kind of vibes. It's not at all the same kind of book as it's like a Murakami book.
+[00:12:49] Will: it's. I have the same kind of vibes. It's not at all the same kind of book as it's like a Murakami book.
 
 [00:12:54] Norm: Yeah. Who does the localization?
 
-[00:12:56] Will: I I don't know who did the translation. Actually,
+[00:12:56] Will: I don't know who did the translation. Actually,
 
 [00:12:58] Adam: God, Murakami's translator is amazing.
 
-[00:13:00] Norm: I mean, that's that's a collaboration.
+[00:13:00] Norm: I mean, that's a collaboration.
 
 [00:13:01] Adam: It's yeah. Well, and Murakami actually speaks wonderful English, so he does look over his English translations and makes corrections. Apparently, which is one of the reasons his translations are so
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:14:32] Adam: Very dark and
 
-[00:14:33] Norm: yes, all his movies end. You leave the theater or you end the screening, and you you feel like your whole your soul has been drained.
+[00:14:33] Norm: yes, all his movies end. You leave the theater or you end the screening, and you feel like your whole your soul has been drained.
 
 [00:14:40] Adam: I'm worried about that.
 
@@ -358,15 +358,15 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:15:07] Adam: also, you know, when we talk about Blade Runner two, I get so nervous because you know it's going to such a deeply important part of history, and yet it was so lovely watching Harrison Ford totally deliver an ancient character for him. He hasn't played that character in decades, and just right there at the tip of his fingers, I'm looking at Han again.
 
-[00:15:27] Will: Well, it was fun watching. So I watched Rogue Nation over the break, the the fifth Mission Impossible movie. Right,
+[00:15:27] Will: Well, it was fun watching. So I watched Rogue Nation over the break, the fifth Mission Impossible movie. Right,
 
 [00:15:34] Adam: right, right. Oh, isn't it wonderful?
 
 [00:15:36] Unknown speaker: No, I.
 
-[00:15:36] Will: love it. I'm of two minds. I thought it was really good. Like I walked, I was finished that movie. I was like, that movie was great. Yeah. And then I thought about it. I was like, man, they just have a series of cards on a whiteboard that say car chase, heist. Death-defying stunt, you know, and they just kind of rearrange it. I am kind of okay with that. It turns out
+[00:15:36] Will: love it. I'm of two minds. I thought it was really good. Like I walked, I was finished that movie. I was like, that movie was great. Yeah. And then I thought about it. I was like, man, they just have a series of cards on a whiteboard that say car chase, heist. Death-defying stunt and they just kind of rearrange it. I am kind of okay with that. It turns out
 
-[00:15:55] Norm: that's great. I liked it more than the the Bond movie.
+[00:15:55] Norm: that's great. I liked it more than the Bond movie.
 
 [00:15:57] Will: I liked it better than Ghost. I mean, I didn't like it better than Ghost Protocol
 
@@ -376,9 +376,9 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:16:02] Adam: identical films,
 
-[00:16:03] Norm: so much better written and and more fun.
+[00:16:03] Norm: so much better written and more fun.
 
-[00:16:05] Adam: I that's the thing. I found it very entertaining. And oh, you know, speaking of of Mission Impossible and Simon Pegg, I watched Man Up, the romantic comedy starring Simon Pegg and the unbelievably wonderful and beautiful Lake Bell. Lake Bell,
+[00:16:05] Adam: I that's the thing. I found it very entertaining. And oh speaking of Mission Impossible and Simon Pegg, I watched Man Up, the romantic comedy starring Simon Pegg and the unbelievably wonderful and beautiful Lake Bell. Lake Bell,
 
 [00:16:23] Unknown speaker: who directed this?
 
@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:16:25] Adam: it is?
 
-[00:16:27] Will: I can I can go to the internet and answer your question while you talk.
+[00:16:27] Will: I can go to the internet and answer your question while you talk.
 
 [00:16:29] Adam: Is it Hot Fuzz guy?
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:16:52] Norm: She was on the practice.
 
-[00:16:53] Adam: She's a very, very amazing actress. Really wonderful, really lovely. I met her on the red carpet a couple of years ago. She's about seven and a half feet tall. It's like hanging out with Aisha Tyler, and it's the one leap you have to make in this movie is that she's the she's she's like the ugly one who can't get a date, which is hilarious because she's gorgeous. But
+[00:16:53] Adam: She's a very, very amazing actress. Really wonderful, really lovely. I met her on the red carpet a couple of years ago. She's about seven and a half feet tall. It's like hanging out with Aisha Tyler, and it's the one leap you have to make in this movie is that she's the she's like the ugly one who can't get a date, which is hilarious because she's gorgeous. But
 
 [00:17:13] Will: Ben Palmer,
 
@@ -422,13 +422,13 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:17:31] Will: Last decade, and a half.
 
-[00:17:32] Adam: but it doesn't necessarily make you finish the film going, " Wow, Simon Pegg's a great actor," even though he is. It's not like he's terrible in it. He actually has a terrific range, but the you know, he's got a much better. He's he's starting to show a deeply wonderful range, and I just I really I find that exciting. I'm for sure if Simon was listening to this. He'd be like starting to show. Fuck off! But go, I guess to me, it's it's not it's not it would be strange. Like I think, oh, Simon Pegg in a romantic comedy—that's not what I would expect. And boy, does he deliver! It's great.
+[00:17:32] Adam: but it doesn't necessarily make you finish the film going, " Wow, Simon Pegg's a great actor," even though he is. It's not like he's terrible in it. He actually has a terrific range, but the he's got a much better. He's starting to show a deeply wonderful range, and I just I really I find that exciting. I'm for sure if Simon was listening to this. He'd be like starting to show. Fuck off! But go, I guess to me, it's not it would be strange. Like I think, oh, Simon Pegg in a romantic comedy—that's not what I would expect. And boy, does he deliver! It's great.
 
-[00:18:05] Will: So I I think my two favorite films of last year are both big movies that everybody's seen. But but I really really loved Inside Out. Like I thought Inside Out was the best thing that that Pixar has done. Probably, I mean, everything Pixar does is good. Wave. I think I think that it's the best thing that they've done since The Incredibles in terms of like the thing that spoke to me, and I had the benefit of watching it through a kid's eyes,
+[00:18:05] Will: So I I think my two favorite films of last year are both big movies that everybody's seen. But I really really loved Inside Out. Like I thought Inside Out was the best thing that that Pixar has done. Probably, I mean, everything Pixar does is good. Wave. I think that it's the best thing that they've done since The Incredibles in terms of like the thing that spoke to me, and I had the benefit of watching it through a kid's eyes,
 
 [00:18:30] Adam: yeah.
 
-[00:18:30] Will: Which which helps. I've also it's been on 100 times probably since it came out on video.
+[00:18:30] Will: Which helps. I've also it's been on 100 times probably since it came out on video.
 
 [00:18:36] Norm: Did you see the edit of Inside Out?
 
@@ -444,31 +444,31 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:18:44] Will: like 12 minutes,
 
-[00:18:45] Norm: 15 minutes, and it makes perfect sense as a as a short film.
+[00:18:45] Norm: 15 minutes, and it makes perfect sense as a short film.
 
 [00:18:48] Adam: Really,
 
 [00:18:48] Norm: it totally works.
 
-[00:18:49] Adam: Wow, I've want I've got to see it. I I saw that it existed. I didn't watch it yet.
+[00:18:49] Adam: Wow, I've want I've got to see it. I saw that it existed. I didn't watch it yet.
 
 [00:18:54] Will: I really like Mad Max. I saw Trainwreck over the break, which I thought was a lovely.
 
 [00:18:58] Adam: Oh,
 
-[00:18:58] Will: it's a, it's a, it's.
+[00:18:58] Will: it's a, it's.
 
 [00:19:00] Adam: I haven't seen it. It
 
 [00:19:01] Norm: was it was good. I, I thought it it didn't land.
 
-[00:19:04] Will: I the it did not the the the premise did not deliver on the premise.
+[00:19:04] Will: I the it did not the premise did not deliver on the premise.
 
 [00:19:10] Adam: Speaking of delivering on the premise, the movie that does actually way more than you think is The Big Short.
 
 [00:19:16] Norm: Oh, I can't.
 
-[00:19:16] Adam: I went, I went to The Big Short. Um, so this is here's the pitch. It's a semi comedy about the financial disaster of of 2007, 2008. Um, it gives you a. Here's the thing. In order for you to get what's going on in this movie, you it is required that you understand the financial instruments of credit, default swaps, and all of that. And in order to get through this exposition, they have famous people show up randomly in the middle of the film. Like now, to explain what a credit default swap is, here's Margot Robbie in a bathtub. Here's Anthony Bourdain cooking some cooking some meat while he tells you about how this works.
+[00:19:16] Adam: I went to The Big Short. So this is here's the pitch. It's a semi comedy about the financial disaster of 2007, 2008. It gives you a. Here's the thing. In order for you to get what's going on in this movie, you it is required that you understand the financial instruments of credit, default swaps, and all of that. And in order to get through this exposition, they have famous people show up randomly in the middle of the film. Like now, to explain what a credit default swap is, here's Margot Robbie in a bathtub. Here's Anthony Bourdain cooking some meat while he tells you about how this works.
 
 [00:20:02] Will: Oh, that's great! And
 
@@ -490,13 +490,13 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:20:35] Adam: Which
 
-[00:20:35] Norm: Now, did you see the the long the roadshow?
+[00:20:35] Norm: Now, did you see the long the roadshow?
 
 [00:20:38] Adam: I did. I saw the roadshow cut at the Kabuki, and I don't want to talk about Hateful Eight just yet.
 
 [00:20:42] Norm: We'll save it.
 
-[00:20:43] Adam: I found it incredibly intense, more intense than I expected to, even though I'm a deep Tarantino fanatic. I want to see this movie again, maybe even two more times, to feel like I understand it. I think there's sub. I think there's subroutines going on in this film that are really important to talk about. And I, I, you know, I think it might have some flaws. But again, I need to see it again.
+[00:20:43] Adam: I found it incredibly intense, more intense than I expected to, even though I'm a deep Tarantino fanatic. I want to see this movie again, maybe even two more times, to feel like I understand it. I think there's sub. I think there's subroutines going on in this film that are really important to talk about. And I, I I think it might have some flaws. But again, I need to see it again.
 
 [00:21:12] Norm: It merits a full spoiler cast. It's a lot of fun. We'll save it for that.
 
@@ -512,7 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:21:23] Norm: If you,
 
-[00:21:24] Adam: it's going to be playing in January here at the um. Alamo.
+[00:21:24] Adam: it's going to be playing in January here at the. Alamo.
 
 [00:21:27] Will: I want to. I'm going to go. I'm. I'm down to see it twice. I want to go see the full.
 
@@ -528,7 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:22:00] Will: loves Jennifer Jason Leigh.
 
-[00:22:01] Adam: She's amazing. So she's she's amazing, and this is an incredible cast. You only have to look at the poster to see how incredible the cast is. She's incredible.
+[00:22:01] Adam: She's amazing. So she's amazing, and this is an incredible cast. You only have to look at the poster to see how incredible the cast is. She's incredible.
 
 [00:22:09] Will: So the thing for me over the years with the Tarantino films, I've realized, and it took me a while to get here, is that the further on you get, the less I'm able to rewatch. So, for example, I have watched Kill Bill hundreds of times. I watched Jackie Brown, which, by the way, if you haven't watched Jackie Brown lately, go watch Jackie Brown.
 
@@ -538,23 +538,23 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:22:41] Adam: It might be mine.
 
-[00:22:41] Will: And and like I'm coming around. I.
+[00:22:41] Will: And like I'm coming around. I.
 
 [00:22:44] Adam: It's that. It's so many little moments in that movie stick with me. When he's driving in the car with Ordell, and he puts on the Delfonics, up on a hundred, and Ordell just turns to him and is wondering, what is this white guy doing listening to this music? And it's the best.
 
-[00:22:59] Will: The the thing about so. Django, I probably [unclear: I watched Django. I watched in the theater / I watched once. I watched it in the theater].
+[00:22:59] Will: The thing about so. Django, I probably [unclear: I watched Django. I watched in the theater / I watched once. I watched it in the theater]
 
 [00:23:04] Adam: Required that I do that every time. someone says Django.
 
-[00:23:05] Will: It's good. It's contractual. Sorry, but I didn't. I I watched it when it came out on video. I don't know if I want to watch Django anymore.
+[00:23:05] Will: It's good. It's contractual. Sorry, but I didn't. I watched it when it came out on video. I don't know if I want to watch Django anymore.
 
 [00:23:13] Adam: Django's intense upon a second viewing. Although I have watched Inglourious Basterds [unclear: many, many / three or four] times.
 
-[00:23:19] Will: I watched it. Like I watched it. Like I said, each one is a little bit less movie. Is this, is this, is this gonna continue that trend, or I gotta watch, watch this three or four times? You
+[00:23:19] Will: I watched it. Like I watched it. Like I said, each one is a little bit less movie. Is this gonna continue that trend, or I gotta watch, watch this three or four times? You
 
-[00:23:26] Adam: might not be able to take its gore on on repeated viewing. I
+[00:23:26] Adam: might not be able to take its gore on repeated viewing. I
 
-[00:23:30] Norm: think if you look at the the the oeuvre of a of Tarantino, Inglourious Basterds and Django work. They're similar movies. They're timepieces. They're revenge movies.
+[00:23:30] Norm: think if you look at the oeuvre of a of Tarantino, Inglourious Basterds and Django work. They're similar movies. They're timepieces. They're revenge movies.
 
 [00:23:41] Will: Well, they're about about building tension and releasing it all at once.
 
@@ -574,7 +574,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:24:36] Adam: And I got to tell you, sitting through it from start to finish again, it's amazing. It's amazing.
 
-[00:24:42] Norm: Did you Did you watch it with Infernal Affairs?
+[00:24:42] Norm: Did you watch it with Infernal Affairs?
 
 [00:24:45] Adam: No, I have still never seen Infernal Affairs.
 
@@ -584,9 +584,9 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:24:50] Norm: Hong Kong.
 
-[00:24:51] Adam: Hong Kong. It's a great film. To it's a great adaptation. I know because. Only the only the plot structure is similar. All the individual motivations have changed in many significant ways, and so unlike something like, there are plenty of adaptations where it's just like they grab the whole thing wholesale, like let let the right one in, let me in. This one is a subtle reimagining of a great plot for a totally different culture and a beautiful way of doing it.
+[00:24:51] Adam: Hong Kong. It's a great film. To it's a great adaptation. I know because. Only the plot structure is similar. All the individual motivations have changed in many significant ways, and so unlike something like, there are plenty of adaptations where it's just like they grab the whole thing wholesale, like let let the right one in, let me in. This one is a subtle reimagining of a great plot for a totally different culture and a beautiful way of doing it.
 
-[00:25:22] Norm: The cloth with with which Scorsese cuts the film out of is made of America and Boston. Right,
+[00:25:22] Norm: The cloth with which Scorsese cuts the film out of is made of America and Boston. Right,
 
 [00:25:28] Adam: and well, and then there's also the fact that it was only in the edit that they decided to put the opening credits 15 minutes in.
 
@@ -612,7 +612,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:26:11] Norm: and it's fantastic. If you, I mean, if you like Scorsese and his love for America and mob stories, it's one of them.
 
-[00:26:18] Adam: I I okay all right.
+[00:26:18] Adam: I okay all right.
 
 [00:26:20] Norm: [unclear: It’s in the end / It’s to the end].
 
@@ -626,17 +626,17 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:26:26] Norm: I heard you're unemployed.
 
-[00:26:30] Adam: You, I'm, I'm, uh, what else have we got?
+[00:26:30] Adam: You, I'm, I'm what else have we got?
 
 [00:26:32] Will: Video games.
 
 [00:26:33] Adam: Video games. I'm still playing. Millipede just had it fixed.
 
-[00:26:36] Will: Okay, that's pretty good. I played, I played a game while you were on the phone.
+[00:26:36] Will: Okay, that's pretty good. I played a game while you were on the phone.
 
 [00:26:38] Adam: Yeah.
 
-[00:26:38] Will: Um, Mario Maker. So Mario Maker is a. It's exactly what the name says. Yeah. It is the. It is art assets and rules from Mario, Super Mario Brothers, Super Mario Brothers 3, Super Mario World. I think that's it.
+[00:26:38] Will: Mario Maker. So Mario Maker is a. It's exactly what the name says. Yeah. It is the. It is art assets and rules from Mario, Super Mario Brothers 3, Super Mario World. I think that's it.
 
 [00:26:53] Adam: Yeah.
 
@@ -646,7 +646,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:27:10] Will: You smash blocks. You can make incredibly difficult ones. It's much harder to make something that's easier and fun than to make something that's insanely difficult. It turns out.
 
-[00:27:18] Adam: I was I was hanging out with my nephew, my lovely nephew, up in Portland over Christmas, and he was he was making Mar he was making Mario levels with that game,
+[00:27:18] Adam: I was hanging out with my nephew, my lovely nephew, up in Portland over Christmas, and he was making Mar he was making Mario levels with that game,
 
 [00:27:28] Norm: yeah,
 
@@ -656,11 +656,11 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:27:31] Adam: Oh, okay. This is different then.
 
-[00:27:33] Will: Yeah, I think you can you can pick levels to play or something on your phone. I haven't done any of that stuff. The thing that I there's two things I like about one is that it's basically infinite new Mario levels,
+[00:27:33] Will: Yeah, I think you can pick levels to play or something on your phone. I haven't done any of that stuff. The thing that I there's two things I like about one is that it's basically infinite new Mario levels,
 
 [00:27:41] Adam: right?
 
-[00:27:41] Will: And it is it is very much proof of the if you give a million monkeys an infinite number of monkeys an infinite number of typewriters eventually Hamlet will emerge.
+[00:27:41] Will: And it is very much proof of the if you give a million monkeys an infinite number of monkeys an infinite number of typewriters eventually Hamlet will emerge.
 
 [00:27:48] Adam: Yes,
 
@@ -690,11 +690,11 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:28:13] Adam: I’m done with them.
 
-[00:28:14] Will: You got to be careful with with that. Um, you got to be careful with Chrome extensions. There's security risks, but we'll talk about that later. We'll We'll circle back in a future episode about that. Um, I think Mario Maker is is really really super important, both in terms of video games, which everybody that's well established, but for people who like to make stuff, it it gives you an interesting new way to think about how game construction works and what's fun.
+[00:28:14] Will: You got to be careful with that. You got to be careful with Chrome extensions. There's security risks, but we'll talk about that later. We'll We'll circle back in a future episode about that. I think Mario Maker is is really really super important, both in terms of video games, which everybody that's well established, but for people who like to make stuff, it gives you an interesting new way to think about how game construction works and what's fun.
 
 [00:28:37] Adam: Oh, nifty!
 
-[00:28:37] Will: And um, if you want to get started on that and want to learn about making good Mario Maker levels, there's a book that a guy named Raph Koster wrote years and years ago. Um, he's one of the early MMO architects. He made Star Wars Galaxies and other stuff at Sony years ago. Um, but it's called A Theory of Fun, and it's about the difference in games and play and uh and and theory of gameplay and stuff like that. Super interesting, and it'll if you read that, it's like it's a picture book. It'll take you like a half hour. You'll your Mario levels will be better. Oh.
+[00:28:37] Will: And if you want to get started on that and want to learn about making good Mario Maker levels, there's a book that a guy named Raph Koster wrote years and years ago. He's one of the early MMO architects. He made Star Wars Galaxies and other stuff at Sony years ago. But it's called A Theory of Fun, and it's about the difference in games and play and theory of gameplay and stuff like that. Super interesting, and it'll if you read that, it's like it's a picture book. It'll take you like a half hour. You'll your Mario levels will be better. Oh.
 
 [00:29:04] Adam: Everybody knows I don't play games very much. Thing two, and I also did buy the Star Wars game,
 
@@ -724,15 +724,15 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:30:32] Will: So, wow, hold on, wait just a second. Yeah. Okay, that was enough. What? What? What was? So you kind of went behind the scenes and showed like writers' rooms or production team, production meetings, and all that stuff.
 
-[00:30:43] Adam: We did. We did. And you know, it's very entertaining how uncomfortable my crew was with having the camera on them. It's hilarious because amazingly, we pretty much have never tried this, but here, all of a sudden, we're actually shooting some scenes in which my crew is there and talking. And it was very entertaining how uncomfortable they were with it.
+[00:30:43] Adam: We did. We did. And it's very entertaining how uncomfortable my crew was with having the camera on them. It's hilarious because amazingly, we pretty much have never tried this, but here, all of a sudden, we're actually shooting some scenes in which my crew is there and talking. And it was very entertaining how uncomfortable they were with it.
 
 [00:31:07] Will: It's good. It's good for them.
 
-[00:31:07] Adam: Totally, totally. You know, it is. It's great to for me to kick off the season by by showing how the sausage gets made because we had such an incredible sausage factory there. You know, the crew. I said it on tour a million times, and it just bears repeating infinitely. MythBusters wasn't just Jamie and I; it was this cadre of 18 people in San Francisco. The crew, when we were running at full bore with Kari, Grant and Tory as well, was about 22 people. Still, an incredibly small crew by television standards, which means that everybody is a Swiss Army knife. Everybody is putting their all into what they're doing, and a good portion of the crew, like a farm team, started out as runners and interns and became producers and a camera people, b camera people, drone operators, and wonderful, wonderful. Experience to let them shine on the on the show.
+[00:31:07] Adam: Totally, totally. You know, it is. It's great to for me to kick off the season by by showing how the sausage gets made because we had such an incredible sausage factory there. You know, the crew. I said it on tour a million times, and it just bears repeating infinitely. MythBusters wasn't just Jamie and I; it was this cadre of 18 people in San Francisco. The crew, when we were running at full bore with Kari, Grant and Tory as well, was about 22 people. Still, an incredibly small crew by television standards, which means that everybody is a Swiss Army knife. Everybody is putting their all into what they're doing, and a good portion of the crew, like a farm team, started out as runners and interns and became producers and a camera people, b camera people, drone operators, and wonderful, wonderful. Experience to let them shine on the show.
 
 [00:32:04] Will: That's all. I mean, it turns out the best way to make sure you get people who are reliable and awesome is to, you know, only is to only hire people at the low level and train them into the awesome, amazing people that you want them to be.
 
-[00:32:14] Adam: Dave Eggers told me that they do a lot of that at Eight Two Six. They they they. It's a it's a wonderful methodology for finding out if someone has the, you know, dovetails right with the organization, as it were.
+[00:32:14] Adam: Dave Eggers told me that they do a lot of that at Eight Two Six. They. It's a wonderful methodology for finding out if someone has the dovetails right with the organization, as it were.
 
 [00:32:26] Will: If if you can do the lowest level job, then you can. Yeah, you can. It'll work itself. It works itself up as you keep promoting people into their level of of competence.
 
@@ -756,13 +756,13 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:33:07] Norm: lots to look forward to.
 
-[00:33:08] Adam: We hosted the Tippetts. Phil and his family came by here a week, a week or so ago, and we had a wonderful lunch. Um, I, I love the Tippetts. Just all of them. They're all awesome. They’re friends of Tested. We're going to do some stuff with them. We're going to have some more fun. You'll see more Tippetness on the.
+[00:33:08] Adam: We hosted the Tippetts. Phil and his family came by here a week or so ago, and we had a wonderful lunch. I love the Tippetts. Just all of them. They're all awesome. They’re friends of Tested. We're going to do some stuff with them. We're going to have some more fun. You'll see more Tippetness on the.
 
-[00:33:25] Norm: And speaking of the stuff they do, they do a lot of stop motion, and Tippett's known for that. Did you read Charlie Kaufman's last thing? He he wrote an open letter to the public about his love for stop motion animation.
+[00:33:25] Norm: And speaking of the stuff they do a lot of stop motion, and Tippett's known for that. Did you read Charlie Kaufman's last thing? He wrote an open letter to the public about his love for stop motion animation.
 
 [00:33:35] Adam: Well, Anomalisa has me like I am on the edge of my seat. I cannot wait to see this film.
 
-[00:33:41] Norm: Yeah, he says it's really beautiful. Everyone should read it. Um, and he says
+[00:33:41] Norm: Yeah, he says it's really beautiful. Everyone should read it. And he says
 
 [00:33:44] Adam: I did not read this by the way.
 
@@ -772,7 +772,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:33:56] Norm: Every piece.
 
-[00:33:58] Adam: Yeah. He's totally right, and you, we we we did the tested piece on the chessboard, and one of the things that's really hard to understand until you actually sit.
+[00:33:58] Adam: Yeah. He's totally right, and you, we did the tested piece on the chessboard, and one of the things that's really hard to understand until you actually sit.
 
 [00:34:10] Will: Excuse me, it's dejarik.
 
@@ -786,7 +786,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:34:20] Adam: It's unless you actually sit and watch a real stopmo animator do his thing, it's hard. It's hard to see just how wide they actually really do see, and being able to understand the macro and the micro all at the same time.
 
-[00:34:36] Will: Well, and and so what we saw with the with the with the Tippett shoot, I mean, they were just animating characters. When you're doing an actual stop motion shoot in a stop motion set, you have to the sets. When you see that scene where the scene the background seems alive, and there's a bird flying through, and there's water flowing,
+[00:34:36] Will: Well, and so what we saw with the Tippett shoot, I mean, they were just animating characters. When you're doing an actual stop motion shoot in a stop motion set, you have to the sets. When you see that scene where the scene the background seems alive, and there's a bird flying through, and there's water flowing,
 
 [00:34:52] Adam: every last thing has been touched by a person. Every frame, 24 frames a second, 60 seconds a minute. I mean,
 
@@ -796,17 +796,17 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:35:01] Adam: Every Single frame.
 
-[00:35:03] Will: On that note, anything else? Any other any other superlatives we want to throw out?
+[00:35:03] Will: On that note, anything else? Any other superlatives we want to throw out?
 
 [00:35:10] Norm: No, we'd love to hear what you guys what your favorite piece of media were.
 
 [00:35:14] Adam: Absolutely, yeah. You guys know the stuff that we've been reading. If you have recommendations that you think that we would enjoy, I'd love to hear about them. I am always looking for new books. I am currently reading all the light you cannot see. I can't remember the name of the author. It's actually quite beautiful. I've got another couple of books in the hopper that I am hoping to dive into, and I am actually feeling the Jones to both reread some Murakami, and it might be time again to reread some Raymond Chandler, which I do about once a year.
 
-[00:35:43] Will: I um my next my next book is a history a history of the future in a hundred objects. Was it you that recommended that to me or somebody else?
+[00:35:43] Will: I my next book is a history of the future in a hundred objects. Was it you that recommended that to me or somebody else?
 
 [00:35:50] Adam: It's a beautiful book.
 
-[00:35:51] Will: Um, and then also I read a graphic novel called Intro to the Alien Invasion.
+[00:35:51] Will: And then also I read a graphic novel called Intro to the Alien Invasion.
 
 [00:35:55] Adam: Ooh,
 
@@ -816,7 +816,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:36:08] Norm: Very cool. We'll hopefully see you guys next week.
 
-[00:36:09] Will: Yeah. Anything, Norm, on the on the tested news?
+[00:36:09] Will: Yeah. Anything, Norm, on the tested news?
 
 [00:36:12] Norm: We will be at CES. I am flying out in a matter of hours, and we'll have some lots of cool stuff on the site.
 

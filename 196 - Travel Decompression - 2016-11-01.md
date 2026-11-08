@@ -28,15 +28,15 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:01:29] Adam: And he, yeah, he said, " I said, you know, I'm leaving tomorrow morning. Can you come do a podcast later in today?" And he was like, " It's Halloween," and I'm like, " I get it, I get it." And he goes, " Ask Joey. He's great. He hates doing it, but he's great." Is that true?
 
-[00:01:49] Joey Fameli: Yeah. No, it's it's it's fine.
+[00:01:49] Joey Fameli: Yeah. No, it's fine.
 
 [00:01:53] Adam: So we thought Joey that we'd have you on and talk about. We've been doing a ton of travel. We've all been doing a bunch of travel for Tested, but you and I just got back from a week in Budapest. Hungary.
 
-[00:02:04] Joey Fameli: Yeah, someone asked me yesterday, how was how was the travel to where? Which one? Arctic?
+[00:02:04] Joey Fameli: Yeah, someone asked me yesterday, how was the travel to where? Which one? Arctic?
 
 [00:02:09] Norm: Which of the travels?
 
-[00:02:10] Adam: Wait, where am I today? And you got stuck. You you missed a connector at Heathrow.
+[00:02:10] Adam: Wait, where am I today? And you got stuck. You missed a connector at Heathrow.
 
 [00:02:16] Joey Fameli: No, no, Frankfurt. I got to see a little bit of Frankfurt. So the Budapest to Frankfurt, Frankfurt to SFO. I had about 45 minutes layover and the 20-minute delay from Budapest to Frankfurt. I don't know if you've ever been to the Frankfurt airport, but
 
@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:02:40] Norm: for CERN.
 
-[00:02:43] Joey Fameli: Yeah, for CERN. Yeah, yeah. If you remember, we like walked down in escalators into like a tunnel and then like a mile of tunnel, and then it's a huge airport. But anyway, I got I got held up there. They offered me a hotel, drove me out to a little hotel in Frankfurt,
+[00:02:43] Joey Fameli: Yeah, for CERN. Yeah, yeah. If you remember, we like walked down in escalators into like a tunnel and then like a mile of tunnel, and then it's a huge airport. But anyway, I got held up there. They offered me a hotel, drove me out to a little hotel in Frankfurt,
 
 [00:02:43] Unknown speaker: Oh.
 
@@ -80,7 +80,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:03:45] Norm: part. Okay, yeah.
 
-[00:03:46] Adam: Look, it's not as bad as it used to be. I mean, you really used to be there like you'd you'd be allowed to enter the United States with two bags, but while switching, we went to Africa through Heathrow while switching to the African plane. Heathrow was like one bag, one bag, and they literally it was like one bag, and if you are going to join your two bags, you've got like. 30 seconds to do it, and you have to get it on your first try. Otherwise, they send you back out of the airport to come back through security. This was years ago, but the other day when I was coming through Heathrow, my bag got flagged because I had a thing of hair product. That's all. Hmm.
+[00:03:46] Adam: Look, it's not as bad as it used to be. I mean, you really used to be there like you'd you'd be allowed to enter the United States with two bags, but while switching, we went to Africa through Heathrow while switching to the African plane. Heathrow was like one bag, and they literally it was like one bag, and if you are going to join your two bags, you've got like. 30 seconds to do it, and you have to get it on your first try. Otherwise, they send you back out of the airport to come back through security. This was years ago, but the other day when I was coming through Heathrow, my bag got flagged because I had a thing of hair product. That's all. Hmm.
 
 [00:04:26] Norm: Why? What is it? Because liquid?
 
@@ -88,7 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:04:33] Norm: Oh my!
 
-[00:04:34] Adam: And the the my bag gets flagged, and so now there's like robot that like takes your bag and goes shunk, and it goes down a separate thing, but it goes into a line of five or six other bags all being checked by this one gentleman. Now, I applaud this gentleman's dedication to his job. He was invariably professional and calm and directed, but he was slow, and he was. It was literally like it just made my heart hurt watching the useless exercise that this guy was putting everyone through. So it was like everything that had liquid was being checked. And
+[00:04:34] Adam: And the my bag gets flagged, and so now there's like robot that like takes your bag and goes shunk, and it goes down a separate thing, but it goes into a line of five or six other bags all being checked by this one gentleman. Now, I applaud this gentleman's dedication to his job. He was invariably professional and calm and directed, but he was slow, and he was. It was literally like it just made my heart hurt watching the useless exercise that this guy was putting everyone through. So it was like everything that had liquid was being checked. And
 
 [00:05:12] Norm: they would take out the containers,
 
@@ -104,7 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:05:35] Joey Fameli: I have never done the plastic bag,
 
-[00:05:35] Adam: and this no, I never, I I almost never do either. But this woman had a whole bunch of liquids toiletries in a nine by nine inch bag, and so no, this is I am not exaggerating. He made he got her an eight inch bag, and he handed it to her, and he stood there with his arms crossed, watching her while she put everything in, and he wouldn't let her go until the eight by eight inch bag could close all the way, and uh. I this this brought me to such a point of of of rage for my culture.
+[00:05:35] Adam: and this no, I never, I I almost never do either. But this woman had a whole bunch of liquids toiletries in a nine by nine inch bag, and so no, this is I am not exaggerating. He made he got her an eight inch bag, and he handed it to her, and he stood there with his arms crossed, watching her while she put everything in, and he wouldn't let her go until the eight by eight inch bag could close all the way, and. I this brought me to such a point of rage for my culture.
 
 [00:06:11] Norm: 17 square inches. Right, by the way,
 
@@ -112,7 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:06:17] Norm: The difference.
 
-[00:06:18] Adam: Oh, right, the difference. Yes. Yeah. Right. No, it's like it was. It it brought me to the edge of my sanity. And then he, you know, he he finds my thing, and you know, of course, it's like I get a look, right? It just and immediately after dealing with all that, now I've got like 25 minutes to make my flight, and in Heathrow, it's like there's a bus you've got to take somewhere. It's a whole thing. I'm in Terminal Five. I need to get to Terminal Two. Anyone who's gone through Heathrow knows what that's like. And just as I'm leaving security, this sweet fan comes up and says, " Mr. Savage," and I am like, before I even looked at him, I was like, " I have to apologize to you." I said, grabbing his hand, " You have caught me in the worst possible mood." He's like, I'm just a big fan. I'm like, I'm so pleased. If you will let me go, I need to figure out where I have to go because I have to start running in a second. Have a wonderful trip.
+[00:06:18] Adam: Oh, right, the difference. Yes. Yeah. Right. No, it's like it was. It brought me to the edge of my sanity. And then he finds my thing, and of course, it's like I get a look, right? It just and immediately after dealing with all that, now I've got like 25 minutes to make my flight, and in Heathrow, it's like there's a bus you've got to take somewhere. It's a whole thing. I'm in Terminal Five. I need to get to Terminal Two. Anyone who's gone through Heathrow knows what that's like. And just as I'm leaving security, this sweet fan comes up and says, " Mr. Savage," and I am like, before I even looked at him, I was like, " I have to apologize to you." I said, grabbing his hand, " You have caught me in the worst possible mood." He's like, I'm just a big fan. I'm like, I'm so pleased. If you will let me go, I need to figure out where I have to go because I have to start running in a second. Have a wonderful trip.
 
 [00:07:12] Joey Fameli: That sounds like a pretty good response, though.
 
@@ -140,9 +140,9 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:07:59] Norm: Why don't airports have like? Architectural models of the airport itself in a main hub, where you can stand around and spatially visualize down that quarter, that left there.
 
-[00:08:09] Adam: You know, augmented reality would take all take care of all of this in five years.
+[00:08:09] Adam: Augmented reality would take all take care of all of this in five years.
 
-[00:08:12] Norm: Yeah, yeah. So, before having those traveled, like the the airport adventures, what about Budapest itself?
+[00:08:12] Norm: Yeah, yeah. So, before having those traveled, like the airport adventures, what about Budapest itself?
 
 [00:08:12] Adam: Budapest?
 
@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:08:22] Adam: Absolutely gorgeous.
 
-[00:08:23] Joey Fameli: Yeah, it was much more. It was much prettier than I imagined it being, and it had a little bit of. There were some areas that are a little bit more of like the, you know, Eastern European,
+[00:08:23] Joey Fameli: Yeah, it was much more. It was much prettier than I imagined it being, and it had a little bit of. There were some areas that are a little bit more of like the Eastern European,
 
 [00:08:31] Adam: yeah,
 
@@ -166,17 +166,17 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:09:12] Adam: urban
 
-[00:09:12] Joey Fameli: urban area. Yeah. Then you get over across Chain Bridge to the Buda side, and then you have a lot of hills, a lot of real gorgeous architecture and old buildings. It's much more. It feels much more European over on the the Buda side. But I've been walking past the Four Seasons all weekend, and I was like, I kept looking at this building. Like that is a beautiful building. And then I come to check in, and I was like, woo! All right, that's the building. Inside it was
+[00:09:12] Joey Fameli: urban area. Yeah. Then you get over across Chain Bridge to the Buda side, and then you have a lot of hills, a lot of real gorgeous architecture and old buildings. It's much more. It feels much more European over on the Buda side. But I've been walking past the Four Seasons all weekend, and I was like, I kept looking at this building. Like that is a beautiful building. And then I come to check in, and I was like, woo! All right, that's the building. Inside it was
 
 [00:09:33] Adam: nice,
 
 [00:09:33] Joey Fameli: gorgeous inside.
 
-[00:09:34] Adam: Um, I want to say for tested listeners, uh, for Still Untitled listeners, um, if you're wondering eagerly what we were doing in Budapest, unfortunately, we're here to tell you that we're not going to tell you. You're not going to learn about it during this podcast.
+[00:09:34] Adam: I want to say for tested listeners for Still Untitled listeners if you're wondering eagerly what we were doing in Budapest, unfortunately, we're here to tell you that we're not going to tell you. You're not going to learn about it during this podcast.
 
 [00:09:34] Joey Fameli: Sorry.
 
-[00:09:34] Adam: Um, a lot of the travel that we've been doing to Australia, New Zealand, and Budapest and other parts of the world have been towards projects that will start coming out on Tested, and the reason that we had to maintain some secrecy will be obvious. As is the reason that there was a long tail from filming to release. And by the way, it's freaking cool.
+[00:09:34] Adam: A lot of the travel that we've been doing to Australia, New Zealand, and Budapest and other parts of the world have been towards projects that will start coming out on Tested, and the reason that we had to maintain some secrecy will be obvious. As is the reason that there was a long tail from filming to release. And by the way, it's freaking cool.
 
 [00:09:34] Joey Fameli: Yeah,
 
@@ -192,9 +192,9 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:10:39] Joey Fameli: like I just just give me whatever. I hate choosing. Just give me whatever you think is the best.
 
-[00:10:44] Adam: I yeah, I don't. I I I love it when Bar Agricole has a deal here. If you are six or more people outdoors, you don't get to look at a menu; they'll just choose for you. And if you have food allergies, of course. And if there’s something you really loved, they'll bring it again. I mean, they'll work with you, but. I love the model of your menu being chosen for you, and frankly, because it's getting more and more expensive to staff up a full restaurant with a total number of servers, I think we're going to look at we're going to start seeing restaurants with more novel options for how to order and how to eat.
+[00:10:44] Adam: I yeah, I don't. I love it when Bar Agricole has a deal here. If you are six or more people outdoors, you don't get to look at a menu; they'll just choose for you. And if you have food allergies, of course. And if there’s something you really loved, they'll bring it again. I mean, they'll work with you, but. I love the model of your menu being chosen for you, and frankly, because it's getting more and more expensive to staff up a full restaurant with a total number of servers, I think we're going to look at we're going to start seeing restaurants with more novel options for how to order and how to eat.
 
-[00:11:19] Norm: Yeah, I think those like the electronic menus, the the robot servers. That's not going to be it.
+[00:11:19] Norm: Yeah, I think those like the electronic menus, the robot servers. That's not going to be it.
 
 [00:11:19] Unknown speaker: It’s going to—
 
@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:11:25] Adam: And I found the people very. I found the. I mean, not to say that this is surprising because I really didn't have an impression of Budapest in my head. It's very cosmopolitan city, very similar in size to San Francisco, 800,000 people with several million in the greater urban area. Interestingly, and look, I don't know if I'm being totally off the mark, but the Buda side is the hilly side with all these big sort of castles on it. As you're driving up the Danube, and I arrived at night, so the buildings are all lit up, just gorgeous. And in a way, that sort of felt a little like Pittsburgh to me. Pittsburgh sits on a river where there's this big hill, and a lot of houses sit up top of that palisades above Pittsburgh. And weirdly, Budapest felt a little like Pittsburgh. Maybe I'm the first one to point that out.
 
-[00:12:35] Joey Fameli: I was in the the farmers market, and they have over on one side they have like a big display of the wine regions, and but they also have a it's like a model of the of the landscapes of Budapest.
+[00:12:35] Joey Fameli: I was in the farmers market, and they have over on one side they have like a big display of the wine regions, and but they also have a it's like a model of the landscapes of Budapest.
 
 [00:12:35] Adam: Oh, cool!
 
@@ -220,7 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:12:57] Adam: How did you do with the jet lag? Nine hours ahead.
 
-[00:12:59] Joey Fameli: It was rough. Usually, I'm okay with jet lag, but getting there, I was I was wiped out. In just weird hours, I'd wake up at three a.m. and just be up. So I'd go out and do some photography during the sunrises, and then
+[00:12:59] Joey Fameli: It was rough. Usually, I'm okay with jet lag, but getting there, I was wiped out. In just weird hours, I'd wake up at three a.m. and just be up. So I'd go out and do some photography during the sunrises, and then
 
 [00:12:59] Adam: Oh, nice.
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:13:44] Adam: Yeah, I was pretty beat yesterday.
 
-[00:13:46] Norm: Because both you, both Adam and Joey, got back literally the day and for Joey, the day of our live show that we've been we've been amping up, and that was a huge success. Thank you to everyone who who actually came.
+[00:13:46] Norm: Because both you, both Adam and Joey, got back literally the day and for Joey, the day of our live show that we've been amping up, and that was a huge success. Thank you to everyone who who actually came.
 
 [00:13:57] Adam: And we're going to be putting videos of the live
 
@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:13:59] Adam: Are we going to be separating those out?
 
-[00:14:01] Norm: Uh, there'll be our our premium members are going to get the full show.
+[00:14:01] Norm: There'll be our premium members are going to get the full show.
 
 [00:14:01] Adam: Yeah,
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:14:17] Adam: Yeah.
 
-[00:14:17] Norm: It it was great. That festival still going on. It's we didn’t know if we were going to record a podcast this week, but it's it's Halloween. It's very it's very it was very festive out on the Castro. Also,
+[00:14:17] Norm: It was great. That festival still going on. It's we didn’t know if we were going to record a podcast this week, but it's Halloween. It's very it was very festive out on the Castro. Also,
 
 [00:14:34] Adam: it was you're right. I so I walked out of the Castro. This was Friday night. No Saturday.
 
@@ -282,7 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:14:51] Adam: Yeah. Oh. And again, I don't know if the city allows it anymore, but I went to it years ago, and it was. I've never been in a crush of people where I did not have control over my forward movement. Like you're just in a crowd, and you're. Moving with the sea, which is very intense. Did you guys or are you guys doing anything for Halloween?
 
-[00:15:11] Norm: I'm I'm I'm not unfortunately. No, no, I'm resting,
+[00:15:11] Norm: I'm not unfortunately. No, no, I'm resting,
 
 [00:15:15] Adam: resting,
 
@@ -298,15 +298,15 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:15:35] Norm: Oh.
 
-[00:15:35] Adam: Um, and I am doing a corporate appearance with Mr. [unclear: Hu / …]. Not a corporate, a college appearance.
+[00:15:35] Adam: And I am doing a corporate appearance with Mr. [unclear: Hu / …] Not a corporate, a college appearance.
 
 [00:15:35] Norm: Ah.
 
-[00:15:35] Adam: So yeah, um, in a in a in a post TV show landscape, often people will hire you to come and give talks at colleges or for corporate clients. Those are those. There's a nice source of income for a little while. Ah, so Jamie and I are speaking at University of Connecticut.
+[00:15:35] Adam: So yeah in a post TV show landscape, often people will hire you to come and give talks at colleges or for corporate clients. Those are those. There's a nice source of income for a little while. Ah, so Jamie and I are speaking at University of Connecticut.
 
 [00:15:35] Norm: Oh, great!
 
-[00:15:35] Adam: Um, and this will be the first time I've seen Jamie in about six months.
+[00:15:35] Adam: And this will be the first time I've seen Jamie in about six months.
 
 [00:16:09] Norm: Wow! Since the show?
 
@@ -316,15 +316,15 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:16:27] Adam: He's got a bunch of stuff that he’s been doing for Blizzard.
 
-[00:16:29] Norm: Yeah, yeah, we'll see all of that on Saturday. It's all hush hush right now, and then in November, we're going to be down at DesignerCon, and this is a convention. It's a it's a smaller one. It's almost like Monsterpalooza size. I don't know if you've heard this, Adam, but you know how we've talked on the podcast about those craft fairs that we get,
+[00:16:29] Norm: Yeah, yeah, we'll see all of that on Saturday. It's all hush hush right now, and then in November, we're going to be down at DesignerCon, and this is a convention. It's a smaller one. It's almost like Monsterpalooza size. I don't know if you've heard this, Adam, but you know how we've talked on the podcast about those craft fairs that we get,
 
 [00:16:29] Adam: yeah,
 
-[00:16:29] Norm: like you know the Renegade Craft Fair and the the what's the other one in San Francisco, the Bazaar Bizarre.
+[00:16:29] Norm: like you know the Renegade Craft Fair and the what's the other one in San Francisco, the Bazaar Bizarre.
 
 [00:16:57] Adam: The Bazaar Bizarre is so awesome. It's like a live Etsy.
 
-[00:17:00] Norm: Right, right, live Etsy, but I feel like every time I go to one of those, there are four tables I really like. where [unclear: we / I] have like these either big nice posters, like in creative arts things, and like crafts and and custom sculpts and garage kits. But the rest are, it's a lot of soaps these days.
+[00:17:00] Norm: Right, right, live Etsy, but I feel like every time I go to one of those, there are four tables I really like. where [unclear: we / I] have like these either big nice posters, like in creative arts things, and like crafts and custom sculpts and garage kits. But the rest are, it's a lot of soaps these days.
 
 [00:17:00] Unknown speaker: Yeah.
 
@@ -332,7 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:17:21] Joey Fameli: Wooden ties I've seen.
 
-[00:17:22] Norm: Yeah, a lot of, a lot of, yeah, a lot of things. This DesignerCon that's coming up is like those four tables, but for an entire convention. It's just custom art that people make and modifications of toys and garage kits.
+[00:17:22] Norm: Yeah, a lot of things. This DesignerCon that's coming up is like those four tables, but for an entire convention. It's just custom art that people make and modifications of toys and garage kits.
 
 [00:17:35] Adam: Nice.
 
@@ -352,13 +352,13 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:17:52] Norm: Very, very looking forward to that.
 
-[00:17:54] Adam: Joey, we were having dinner the other night, and our dinner companion and asked us how we how we relaxed when we got home.
+[00:17:54] Adam: Joey, we were having dinner the other night, and our dinner companion and asked us how we relaxed when we got home.
 
 [00:18:04] Joey Fameli: Oh yeah,
 
-[00:18:04] Adam: and you had an answer. I was really didn't. I just thought it was really cool and unique. What What do you do to unwind after a long week of travel?
+[00:18:04] Adam: and you had an answer. I was really didn't. I just thought it was really cool and unique. What do you do to unwind after a long week of travel?
 
-[00:18:13] Joey Fameli: So, usually when we're out, we're out eating at restaurants or just grabbing a quick bite on the road. But I love to cook, so when I get home, the first thing I do is kind of get in the kitchen, get everything squared away, get my my mise en all set up, and then just roll out basically sheets of pasta or I bake pizza. But pasta has been the big one, just to get dough ready and just get the machine going and just start rolling out raviolis.
+[00:18:13] Joey Fameli: So, usually when we're out eating at restaurants or just grabbing a quick bite on the road. But I love to cook, so when I get home, the first thing I do is kind of get in the kitchen, get everything squared away, get my mise en all set up, and then just roll out basically sheets of pasta or I bake pizza. But pasta has been the big one, just to get dough ready and just get the machine going and just start rolling out raviolis.
 
 [00:18:36] Adam: Do you have the hand crank?
 
@@ -376,9 +376,9 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:19:05] Joey Fameli: It's a hand crank, so it's got a few different attachments I can do for you know. Different pasta types, but
 
-[00:19:11] Adam: but you know the the if you have a Hamilton Beach mixer, you can get a pasta attachment that plugs into the top of that. Yeah, I got to tell you, owning one, it's pretty awesome.
+[00:19:11] Adam: but you know the if you have a Hamilton Beach mixer, you can get a pasta attachment that plugs into the top of that. Yeah, I got to tell you, owning one, it's pretty awesome.
 
-[00:19:19] Joey Fameli: I've I've flirted with the idea quite a bit, but I really like
+[00:19:19] Joey Fameli: I've flirted with the idea quite a bit, but I really like
 
 [00:19:19] Unknown speaker: [unclear: You really like, you’ve got your / I really like just a hand crank / I really like this] thing.
 
@@ -390,11 +390,11 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:19:33] Joey Fameli: Oh yeah, Let’s try it out.
 
-[00:19:34] Adam: Um, I I would love to try your pasta. I homemade pasta is like unless you've actually tried it, it's it's almost like candy. I mean, it's so luscious and it's really hard. I mean, you've had it in restaurants because most restaurants that serve pasta seriously now are making their own pasta,
+[00:19:34] Adam: I would love to try your pasta. I homemade pasta is like unless you've actually tried it, it's almost like candy. I mean, it's so luscious and it's really hard. I mean, you've had it in restaurants because most restaurants that serve pasta seriously now are making their own pasta,
 
-[00:19:51] Joey Fameli: and I won't I won't order pasta out unless it's made in house. Yeah, I won't do the box pasta eating out because I I can do that at home.
+[00:19:51] Joey Fameli: and I won't order pasta out unless it's made in house. Yeah, I won't do the box pasta eating out because I I can do that at home.
 
-[00:19:57] Adam: So and the one that I'm obsessed with lately is the the cacio e pepe, the simple butter and salt pasta spaghetti at Locanda here in the Mission District. Oh, it's I mean, it's comfort food times 90. It's just so so delicious. I also cooked yesterday. Julia was got some some chicken that she'd cooked up with some spices and thought, oh, we could have chicken sandwiches for dinner. And then she didn't make the chicken sandwiches, but I had bought one of those grills for like serious grilled cheese making, like a big 16 by 20 inch. No, like a it's a it's a big restaurant griddle.
+[00:19:57] Adam: So and the one that I'm obsessed with lately is the cacio e pepe, the simple butter and salt pasta spaghetti at Locanda here in the Mission District. Oh, it's I mean, it's comfort food times 90. It's just so so delicious. I also cooked yesterday. Julia was got some some chicken that she'd cooked up with some spices and thought, oh, we could have chicken sandwiches for dinner. And then she didn't make the chicken sandwiches, but I had bought one of those grills for like serious grilled cheese making, like a big 16 by 20 inch. No, like a it's a big restaurant griddle.
 
 [00:20:38] Joey Fameli: Oh yeah, okay,
 
@@ -428,7 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:21:36] Joey Fameli: Little tiny umbrella.
 
-[00:21:37] Adam: Yeah. Um. You know, I also had a camera on Totoro's top, and we had problems because the the the HDMI cable somehow got sheared or broke inside and didn't work. And
+[00:21:37] Adam: Yeah. I also had a camera on Totoro's top, and we had problems because the HDMI cable somehow got sheared or broke inside and didn't work. And
 
 [00:21:50] Joey Fameli: which is your eyes, basically, as everything goes. And
 
@@ -436,7 +436,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:21:52] Norm: Yep.
 
-[00:21:52] Adam: So now I'm going to do a fully wireless system where my phone sits here and the the the GoPro sits here, and I don't have to worry about a wire between the outside and the inside.
+[00:21:52] Adam: So now I'm going to do a fully wireless system where my phone sits here and the GoPro sits here, and I don't have to worry about a wire between the outside and the inside.
 
 [00:22:07] Joey Fameli: That’s a great idea.
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:22:30] Joey Fameli: You should keep a little, just a little, some kind of hammer or knife. If that Wi-Fi connection fails, you could just in case of emergency, so you can see.
 
-[00:22:40] Adam: Yeah, that's true. I need something. I this this costume, unlike any other, I have so much room inside and both my hands free. It's kind of amazing. I almost want to put out a little tray so I could have like a sandwich and some fries and be like, you know, I I put a GoPro mount so that we can have a GoPro covering my face. Because we really should have had interior shots of my journey as Totoro.
+[00:22:40] Adam: Yeah, that's true. I need something. I this costume, unlike any other, I have so much room inside and both my hands free. It's kind of amazing. I almost want to put out a little tray so I could have like a sandwich and some fries and be like I I put a GoPro mount so that we can have a GoPro covering my face. Because we really should have had interior shots of my journey as Totoro.
 
 [00:23:04] Norm: [unclear: Let me / You may / …] lit up a little bit. You know what we need is. Have you seen the artist who does his cross sections of creatures?
 
@@ -464,17 +464,17 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:23:23] Norm: but with you and with your full harness inside. Yeah,
 
-[00:23:25] Adam: and this would be my my goal here is, and again, I'll say this in person. I said it on the on the in the comments, but I I the Totoro build video is my favorite build video we've yet done, and your editing and shooting is awesome. I I watched the whole thing, and I I don't watch all of my videos. I don't watch them all the way through. It was a longer one, but I found I really loved the pacing, and since I watch so many of other people's build videos online, and I love complaining that no one knows how to edit, it doesn't even matter because I just love watching people build shit. Um, but I feel like that Totoro build is for my money, like the kind of builds I like to watch, a real gold standard, and so I'm hoping more people watch it and make their own Totoros.
+[00:23:25] Adam: and this would be my goal here is, and again, I'll say this in person. I said it on the in the comments, but I I the Totoro build video is my favorite build video we've yet done, and your editing and shooting is awesome. I watched the whole thing, and I I don't watch all of my videos. I don't watch them all the way through. It was a longer one, but I found I really loved the pacing, and since I watch so many of other people's build videos online, and I love complaining that no one knows how to edit, it doesn't even matter because I just love watching people build shit. But I feel like that Totoro build is for my money, like the kind of builds I like to watch, a real gold standard, and so I'm hoping more people watch it and make their own Totoros.
 
 [00:24:08] Norm: Yeah,
 
-[00:24:08] Adam: I I I want to announce like I'm gonna go to this con as Totoro, um, you know I'm gonna. Go to San Silicon Valley Comic Con. I'm going to bring a big costume that'll be a reveal, like it always is. But I'm also going to bring Totoro because, shit, he's easy to travel and he's so much fun to wear.
+[00:24:08] Adam: I want to announce like I'm gonna go to this con as Totoro I'm gonna. Go to San Silicon Valley Comic Con. I'm going to bring a big costume that'll be a reveal, like it always is. But I'm also going to bring Totoro because, shit, he's easy to travel and he's so much fun to wear.
 
-[00:24:26] Joey Fameli: Yeah, it's a great. It was just a great thing to watch. Just people running up, hugging, and just you know, conventions are great when it was really good energy out.
+[00:24:26] Joey Fameli: Yeah, it's a great. It was just a great thing to watch. Just people running up, hugging, and just conventions are great when it was really good energy out.
 
 [00:24:33] Norm: And it's and like you said, you're modifying it.
 
-[00:24:35] Adam: I am modifying. So I've been modifying him in terms of how easy it is to perform in him. But Jeremy has been helping me with another key modification in his performative abilities, which will be revealed at the next con he goes to. And then I have like at least three tiers of of improvements to make on Totoro. So each con I bring him to will be revealing another facet of his versatility. Um. Are do you have some more travel coming up, Joey?
+[00:24:35] Adam: I am modifying. So I've been modifying him in terms of how easy it is to perform in him. But Jeremy has been helping me with another key modification in his performative abilities, which will be revealed at the next con he goes to. And then I have like at least three tiers of improvements to make on Totoro. So each con I bring him to will be revealing another facet of his versatility. Are do you have some more travel coming up, Joey?
 
 [00:25:05] Joey Fameli: I don’t think so. Well,
 
@@ -498,7 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:25:22] Norm: Yeah.
 
-[00:25:22] Joey Fameli: Um. No. Yeah. I'll be doing. Uh. You know. I'll be closer to Frank and some of our our stuff that we do in L. A. It's it's basically just setting up another arm of tested, and I'll be up here quite a bit, and you know, working with everybody as much as I can, just in a different area, different environment.
+[00:25:22] Joey Fameli: Um. No. Yeah. I'll be doing. You know. I'll be closer to Frank and some of our stuff that we do in L. A. It's basically just setting up another arm of tested, and I'll be up here quite a bit, and working with everybody as much as I can, just in a different area, different environment.
 
 [00:25:36] Norm: Yeah. The food tour, the last food tour of S. F. You got to do a
 
@@ -506,13 +506,13 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:25:41] Adam: You totally do
 
-[00:25:42] Joey Fameli: right. Yeah, I've been I've been putting together a list of everything I need to go see and do.
+[00:25:42] Joey Fameli: right. Yeah, I've been putting together a list of everything I need to go see and do.
 
 [00:25:45] Adam: Oh, right, you are leaving in a wow
 
 [00:25:47] Norm: a month, less than a couple of weeks.
 
-[00:25:48] Joey Fameli: That's right. Basically, Thanksgiving, I'll be I'll be out.
+[00:25:48] Joey Fameli: That's right. Basically, Thanksgiving, I'll be out.
 
 [00:25:50] Adam: So when we're back next week, can we make an arrangement? Could you bring in some pasta for lunch?
 
@@ -520,13 +520,13 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:25:58] Adam: I'm really dying to try your pasta.
 
-[00:25:59] Joey Fameli: I'll do pasta, and then next week I'll do I'll do pizzas, because I love doing pizza as well.
+[00:25:59] Joey Fameli: I'll do pasta, and then next week I'll do pizzas, because I love doing pizza as well.
 
 [00:26:02] Adam: That's fantastic.
 
 [00:26:02] Joey Fameli: Yeah,
 
-[00:26:02] Adam: I love that. Um, I love to hear. Uh, you know, the jet lag when you travel is a real ass kicker. It's hard to stay focused, especially because we all have multiple projects. We're always, uh, you know, every long plane ride is an opportunity to. Get down and do some work and email sorting that you haven't done, and those wind down techniques, especially Norm. I think you're the one who hits the ground more running than anybody I've ever met. The wind down techniques are really important in terms of down regulating.
+[00:26:02] Adam: I love that. I love to hear. You know, the jet lag when you travel is a real ass kicker. It's hard to stay focused, especially because we all have multiple projects. We're always every long plane ride is an opportunity to. Get down and do some work and email sorting that you haven't done, and those wind down techniques, especially Norm. I think you're the one who hits the ground more running than anybody I've ever met. The wind down techniques are really important in terms of down regulating.
 
 [00:26:36] Norm: I sleep on the plane.
 
@@ -546,7 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:26:56] Norm: to eat.
 
-[00:26:57] Adam: Well, I just find that the food is it's it's it's fine. Like at the very best, it's fine. And like my thinking is, why would I waste a meal on this food that's just okay when actually I could probably grab a sandwich in the airport that would be twice as good and fresh. So yeah, and I've also heard that fasting is one way to deal with jet lag, although I've never been able to do it
+[00:26:57] Adam: Well, I just find that the food is it's fine. Like at the very best, it's fine. And like my thinking is, why would I waste a meal on this food that's just okay when actually I could probably grab a sandwich in the airport that would be twice as good and fresh. So yeah, and I've also heard that fasting is one way to deal with jet lag, although I've never been able to do it
 
 [00:26:57] Norm: Really?
 
@@ -580,7 +580,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:28:10] Adam: It's been so great with the rain. I love the rain so much. I we didn't have a lot for years here, so every time we get it, it's a real special occasion.
 
-[00:28:19] Norm: They finished the Kubrick exhibit this yesterday. At the Jewish Contemporary Museum, so the maze. I think they're they're moving that somewhere else.
+[00:28:19] Norm: They finished the Kubrick exhibit this yesterday. At the Jewish Contemporary Museum, so the maze. I think they're moving that somewhere else.
 
 [00:28:28] Adam: It goes back into its it goes back into its box, and I believe it goes to Mexico City.
 
@@ -590,13 +590,13 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:28:28] Norm: Yeah,
 
-[00:28:28] Adam: if I if I remember correctly,
+[00:28:28] Adam: if I remember correctly,
 
 [00:28:42] Norm: there's still the Tom Sachs exhibit.
 
-[00:28:45] Adam: Tom Sachs's A Space Program. It's still at Yerba Buena Center for the Arts. If you've ever heard me mention him on the podcast, and you live in San Francisco, go see it. It is a, it is a, the deepest of dives into Tom's whole uh whole oeuvre, and um it's really thrilling and overwhelming and amazing. It's an incredible show, and it's got some pieces from his whole history.
+[00:28:45] Adam: Tom Sachs's A Space Program. It's still at Yerba Buena Center for the Arts. If you've ever heard me mention him on the podcast, and you live in San Francisco, go see it. It is a, the deepest of dives into Tom's whole whole oeuvre, and it's really thrilling and overwhelming and amazing. It's an incredible show, and it's got some pieces from his whole history.
 
-[00:29:07] Norm: Yeah, and even like the lobby and the the cafe, it's all decked out.
+[00:29:07] Norm: Yeah, and even like the lobby and the cafe, it's all decked out.
 
 [00:29:11] Adam: Absolutely, you get the full Sachs experience. Tom is, the world's been lucky this year. They've so far there's. Been four major Tom Sachs exhibits at the Noguchi Museum, the Brooklyn Museum, at the Jeffrey Deitch Gallery in New York, and now at Yerba Buena. And I think there's still another one. Oh yeah, he just had an exhibit in Japan.
 
@@ -640,7 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:30:08] Norm: Yeah, and once again, please vote.
 
-[00:30:15] Adam: Please vote. Vote. Vote. Vote. Vote, and I've said this before. I don't care who you vote for. Actually, I do care who you vote for. But it doesn't mean that you should vote for who I care that you vote for. Vote. It's really vital that you vote. It's super important. Even if you're in a in a state like California where the outcome is more preordained than in a battleground state, it still matters that you vote. The higher the numbers are every election, the more people will go vote the next election. We need those numbers up. This is how we participate in our democracy. Yeah. Damn it.
+[00:30:15] Adam: Please vote. Vote. Vote. Vote. Vote, and I've said this before. I don't care who you vote for. Actually, I do care who you vote for. But it doesn't mean that you should vote for who I care that you vote for. Vote. It's really vital that you vote. It's super important. Even if you're in a state like California where the outcome is more preordained than in a battleground state, it still matters that you vote. The higher the numbers are every election, the more people will go vote the next election. We need those numbers up. This is how we participate in our democracy. Yeah. Damn it.
 
 [00:30:47] Joey Fameli: Agreed. Wow.
 

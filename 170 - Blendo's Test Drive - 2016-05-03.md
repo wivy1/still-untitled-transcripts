@@ -46,7 +46,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:00:40] Norm: Really, really, really awesome.
 
-[00:00:42] Adam: Kids are amazing. It's literally, you know, Obama came out for his remarks, and he said, " Boy, you know, first of all, he spent an extra hour over his allotted time. His allotted time.
+[00:00:42] Adam: Kids are amazing. It's literally Obama came out for his remarks, and he said, " Boy, you know, first of all, he spent an extra hour over his allotted time. His allotted time.
 
 [00:00:42] Will: Wow.
 
@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:00:59] Will: Oh, that's awesome.
 
-[00:01:00] Adam: And I mean, you know, and he's there, really talking to all these kids, and they're amazing. My personal favorite moment from the White House side story are the the two little girls who made a balloon launcher that took a
+[00:01:00] Adam: And I mean and he's there, really talking to all these kids, and they're amazing. My personal favorite moment from the White House side story are the two little girls who made a balloon launcher that took a
 
 [00:01:10] Norm: weather balloon
 
@@ -68,29 +68,29 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:01:20] Adam: They look even tinier. And I go, that's amazing, 79,000 feet. She's like, yeah, and I am like, and that's your cat. And she went, no, that's a picture of my cat.
 
-[00:01:28] Norm: And then she did the the most precious thing ever, which is, are you from MythBusters?
+[00:01:28] Norm: And then she did the most precious thing ever, which is, are you from MythBusters?
 
-[00:01:36] Adam: Yeah, right. That was she post she post confirmed it. Since then, I went and was a guest judge at BattleBots. I think we talked about that. Did we?
+[00:01:36] Adam: Yeah, right. That was she post confirmed it. Since then, I went and was a guest judge at BattleBots. I think we talked about that. Did we?
 
-[00:01:46] Norm: We have not. We have not talked. Although I don't know how much we should talk about. The show is coming out in in June.
+[00:01:46] Norm: We have not. We have not talked. Although I don't know how much we should talk about. The show is coming out in June.
 
 [00:01:52] Adam: I am just yeah. I am not going to give any spoilers or anything. I will say that it was really fun. It was like an old home reunion. My old one of my oldest friends, Fon Davis of Fonco.
 
 [00:01:52] Will: Yeah,
 
-[00:01:52] Adam: was another guest judge, and so was Jessica Chobot. It was. You know, there is a lovely thing that happens on a good show when you can just tell with every crew member that you meet that it's a good production, and BattleBots is totally that. Like everyone on that production is loving the job, loving the material, loving the contestants, loving the show, and it just it exudes.
+[00:01:52] Adam: was another guest judge, and so was Jessica Chobot. It was. There is a lovely thing that happens on a good show when you can just tell with every crew member that you meet that it's a good production, and BattleBots is totally that. Like everyone on that production is loving the job, loving the material, loving the contestants, loving the show, and it just it exudes.
 
 [00:02:28] Will: It's the same thing, the same same way it felt like that last year. Like everybody by the end of that, people were sad, but like they were bummed that it was going to be you know as much as a year before they got to do it again or whatever.
 
-[00:02:39] Adam: Yeah, no, I would be too, and I mean everyone's great—the announcers and the the technical staff and the editorial.
+[00:02:39] Adam: Yeah, no, I would be too, and I mean everyone's great—the announcers and the technical staff and the editorial.
 
-[00:02:45] Norm: You know, it's also as even though the show is an hour long every week when they air it, you know, it's these are long days that they're putting in, and even the audience that gets there because they had kids in the audience, fans of BattleBots
+[00:02:45] Norm: It's also as even though the show is an hour long every week when they air it it's these are long days that they're putting in, and even the audience that gets there because they had kids in the audience, fans of BattleBots
 
 [00:02:45] Adam: Yeah.
 
-[00:02:45] Norm: watching it. You know, it's a production, and to but it's all worth it. You know, waiting to get everything set up to get make sure everyone's safe. You know, safety is. Paramount for that type of production, but then once the light turns on and the BattleBots go at it, it's awesome.
+[00:02:45] Norm: watching it. It's a production, and to but it's all worth it. Waiting to get everything set up to get make sure everyone's safe. Safety is. Paramount for that type of production, but then once the light turns on and the BattleBots go at it, it's awesome.
 
-[00:03:14] Adam: And then, and then, and then.
+[00:03:14] Adam: And then.
 
 [00:03:16] Will: But wait, there's more.
 
@@ -110,13 +110,13 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:03:55] Norm: it wasn't an Uber because that would be very expensive.
 
-[00:03:57] Adam: No, was it? We we we hired a limo company. Yeah. You know, look, they you know they paid for my flight down there and back, and for about the cost of a flight, some a guy drove me from L.A. at 11 o'clock at night to my house by like five. A.M. where I met up with my wife and my son, and we got in the car, went back to Oakland Airport, and flew to Memphis with with Vocal Rush, which is the Oakland School for the Arts acapella group. And we went to Memphis.
+[00:03:57] Adam: No, was it? We hired a limo company. Yeah. Look, they you know they paid for my flight down there and back, and for about the cost of a flight, some a guy drove me from L.A. at 11 o'clock at night to my house by like five. A.M. where I met up with my wife and my son, and we got in the car, went back to Oakland Airport, and flew to Memphis with Vocal Rush, which is the Oakland School for the Arts acapella group. And we went to Memphis.
 
-[00:04:23] Norm: Are you able to sleep on on that ride?
+[00:04:23] Norm: Are you able to sleep on that ride?
 
-[00:04:25] Adam: Oh yeah, yeah. No, I got about two hours of sleep on the ride. I got about three and a half hours on the plane, and I was I was okay. It was plus you know,
+[00:04:25] Adam: Oh yeah, yeah. No, I got about two hours of sleep on the ride. I got about three and a half hours on the plane, and I was okay. It was plus you know,
 
-[00:04:32] Norm: you know you could use Sleep Bus.
+[00:04:32] Norm: You could use Sleep Bus.
 
 [00:04:34] Adam: Sleep Bus. Yes. No. I know. I know about Sleep Bus.
 
@@ -126,7 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:04:36] Norm: So there is a new company that started a a trip down from San Francisco to L.A. and back, and I think it's like $60 or $70 each way. But it's basically it's it's a semi, but in the back they're all beds.
 
-[00:04:53] Will: Like like you have a capsule hotel type situation.
+[00:04:53] Will: Like you have a capsule hotel type situation.
 
 [00:04:55] Norm: You have a capsule. It is yeah. It is the
 
@@ -136,7 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:04:59] Will: Oh man, I would totally do that.
 
-[00:05:00] Norm: Right. And they and they it's you sleep. You know, you get you. They pick you up at Caltrain or something at eleven p.m. and then you wake up at six a.m.
+[00:05:00] Norm: Right. And they it's you sleep. You get you. They pick you up at Caltrain or something at eleven p.m. and then you wake up at six a.m.
 
 [00:05:07] Will: Gilroy or something.
 
@@ -156,7 +156,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:05:19] Will: Yeah.
 
-[00:05:19] Adam: So I spent the weekend in Memphis with 11 amazingly talented kids. My wife and I were chaperoning them, and it was phenomenal. All the groups in Memphis at this at this competition and conference were amazing. Vocal Rush OSA's Vocal Troop won the competition.
+[00:05:19] Adam: So I spent the weekend in Memphis with 11 amazingly talented kids. My wife and I were chaperoning them, and it was phenomenal. All the groups in Memphis at this competition and conference were amazing. Vocal Rush OSA's Vocal Troop won the competition.
 
 [00:05:39] Will: Oh, awesome! Congratulations! And team.
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:05:42] Norm: It's acapella.
 
-[00:05:43] Adam: It is acapella, and I'll tell you, traveling with an acapella group of teenagers is a freaking antidepressant. Like they are just, you know, we're in Houston Airport having a layover on our way there, and they're like, " Well, let's work out our blocking." And 11 kids get up and do the full choreography of one of their songs in the airport, and they did this wherever you stop, they sing.
+[00:05:43] Adam: It is acapella, and I'll tell you, traveling with an acapella group of teenagers is a freaking antidepressant. Like they are just we're in Houston Airport having a layover on our way there, and they're like, " Well, let's work out our blocking." And 11 kids get up and do the full choreography of one of their songs in the airport, and they did this wherever you stop, they sing.
 
 [00:06:05] Norm: So it's just like that Anna Kendrick movie.
 
@@ -178,13 +178,13 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:06:36] Will: I've been. It's really good.
 
-[00:06:37] Adam: The the the the surprise that happens in it is I don't I'm not going to spoil any more than that.
+[00:06:37] Adam: The surprise that happens in it is I don't I'm not going to spoil any more than that.
 
 [00:06:44] Will: It's a theatrical kind of museum.
 
-[00:06:44] Adam: It is it is theatrical in a way that is unexpected, and really really magnificent.
+[00:06:44] Adam: It is theatrical in a way that is unexpected, and really really magnificent.
 
-[00:06:50] Norm: Is it so? They took the the motel and the structure is still the same, but all the rooms are now connected. And
+[00:06:50] Norm: Is it so? They took the motel and the structure is still the same, but all the rooms are now connected. And
 
 [00:06:56] Adam: I'm not going to say anything. Just
 
@@ -212,7 +212,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:07:01] Norm: Joey went.
 
-[00:07:01] Will: I told him he should go, but I didn't. I didn't know if he got got there or not. It it was built around the same time as the Holocaust Museum, I think, and it follows that same kind of thing. Like there is a there is a there is a theatricalness to the to the way you flow through the museum, right?
+[00:07:01] Will: I told him he should go, but I didn't. I didn't know if he got got there or not. It was built around the same time as the Holocaust Museum, I think, and it follows that same kind of thing. Like there is a theatricalness to the way you flow through the museum, right?
 
 [00:07:01] Adam: Right.
 
@@ -224,11 +224,11 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:07:51] Will: Hello, Cleveland.
 
-[00:07:52] Adam: Hello, Cleveland. To get a day long tour of of how Cleveland is addressing Cleveland's problems with maker spaces and open access to making at Every possible level for kids.
+[00:07:52] Adam: Hello, Cleveland. To get a day long tour of how Cleveland is addressing Cleveland's problems with maker spaces and open access to making at Every possible level for kids.
 
 [00:08:09] Will: Cleveland is one of those cities that has been hit hard by the manufacturing, the the loss of manufacturing jobs, and and all that.
 
-[00:08:15] Adam: Right. Cleveland was the city hit hardest by the by the mortgage crisis. They lost more buildings than any other. And we were talking to them about this, you know, and like Philly or something. There's all these abandoned buildings. All Detroit. The difference is is that in Philly and Detroit, a lot of those buildings are brick, so they're not taken down because it's really expensive. In Cleveland, yeah, it's just empty lots everywhere.
+[00:08:15] Adam: Right. Cleveland was the city hit hardest by the mortgage crisis. They lost more buildings than any other. And we were talking to them about this and like Philly or something. There's all these abandoned buildings. All Detroit. The difference is is that in Philly and Detroit, a lot of those buildings are brick, so they're not taken down because it's really expensive. In Cleveland, yeah, it's just empty lots everywhere.
 
 [00:08:39] Will: They just bulldoze warehouses.
 
@@ -240,11 +240,11 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:08:40] Will: Huh?
 
-[00:08:40] Adam: And it was amazing. I was led around by these two amazing women, Sonya Pryor-Jones and Lisa Camp, both of whom are heavily invested in making and teaching kids how to how to normalize the peripatetic path that making takes you on. And they're amazing. Like I did, it was 12 solid hours of going to place to place to place.
+[00:08:40] Adam: And it was amazing. I was led around by these two amazing women, Sonya Pryor-Jones and Lisa Camp, both of whom are heavily invested in making and teaching kids how to normalize the peripatetic path that making takes you on. And they're amazing. Like I did, it was 12 solid hours of going to place.
 
 [00:09:37] Norm: How many places did you go to? And were they schools?
 
-[00:09:40] Adam: I went to a I went to a couple of schools. I went to Boys and Girls Club. I went to the local public library where they have makerspaces set up. And the the the president of that library is about to become president of the National Library Association. Okay, it was really really impressive. Perhaps the most impressive was a $50 million endowed seven story makerspace called ThinkBox.
+[00:09:40] Adam: I went to a couple of schools. I went to Boys and Girls Club. I went to the local public library where they have makerspaces set up. And the president of that library is about to become president of the National Library Association. Okay, it was really really impressive. Perhaps the most impressive was a $50 million endowed seven story makerspace called ThinkBox.
 
 [00:09:40] Will: Oh wow!
 
@@ -256,17 +256,17 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:09:40] Will: Yeah.
 
-[00:09:40] Adam: Right. So they it's geared towards that rapid prototyping aspect. But also when you when you show up at the front desk, you show your license and you move yourself over to the laser cutter, get on the list.
+[00:09:40] Adam: Right. So they it's geared towards that rapid prototyping aspect. But also when you show up at the front desk, you show your license and you move yourself over to the laser cutter, get on the list.
 
 [00:10:40] Will: Do you have do like they have a is it like the tech shop where they have a kind of qualification process? There.
 
-[00:10:45] Adam: So for for things like the laser cutter, there's much less of a qualification process because it's pretty straightforward. For tools, yes, there is a qualification process, but again, they're looking to make it as low of a threshold to entry as possible.
+[00:10:45] Adam: So for things like the laser cutter, there's much less of a qualification process because it's pretty straightforward. For tools, yes, there is a qualification process, but again, they're looking to make it as low of a threshold to entry as possible.
 
 [00:10:58] Will: Well, I mean, that's the thing that that's like that's the tech shop secret,
 
 [00:10:58] Adam: right?
 
-[00:10:58] Will: Is it's the same thing that um. What was the what was the hackerspace we went to in New York, Norm?
+[00:10:58] Will: Is it's the same thing that. What was the hackerspace we went to in New York, Norm?
 
 [00:11:06] Norm: Resistor.
 
@@ -274,9 +274,9 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:11:07] Adam: right?
 
-[00:11:07] Will: And then let them experiment and and let them fail and support them.
+[00:11:07] Will: And then let them experiment and let them fail and support them.
 
-[00:11:18] Adam: It's amazing. They've built software so that when you go up to laser cutter and put yourself on on the on the list, you put your phone number and it texts you when you're close to being ready. Um,
+[00:11:18] Adam: It's amazing. They've built software so that when you go up to laser cutter and put yourself on the list, you put your phone number and it texts you when you're close to being ready.
 
 [00:11:28] Norm: I mean that's advanced and that's for a facility that has you know $50 million and set up from the ground up to be that purpose
 
@@ -294,9 +294,9 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:11:45] Adam: It's incredible
 
-[00:11:46] Norm: as like the new public library, but even in the old institutions like public libraries and schools that then incorporate makerspaces, how do they reconcile like just the different skills needed and the the mindset of people going in?
+[00:11:46] Norm: as like the new public library, but even in the old institutions like public libraries and schools that then incorporate makerspaces, how do they reconcile like just the different skills needed and the mindset of people going in?
 
-[00:11:57] Adam: Well, again, you there there are in a library you don't necessarily need to have dust making tools, but you could have a variety of 3D printers where the access. The execution is much more reasonable for a low threshold of somebody who doesn't have a lot of technical. Still, can still actually get something done, and the library is perfect for this. I talked to the superintendent of a school in which they had placed sewing machines in the local libraries.
+[00:11:57] Adam: Well, again, you there are in a library you don't necessarily need to have dust making tools, but you could have a variety of 3D printers where the access. The execution is much more reasonable for a low threshold of somebody who doesn't have a lot of technical. Still, can still actually get something done, and the library is perfect for this. I talked to the superintendent of a school in which they had placed sewing machines in the local libraries.
 
 [00:11:57] Will: I mean, look,
 
@@ -312,7 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:12:27] Will: yeah.
 
-[00:12:36] Norm: That's also specifically that that type of machine is something that it's not new, so it's not it's not going to be difficult to get someone trained
+[00:12:36] Norm: That's also specifically that that type of machine is something that it's not new, so it's not going to be difficult to get someone trained
 
 [00:12:36] Adam: Right.
 
@@ -322,13 +322,13 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:12:36] Norm: and I think you know there's going to be a huge opportunity in the next 10 15 years as kids who grew up with 3D printers who know how to use it and those type of CNC machines then get to work in environments so they're not having to learn new technologies like teachers today and maintain them.
 
-[00:13:03] Adam: Yeah, yeah, and again, yeah, this is really it's a fascinating thing. There are a lot of cities like Cleveland, Cleveland's way. Way out there in terms of being really clear about its mission, and it was, you know, on the tail end of having traveled to Memphis with this incredible diverse group of super talented teenagers, it felt like being part of the solution. That's really what it felt like. So we were on a bus all day. We're traveling around with city council members and state senators, and we're getting the stories of the people who live in the neighborhoods and how these neighborhoods were harmed by the crack epidemic or harmed by the financial crisis. How Cleveland's divides haven't yielded the right things, and how there are people building groups to gather other groups to heal these things. And so you talk to someone, and you know, the Boys and Girls Club. I didn't. I'd forgotten about the Boys and Girls Club. There's 4,000 of them that serve over 4 million kids around the country.
+[00:13:03] Adam: Yeah, yeah, and again, yeah, this is really it's a fascinating thing. There are a lot of cities like Cleveland, Cleveland's way. Way out there in terms of being really clear about its mission, and it was on the tail end of having traveled to Memphis with this incredible diverse group of super talented teenagers, it felt like being part of the solution. That's really what it felt like. So we were on a bus all day. We're traveling around with city council members and state senators, and we're getting the stories of the people who live in the neighborhoods and how these neighborhoods were harmed by the crack epidemic or harmed by the financial crisis. How Cleveland's divides haven't yielded the right things, and how there are people building groups to gather other groups to heal these things. And so you talk to someone, and you know, the Boys and Girls Club. I didn't. I'd forgotten about the Boys and Girls Club. There's 4,000 of them that serve over 4 million kids around the country.
 
 [00:14:00] Will: Incredible organization.
 
-[00:14:01] Adam: Totally amazing. This is it. It was incredibly inspiring. Every single visit we we made. Yielded some new insight and some new ideas about ways in which, again, we keep on going back to this, and we talk about this a lot on this podcast about failure, about helping kids normalize. You know, as a parent, it's our job to sort of give kids the illusion of consistency until such time as they can handle the truth, which is there is none.
+[00:14:01] Adam: Totally amazing. This is it. It was incredibly inspiring. Every single visit we made. Yielded some new insight and some new ideas about ways in which, again, we keep on going back to this, and we talk about this a lot on this podcast about failure, about helping kids normalize. As a parent, it's our job to sort of give kids the illusion of consistency until such time as they can handle the truth, which is there is none.
 
-[00:14:28] Will: I mean, the big, the big one of the big challenges I have is that you have to let your kid figure out, like how, like it would take me three seconds to get my daughter dressed in the morning; it takes her 10 minutes.
+[00:14:28] Will: I mean, the big one of the big challenges I have is that you have to let your kid figure out, like how, like it would take me three seconds to get my daughter dressed in the morning; it takes her 10 minutes.
 
 [00:14:28] Adam: Right.
 
@@ -338,25 +338,25 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:14:28] Will: We take the 10 minutes every single day. It's maddening, right,
 
-[00:14:47] Adam: dude? You just wait. Let me tell you that you'll spend the next like 15 years waiting for her to put on her shoes. I, I still my teenagers. It's like I don't. Socks are hard, man. How many laces do you have to have on your shoes?
+[00:14:47] Adam: dude? You just wait. Let me tell you that you'll spend the next like 15 years waiting for her to put on her shoes. I still my teenagers. It's like I don't. Socks are hard, man. How many laces do you have to have on your shoes?
 
 [00:14:58] Will: Well, that's the fun. That's the fun, like how to break something down to explain it to a three-year-old is one of my new favorite games to play.
 
 [00:14:58] Adam: Mm-hmm.
 
-[00:14:58] Will: Like when you think about something like putting a zipper on, it's like zipping a jacket. Right, you think you think that's three motions, right? You insert it and then you slide it up and then you're done.
+[00:14:58] Will: Like when you think about something like putting a zipper on, it's like zipping a jacket. Right, you think that's three motions, right? You insert it and then you slide it up and then you're done.
 
 [00:15:16] Adam: No, it's a whole intellectual exercise.
 
 [00:15:16] Will: But it’s actually like you hold the left side and then you hold the right side on the pull tab and you have to line it up and slide it down and then lift it up and yeah, it's really yeah.
 
-[00:15:25] Adam: So anyway, just to wrap this up, I did the tour again. Lisa Camp and Sonya Pryor-Jones were my were my spirit animals on this journey, and they were incredible. I I was also with the White House Deputy Director in charge of making Andrew Coy,
+[00:15:25] Adam: So anyway, just to wrap this up, I did the tour again. Lisa Camp and Sonya Pryor-Jones were my spirit animals on this journey, and they were incredible. I was also with the White House Deputy Director in charge of making Andrew Coy,
 
 [00:15:25] Will: okay,
 
-[00:15:25] Adam: also a really amazing guy, and it was an eye opening journey. I'm going to I'm still gathering all the data about the visits, but we're going to do a post where I link to all these different organizations I visited on on tested because it was just so transformative, and I'm going to go to other cities in the next few months.
+[00:15:25] Adam: also a really amazing guy, and it was an eye opening journey. I'm going to I'm still gathering all the data about the visits, but we're going to do a post where I link to all these different organizations I visited on tested because it was just so transformative, and I'm going to go to other cities in the next few months.
 
-[00:16:04] Will: If people want to know, if people, if if librarians or people in city city government are listening to this now and want to know. How to do this on their scale?
+[00:16:04] Will: If people want to know, if people, if librarians or people in city city government are listening to this now and want to know. How to do this on their scale?
 
 [00:16:13] Adam: Yes.
 
@@ -364,13 +364,13 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:16:14] Adam: That's the thing: is that each of these places that we visited is working hard towards building playbooks of what they're doing, how they're doing it, how it's working.
 
-[00:16:23] Will: Yeah. Which which part? Like the laser cutter section is always really busy, and the mill is probably not so much.
+[00:16:23] Will: Yeah. Which part? Like the laser cutter section is always really busy, and the mill is probably not so much.
 
-[00:16:28] Adam: And what do you do on the on on their two biggest day, their two biggest weeks of the week before Christmas and the week before Valentine's Day?
+[00:16:28] Adam: And what do you do on the on their two biggest day, their two biggest weeks of the week before Christmas and the week before Valentine's Day?
 
 [00:16:36] Unknown speaker: [unclear: Oh, right.]
 
-[00:16:36] Norm: Of course, of course. I mean, it's it's fascinating. You don't think these playbooks, like, why wouldn't they exist? And someone's need to make them.
+[00:16:36] Norm: Of course. I mean, it's fascinating. You don't think these playbooks why wouldn't they exist? And someone's need to make them.
 
 [00:16:44] Adam: Well, and that's the thing: is they're realizing from the ground up. They also are taking a look at giving playbooks for their fundraising as well, because this is the other hard part.
 
@@ -378,9 +378,9 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:16:44] Adam: What is the threshold to entry for the people giving the money? How do you pitch this thing? Where is the data you call upon to say this is great for our kids? This is great for this entire community from the ground all the way up.
 
-[00:17:04] Norm: And how do you work with the local governments and avoid liability issues and all those all those concerns?
+[00:17:04] Norm: And how do you work with the local governments and avoid liability issues and all those concerns?
 
-[00:17:09] Adam: Absolutely, all of that, and it's it's it's not. Difficult.
+[00:17:09] Adam: Absolutely, all of that, and it's not. Difficult.
 
 [00:17:13] Will: The other thing that there has, like,
 
@@ -388,7 +388,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:17:16] Will: Okay,
 
-[00:17:16] Adam: and it was Sonya Pryor-Jones that brought the the first FabLab to Cleveland, and so they've they've been part of this. They've been looking at this solution for a long time.
+[00:17:16] Adam: and it was Sonya Pryor-Jones that brought the first FabLab to Cleveland, and so they've they've been part of this. They've been looking at this solution for a long time.
 
 [00:17:35] Will: Did you find that they were engaging? Like the, I know that there's a lot of like retired machinists and retired woodworkers and stuff like that that are out there, just kind of look looking, maybe not looking for stuff to do, but that are an incredible resource for people who are trying to get this stuff off the ground.
 
@@ -396,7 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:17:35] Will: To to bring them in, and and then you have a multi generational thing too. which has some positives.
 
-[00:17:54] Adam: Yeah, no, it's it's a great question.
+[00:17:54] Adam: Yeah, no, it's a great question.
 
 [00:17:54] Will: Okay.
 
@@ -436,7 +436,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:18:48] Adam: They were just billets of steel for vertical spinners this year.
 
-[00:18:52] Will: Look, I've I have I have stood on top of a running nuclear reactor and had the little dosimeter start buzzing at me. That was less scary than watching Nightmare carve up chunks of the floor at Battlebots last year.
+[00:18:52] Will: Look, I've I have stood on top of a running nuclear reactor and had the little dosimeter start buzzing at me. That was less scary than watching Nightmare carve up chunks of the floor at Battlebots last year.
 
 [00:19:02] Adam: Yep. Yeah.
 
@@ -450,7 +450,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:19:03] Will: Lexan. Sorry. Yeah.
 
-[00:19:13] Adam: At any rate, so Blendo was the very first spinner. Jamie's first idea for Blendo was that he'd spin it up to 20,000 RPM, and its own momentum would keep it running for the three minutes of a match. Now he reached out to a friend of his who's a physicist to explain that at 20,000 RPM it would explode because of the friction with the air. It would catch on fire and just disintegrate. So he's like, " All right, I'll lower my sights." And he attached a five horsepower Briggs and Stratton engine to a chassis that we that we machined out of steel. I was on this team back at back when it was Colossal Pictures Model Shop, and it was a spinning upside down wok with a steel ring around it and two hardened case hardened steel blades. And
+[00:19:13] Adam: At any rate, so Blendo was the very first spinner. Jamie's first idea for Blendo was that he'd spin it up to 20,000 RPM, and its own momentum would keep it running for the three minutes of a match. Now he reached out to a friend of his who's a physicist to explain that at 20,000 RPM it would explode because of the friction with the air. It would catch on fire and just disintegrate. So he's like, " All right, I'll lower my sights." And he attached a five horsepower Briggs and Stratton engine to a chassis that we machined out of steel. I was on this team back at back when it was Colossal Pictures Model Shop, and it was a spinning upside down wok with a steel ring around it and two hardened case hardened steel blades. And
 
 [00:19:59] Will: like
 
@@ -462,15 +462,15 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:20:04] Will: Yeah,
 
-[00:20:05] Adam: but. When we first started it up, when we first finished the machine, the question was, how do you start a machine in which the entire exterior is is is one thing and it's spinning? So Jamie rigged up the the the pull cord spindle of the engine to a threaded attachment, and he stood on an apple box and chucked a drill into the threaded attachment and pulled the drill until it started the engine. And then when the engine spun up, it spun the threads back out.
+[00:20:05] Adam: but. When we first started it up, when we first finished the machine, the question was, how do you start a machine in which the entire exterior is is is one thing and it's spinning? So Jamie rigged up the pull cord spindle of the engine to a threaded attachment, and he stood on an apple box and chucked a drill into the threaded attachment and pulled the drill until it started the engine. And then when the engine spun up, it spun the threads back out.
 
 [00:20:36] Will: Oh wow!
 
 [00:20:37] Adam: Okay, so you have to be standing over this terrifying thing.
 
-[00:20:42] Will: This is this is worse than the time he talked about making the sword on the table saw.
+[00:20:42] Will: This is worse than the time he talked about making the sword on the table saw.
 
-[00:20:45] Adam: Right. So when we first we're there on Colossal Pictures used to be on Quint Street down off of Evans, this little sort of no man's land by the water, and we set up we set up a whole circle of sandbags, a film sandbag.
+[00:20:45] Adam: Right. So when we first we're there on Colossal Pictures used to be on Quint Street down off of Evans, this little sort of no man's land by the water, and we set up a whole circle of sandbags, a film sandbag.
 
 [00:21:02] Norm: This is for the test.
 
@@ -524,13 +524,13 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:23:08] Will: most of the time.
 
-[00:23:09] Norm: We were we're excited for the opportunity to test it in in the battle box
+[00:23:09] Norm: We were we're excited for the opportunity to test it in the battle box
 
 [00:23:13] Adam: in situ.
 
 [00:23:13] Will: Yeah,
 
-[00:23:13] Adam: yeah, it was it was amazing. So,
+[00:23:13] Adam: yeah, it was amazing. So,
 
 [00:23:17] Will: I'm so excited to see the next season.
 
@@ -542,7 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:23:37] Adam: yeah,
 
-[00:23:37] Norm: for TV is itself a huge challenge because you want to relay like the the impact. You don't. You can't. It's impossible. You have to be there to just to feel it and to hear it. It doesn't translate.
+[00:23:37] Norm: for TV is itself a huge challenge because you want to relay like the impact. You don't. You can't. It's impossible. You have to be there to just to feel it and to hear it. It doesn't translate.
 
 [00:23:59] Will: If you're watching it, go to the subwoofer, turn it from whatever it's set at by default, and crank it up like say three or four notches.
 
@@ -550,7 +550,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:23:59] Will: give it a little oomph.
 
-[00:24:07] Adam: It's it it they make it really like a sporting event. There's commentary before and after the matches. Color commentary, and as a judge, we had the greatest seats in the house. We're sitting there just looking right through the window, and most of the action ends up right in front of us.
+[00:24:07] Adam: It's it they make it really like a sporting event. There's commentary before and after the matches. Color commentary, and as a judge, we had the greatest seats in the house. We're sitting there just looking right through the window, and most of the action ends up right in front of us.
 
 [00:24:22] Will: How many times did you jump back?
 
@@ -584,7 +584,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:25:27] Will: Norm, anything on Tested this week people should check out?
 
-[00:25:29] Norm: Yeah. So from from the travels, from Adam's travels and our travels, we have we visited a friend's shop, and that video will be going up this week. So check that out on Thursday.
+[00:25:29] Norm: Yeah. So from the travels, from Adam's travels and our travels, we have we visited a friend's shop, and that video will be going up this week. So check that out on Thursday.
 
 [00:25:38] Will: Joey Chandler, Rachel.
 

@@ -28,9 +28,9 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:02:05] Adam: There was a period of time where I was home for two 18-hour periods over a period of a month, and it was that was just not enough.
 
-[00:02:15] Will: Like, My wife gets grumpy if I'm gone like two Saturdays in a row, so I can't imagine what what you know.
+[00:02:15] Will: Like, My wife gets grumpy if I'm gone like two Saturdays in a row, so I can't imagine what you know.
 
-[00:02:21] Adam: Well, when I was gone on the tour, I think that we spent a solid 16 days apart, and that might be actually the longest my wife and I have ever spent apart. And we don't, we don't, we don't, we don't jibe well with that. We don't, we don't, we like. We need to be around each other.
+[00:02:21] Adam: Well, when I was gone on the tour, I think that we spent a solid 16 days apart, and that might be actually the longest my wife and I have ever spent apart. And we don't jibe well with that. We don't, we like. We need to be around each other.
 
 [00:02:37] Norm: I just take the girlfriend with me everywhere.
 
@@ -74,7 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:03:51] Norm: It's technology, entertainment, design. This is purely the entertainment part of it.
 
-[00:03:55] Adam: Well, and it was started by the same guy, Richard Saul Wurman, who started TED 30 years ago. Now, E.G. has been going for nine years. I've appeared at most of them. I either appeared or visited most of them because at this point now, I know almost everybody there, and it's it's it's one of the places I go to see old friends that I don't get a chance to spend a lot of time with. Yeah.
+[00:03:55] Adam: Well, and it was started by the same guy, Richard Saul Wurman, who started TED 30 years ago. Now, E.G. has been going for nine years. I've appeared at most of them. I either appeared or visited most of them because at this point now, I know almost everybody there, and it's one of the places I go to see old friends that I don't get a chance to spend a lot of time with. Yeah.
 
 [00:04:16] Norm: How many people show up?
 
@@ -86,7 +86,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:05:13] Will: like a amuse-bouche.
 
-[00:05:14] Adam: Yes. So when Michael Hawley called me up and said, " You know, do you want to come do something at EG?" I said, " Yes, I've got this piece on juggling. I'd really love to to work it and come in. I think I could make it something pretty fine." And I told him roughly what its outline was, and he said, " Yes, by all means, come and do it." What he did not tell me is that in the audience I would be performing for would be all of the Flying Karamazov Brothers, my childhood heroes, who who I saw them perform Comedy of Errors at Alice Tully Hall at Lincoln Center in 1986. These Guys are my my gods, and I you know they've had a revolving cast, but there are at least two or three original members who I had seen in my late teens. For Christ's sake,
+[00:05:14] Adam: Yes. So when Michael Hawley called me up and said, " You know, do you want to come do something at EG?" I said, " Yes, I've got this piece on juggling. I'd really love to to work it and come in. I think I could make it something pretty fine." And I told him roughly what its outline was, and he said, " Yes, by all means, come and do it." What he did not tell me is that in the audience I would be performing for would be all of the Flying Karamazov Brothers, my childhood heroes, who who I saw them perform Comedy of Errors at Alice Tully Hall at Lincoln Center in 1986. These Guys are my gods, and I you know they've had a revolving cast, but there are at least two or three original members who I had seen in my late teens. For Christ's sake,
 
 [00:06:03] Norm: when did you realize this?
 
@@ -102,11 +102,11 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:06:09] Will: Oh no.
 
-[00:06:09] Adam: So so I got I got up and I I opened with this. Michael neglected to tell me that my childhood hero jugglers would be in the audience. I said so. Let me be clear, the bit about juggling I'm about to do is about how shitty a juggler I am. And one of them yelled out, " That's our routine too.” So
+[00:06:09] Adam: So so I got up and I I opened with this. Michael neglected to tell me that my childhood hero jugglers would be in the audience. I said so. Let me be clear, the bit about juggling I'm about to do is about how shitty a juggler I am. And one of them yelled out, " That's our routine too.” So
 
 [00:06:28] Will: oh, they took that from you too.
 
-[00:06:31] Adam: So then I I I I start off the bit juggling three beanbags, and the first beanbag I threw, I dropped, and it's largely because and this sometimes happens a bank of lights right in my eyes, right at the apex of where my tosses were happening. So I said, " Could we maybe lower the lights?" And one of the Karamazov brothers yells out. They were there for our routine, and then I realized I'm being heckled. Oh,
+[00:06:31] Adam: So then I I start off the bit juggling three beanbags, and the first beanbag I threw, I dropped, and it's largely because and this sometimes happens a bank of lights right in my eyes, right at the apex of where my tosses were happening. So I said, " Could we maybe lower the lights?" And one of the Karamazov brothers yells out. They were there for our routine, and then I realized I'm being heckled. Oh,
 
 [00:06:58] Will: that's the piece
 
@@ -126,9 +126,9 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:07:27] Will: But it's dead simple. It's like learn to throw an arc with one ball. Learn to throw an arc with two balls.
 
-[00:07:31] Adam: Well, learn to throw, throw, throw, catch, catch. Learn the learn that rhythm, and then yes, and then it's how that skill and the deepening of that skill taught me how to learn all my other skills, and and even there's a little more of a reveal than that, but I don't have to tell the whole routine.
+[00:07:31] Adam: Well, learn to throw, throw, throw, catch, catch. Learn the learn that rhythm, and then yes, and then it's how that skill and the deepening of that skill taught me how to learn all my other skills, and even there's a little more of a reveal than that, but I don't have to tell the whole routine.
 
-[00:07:48] Will: That is really funny because like I literally like I got I got that book and the Klutz Learn to Play the Harmonica book at the same time.
+[00:07:48] Will: That is really funny because like I literally like I got that book and the Klutz Learn to Play the Harmonica book at the same time.
 
 [00:07:48] Adam: Yeah.
 
@@ -156,11 +156,11 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:08:18] Norm: Summer's coming up. A lot of road trips, people.
 
-[00:08:19] Adam: So the the the it went off really well.
+[00:08:19] Adam: So the it went off really well.
 
 [00:08:24] Norm: That's great.
 
-[00:08:25] Adam: It went off. The piece went very well. I I'm I was very happy with with how it came off. Immediately upon leaving the stage, one of the Karamazov brothers came over and said that was wonderful. And then he, the Karamazov brothers, do a thing called a Chautauqua, the old time Chautauqua, which is what people don't realize is that the precursor to the TED Talk was happening in the '10s and '20s all over the United States, which were these effectively traveling lecture road entertainment shows called Chautauquas.
+[00:08:25] Adam: It went off. The piece went very well. I I'm I was very happy with how it came off. Immediately upon leaving the stage, one of the Karamazov brothers came over and said that was wonderful. And then he, the Karamazov brothers, do a thing called a Chautauqua, the old time Chautauqua, which is what people don't realize is that the precursor to the TED Talk was happening in the '10s and '20s all over the United States, which were these effectively traveling lecture road entertainment shows called Chautauquas.
 
 [00:08:53] Will: You didn't have radio or TV to watch, so people went out to the Community hall at night and the Moose Lodge,
 
@@ -170,17 +170,17 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:09:05] Adam: What's that?
 
-[00:09:05] Norm: Like, didn't have the the stats, like didn't need to be pretentious.
+[00:09:05] Norm: Like, didn't have the stats, like didn't need to be pretentious.
 
 [00:09:09] Will: No kelsey grammers.
 
 [00:09:09] Norm: Entertainment.
 
-[00:09:11] Adam: And so, a bunch of their Karamazovs and other friends do a Chautauqua in the summers on the west north in the northwest, and they do it every summer for a month. And so there was a whole group of them there, and all of them are jugglers. And they kept on coming up saying, you know, all of us as jugglers realize that the skills learning to juggle are the same. You know, they're analogous. And they said we've all we've all actually talked about writing a piece like that. So it was really lovely to see how you weaved that into being a serial skill collector and how that informed how that helped create you. And we made all sorts of plans to meet up at other points in the future to actually juggle together.
+[00:09:11] Adam: And so, a bunch of their Karamazovs and other friends do a Chautauqua in the summers on the west north in the northwest, and they do it every summer for a month. And so there was a whole group of them there, and all of them are jugglers. And they kept on coming up saying all of us as jugglers realize that the skills learning to juggle are the same. They're analogous. And they said we've all actually talked about writing a piece like that. So it was really lovely to see how you weaved that into being a serial skill collector and how that informed how that helped create you. And we made all sorts of plans to meet up at other points in the future to actually juggle together.
 
 [00:09:11] Norm: So cool!
 
-[00:09:11] Adam: It was stunning. I had I had the most wonderful time. I saw some great old friends. My, you know. Eric Mead and Michael Weber and Danny Hillis, Bran Ferren, wonderful, wonderful people who I only get to see once a year at these things.
+[00:09:11] Adam: It was stunning. I had the most wonderful time. I saw some great old friends. My. Eric Mead and Michael Weber and Danny Hillis, Bran Ferren, wonderful, wonderful people who I only get to see once a year at these things.
 
 [00:10:09] Norm: It's also like Ted; those videos and past talks that both you and Jamie have done are on their Vimeo page. Yes, if you go to, e.g., the EG conference website, you can actually watch the videos. Some of them, like you said, Adam, 15 minutes long. There's a great one. The character actor, the guy from Groundhog Day,
 
@@ -190,13 +190,13 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:10:28] Will: Stephen Tobolowsky, Ned the Head, Needle Hosed Ned. Right, yes. Watch out for that first step; it's a doozy.
 
-[00:10:32] Adam: He has become he's he's become a friend acquaintance over the years at EG, and he's a wonderful public speaker and an incredible raconteur.
+[00:10:32] Adam: He has become he's become a friend acquaintance over the years at EG, and he's a wonderful public speaker and an incredible raconteur.
 
 [00:10:40] Will: He popped up someplace in something I was watching. Completely, was it Daredevil? Does he pop up in Daredevil or maybe the Avengers? He popped up in something that I watched recently, and I was like, " Oh,
 
 [00:10:51] Adam: Tobolowsky is a he's got a long tail. He's got many, many hidden depths, and he's he is." I'm not going to say remarkably intelligent because all sorts of people are intelligent, but he's wonderful to talk to and an incredible, incredible dinner companion. If you ever get a chance,
 
-[00:11:07] Will: we'll put we'll put him on the list. He's on he's on the good list.
+[00:11:07] Will: we'll put him on the list. He's on the good list.
 
 [00:11:11] Norm: But Adam, because you were at EG conference this year and also traveling for work, you're unable to make it to Maker Faire this year.
 
@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:11:23] Will: Yeah.
 
-[00:11:23] Adam: Um, I had one day, one day with my family, and I really, I spent that with my family. I am so sorry, Maker Faire. In fact, the next day I was at SFO early in the morning, and a guy walked up to me, and here's the conversation we had. This man walked up, and he goes, " We missed you yesterday.
+[00:11:23] Adam: I had one day with my family, and I really, I spent that with my family. I am so sorry, Maker Faire. In fact, the next day I was at SFO early in the morning, and a guy walked up to me, and here's the conversation we had. This man walked up, and he goes, " We missed you yesterday.
 
 [00:11:23] Norm: Oh, oh,
 
@@ -216,13 +216,13 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:12:10] Will: That’s amazing. That’s great.
 
-[00:12:12] Adam: It really warmed my heart. I I'm very sad I didn't make it. The signing autographs for kids at Maker Faire is the you know the talks that I do. I really enjoy doing talks at Maker Faire, but it's that autograph line and taking pictures with with kids who go. I'm really sorry I wasn't there this year.
+[00:12:12] Adam: It really warmed my heart. I I'm very sad I didn't make it. The signing autographs for kids at Maker Faire is the you know the talks that I do. I really enjoy doing talks at Maker Faire, but it's that autograph line and taking pictures with kids who go. I'm really sorry I wasn't there this year.
 
 [00:12:29] Will: Maybe we'll get you to New York this fall.
 
 [00:12:31] Adam: But You guys went.
 
-[00:12:31] Will: We went. We were there. We got a lot of we got a lot of people said they missed you. Um, we saw some pretty amazing. Like one of the things that I love about Maker Faire is that they've they've done a really good job in the last few years of kind of mixing up, especially the big stuff, but even the small stuff. So you know, for a while you'd see that mousetrap every year, and the mousetrap is great.
+[00:12:31] Will: We went. We were there. We got a lot of we got a lot of people said they missed you. We saw some pretty amazing. Like one of the things that I love about Maker Faire is that they've they've done a really good job in the last few years of kind of mixing up, especially the big stuff, but even the small stuff. So for a while you'd see that mousetrap every year, and the mousetrap is great.
 
 [00:12:31] Adam: Yeah,
 
@@ -230,37 +230,37 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:12:31] Adam: Yeah.
 
-[00:12:31] Will: This year they had a whole mess of all new big exhibitions. They had the MegaBots guys, which are those they they want to make a robot fighting league of like 16-20 foot high mech warrior style robots.
+[00:12:31] Will: This year they had a whole mess of all new big exhibitions. They had the MegaBots guys, which are those they want to make a robot fighting league of like 16-20 foot high mech warrior style robots.
 
 [00:13:09] Adam: May I?
 
-[00:13:10] Will: I I didn't bring it.
+[00:13:10] Will: I didn't bring it.
 
 [00:13:10] Adam: Oh, okay. I'm going to drink this water now.
 
-[00:13:12] Will: Go ahead. Um, they they let's see what else we saw. We saw um robot like a Burning Man style robot destruction league type thing. Um, I can't remember what that was called. You you talked to those guys, Norman?
+[00:13:12] Will: Go ahead. They let's see what else we saw. We saw robot like a Burning Man style robot destruction league type thing. I can't remember what that was called. You talked to those guys, Norman?
 
 [00:13:24] Norm: Yeah, Justin Gray. Justin Gray works there. There was also a lot of good presence. Google was there to show off a lot of their Google X projects, actually.
 
 [00:13:24] Will: Oh, really?
 
-[00:13:24] Norm: Um, Project Loon, which is their hot air balloon project to spread Wi-Fi. They actually got to see that that payload, how they pushed out that Wi-Fi. You know,
+[00:13:24] Norm: Project Loon, which is their hot air balloon project to spread Wi-Fi. They actually got to see that that payload, how they pushed out that Wi-Fi. You know,
 
 [00:13:44] Adam: were they supplying Wi-Fi for?
 
 [00:13:45] Norm: No, they weren’t.
 
-[00:13:46] Will: But they did bring 130,000 pairs of safety glasses, which I approve of. And and literally, literally, they were they had them in garbage bags, and they were like, take as many as you want. We brought enough for everybody.
+[00:13:46] Will: But they did bring 130,000 pairs of safety glasses, which I approve of. And literally, literally, they were they had them in garbage bags, and they were like, take as many as you want. We brought enough for everybody.
 
-[00:13:57] Norm: So everyone to make a fair, you know.
+[00:13:57] Norm: So everyone to make a fair.
 
 [00:13:59] Adam: That's beautiful.
 
 [00:13:59] Will: You talked to a school teacher who came back with a garbage bag and loaded him up for his kids at school because they couldn't afford them. Wow, it was really nice. I talked to Chris DiBona at fair length about what they were doing there.
 
-[00:14:11] Adam: Yeah, and and he’s been here to the cave.
+[00:14:11] Adam: Yeah, and he’s been here to the cave.
 
-[00:14:12] Will: Yeah, I he said he said he said he'd been over. He he's a super interesting guy. I met him at ORD Camp, I guess, earlier this year.
+[00:14:12] Will: Yeah, I he said he'd been over. He he's a super interesting guy. I met him at ORD Camp, I guess, earlier this year.
 
 [00:14:21] Adam: He gave me the fire sword.
 
@@ -284,7 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:14:41] Adam: Oh man!
 
-[00:14:42] Will: So their whole thing is paintball. Paintballs the size of a of a bigger than a softball, smaller than a cantaloupe that they're making themselves,
+[00:14:42] Will: So their whole thing is paintball. Paintballs the size of a bigger than a softball, smaller than a cantaloupe that they're making themselves,
 
 [00:14:50] Adam: and you can't be anywhere near it. Well, you have to be protected. Like that'll hurt you.
 
@@ -304,7 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:15:09] Adam: Right.
 
-[00:15:09] Will: blast paint inside the cockpit. So when you get out at the end of this thing, you're you're going to be splattered. Yeah,
+[00:15:09] Will: blast paint inside the cockpit. So when you get out at the end of this thing, you're going to be splattered. Yeah,
 
 [00:15:24] Adam: that's fantastic.
 
@@ -312,7 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:15:32] Adam: Bipedalism is is is a very difficult problem to solve.
 
-[00:15:35] Will: Well, I think they're I think they're going to do quads just because that's a little bit easier. But um, but yeah, so it was it was pretty good.
+[00:15:35] Will: Well, I think they're going to do quads just because that's a little bit easier. But yeah, so it was pretty good.
 
 [00:15:41] Adam: There was a huge. I saw pictures. There was a huge Strandbeest.
 
@@ -348,9 +348,9 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:16:33] Adam: Okay.
 
-[00:16:33] Will: A tooth belt. Yeah. So no, so no grease on your pants. Like nothing to get hooked.
+[00:16:33] Will: A tooth belt. Yeah. So no grease on your pants. Like nothing to get hooked.
 
-[00:16:37] Adam: You know, I bought the very first bike with a belt, which is called the Ellsworth Ride. It was given to me as a birthday present, and then my current bike, the Trek District, actually has a belt. And the first bike I had, belt was terrible. I actually replace. I bought the chain kit and replaced it, but the the the Trek District. belt, fantastic.
+[00:16:37] Adam: I bought the very first bike with a belt, which is called the Ellsworth Ride. It was given to me as a birthday present, and then my current bike, the Trek District, actually has a belt. And the first bike I had, belt was terrible. I actually replace. I bought the chain kit and replaced it, but the Trek District. belt, fantastic.
 
 [00:16:55] Will: Really? Yeah. And do do how do you handle gearing with that? Is there just internal gears in the hub?
 
@@ -382,7 +382,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:17:41] Adam: So he sells that system. He's offered it to me. I haven't. I haven't decided to invest in it for my R2.
 
-[00:17:45] Will: But it's it's beautiful
+[00:17:45] Will: But it's beautiful
 
 [00:17:47] Norm: because you have so many like a six seven channel transmitter. Not enough when you want to do. All the panels have different systems,
 
@@ -402,9 +402,9 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:18:16] Will: It's tough to say. We were there on Saturday, and it was cloudy. It was kind of crappy. Like it was great weather for us shooting because it means we didn't get super hot and sweaty, and but it wasn't a pretty day. And they had parking like they shut off, like they they've closed all the parking lots to the public now. So in order to get there, you either take public transit, park in the mall, or take park in one of the shuttle lots. And they had shuttles that ran right very regularly,
 
-[00:18:38] Adam: but still, that's a fairly heavy. I mean it's it's a huge strain on San Mateo.
+[00:18:38] Adam: but still, that's a fairly heavy. I mean it's a huge strain on San Mateo.
 
-[00:18:42] Will: Yeah, yeah, yeah. I mean it's it's way outgrown San Mateo.
+[00:18:42] Will: Yeah, yeah, yeah. I mean it's way outgrown San Mateo.
 
 [00:18:45] Adam: People, yes,
 
@@ -418,13 +418,13 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:18:55] Adam: Yeah.
 
-[00:18:55] Will: The the parking lot was open to makers and exhibitors and sponsors, and then they also ate some of the space from the parking lot and put more stuff there, which I thought was good.
+[00:18:55] Will: The parking lot was open to makers and exhibitors and sponsors, and then they also ate some of the space from the parking lot and put more stuff there, which I thought was good.
 
 [00:18:55] Adam: Great. I will tell you that having having appeared at almost all the Maker Faires so far, I think all of them.
 
 [00:19:14] Will: Yeah.
 
-[00:19:14] Adam: I have been privy to intimate views of the of the back running of it, and the the the crew that runs it under the under the the the careful tutelage of Sherry Huss is an amazing amazing production crew. The fact that they put it on, and the fact that every year that I see them, they are not tearing their heads out. Because I mean, given the scale and size, I mean,
+[00:19:14] Adam: I have been privy to intimate views of the back running of it, and the crew that runs it under the careful tutelage of Sherry Huss is an amazing amazing production crew. The fact that they put it on, and the fact that every year that I see them, they are not tearing their heads out. Because I mean, given the scale and size, I mean,
 
 [00:19:40] Will: well, and it's a small company.
 
@@ -432,9 +432,9 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:19:40] Will: Yeah.
 
-[00:19:40] Adam: It's amazing. They they really run an incredibly tight ship.
+[00:19:40] Adam: It's amazing. They really run an incredibly tight ship.
 
-[00:19:46] Will: And it's a small team. I mean, yeah. Make make it's basically they it's all hands at Maker Media when they when they do this. The people from the magazine, from the website, from the labs, all the stuff they're all there helping. They are doing a really good job with video now. So they like we go and pick. I think we shot 10 videos there this year. They had.
+[00:19:46] Will: And it's a small team. I mean, yeah. Make make it's basically they it's all hands at Maker Media when they do this. The people from the magazine, from the website, from the labs, all the stuff they're all there helping. They are doing a really good job with video now. So they like we go and pick. I think we shot 10 videos there this year. They had.
 
 [00:20:06] Adam: Sorry about that. Sound is my compressor in the background.
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:20:15] Will: Like a lot of all the talks. A lot of the they interviewed a bunch of folks who built stuff, and it's all on YouTube and on their site now.
 
-[00:20:21] Adam: Do you have a Do you have a specific high point?
+[00:20:21] Adam: Do you have a specific high point?
 
 [00:20:24] Will: I think
 
@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:20:47] Will: You should. It's pretty neat.
 
-[00:20:49] Adam: It's it's it's it's just you know it's ready to go. It they you know, yeah. I think I may just do that.
+[00:20:49] Adam: It's just you know it's ready to go. It they yeah. I think I may just do that.
 
 [00:20:55] Will: So I think for me,
 
@@ -496,7 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:21:09] Adam: Yeah. Well, no, because he's got new motors, but we've never revealed the inside of him. And I built this guy from scratch over five years.
 
-[00:21:15] Will: Yes, I think my favorite thing was probably the Megabot. Like, as a as a in my early 20s, sitting in Tennessee playing Mech Warrior two, I never thought in my life I get to climb up into a 20 foot tall killer robot
+[00:21:15] Will: Yes, I think my favorite thing was probably the Megabot. Like, as a in my early 20s, sitting in Tennessee playing Mech Warrior two, I never thought in my life I get to climb up into a 20 foot tall killer robot
 
 [00:21:30] Norm: and use the same joystick
 
@@ -512,13 +512,13 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:21:45] Adam: I have one of those. They're beautiful.
 
-[00:21:46] Will: Yeah, it's a it's a this milled aluminum. It's really really pretty. Um, the the Saitek X52
+[00:21:46] Will: Yeah, it's a this milled aluminum. It's really really pretty. The Saitek X52
 
 [00:21:46] Adam: yeah
 
 [00:21:46] Will: is the science fiction ship joystick of choice for Hollywood prop designers. They take it, they paint it, they put new lights on it and stuff like that. But it's the same, same basic cast hand and throttle.
 
-[00:22:03] Adam: Have you have you guys noticed over the years? You've been going to Maker Faire for six or seven years.
+[00:22:03] Adam: Have you guys noticed over the years? You've been going to Maker Faire for six or seven years.
 
 [00:22:07] Will: Yeah, seven years, probably from here at this point.
 
@@ -526,9 +526,9 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:22:09] Will: Yeah.
 
-[00:22:09] Adam: The attendance? What what kind of stuff? I mean, aside from the fact that it's getting bigger every year,
+[00:22:09] Adam: The attendance? What kind of stuff? I mean, aside from the fact that it's getting bigger every year,
 
-[00:22:20] Will: the the quality, the overall quality of the work, not necessarily shown by people like Shawn Thorsson who makes the Warhammer armor and has been consistently awesome all the way through.
+[00:22:20] Will: the quality, the overall quality of the work, not necessarily shown by people like Shawn Thorsson who makes the Warhammer armor and has been consistently awesome all the way through.
 
 [00:22:20] Adam: Yeah,
 
@@ -536,7 +536,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:22:20] Adam: It's a problem. I don't actually get to tour Maker Faire,
 
-[00:22:38] Will: but it's we should put you in a stormtrooper costume so you can walk around one year. Um, they they have they have amazing. Like the quality in that room has gone up so much in the last 10 years, both because stuff's cheaper, like batteries, radios, motors, all that stuff is much less expensive. The internet has made a lot of stuff from China more readily available, and
+[00:22:38] Will: but it's we should put you in a stormtrooper costume so you can walk around one year. They have amazing. Like the quality in that room has gone up so much in the last 10 years, both because stuff's cheaper, like batteries, radios, motors, all that stuff is much less expensive. The internet has made a lot of stuff from China more readily available, and
 
 [00:23:01] Adam: there are people putting up the front money to have stuff produced cheaply and in large numbers so that people can use.
 
@@ -550,11 +550,11 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:23:08] Will: on a large scale , which is awesome.
 
-[00:23:22] Norm: And you see trends kind of rise and then find their place, like microcontrollers and Arduino, big presence, big presence, big presence, and now sits among the other microcontrollers.
+[00:23:22] Norm: And you see trends kind of rise and then find their place, like microcontrollers and Arduino, big presence, and now sits among the other microcontrollers.
 
 [00:23:22] Will: Right, right.
 
-[00:23:22] Norm: 3D printing, big presence, big presence, big presence, and now sits among the other CNC home desktop CNC projects. So it's not one thing. We see it's cool to see something get really popular. A technology, and then also then find its place.
+[00:23:22] Norm: 3D printing, big presence, and now sits among the other CNC home desktop CNC projects. So it's not one thing. We see it's cool to see something get really popular. A technology, and then also then find its place.
 
 [00:23:46] Adam: Does Locksport ever have a?
 
@@ -580,11 +580,11 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:24:12] Adam: Isn’t that beautiful?
 
-[00:24:12] Will: That's amazing. Google brought one of their hard drive destroying robots. So when they retire hard drives from their from their cloud,
+[00:24:12] Will: That's amazing. Google brought one of their hard drive destroying robots. So when they retire hard drives from their cloud,
 
 [00:24:12] Adam: yeah,
 
-[00:24:12] Will: basically it goes through this process where they put it in, they they run the firmware wiping on it, and then they put it in a shredder and a robot does all the drive moving. So they somebody at Google had programmed one of the robots to play the knife game from Aliens
+[00:24:12] Will: basically it goes through this process where they put it in, they run the firmware wiping on it, and then they put it in a shredder and a robot does all the drive moving. So they somebody at Google had programmed one of the robots to play the knife game from Aliens
 
 [00:24:32] Norm: Bishop one
 
@@ -592,7 +592,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:24:34] Adam: Oh, that's great!
 
-[00:24:35] Will: And they had that there in a in a giant you know plexi box,
+[00:24:35] Will: And they had that there in a giant you know plexi box,
 
 [00:24:35] Adam: yes,
 
@@ -600,7 +600,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:24:41] Adam: Oh, that's wonderful.
 
-[00:24:42] Will: It's it's I mean the thing that I love about it is. So we've been to both New York Maker Faire and San Francisco Maker Faire. And New York Maker Faire has a kind of it's kind of it has a little bit of a different flavor, just because it's all around all the New York Northeast engineering colleges, right? So like, there's a lot of robotic stuff. There's a lot more 3D printing stuff typically. A lot more kind of general CNC stuff, small CNC mills and stuff like that. And then this, the San Francisco one, a lot of the burners come in, a lot of the Burning Man folks come in, and they bring their their big art projects. And it's a second venue to show their their work. So they both have a completely different tone. Like I like I like both of them a lot.
+[00:24:42] Will: It's I mean the thing that I love about it is. So we've been to both New York Maker Faire and San Francisco Maker Faire. And New York Maker Faire has a kind of it's kind of it has a little bit of a different flavor, just because it's all around all the New York Northeast engineering colleges, right? So like, there's a lot of robotic stuff. There's a lot more 3D printing stuff typically. A lot more kind of general CNC stuff, small CNC mills and stuff like that. And then this, the San Francisco one, a lot of the burners come in, a lot of the Burning Man folks come in, and they bring their big art projects. And it's a second venue to show their work. So they both have a completely different tone. Like I like both of them a lot.
 
 [00:24:42] Adam: Yeah.
 
@@ -616,9 +616,9 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:25:53] Adam: I think so. That sounds. I'm so. I really wish I could have seen the R2 stuff. And holy cow, the mech warrior.
 
-[00:25:59] Will: That sounds. That thing. That thing. Like it was. It was. And just to be clear, it's not like an exosuit. It is a giant plodding vertical tank of the kind of the kind that absolutely is a terrible idea on a real battlefield, but is awesome for science fiction.
+[00:25:59] Will: That sounds. That thing. That thing. Like it was. It was. And just to be clear, it's not like an exosuit. It is a giant plodding vertical tank of the kind that absolutely is a terrible idea on a real battlefield, but is awesome for science fiction.
 
-[00:26:14] Adam: This is um. So what you're reminding me of is just as a closer, this is something that that happened. I I've said this before that when I and I may have told this story in the podcast, but when I finish projects, I put them often on my bedside table.
+[00:26:14] Adam: This is. So what you're reminding me of is just as a closer, this is something that that happened. I I've said this before that when I and I may have told this story in the podcast, but when I finish projects, I put them often on my bedside table.
 
 [00:26:14] Will: Yeah.
 
@@ -648,7 +648,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:27:22] Adam: Norm agrees. Norm is nodding for those just listening.
 
-[00:27:25] Will: Norm, Norm's poster file, the deep, the deep file at home is is filled with lost youth.
+[00:27:25] Will: Norm, Norm's poster file, the deep file at home is is filled with lost youth.
 
 [00:27:31] Adam: Now I noticed that that people have been talking about almost a tested podcast drinking game in which Will and I interrupt Norm and say, " Sorry, Norm, I'm trying to interrupt Norm less.
 
@@ -672,11 +672,11 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:27:58] Will: So you drew. You have these toolboxes.
 
-[00:28:01] Adam: I have these toolboxes that I used professionally when I worked at Industrial Light and Magic. They were, they were the end result of seven years of working as a model maker, year round, and honing and refining the tools that I needed to be able to work as fast and efficiently as humanly possible, so that I could be completely autonomous when I sat down at a table and I could have access to these tools as quickly as possible. These toolboxes are the zenith of my engineering of how to be the fastest possible model maker. I drew an elaborate drawing of both of my toolboxes, A and B, and included a list of every single tool and part and piece that was in all of them. I think at one point I tallied it up, and it was in the it was over $10,000 worth of tools in terms of The retail cost of each one new,
+[00:28:01] Adam: I have these toolboxes that I used professionally when I worked at Industrial Light and Magic. They were the end result of seven years of working as a model maker, year round, and honing and refining the tools that I needed to be able to work as fast and efficiently as humanly possible, so that I could be completely autonomous when I sat down at a table and I could have access to these tools as quickly as possible. These toolboxes are the zenith of my engineering of how to be the fastest possible model maker. I drew an elaborate drawing of both of my toolboxes, A and B, and included a list of every single tool and part and piece that was in all of them. I think at one point I tallied it up, and it was in the it was over $10,000 worth of tools in terms of The retail cost of each one new,
 
-[00:28:54] Will: and and those those toolboxes are so heavy. You put them on screw jacks.
+[00:28:54] Will: and those those toolboxes are so heavy. You put them on screw jacks.
 
-[00:28:57] Adam: I put them on on on dollies, and they weren't on screw jacks. They were on scissor lifts that you could lift up, and then a leaf lock into place.
+[00:28:57] Adam: I put them on dollies, and they weren't on screw jacks. They were on scissor lifts that you could lift up, and then a leaf lock into place.
 
 [00:28:57] Will: Got it.
 

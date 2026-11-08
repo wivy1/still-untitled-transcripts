@@ -4,7 +4,7 @@
 **Duration:** 34m 36s  
 Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
-[00:00:00] Adam: You uh, you can bring up my talisman.
+[00:00:00] Adam: You can bring up my talisman.
 
 [00:00:01] Will: Yeah,
 
@@ -20,7 +20,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:00:15] Adam: That was a wholesome beginning.
 
-[00:00:16] Will: You, you, we talked about dream props ages ago.
+[00:00:16] Will: You, we talked about dream props ages ago.
 
 [00:00:16] Adam: Yes.
 
@@ -28,23 +28,23 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:00:16] Adam: you're holding,
 
-[00:00:16] Will: you're holding, you're holding a thing that I hadn't really appreciated how much I covet, and at what a high level.
+[00:00:16] Will: you're holding a thing that I hadn't really appreciated how much I covet, and at what a high level.
 
-[00:00:16] Adam: Here, um, that is that is my magnesium aluminum alloy bladed Kill Bill sword made by my friend Jason Blakey.
+[00:00:16] Adam: Here that is my magnesium aluminum alloy bladed Kill Bill sword made by my friend Jason Blakey.
 
 [00:00:41] Will: It's dull.
 
 [00:00:42] Adam: Yeah, it's totally dull. In fact, that is we've talked about this, but that is precisely what they were using in the movie because that's the same blade from the same iaito maker. Who this is? This is a blade maker who makes swords specifically for learning the art of drawing and handling a samurai sword.
 
-[00:01:00] Will: I love. The kind of the the wavy nature of the edge,
+[00:01:00] Will: I love. The kind of the wavy nature of the edge,
 
 [00:01:04] Adam: the hamon,
 
-[00:01:05] Will: is that is that hamon?
+[00:01:05] Will: is that hamon?
 
-[00:01:05] Adam: The hamon, Yes. So that is one of the final. That is the the final process in the hardening and tempering of a samurai blade is the placing of clay along the edge to differentially heat it to give it the extra hard edge that keeps the that keeps sharp while at the same time the back remains flexible.
+[00:01:05] Adam: The hamon, Yes. So that is one of the final. That is the final process in the hardening and tempering of a samurai blade is the placing of clay along the edge to differentially heat it to give it the extra hard edge that keeps the that keeps sharp while at the same time the back remains flexible.
 
-[00:01:27] Norm: Now, because it's a different metal, is a process different? Is it is it illusionary?
+[00:01:27] Norm: Now, because it's a different metal, is a process different? Is it illusionary?
 
 [00:01:31] Adam: Oh, this is a completely. This is sandblasted.
 
@@ -52,13 +52,13 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:01:34] Will: Okay.
 
-[00:01:34] Adam: However, every every type of hamon, every type of wavy hamon, there there are many many different kinds, and I'm not versed enough to know what they are, but they all have names.
+[00:01:34] Adam: However, every every type of hamon, every type of wavy hamon, there are many many different kinds, and I'm not versed enough to know what they are, but they all have names.
 
 [00:01:34] Will: Oh, really?
 
 [00:01:34] Adam: Yeah.
 
-[00:01:34] Will: Like the the shape is distinct.
+[00:01:34] Will: Like the shape is distinct.
 
 [00:01:47] Adam: Distinctive. It's more like the attitude of the shape is distinct from like ocean waves that are ripply to wide and.
 
@@ -72,9 +72,9 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:01:55] Will: that hamon, or is it different? That it ends up that way?
 
-[00:01:55] Adam: No, no, no. Different makers seek to put their stamp on it to different. Kinds of hamons and different kind of treatments. Yeah, I mean, every last bit of the of the grain and finish and polish of these things has a name and a school of thought and a philosophy.
+[00:01:55] Adam: No, no, no. Different makers seek to put their stamp on it to different. Kinds of hamons and different kind of treatments. Yeah, I mean, every last bit of the grain and finish and polish of these things has a name and a school of thought and a philosophy.
 
-[00:02:01] Will: Of course, of course.
+[00:02:01] Will: Of course.
 
 [00:02:18] Norm: Now, if only you could walk around carrying that, like in the Kill Bill universe, where in the airport.
 
@@ -88,7 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:02:34] Norm: In that universe, right at the airport, people were just walking around like that's just how people do.
 
-[00:02:38] Adam: And you know, they never fully explain how it's slung on her back.
+[00:02:38] Adam: And they never fully explain how it's slung on her back.
 
 [00:02:43] Will: It's there is no like she doesn't have a shoulder strap like usually you have like a thing across
 
@@ -122,7 +122,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:03:35] Will: That's awesome.
 
-[00:03:35] Adam: Right. And so a couple years ago, he had a special run, as he is wont to do from time to time, of Kill Bill, but not any Kill Bill. When when when he finished the second Kill Bill film, he submitted the pair of the films to the Cannes Film Festival as a single cut of a like four-hour movie.
+[00:03:35] Adam: Right. And so a couple years ago, he had a special run, as he is wont to do from time to time, of Kill Bill, but not any Kill Bill. When he finished the second Kill Bill film, he submitted the pair of the films to the Cannes Film Festival as a single cut of a like four-hour movie.
 
 [00:03:57] Norm: It was originally supposed to be one.
 
@@ -130,7 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:04:00] Adam: Right. So it was a single like four plus hour movie. With an intermission,
 
-[00:04:05] Will: and but and and some acts, some bits cut out from both movies, right?
+[00:04:05] Will: and but and some acts, some bits cut out from both movies, right?
 
 [00:04:09] Adam: Yes, but mostly just a little bit of transition bits in the middle. For the most part, both movies are intact, and there's a couple of extra scenes.
 
@@ -140,7 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:04:09] Will: Michael Jai White is in there, and yeah,
 
-[00:04:24] Adam: I mean, it. You know, the middle still has that part with right. You still you you miss the part where she's driving and talking about
+[00:04:24] Adam: I mean, it. You know, the middle still has that part with right. You still you miss the part where she's driving and talking about
 
 [00:04:32] Will: the voiceover rampage. Yeah,
 
@@ -148,7 +148,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:04:32] Will: The thing from the trailer is how I always think of this. Yeah,
 
-[00:04:38] Adam: but I'll I'll tell you that the the seeing it all at once is phenomenal. Like it it it the movie the two movies breathe as one in a way that you don't really get when you watch them separately.
+[00:04:38] Adam: but I'll I'll tell you that the seeing it all at once is phenomenal. Like it the movie the two movies breathe as one in a way that you don't really get when you watch them separately.
 
 [00:04:51] Will: That break at the end after, by the way, Kill Bill spoilers.
 
@@ -160,7 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:05:01] Norm: 299 of them die.
 
-[00:05:05] Will: Luke is his son. No, at the at the end of the first movie, when he kills [unclear: over], when she kills O-Ren Ishii,
+[00:05:05] Will: Luke is his son. No, at the end of the first movie, when he kills [unclear: over] when she kills O-Ren Ishii,
 
 [00:05:05] Adam: Yeah.
 
@@ -168,7 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:05:15] Adam: puts Sophie in the trunk of her car.
 
-[00:05:16] Will: It's such a good, like, it's such a good cliffhanger ending. But it rolls so well into the first, the start of the next movie because the first, the next movie opens with the with the flashback, right?
+[00:05:16] Will: It's such a good it's such a good cliffhanger ending. But it rolls so well into the first, the start of the next movie because the first, the next movie opens with the flashback, right?
 
 [00:05:16] Adam: Right. Oh, that's the thing that doesn't exist. Bill is not on the phone saying, " Does she know that the baby is still alive?" That is not.
 
@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:05:51] Norm: This is something,
 
-[00:05:52] Will: but but she doesn't. She still, she never knows that she's chasing the daughter.
+[00:05:52] Will: but she doesn't. She still, she never knows that she's chasing the daughter.
 
 [00:05:52] Adam: No.
 
@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:06:28] Will: Yeah, yeah.
 
-[00:06:28] Adam: And he did the he did the box art for the Quentin Tarantino collection.
+[00:06:28] Adam: And he did the box art for the Quentin Tarantino collection.
 
 [00:06:32] Norm: Twenty Double X.
 
@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:06:52] Norm: I am glad you at least have it framed.
 
-[00:06:56] Adam: You know, actually, I'll tell you, Julia and I are both such movie lovers. We have, we have. We do have a pretty nice collection of real movie posters. We got a Blade Runner from the first run of the Italian version, which weirdly is the the poster that I first learned about Blade Runner from when my friend David Bartolomi had this poster in his dorm room in New York in 1985. And Julia didn't know that that poster meant Blade Runner to me when she went and bought it. It was just her favorite.
+[00:06:56] Adam: Actually, I'll tell you, Julia and I are both such movie lovers. We have. We do have a pretty nice collection of real movie posters. We got a Blade Runner from the first run of the Italian version, which weirdly is the poster that I first learned about Blade Runner from when my friend David Bartolomi had this poster in his dorm room in New York in 1985. And Julia didn't know that that poster meant Blade Runner to me when she went and bought it. It was just her favorite.
 
 [00:07:24] Will: It was just luck.
 
@@ -236,13 +236,13 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:07:25] Adam: Oh, it's mind blowing.
 
-[00:07:25] Will: That is that is that is astounding. But and and movie posters like if you haven't looked at real movie posters and I hadn't until fairly recently.
+[00:07:25] Will: That is astounding. But and movie posters like if you haven't looked at real movie posters and I hadn't until fairly recently.
 
 [00:07:25] Adam: Yeah.
 
-[00:07:25] Will: I didn't realize that they were a double sided thing. You know, at some point, a lot of times.
+[00:07:25] Will: I didn't realize that they were a double sided thing. At some point, a lot of times.
 
-[00:07:39] Norm: when they're illuminated, when you put them on the the bus stops, it needs to be double sided so it doesn't wash out.
+[00:07:39] Norm: when they're illuminated, when you put them on the bus stops, it needs to be double sided so it doesn't wash out.
 
 [00:07:45] Will: Right. I mean, wash them out, but they're absolutely gorgeous in person a lot of times.
 
@@ -250,7 +250,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:07:45] Norm: and that's the bigger than when people buy posters. When you go to the local college art store, it's 24 by 36 is the reprint, but movie posters are bigger. They're 47. tall.
 
-[00:07:45] Adam: often, yeah. And if you buy the originals, sometimes they come that they've never been really unfolded. So it is, it is comes in a thing like this.
+[00:07:45] Adam: often, yeah. And if you buy the originals, sometimes they come that they've never been really unfolded. So it is comes in a thing like this.
 
 [00:08:22] Will: Wow, so they don't even roll them?
 
@@ -258,7 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:08:26] Will: Monsters, those monsters.
 
-[00:08:28] Adam: So I bought, I bought Julia her favorite movie poster, her favorite movie poster, Bande à part.
+[00:08:28] Adam: So I bought Julia her favorite movie poster, Bande à part.
 
 [00:08:28] Will: Okay.
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:09:06] Adam: I don’t know.
 
-[00:09:06] Norm: don't know. What? Um,
+[00:09:06] Norm: don't know. What?
 
 [00:09:06] Adam: freaky cops. It says freaky cops.
 
@@ -312,7 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:10:47] Will: like that. That as a whole, I love Pulp Fiction. I love Reservoir Dogs. I love Jackie. I love them all.
 
-[00:11:02] Adam: They're all so amazing. I. Jackie Brown might be the best to me, as the as the quiet. They all have so many different pieces of importance.
+[00:11:02] Adam: They're all so amazing. I. Jackie Brown might be the best to me, as the quiet. They all have so many different pieces of importance.
 
 [00:11:02] Will: Oh, of course, yeah.
 
@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:11:16] Adam: I mean, Pulp Fiction list. Pulp Fiction sits at the top of you know within the top 10 20th century films as far as I'm concerned.
 
-[00:11:25] Will: Absolutely, but but for me, Kill Bill, it's one of those. If I'm flipping through the channels and I see Kill Bills on, that's three hours gone.
+[00:11:25] Will: Absolutely, but for me, Kill Bill, it's one of those. If I'm flipping through the channels and I see Kill Bills on, that's three hours gone.
 
 [00:11:33] Adam: Yeah,
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:11:34] Will: Why one?
 
-[00:11:34] Adam: Because you you pause to keep on watching, and you never finish taking off your other sock.
+[00:11:34] Adam: Because you pause to keep on watching, and you never finish taking off your other sock.
 
 [00:11:34] Will: Oh yeah, that's exactly right.
 
@@ -350,11 +350,11 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:11:59] Will: Yeah, yeah.
 
-[00:11:59] Norm: But the the committee, the makeup of the committee is always very interesting because they're Academics, there are people representatives from every aspect. Everyone who might be invested in film, working filmmakers,
+[00:11:59] Norm: But the committee, the makeup of the committee is always very interesting because they're Academics, there are people representatives from every aspect. Everyone who might be invested in film, working filmmakers,
 
 [00:11:59] Will: right?
 
-[00:11:59] Norm: And I think that there should be nerd committee, like the national. There should be a a subset of the counterparts of that that committee for the National Film Archives. We're having the very same discussion that they're having,
+[00:11:59] Norm: And I think that there should be nerd committee, like the national. There should be a subset of the counterparts of that that committee for the National Film Archives. We're having the very same discussion that they're having,
 
 [00:12:29] Adam: National Nerd Archives, right? About what about import?
 
@@ -364,11 +364,11 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:12:29] Norm: exactly
 
-[00:12:29] Adam: other places in the culture. So the nerd the nerd thing would be you you need it would be like subreddits. You'd need hundreds and hundreds of them.
+[00:12:29] Adam: other places in the culture. So the nerd thing would be you need it would be like subreddits. You'd need hundreds and hundreds of them.
 
 [00:12:42] Norm: Mm-hmm.
 
-[00:12:42] Will: Well, but but each each subreddit filters up to one filters up one recommendation. Like you spend six months working on your subreddit's recommendation,
+[00:12:42] Will: Well, but each each subreddit filters up to one filters up one recommendation. Like you spend six months working on your subreddit's recommendation,
 
 [00:12:42] Adam: right?
 
@@ -422,7 +422,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:14:15] Norm: Oh my! What a revelation!
 
-[00:14:16] Adam: Yeah, wow, really amazing. And they filmed, they filmed a family, a divorced family,
+[00:14:16] Adam: Yeah, wow, really amazing. And they filmed a family, a divorced family,
 
 [00:14:16] Will: a family story,
 
@@ -462,7 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:15:19] Will: I haven't seen it yet. Yeah. Full disclosure, you guys have.
 
-[00:15:21] Adam: and you will. And I don't think there's anything we could say actually about its structure or its plot that would that would genuinely ruin the experience of watching it because it's not like it's not like any other film. He's done something really sort of really radical. One in the shooting over 12 years. That's incredible. And I remember hearing about an idea like this early on. Apparently, Kubrick was thinking about doing something similar for AI.
+[00:15:21] Adam: and you will. And I don't think there's anything we could say actually about its structure or its plot that would genuinely ruin the experience of watching it because it's not like any other film. He's done something really sort of really radical. One in the shooting over 12 years. That's incredible. And I remember hearing about an idea like this early on. Apparently, Kubrick was thinking about doing something similar for AI.
 
 [00:15:50] Norm: Oh.
 
@@ -486,9 +486,9 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:15:59] Norm: Oh, that would be.
 
-[00:15:59] Adam: But when you think about the actual. How you? Sorry, how do I put this? The remarkable aspect of shooting a film over 12 years is, in and of itself, so surprising that how do you grid a plot into that without actually lessening it? Right? If you put some sort of mystery on this, then it just feels like a gimmick. Well, and and Linklater rides this beautiful line of making an almost plotless movie that is really it feels in the end like you've just grown up with the family.
+[00:15:59] Adam: But when you think about the actual. How you? Sorry, how do I put this? The remarkable aspect of shooting a film over 12 years is, in and of itself, so surprising that how do you grid a plot into that without actually lessening it? Right? If you put some sort of mystery on this, then it just feels like a gimmick. Well, and Linklater rides this beautiful line of making an almost plotless movie that is really it feels in the end like you've just grown up with the family.
 
-[00:16:47] Will: Like the the the movies that are family dramas that I like the most almost always that's that that's that you walk away feeling like you're a part of the family and you just left the family reunion or whatever
+[00:16:47] Will: Like the movies that are family dramas that I like the most almost always that's that you walk away feeling like you're a part of the family and you just left the family reunion or whatever
 
 [00:16:47] Adam: exactly
 
@@ -498,13 +498,13 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:17:05] Will: No,
 
-[00:17:05] Adam: it's totally worth reading. Worth reading is the the shittiest encomium I could possibly give. It's an amazing book, but one of the things I love most about it, I've read it twice. Is that when you're done with it? There's so much that happens in the book you don't remember it all. It feels like a memory inside you, like the stories your family has.
+[00:17:05] Adam: it's totally worth reading. Worth reading is the shittiest encomium I could possibly give. It's an amazing book, but one of the things I love most about it, I've read it twice. Is that when you're done with it? There's so much that happens in the book you don't remember it all. It feels like a memory inside you, like the stories your family has.
 
 [00:17:29] Will: You internalize.
 
-[00:17:30] Adam: You internalize it, and Boyhood feels very similar. I think that Boyhood. I think you're right. As a film nerd, Boyhood will be a historical document as one of the great pieces of casting in film history, because the main kid he casts as as as the lead, who he finds at six years old, is a remarkable actor.
+[00:17:30] Adam: You internalize it, and Boyhood feels very similar. I think that Boyhood. I think you're right. As a film nerd, Boyhood will be a historical document as one of the great pieces of casting in film history, because the main kid he casts as the lead, who he finds at six years old, is a remarkable actor.
 
-[00:17:52] Will: That's amazing. Like if you look at people who like who've successfully cast at six years old to go across a long period of time, the only other time I can think of somebody doing that successfully was like Harry Potter. You look at you look at Chris Columbus
+[00:17:52] Will: That's amazing. Like if you look at people who like who've successfully cast at six years old to go across a long period of time, the only other time I can think of somebody doing that successfully was like Harry Potter. You look at Chris Columbus
 
 [00:17:52] Adam: yeah that was for all three of them that was incredible casting.
 
@@ -512,7 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:17:52] Norm: Yeah.
 
-[00:17:52] Will: but but yeah but this is a much more challenging thing I think than that because this kid essentially is carrying the movie right
+[00:17:52] Will: but yeah but this is a much more challenging thing I think than that because this kid essentially is carrying the movie right
 
 [00:18:20] Norm: the family carries the movie. There have been other like documentaries, for example, have tracked.
 
@@ -526,7 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:18:55] Will: What What's the basic story? Like, is it? It's a family that starts out happy with a six year old kid to get divorced somewhere along the way.
 
-[00:18:55] Adam: No, no, no. Actually, you start out with a divorced family. Patricia is a single mom. She has two kids. They have to move early on. They struggle financially throughout the 12 years. Her estranged ex husband is played by Ethan Hawke, who is, fearless. I I I have always had this difficult relationship with Ethan Hawke because I just there's sometimes I love him, sometimes I hate him. Frankly, I now I'm a full Ethan Hawke convert. He's fearless.
+[00:18:55] Adam: No, no, no. Actually, you start out with a divorced family. Patricia is a single mom. She has two kids. They have to move early on. They struggle financially throughout the 12 years. Her estranged ex husband is played by Ethan Hawke, who is, fearless. I have always had this difficult relationship with Ethan Hawke because I just there's sometimes I love him, sometimes I hate him. Frankly, I now I'm a full Ethan Hawke convert. He's fearless.
 
 [00:19:30] Will: The last the sunset movie, sunset sunrise. That those movies are wonderful.
 
@@ -534,7 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:19:36] Norm: All same director and the same ambitious filmmaking coming every 10 years.
 
-[00:19:40] Adam: Absolutely, and those films were written with Ethan Hawke and Julie Delpy. They wrote them all together. And and actually, interestingly enough, although those before sunrise, before sunset, and before midnight films, all feel very verite. In fact, all that text was written by them and then held to. Really, Linklater said it's important to me to hold to the text when I'm shooting, not to get all improvisy because I have a way I want the scene to go. So he is a really masterful filmmaker at guiding scenes and plots, and the way this film meanders feels so natural. It's three plus hours long and it goes like that.
+[00:19:40] Adam: Absolutely, and those films were written with Ethan Hawke and Julie Delpy. They wrote them all together. And actually, interestingly enough, although those before sunrise, before sunset, and before midnight films, all feel very verite. In fact, all that text was written by them and then held to. Really, Linklater said it's important to me to hold to the text when I'm shooting, not to get all improvisy because I have a way I want the scene to go. So he is a really masterful filmmaker at guiding scenes and plots, and the way this film meanders feels so natural. It's three plus hours long and it goes like that.
 
 [00:20:19] Will: That he's good at like he's good at that because like you look at Dazed and Confused, which is one of his early films, right?
 
@@ -548,9 +548,9 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:20:27] Adam: Yeah.
 
-[00:20:27] Will: You love them, you hate them, you want things to happen to them, and you, you, you. It's a complete. It is literally like it couldn't be more perfect a movie.
+[00:20:27] Will: You love them, you hate them, you want things to happen to them, and you. It's a complete. It is literally like it couldn't be more perfect a movie.
 
-[00:20:46] Adam: Um, I I will say there are a couple of points at which he puts a plot into the film, like the gardener who becomes the manager of the restaurant shows up a few years later. This is a bit that, like,
+[00:20:46] Adam: I will say there are a couple of points at which he puts a plot into the film, like the gardener who becomes the manager of the restaurant shows up a few years later. This is a bit that, like,
 
 [00:20:57] Norm: you feel emotional.
 
@@ -560,13 +560,13 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:21:03] Adam: Right.
 
-[00:21:03] Norm: The whole film could have been written like a like a traditionally and shot traditionally. That story could have been told, and it could have been cast with multiple parts for the kid,
+[00:21:03] Norm: The whole film could have been written like a traditionally and shot traditionally. That story could have been told, and it could have been cast with multiple parts for the kid,
 
 [00:21:03] Adam: right,
 
 [00:21:03] Norm: and then with makeup for the family. But this meta awareness of as you watch it, you realize that these are actors that have done things with their lives, and then also come back and to have the role right into it and to embody those characters immediately. Again,
 
-[00:21:32] Adam: well, I mean, and Patricia Arquette said that was the easy part. She said they they understood these characters so deeply, just getting right into them. Plus, watching their bodies and faces change over a you know over a decade, Ethan Hawke does so well at playing cool dad at the beginning and sort of not cool dad anymore at the end.
+[00:21:32] Adam: well, I mean, and Patricia Arquette said that was the easy part. She said they understood these characters so deeply, just getting right into them. Plus, watching their bodies and faces change over a you know over a decade, Ethan Hawke does so well at playing cool dad at the beginning and sort of not cool dad anymore at the end.
 
 [00:21:32] Will: Like Dirtbag being a dad.
 
@@ -612,7 +612,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:22:45] Adam: It's totally like wow. Like boy,
 
-[00:23:04] Norm: and and as someone who's the father of like 15 year olds,
+[00:23:04] Norm: and as someone who's the father of like 15 year olds,
 
 [00:23:08] Adam: that's I found that very moving.
 
@@ -620,7 +620,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:23:10] Adam: Yeah.
 
-[00:23:10] Norm: And and change.
+[00:23:10] Norm: And change.
 
 [00:23:10] Adam: Yeah.
 
@@ -638,7 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:23:50] Will: She’s always good.
 
-[00:23:51] Adam: She's always good and has always been good, and she's really beautiful in this film. As I mean, showing the genuine struggle without being either heroic or pathetic, and in a way that makes it much more an important thing. Of like, it's kind of the way you remember your mom. You don't remember has one thing or the other. You know, it's just that's who she is.
+[00:23:51] Adam: She's always good and has always been good, and she's really beautiful in this film. As I mean, showing the genuine struggle without being either heroic or pathetic, and in a way that makes it much more an important thing. Of like, it's kind of the way you remember your mom. You don't remember has one thing or the other. It's just that's who she is.
 
 [00:24:14] Norm: And the kid's relationship with the mom. I mean, the dad because he only pops in occasionally. With the mom, she carries them through the movie, and it's all her struggle. She hides a lot of it, as she would, as moms would, to their children. Ethan Hawke, I think, grows the most as a character.
 
@@ -646,15 +646,15 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:24:14] Norm: At the one of the final scenes, last scene with him in it, where they have their father to son moment at the rock club, it's so powerful, and
 
-[00:24:40] Adam: and and you know it's so powerful, and yet his character is still a little bit full of shit, and yet still saying all this great stuff. Like it's Hawke just plays it as it lays, right? I mean, his body's older; he's not trying to hide that it's older. In fact, he puts on this amazingly terrible haircut that's just fabulous for someone who I'm sure, if you met him, you'd be like, Jesus Christ, that dude is one handsome dude. I mean, he plays it down so nicely.
+[00:24:40] Adam: and you know it's so powerful, and yet his character is still a little bit full of shit, and yet still saying all this great stuff. Like it's Hawke just plays it as it lays, right? I mean, his body's older; he's not trying to hide that it's older. In fact, he puts on this amazingly terrible haircut that's just fabulous for someone who I'm sure, if you met him, you'd be like, Jesus Christ, that dude is one handsome dude. I mean, he plays it down so nicely.
 
 [00:25:07] Norm: There are two things in the filmmaking I thought that was really smart. One is the music; we had to call that out, and that was probably, I mean, the music was done at the end,
 
 [00:25:07] Adam: probably the last two weeks.
 
-[00:25:07] Norm: But it's it's a very zeitgeisty.
+[00:25:07] Norm: But it's a very zeitgeisty.
 
-[00:25:17] Adam: It is very. It's it's on the order of of as far as I'm concerned of uh what do what do you call it?
+[00:25:17] Adam: It is very. It's on the order of as far as I'm concerned of what do you call it?
 
 [00:25:24] Will: Is it like a diegetic soundtrack, or is it?
 
@@ -678,7 +678,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:25:37] Norm: wow.
 
-[00:25:37] Adam: It and they they they mix it up by changing the number of bars between, and that lets you know or feel that you're now in a chorus.
+[00:25:37] Adam: It and they mix it up by changing the number of bars between, and that lets you know or feel that you're now in a chorus.
 
 [00:25:37] Will: It gives you the release that you get from the chorus without need. Is it? Do they use music from the time period?
 
@@ -694,7 +694,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:26:08] Will: the noughties, you mean
 
-[00:26:08] Norm: of the of the aughts,
+[00:26:08] Norm: of the aughts,
 
 [00:26:08] Unknown speaker: '80s?
 
@@ -704,7 +704,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:26:18] Adam: Yeah.
 
-[00:26:18] Norm: But the zeitgeisty things that they filmed, you can just imagine. He was obviously very cognizant of. Era appropriate zeitgeist pop culture thing. So he he would always shoot shots of the kid playing video games because he knew video games. There was a he's playing a Game Boy in the beginning. He's playing a Wii. They go to a Harry Potter book signing.
+[00:26:18] Norm: But the zeitgeisty things that they filmed, you can just imagine. He was obviously very cognizant of. Era appropriate zeitgeist pop culture thing. So he would always shoot shots of the kid playing video games because he knew video games. There was a he's playing a Game Boy in the beginning. He's playing a Wii. They go to a Harry Potter book signing.
 
 [00:26:47] Adam: So they do bring in bits of popular culture from each of the years that they're in, and he knew that they would be doing that.
 
@@ -716,7 +716,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:27:07] Norm: right? And then it resonates now, and so to be able to capture all of that, I mean, it's amazing.
 
-[00:27:14] Will: I I also have to remember, imagine just from a creator from the standpoint of the people who are working on it, that it's almost like summer camp, right? Like every year you come back for two weeks, you see these people that you only see once a year, you get together, you work out what you're going to do, you go out and shoot it. And then you go away, and you come back, and you catch up again this next next year around the same time,
+[00:27:14] Will: I also have to remember, imagine just from a creator from the standpoint of the people who are working on it, that it's almost like summer camp, right? Like every year you come back for two weeks, you see these people that you only see once a year, you get together, you work out what you're going to do, you go out and shoot it. And then you go away, and you come back, and you catch up again this next next year around the same time,
 
 [00:27:14] Adam: right?
 
@@ -726,7 +726,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:27:39] Will: Yeah,
 
-[00:27:39] Adam: they used the same crew. They shot on 35 millimeter film, which for most of the crew was the only with for the last five years was the only time anyone was using 35 millimeter film. Um, it was all the same grips and everybody, and on the the the the last two scenes take place about eight hours apart in Texas, and so they they piled the entire crew into a bus and drove them to the last location for the last scene.
+[00:27:39] Adam: they used the same crew. They shot on 35 millimeter film, which for most of the crew was the only with for the last five years was the only time anyone was using 35 millimeter film. It was all the same grips and everybody, and on the last two scenes take place about eight hours apart in Texas, and so they piled the entire crew into a bus and drove them to the last location for the last scene.
 
 [00:28:14] Will: They shoot it contiguously. I mean, I know obviously they shot the years.
 
@@ -740,9 +740,9 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:28:59] Will: Yeah. It has a an unbelievable Rotten Tomatoes score. So
 
-[00:29:04] Adam: I'm I'm I'm pretty I'm not convinced that I think it's entirely possible he may come back in a couple years and shoot for another 10 years.
+[00:29:04] Adam: I'm pretty I'm not convinced that I think it's entirely possible he may come back in a couple years and shoot for another 10 years.
 
-[00:29:12] Norm: The one I will have. I we've been gushing about the movie. Um, it's not without some faults. Uh, I think arms folded.
+[00:29:12] Norm: The one I will have. I we've been gushing about the movie. It's not without some faults. I think arms folded.
 
 [00:29:12] Adam: What?
 
@@ -750,15 +750,15 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:29:12] Adam: Fuck you, Norm.
 
-[00:29:23] Norm: I I think that uh, it's a story he wanted to tell. Obviously, so the way it's told is beautiful.
+[00:29:23] Norm: I think that it's a story he wanted to tell. Obviously, so the way it's told is beautiful.
 
 [00:29:23] Adam: Yeah.
 
-[00:29:23] Norm: Um, the boy, he gets very the last third. He gets very mired in. Being existential as young men are—
+[00:29:23] Norm: The boy, he gets very the last third. He gets very mired in. Being existential as young men are—
 
 [00:29:23] Will: that’s the right thing to happen when you're 17.
 
-[00:29:23] Norm: It is. It is. I mean, the first breakup. It is. His dialogue becomes very, you know, like 12th grade. You know, philosophy.
+[00:29:23] Norm: It is. It is. I mean, the first breakup. It is. His dialogue becomes very like 12th grade. Philosophy.
 
 [00:29:51] Will: Was the boy involved with writing stuff too, or was
 
@@ -776,13 +776,13 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:30:20] Norm: So I think the angstiness of it overwhelmed his character.
 
-[00:30:27] Adam: See, I thought it. I understand what you're saying, and I can sort of I can sort of agree with it because it is a sort of the constant refrain of the last three years that you know the kid. Is you know he's like why are we always on a screen man and why can't we just live life and except that that's you can understand you can see that that kid's gonna shed some of that angry young man bullshit.
+[00:30:27] Adam: See, I thought it. I understand what you're saying, and I can sort of agree with it because it is a sort of the constant refrain of the last three years that you know the kid. Is you know he's like why are we always on a screen man and why can't we just live life and except that that's you can understand you can see that that kid's gonna shed some of that angry young man bullshit.
 
 [00:30:52] Norm: Well, that's I guess why we want to see more,
 
 [00:30:52] Adam: right?
 
-[00:30:52] Norm: Because the last shot is like him beginning of that, you know, and again a very optimistic film.
+[00:30:52] Norm: Because the last shot is like him beginning of that and again a very optimistic film.
 
 [00:30:59] Adam: I also thought the only performance that that didn't that didn't thrill me was his girlfriend.
 
@@ -796,15 +796,15 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:31:04] Adam: yeah, could you imagine?
 
-[00:31:04] Will: eight years into a 12 year thing, and be like, oh, you're you're fucking Oliver now, cousin of the Bradys.
+[00:31:04] Will: eight years into a 12 year thing, and be like, oh, you're fucking Oliver now, cousin of the Bradys.
 
 [00:31:17] Norm: The other thing, and I started by saying that his daughter is a revelation. Is watching it, I wanted the same movie from the female perspective because I think that would have been things
 
-[00:31:27] Adam: I did want more from Lorelei. I I she was phenomenal. You met her when she was uh she's. Older sister, younger sister.
+[00:31:27] Adam: I did want more from Lorelei. I she was phenomenal. You met her when she was she's. Older sister, younger sister.
 
 [00:31:35] Norm: Older sister.
 
-[00:31:36] Adam: Yes, older sister by like a year or two. So you meet her when she's seven or eight. She starts by doing a a Britney Spears dance in front of him that is hilariously like upsetting and amazing. And she's fearless. And Linklater said he didn't plan to cast her in the movie, but when she found out there was a role for a sister about her age, she was like, " Well, I'm playing that." And she, I mean, you know, clearly has good genes because she's very clearly very smart, very intelligent, and absolutely beautiful in a way that you find intelligence also a feature that is beautiful because she her portrayal of that character is something that is very compelling. And yeah, I wanted a little bit more of that.
+[00:31:36] Adam: Yes, older sister by like a year or two. So you meet her when she's seven or eight. She starts by doing a Britney Spears dance in front of him that is hilariously like upsetting and amazing. And she's fearless. And Linklater said he didn't plan to cast her in the movie, but when she found out there was a role for a sister about her age, she was like, " Well, I'm playing that." And she, I mean clearly has good genes because she's very clearly very smart, very intelligent, and absolutely beautiful in a way that you find intelligence also a feature that is beautiful because she her portrayal of that character is something that is very compelling. And yeah, I wanted a little bit more of that.
 
 [00:31:36] Norm: Yeah,
 
@@ -866,7 +866,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:34:07] Norm: National Nerd Registry. Yeah, the National Nerd Archive.
 
-[00:34:15] Will: You have you have five weeks to get that going before this podcast airs.
+[00:34:15] Will: You have five weeks to get that going before this podcast airs.
 
 [00:34:19] Adam: Oh yeah,
 

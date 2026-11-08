@@ -34,17 +34,17 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:01:05] Kishore: Yeah, I have a science festival that's a first grader now. That's how old it is.
 
-[00:01:09] Adam: Wow! And and and and to be clear, like this is multiple events over five or six weeks, or is it just a month?
+[00:01:09] Adam: Wow! And to be clear, like this is multiple events over five or six weeks, or is it just a month?
 
 [00:01:15] Kishore: It's usually about 50 events over 10 days. This year we're two weeks long
 
 [00:01:15] Adam: Fuck.
 
-[00:01:15] Kishore: because because basically, I I guess I decided I wanted more gray in my beard. No, it's an awesome experience. I mean, most of my the stuff that gets me up in the morning is this idea of bringing people together and having science be part of that, but not the not the sole reason they're getting together. The getting together part, yeah, is the most important part. And I guess we live in a time when everyone's siloed from each other, and it seems the antithesis of that is physically getting together in the same space.
+[00:01:15] Kishore: because basically, I I guess I decided I wanted more gray in my beard. No, it's an awesome experience. I mean, most of my the stuff that gets me up in the morning is this idea of bringing people together and having science be part of that, but not the sole reason they're getting together. The getting together part, yeah, is the most important part. And I guess we live in a time when everyone's siloed from each other, and it seems the antithesis of that is physically getting together in the same space.
 
 [00:01:50] Adam: Yeah,
 
-[00:01:50] Kishore: and having conversations and and having social experiences together. Sometimes there’s sausage shot.
+[00:01:50] Kishore: and having conversations and having social experiences together. Sometimes there’s sausage shot.
 
 [00:01:57] Norm: Yes. Yeah. So the tested live show was is part of the Bay Area Science Festival, and we've been part of it for four years now. As we predicted last week. Huge success!
 
@@ -52,11 +52,11 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:02:11] Kishore: Was that the prediction? That was not the internal prediction.
 
-[00:02:15] Adam: No, that was it. Was really, really fun. It was, it was great. It crackled along. I loved our band, the Nice Guy Trio.
+[00:02:15] Adam: No, that was it. Was really, really fun. It was great. It crackled along. I loved our band, the Nice Guy Trio.
 
 [00:02:15] Norm: Yes,
 
-[00:02:15] Adam: on accordion, trumpet, and stand-up bass. Which, like, you're hearing that, and if you didn't see it, you'd be like, " How does that work?" And the answer is really well,
+[00:02:15] Adam: on accordion, trumpet, and stand-up bass. Which you're hearing that, and if you didn't see it, you'd be like, " How does that work?" And the answer is really well,
 
 [00:02:30] Norm: It was so classy,
 
@@ -64,13 +64,13 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:02:32] Kishore: Norm got to choose them.
 
-[00:02:33] Norm: Yeah, no, Kishore, Kishore puts it on, and you know, it's we start the planning for this a little bit of how the sausage is made a couple months before,
+[00:02:33] Norm: Yeah, no, Kishore, Kishore puts it on, and it's we start the planning for this a little bit of how the sausage is made a couple months before,
 
 [00:02:33] Adam: at least,
 
-[00:02:33] Norm: at least, yeah. We talk about segments, we talk about ideas for team members, people like Sean and Jeremy, what projects they want to show, and also people that we want to bring in that are either going to be in town or we just want to reach out to and say you want to be part of our show, reach this audience because we'd love to spend more time with you. And and then musically, we had a band last year. You know, they played some covers of songs, but you sent me like. A list of like four or five bands, and once I click the YouTube link for Nice Guy Trio, I said that's the one.
+[00:02:33] Norm: at least, yeah. We talk about segments, we talk about ideas for team members, people like Sean and Jeremy, what projects they want to show, and also people that we want to bring in that are either going to be in town or we just want to reach out to and say you want to be part of our show, reach this audience because we'd love to spend more time with you. And then musically, we had a band last year. They played some covers of songs, but you sent me like. A list of like four or five bands, and once I click the YouTube link for Nice Guy Trio, I said that's the one.
 
-[00:03:13] Kishore: A little, a little classier, a little more eclectic.
+[00:03:13] Kishore: A little classier, a little more eclectic.
 
 [00:03:13] Norm: Yeah,
 
@@ -78,31 +78,31 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:03:13] Norm: Totally.
 
-[00:03:13] Kishore: What do you think, Adam? Coming in, like this show is a little bit different than what you're used to touring with with Brain Candy and some of the other shows because it's really a variety show.
+[00:03:13] Kishore: What do you think, Adam? Coming in, like this show is a little bit different than what you're used to touring with Brain Candy and some of the other shows because it's really a variety show.
 
-[00:03:27] Adam: Absolutely, and actually, there are ways in which it's very similar to Brain Candy, and it's like, you know, small vignettes that end with a bang or a whisper or a funny, a little bit of understanding. We had some. I mean.
+[00:03:27] Adam: Absolutely, and actually, there are ways in which it's very similar to Brain Candy, and it's like small vignettes that end with a bang or a whisper or a funny, a little bit of understanding. We had some. I mean.
 
 [00:03:42] Kishore: Less dancing though.
 
-[00:03:43] Adam: The variety was really, really lovely, and I liked how sort of rough hewn it was. That's one of the, to me, that's one of the ways you you bring the audience in. Like these aren't super polished TED talks, and that's on purpose. My talk wasn't super. My talk, actually, by the way, was a suggestion of norms.
+[00:03:43] Adam: The variety was really, really lovely, and I liked how sort of rough hewn it was. That's one of the, to me, that's one of the ways you bring the audience in. Like these aren't super polished TED talks, and that's on purpose. My talk wasn't super. My talk, actually, by the way, was a suggestion of norms.
 
 [00:03:43] Norm: Yeah,
 
-[00:03:43] Adam: I talked about the the the Kubrick. Director's chair that I was working on, and you know me well enough to actually go. You know, you should talk about that and talk about the blah blah blah blah blah blah. I'm like, fuck, you're totally right. All right, that's what we're gonna do.
+[00:03:43] Adam: I talked about the Kubrick. Director's chair that I was working on, and you know me well enough to actually go. You should talk about that and talk about the blah blah blah blah blah blah. I'm like, fuck, you're totally right. All right, that's what we're gonna do.
 
 [00:04:16] Norm: That's this weird disconnect because we hang out, and sometimes you tell stories, and my brain's like, that'd be really cool on stage.
 
-[00:04:23] Kishore: I was talking to people afterwards, and this is an unrelenting talk. This is basically like, here is how obsessed I get with stuff, and and and people came up to me. It's like I didn't know Adam was like that. I'm like, no, that's the real Adam.
+[00:04:23] Kishore: I was talking to people afterwards, and this is an unrelenting talk. This is basically like, here is how obsessed I get with stuff, and people came up to me. It's like I didn't know Adam was like that. I'm like, no, that's the real Adam.
 
-[00:04:38] Adam: So so this is the this is you never know. I want to go back to the like an origin story for me, which was I didn't think of that as a deeply obsessive talk. I understand that it is intellectually, but in the same way that as I approached the Maltese Falcon talk, lo, now like 12 years ago, and Kevin Kelly told me, oh, you should really workshop that. It could be a fine talk, and it became my first TED talk, EG talk on the TED site. And that stems from I'm in I'm in fifth grade art. My art teacher is the amazing Vinny Albano, who taught at Morse School. His brother was Captain Lou Albano, the manager.
+[00:04:38] Adam: So so this is the this is you never know. I want to go back to the like an origin story for me, which was I didn't think of that as a deeply obsessive talk. I understand that it is intellectually, but in the same way that as I approached the Maltese Falcon talk, lo, now like 12 years ago, and Kevin Kelly told me, oh, you should really workshop that. It could be a fine talk, and it became my first TED talk, EG talk on the TED site. And that stems from I'm in fifth grade art. My art teacher is the amazing Vinny Albano, who taught at Morse School. His brother was Captain Lou Albano, the manager.
 
 [00:05:18] Kishore: I was wondering if there's a wrestling connection.
 
-[00:05:19] Adam: Totally the same Albano family. Yeah, Lou Albano was famously Andre the Giant's manager, and shows up in a lot of Cyndi Lauper's early '80s videos. Anyway, Lou Albano's brother Vinny was my first inspirational art teacher, and Vinny was like, " Today we're going to have a contest. We're going to have a drawing contest. Everyone's going to draw something." And I was like, " I have no idea what to draw. All right, I'm just not even going to care about this contest. I'm just going to draw that wall." And I literally drew the wall, but I drew everything on the wall—the art and the coats and the coat hangers—and I won. Now, this is not to say that like that it doesn't matter that I won. What was interesting to me was that I did something that was just completely present. I wasn't thinking about a contest and something. Honest came out of that, and the same thing happened with the with the with the chair talk. Was that the audience got really quiet, and I was thinking I expected maybe some more laughs for this. Seriously, and then I realize it's because they're all there, like, wow, he goes deep, man. That is. Even Simone came up afterwards and said, " I really, even knowing you, I didn't know that level of."
+[00:05:19] Adam: Totally the same Albano family. Yeah, Lou Albano was famously Andre the Giant's manager, and shows up in a lot of Cyndi Lauper's early '80s videos. Anyway, Lou Albano's brother Vinny was my first inspirational art teacher, and Vinny was like, " Today we're going to have a contest. We're going to have a drawing contest. Everyone's going to draw something." And I was like, " I have no idea what to draw. All right, I'm just not even going to care about this contest. I'm just going to draw that wall." And I literally drew the wall, but I drew everything on the wall—the art and the coats and the coat hangers—and I won. Now, this is not to say that like that it doesn't matter that I won. What was interesting to me was that I did something that was just completely present. I wasn't thinking about a contest and something. Honest came out of that, and the same thing happened with the chair talk. Was that the audience got really quiet, and I was thinking I expected maybe some more laughs for this. Seriously, and then I realize it's because they're all there wow, he goes deep, man. That is. Even Simone came up afterwards and said, " I really, even knowing you, I didn't know that level of."
 
-[00:06:29] Norm: The talk always, as it happened, people were whispering. I think Physics Girl Danielle and we were all looking at each other, like nodding. This is this is happening. Yes, yes.
+[00:06:29] Norm: The talk always, as it happened, people were whispering. I think Physics Girl Danielle and we were all looking at each other, like nodding. This is happening. Yes, yes.
 
-[00:06:42] Kishore: I tell you where you you lost her. At least, like people are like, " Whoa, this is too far." Is when you got to the flower etching on the rivet. I heard an audible groan, like two rows back, like, " Oh my god."
+[00:06:42] Kishore: I tell you where you lost her. At least, like people are like, " Whoa, this is too far." Is when you got to the flower etching on the rivet. I heard an audible groan, like two rows back, like, " Oh my god."
 
 [00:06:58] Norm: The whole show is going to be on the site, so you can you'll be able to watch that as a part of the whole sequence for testing premium members.
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:07:06] Norm: Yep,
 
-[00:07:06] Kishore: and you you hit your boss Norm with some sausage. So
+[00:07:06] Kishore: and you hit your boss Norm with some sausage. So
 
 [00:07:30] Norm: I couldn't see.
 
@@ -146,17 +146,17 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:08:02] Kishore: I think it was one of the most engaged moments she had all night.
 
-[00:08:05] Adam: I also, you know, you guys asked for my help in an air cannon for Kenji, and I did not have time to build the air cannon.
+[00:08:05] Adam: I also you guys asked for my help in an air cannon for Kenji, and I did not have time to build the air cannon.
 
 [00:08:16] Norm: No, you're on tour. You're traveling.
 
-[00:08:18] Adam: I was traveling a lot, but I passed you guys off to Tory Fink, our wonderful shop manager from MythBusters, and drew a diagram which I did not expect you guys to tweet. The diagram, and I was like, boy, I hope I didn't miss anything there, and like, am all of a sudden an idiot, and I did miss something, which was an accumulator. That's the reason that Kenji's cannon did not fire. It's that there's only so much air you can move through a certain sized orifice, and with the the equation as you guys had it, that I had diagrammed for you, I hadn't included an accumulator right behind the solenoid to make sure there was some pressurized air right at the solenoid to move quickly into the chamber.
+[00:08:18] Adam: I was traveling a lot, but I passed you guys off to Tory Fink, our wonderful shop manager from MythBusters, and drew a diagram which I did not expect you guys to tweet. The diagram, and I was like, boy, I hope I didn't miss anything there, and like, am all of a sudden an idiot, and I did miss something, which was an accumulator. That's the reason that Kenji's cannon did not fire. It's that there's only so much air you can move through a certain sized orifice, and with the equation as you guys had it, that I had diagrammed for you, I hadn't included an accumulator right behind the solenoid to make sure there was some pressurized air right at the solenoid to move quickly into the chamber.
 
 [00:08:56] Norm: And it moves
 
 [00:08:56] Adam: too slow.
 
-[00:08:57] Norm: Quarter inch, quarter inch.
+[00:08:57] Norm: Quarter inch.
 
 [00:08:58] Adam: The solution. To your problem would have been a longer barrel. Like if you had gone with a barrel like three times as long, you would have gotten some real speed. Because again, it's just build up behind,
 
@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:10:19] Norm: Even though a lot of potential energy there in the fat, it just doesn't evenly.
 
-[00:10:24] Adam: Well, if you picture it, so a solid rocket motor is a tube, and it burns from the inside out, and the goal is to control the speed of that burn, both with the material choice and with the size of the nozzle you have, and your oxidizer. But with the with the sausage as a solid rocket fuel, you could it has all the components, and if you blended it up until it was like a pate and then froze it, it would probably make a great solid fuel. But because you have little chunks of fat, those burn much faster, and then create cracks and fissures. And the moment you have a crack in a solid rocket booster, you have a failure of the entire rocket. It's a pipe bomb.
+[00:10:24] Adam: Well, if you picture it, so a solid rocket motor is a tube, and it burns from the inside out, and the goal is to control the speed of that burn, both with the material choice and with the size of the nozzle you have, and your oxidizer. But with the sausage as a solid rocket fuel, you could it has all the components, and if you blended it up until it was like a pate and then froze it would probably make a great solid fuel. But because you have little chunks of fat, those burn much faster, and then create cracks and fissures. And the moment you have a crack in a solid rocket booster, you have a failure of the entire rocket. It's a pipe bomb.
 
 [00:10:59] Kishore: This is not so dissimilar. I made a Thermic lance, which is this idea of of having a a iron rod and essentially it gets consumed with oxygen that's flowing through it, but we essentially put bacon on the end as sort of that that fuel source to get it started. But the ripples of fat cause like uneven burning on the end. Luckily, the failure there is just more sparks, so it's not a big deal.
 
@@ -196,11 +196,11 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:11:27] Kishore: no.
 
-[00:11:28] Adam: Terrific movie, really weird, the kind of weirdo movie that they made in the '70s, late '70s, I think. Anyway, there's a whole bank robbing scene where he he his. I think the task is it's the hardest safe you've ever cracked. Make you know, go and do it. And he
+[00:11:28] Adam: Terrific movie, really weird, the kind of weirdo movie that they made in the '70s, late '70s, I think. Anyway, there's a whole bank robbing scene where he his. I think the task is it's the hardest safe you've ever cracked. Make go and do it. And he
 
 [00:11:44] Kishore: used bacon to get in.
 
-[00:11:45] Adam: No, he uses a thermic lance to cut a new door right in the in the vault.
+[00:11:45] Adam: No, he uses a thermic lance to cut a new door right in the vault.
 
 [00:11:49] Kishore: That won't work. That can't work in real life.
 
@@ -208,19 +208,19 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:11:52] Norm: Really,
 
-[00:11:52] Adam: Oh, absolutely, absolutely. Yeah, no, big thermic lance can go right through layers and layers and layers of steel.
+[00:11:52] Adam: Oh, absolutely, absolutely. Yeah, no, big thermic lance can go right through layers and layers of steel.
 
 [00:11:59] Kishore: We cut a steel door the other day with one, but I didn't think it would get through that. Anyways,
 
 [00:12:04] Norm: enough about thermic lances. Well, speaking of thermic lances, one of our other presenters had worked on the thermic lance, right? Is Alan worked on?
 
-[00:12:12] Kishore: Oh, Alan built one, and we we built a separate one. So Alan Pan, who was on Mythbusters: The Search, and he's sufficiently advanced and just an incredible inventor, and he's slightly obsessed with Thor right now,
+[00:12:12] Kishore: Oh, Alan built one, and we built a separate one. So Alan Pan, who was on Mythbusters: The Search, and he's sufficiently advanced and just an incredible inventor, and he's slightly obsessed with Thor right now,
 
 [00:12:24] Adam: which was that was the most delightful talk because it was again so honest and so heartfelt, and you just felt like you were being led into a peculiar mind that has done a lot to facilitate its own peculiarity.
 
-[00:12:38] Norm: Well, it's something that people might not realize who even attended the show was that whole thing came together in the last like four days. We originally had the plan. One of his projects that he has on his YouTube channel is this fire punch. Like it's it's a performance based gauntlet that based on your hand gestures launches fireballs. It's a it's
+[00:12:38] Norm: Well, it's something that people might not realize who even attended the show was that whole thing came together in the last like four days. We originally had the plan. One of his projects that he has on his YouTube channel is this fire punch. Like it's a performance based gauntlet that based on your hand gestures launches fireballs. It's a it's
 
-[00:12:58] Kishore: a butane fuel source, and and it has an accelerometer on it. So as you go forward, it launches out the butane, and there's an electrical igniter on the end. I've worn it. It's a lot of fun.
+[00:12:58] Kishore: a butane fuel source, and it has an accelerometer on it. So as you go forward, it launches out the butane, and there's an electrical igniter on the end. I've worn it. It's a lot of fun.
 
 [00:13:08] Norm: It's spectacular.
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:13:15] Adam: Oh well, of course they did. I could have told you that that was going to happen.
 
-[00:13:18] Kishore: Wow, I was I was a little wee optimistic there.
+[00:13:18] Kishore: Wow, I was a little wee optimistic there.
 
 [00:13:21] Adam: Yes,
 
@@ -238,7 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:13:35] Adam: Wow, really? That's impressive that he did all that in a day, couple days.
 
-[00:13:39] Kishore: Incredible! And then Norm sacrificed the Captain America shield for for its purpose.
+[00:13:39] Kishore: Incredible! And then Norm sacrificed the Captain America shield for its purpose.
 
 [00:13:44] Adam: Norm got some genuine weathering. You now have a story
 
@@ -252,7 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:13:59] Norm: Walking around the cave, I see multiple shields. One must be expendable.
 
-[00:14:02] Kishore: One last shout out about the live show. It was great seeing all the members that came and and everyone that said hello. It's wonderful to see you all, but. My last shout out—the one thing that I didn't expect—that was just blew me away. Simone is a hell of an MC. Holy cow!
+[00:14:02] Kishore: One last shout out about the live show. It was great seeing all the members that came and everyone that said hello. It's wonderful to see you all, but. My last shout out—the one thing that I didn't expect—that was just blew me away. Simone is a hell of an MC. Holy cow!
 
 [00:14:02] Adam: Yeah.
 
@@ -264,17 +264,17 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:14:36] Adam: No, she said, " I feel like I understood something a little deeper about you."
 
-[00:14:41] Norm: Yeah, I think that was the thing for a lot of our presenters that, like, once even throughout our rehearsals, it wasn't until the moment of with 1,000 people in the audience that they got to be their best.
+[00:14:41] Norm: Yeah, I think that was the thing for a lot of our presenters that once even throughout our rehearsals, it wasn't until the moment of with 1,000 people in the audience that they got to be their best.
 
-[00:14:41] Adam: I, I.
+[00:14:41] Adam: I.
 
-[00:14:41] Norm: feed off of that, and no one was as good as they were actually in the moment of their their talk.
+[00:14:41] Norm: feed off of that, and no one was as good as they were actually in the moment of their talk.
 
-[00:15:01] Adam: Well, it's it's you know, with an audience like that too, with that much love coming from the audience, it's really significant. That it. Whenever we have a super enthusiastic audience on Brain Candy, that's where a lot of new material comes out. Because when you have an audience that is that engaged, you can really start to move the material around and open it up. And that doesn't mean take longer, but jokes might find their heart quicker when when the audience is super involved.
+[00:15:01] Adam: Well, it's with an audience like that too, with that much love coming from the audience, it's really significant. That it. Whenever we have a super enthusiastic audience on Brain Candy, that's where a lot of new material comes out. Because when you have an audience that is that engaged, you can really start to move the material around and open it up. And that doesn't mean take longer, but jokes might find their heart quicker when the audience is super involved.
 
 [00:15:27] Norm: Yeah,
 
-[00:15:27] Kishore: it was incredible. It was incredible experience, and it was only one sliver of my my science festival experience. so far
+[00:15:27] Kishore: it was incredible. It was incredible experience, and it was only one sliver of my science festival experience. so far
 
 [00:15:32] Adam: I was thinking, when we’re there, I’m like, He seems pretty chill, but I'll bet you have like two or three other events happening simultaneously.
 
@@ -282,11 +282,11 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:16:03] Adam: Didn’t he write the Benjamin Franklin biography a long time ago.
 
-[00:16:05] Kishore: Yeah, Ben Franklin, Henry Kissinger. He wrote one on Einstein. He's so he's like. Clearly, he has he has a slight theme going on.
+[00:16:05] Kishore: Yeah, Ben Franklin, Henry Kissinger. He wrote one on Einstein. He's so he's like. Clearly, he has a slight theme going on.
 
-[00:16:14] Adam: He he does. Can I? I'm going to derail you for just a second. Many many years ago, Jamie and I hosted Discovery Channel's Young Scientists Challenge in D.C. and this is literally 2005, 2006, and Isaacson was the keynote speaker. And Isaacson gave, I mean, he's a wonderful writer, but he gave the most tone-deaf 45-minute speech about Benjamin Franklin to a crowd of 5,000 children.
+[00:16:14] Adam: He does. Can I? I'm going to derail you for just a second. Many many years ago, Jamie and I hosted Discovery Channel's Young Scientists Challenge in D.C. and this is literally 2005, 2006, and Isaacson was the keynote speaker. And Isaacson gave, I mean, he's a wonderful writer, but he gave the most tone-deaf 45-minute speech about Benjamin Franklin to a crowd of 5,000 children.
 
-[00:16:38] Kishore: Wow, that's not that's not where you want to go. It was
+[00:16:38] Kishore: Wow, that's not where you want to go. It was
 
 [00:16:44] Norm: like the opposite of Hamilton.
 
@@ -296,13 +296,13 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:16:55] Norm: your best part. Did you really need that?
 
-[00:16:57] Adam: No, that's that's totally the best inside.
+[00:16:57] Adam: No, that's totally the best inside.
 
 [00:16:59] Kishore: It was the best inside stuff.
 
 [00:17:01] Adam: That's so funny.
 
-[00:17:02] Kishore: But I went from that to like a few hours later, I was Mayor McCheese. I was wandering around the Cal Academy where he'd built a science haunted house. And Peaches Christ, who's a famous local drag queen here, dragged me on stage as a giant cheeseburger, and and she just went out and she said, " Please give it up to all the scientists here who do who do so much work to make our life better." And I was, I just remember walking off stage. I'm like, " Did a drag queen just do a better job of getting people excited about science than than me in a cheeseburger outfit?" Apparently so,
+[00:17:02] Kishore: But I went from that to like a few hours later, I was Mayor McCheese. I was wandering around the Cal Academy where he'd built a science haunted house. And Peaches Christ, who's a famous local drag queen here, dragged me on stage as a giant cheeseburger, and she just went out and she said, " Please give it up to all the scientists here who do who do so much work to make our life better." And I was, I just remember walking off stage. I'm like, " Did a drag queen just do a better job of getting people excited about science than than me in a cheeseburger outfit?" Apparently so,
 
 [00:17:34] Adam: at the years ago at the Purple Onion, I did a storytelling night with Peaches out of drag.
 
@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:18:05] Adam: Absolutely, right here, please.
 
-[00:18:05] Kishore: There's a A lot more, so meaningful. We held a hands-on science day in the North Bay.
+[00:18:05] Kishore: There's a lot more, so meaningful. We held a hands-on science day in the North Bay.
 
 [00:18:05] Adam: Yes,
 
@@ -330,7 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:18:20] Adam: [unclear: The Saturday of that morning / The Saturday of our, of Tesla].
 
-[00:18:20] Kishore: that's where my morning started. I think many people know about the North Bay fires and all the victims up there, and and we held it at the Sonoma County Fairgrounds. We've been holding it there for six years, which was the hub of the fire response in the North Bay.
+[00:18:20] Kishore: that's where my morning started. I think many people know about the North Bay fires and all the victims up there, and we held it at the Sonoma County Fairgrounds. We've been holding it there for six years, which was the hub of the fire response in the North Bay.
 
 [00:18:20] Adam: Yeah,
 
@@ -362,13 +362,13 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:19:46] Adam: not anymore.
 
-[00:19:46] Kishore: And you know, just because of how they kind of covered up her contributions to discovery of DNA, she comes out like the biggest pop you've ever heard from a crowd, and like, and so she like she does this move that I just called the double helix, where she double DDTs them into the ground. And grabs the belt, and people are like so over, lost their mind. There's like 350 people in there that were cheering louder for that than anything I've ever done.
+[00:19:46] Kishore: And just because of how they kind of covered up her contributions to discovery of DNA, she comes out like the biggest pop you've ever heard from a crowd, and like, and so she like she does this move that I just called the double helix, where she double DDTs them into the ground. And grabs the belt, and people are like so over, lost their mind. There's like 350 people in there that were cheering louder for that than anything I've ever done.
 
 [00:20:22] Adam: That's the best. That's the best.
 
 [00:20:24] Norm: Yeah,
 
-[00:20:24] Kishore: it was the best. I totally lost my my voice doing it, but it was all I said afterwards was like that was worth it.
+[00:20:24] Kishore: it was the best. I totally lost my voice doing it, but it was all I said afterwards was like that was worth it.
 
 [00:20:24] Unknown speaker: It was worth it just to see that happen.
 
@@ -378,13 +378,13 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:20:52] Kishore: Yeah. Carl Zimmer, who's the lead science reporter for the New York Times, was one of the judges.
 
-[00:20:56] Adam: My my and someone I'm a huge fan of Maggie Koerth-Baker, and she I'm actually she's now another person that I know in Minneapolis, along with my RiffTrax friends and some other folks like Anna Marie. So we're gonna see her, and when I travel through Minneapolis on a brain candy tour. But but but but watching the the the the presentations each of the scientists gave of their absurd hypotheses was great. But watching them defend that hypothesis against questioning from the panel of judges was super great.
+[00:20:56] Adam: My and someone I'm a huge fan of Maggie Koerth-Baker, and she I'm actually she's now another person that I know in Minneapolis, along with my RiffTrax friends and some other folks like Anna Marie. So we're gonna see her, and when I travel through Minneapolis on a brain candy tour. But watching the presentations each of the scientists gave of their absurd hypotheses was great. But watching them defend that hypothesis against questioning from the panel of judges was super great.
 
 [00:21:32] Kishore: It was so they have to face a Q and A, and it's like a deadpan scientific seminar.
 
 [00:21:32] Adam: Totally,
 
-[00:21:32] Kishore: and so they ask like the the most obscure, bizarre questions back to you, just like how scientists have to deal with their. Oh my gosh! It's like if you're defending your thesis, like somebody will ask something that is just ridiculous question.
+[00:21:32] Kishore: and so they ask like the most obscure, bizarre questions back to you, just like how scientists have to deal with their. Oh my gosh! It's like if you're defending your thesis, like somebody will ask something that is just ridiculous question.
 
 [00:21:51] Norm: That's a ton of preparation needed.
 
@@ -420,13 +420,13 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:23:05] Kishore: I think my favorite part is trying to was watching the ASL interpreter try to interpret your talk.
 
-[00:23:11] Adam: I, I, my talk, yeah, my talk was full of all this fake jargon, which I realized is actually funnier to half scientists than it is to actual scientists, right? Like, if you know too much, it's not funny because it's easy, and if you don't know enough, it's you don't get the joke. And I turned to the ASL interpreter just before I started, and I said, " I am sorry for what I'm about to do to you."
+[00:23:11] Adam: I, my talk, yeah, my talk was full of all this fake jargon, which I realized is actually funnier to half scientists than it is to actual scientists, right? Like, if you know too much, it's not funny because it's easy, and if you don't know enough, it's you don't get the joke. And I turned to the ASL interpreter just before I started, and I said, " I am sorry for what I'm about to do to you."
 
 [00:23:35] Kishore: Earn your keep.
 
 [00:23:37] Adam: He did great. He did really great. He's like spelling out my terms really quickly.
 
-[00:23:41] Kishore: He had he had done the event before, and a few years ago, Matt Inman, who's the oatmeal, he does the webcomic oatmeal, gave a keynote, and his his talk was so bizarre about these like beetles that would shoot juice into your mouth. That's what Darwin found on on the Galapagos, and and so like the sign language interpreters trying to like keep up with him, and it just Turns out the sign language interpreter is funnier than Matt is in his presentation, so the laughs are coming at the wrong time. And at one point, he looks at the audience. He's like, " Wait, why are you laughing, then?"
+[00:23:41] Kishore: He had done the event before, and a few years ago, Matt Inman, who's the oatmeal, he does the webcomic oatmeal, gave a keynote, and his his talk was so bizarre about these like beetles that would shoot juice into your mouth. That's what Darwin found on the Galapagos, and so like the sign language interpreters trying to like keep up with him, and it just Turns out the sign language interpreter is funnier than Matt is in his presentation, so the laughs are coming at the wrong time. And at one point, he looks at the audience. He's like, " Wait, why are you laughing, then?"
 
 [00:24:21] Adam: Which could be the title of Jamie Hyneman's autobiography.
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:25:00] Adam: Do you want to borrow Jedi robe? I got one. That's a nice easy.
 
-[00:25:02] Kishore: No, I'm. We're just going as a science fiction family tonight. So I I have a. I'm trying out for the first time one of my DS9 outfits that I've been in my closet for a while. I really love the uniform with the with the gray pads.
+[00:25:02] Kishore: No, I'm. We're just going as a science fiction family tonight. So I I have a. I'm trying out for the first time one of my DS9 outfits that I've been in my closet for a while. I really love the uniform with the gray pads.
 
 [00:25:02] Norm: Very bad.
 
@@ -474,11 +474,11 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:26:00] Kishore: I am. I am zero in. Of course,
 
-[00:26:01] Adam: it's it's intense.
+[00:26:01] Adam: it's intense.
 
 [00:26:04] Norm: Yes, and this is not a spoiler cast, and we will do a spoiler cast at some point. But I think I mean even leading up to it. Now there's gonna after show. It's probably like the most hyped up Netflix show, you know, a season two for a long time. And the first couple episodes delivers all the right '80s feels.
 
-[00:26:23] Adam: Yeah. Oh yeah. Yeah. No. And so my my wife turns to me and she goes, " Do you want me to skip the intro?" And I'm like, " No.
+[00:26:23] Adam: Yeah. Oh yeah. Yeah. No. And so my wife turns to me and she goes, " Do you want me to skip the intro?" And I'm like, " No.
 
 [00:26:28] Norm: Yeah. Right.
 
@@ -546,7 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:29:01] Norm: Did your mom enjoy the episodes?
 
-[00:29:04] Adam: Very much, very much. Yeah, yeah. I mean, they're masterpieces. They're really incredible, and you know, the dinner party, which if you don't remember, ends with effectively six solid minutes, a six minute shot. I think of Aziz saying goodbye to Francesca. All of them in the back of a cab
+[00:29:04] Adam: Very much. Yeah, yeah. I mean, they're masterpieces. They're really incredible, and you know, the dinner party, which if you don't remember, ends with effectively six solid minutes, a six minute shot. I think of Aziz saying goodbye to Francesca. All of them in the back of a cab
 
 [00:29:23] Norm: a cab ride home,
 
@@ -574,13 +574,13 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:30:10] Kishore: It still spoke to her.
 
-[00:30:16] Adam: Of course, it's. In fact, actually, I think it may speak more strongly to my mom, who's like who came of her. My mom was born in 1935. She's 83, but she's deeply and she was deeply part of the the scene in New York in the in the late '50s and mostly the '60s. So that like these guys, both Louis and Aziz, are referring deeply to American cinema and foreign cinema in the in the '60s. Right, they're they're looking at Jean Luc Godard. Jean Luc Godard, yes, they're looking at Godard. They're looking at filmmakers like like Fassbinder, and also I see Cassavetes in their work. I see you know it's really it's thrilling how much they're getting to stretch those muscles, and I mean I'll I'll wager Aziz is like, hey man, I am being paid to learn how to be a filmmaker. This is great.
+[00:30:16] Adam: Of course, it's. In fact, actually, I think it may speak more strongly to my mom, who's like who came of her. My mom was born in 1935. She's 83, but she's deeply and she was deeply part of the scene in New York in the late '50s and mostly the '60s. So that like these guys, both Louis and Aziz, are referring deeply to American cinema and foreign cinema in the '60s. Right, they're looking at Jean Luc Godard. Jean Luc Godard, yes, they're looking at Godard. They're looking at filmmakers like Fassbinder, and also I see Cassavetes in their work. I see you know it's really it's thrilling how much they're getting to stretch those muscles, and I mean I'll I'll wager Aziz is like, hey man, I am being paid to learn how to be a filmmaker. This is great.
 
 [00:31:10] Norm: Yeah, I hope he I hope he's happy in real life because he's not happy on the show.
 
 [00:31:14] Adam: Yeah, you and me both. He deserves all all the happiness for his wonderful creative output.
 
-[00:31:19] Kishore: I struggle with this. There's so many artists that I'm like, I hope they're happy in real life, but I kind of want to suffer because their art is better. You know, like there's music that's better when there's breakups involved and like hard things happen.
+[00:31:19] Kishore: I struggle with this. There's so many artists that I'm like, I hope they're happy in real life, but I kind of want to suffer because their art is better. Like there's music that's better when there's breakups involved and like hard things happen.
 
 [00:31:34] Norm: We'll get there. All right, thank you so much, Kishore, for joining us.
 

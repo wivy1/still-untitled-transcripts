@@ -4,7 +4,7 @@
 **Duration:** 30m 51s  
 Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
-[00:00:00] Will: You know, we didn't get a pithy saying before the last episode. Welcome to Still Untitled: The Adam Savage Project. I'm Will.
+[00:00:00] Will: We didn't get a pithy saying before the last episode. Welcome to Still Untitled: The Adam Savage Project. I'm Will.
 
 [00:00:09] Adam: I'm Adam,
 
@@ -42,11 +42,11 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:00:38] Adam: Verlin.
 
-[00:00:39] Will: Yeah, I have a I have a Southern lawyer name. I'm Verlin William Smith III. So if I was a Southern lawyer, it would be the offices of V William Smith III.
+[00:00:39] Will: Yeah, I have a Southern lawyer name. I'm Verlin William Smith III. So if I was a Southern lawyer, it would be the offices of V William Smith III.
 
 [00:00:47] Adam: Wow. Nice, Esquire.
 
-[00:00:48] Will: Esquire. That that was always the the family joke because my my my family thought my father was insane when he wanted to name me a third.
+[00:00:48] Will: Esquire. That that was always the family joke because my family thought my father was insane when he wanted to name me a third.
 
 [00:00:48] Adam: A third.
 
@@ -58,11 +58,11 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:01:01] Adam: yeah, exactly. It's good enough for George.
 
-[00:01:01] Will: It's you know the naming a kid thing. I think we've talked about this before, but it was it was intense.
+[00:01:01] Will: It's you know the naming a kid thing. I think we've talked about this before, but it was intense.
 
 [00:01:01] Adam: Oh,
 
-[00:01:01] Will: like there is a lot of pressure to not stick a kid with a bad name. Like you don't you don't want a
+[00:01:01] Will: like there is a lot of pressure to not stick a kid with a bad name. Like you don't want a
 
 [00:01:16] Adam: It's pronounced Ozwipe.
 
@@ -84,25 +84,25 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:01:44] Will: Hodgman was here last year. [unclear: You did. Was—]
 
-[00:01:46] Adam: did Hodgman get interviewed by Paul F. Tompkins on stage this year? This most recent year, I think that was actually a year a year and a half ago now.
+[00:01:46] Adam: did Hodgman get interviewed by Paul F. Tompkins on stage this year? This most recent year, I think that was actually a year and a half ago now.
 
 [00:01:53] Will: I think that was the first year we knew you. Yeah.
 
 [00:01:56] Adam: Anyway, names. Yes, you know my. My baby mama, my ex-wife, the mother of my children, and I—we bypassed the whole discussion thing. We were both on the exact same page. We didn't want to. We don't want any opinions from anybody.
 
-[00:02:12] Will: No, that's that's the right answer.
+[00:02:12] Will: No, that's the right answer.
 
 [00:02:14] Adam: Yeah, we didn't want to. This was not. And the problem is, is you. Most people don't know that you don't want their opinion about your baby's name.
 
-[00:02:22] Will: Like I don't want your opinion about my dog's name, much less the baby's name. the The thing about the thing about once you come up with the decision, once you once you pick out the names, you gotta you gotta go on lockdown.
+[00:02:22] Will: Like I don't want your opinion about my dog's name, much less the baby's name. the thing about once you come up with the decision, once you pick out the names, you gotta go on lockdown.
 
 [00:02:32] Adam: Yep,
 
 [00:02:33] Will: because you don't want negative feedback at that point. You have no hesitation.
 
-[00:02:36] Adam: We came, so we we we found out early it was twins. Then we found out they were both boys, and we had, we had, we had one girl's name picked out and two boys' names picked out. Okay. The oh right, so I don't generally say my kids' names on air, so I won't this time. Um. Wow, this that discussion ends up sort of
+[00:02:36] Adam: We came, so we found out early it was twins. Then we found out they were both boys, and we had one girl's name picked out and two boys' names picked out. Okay. The oh right, so I don't generally say my kids' names on air, so I won't this time. Wow, this that discussion ends up sort of
 
-[00:02:59] Will: yes, pretty short. Hit a hit a wall.
+[00:02:59] Will: yes, pretty short. Hit a wall.
 
 [00:03:02] Adam: One son is named after a famous 1940s film character, and the other is named after Sam Neill's first major television role in the '80s.
 
@@ -112,7 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:03:14] Norm: There is an internet, Adam.
 
-[00:03:16] Will: Well, I mean, but but it's the whole names are important things. I can't remember that's a that's a quote from a movie. Names are powerful things. It's like Dune or something, right?
+[00:03:16] Will: Well, I mean, but it's the whole names are important things. I can't remember that's a quote from a movie. Names are powerful things. It's like Dune or something, right?
 
 [00:03:25] Adam: It's what one of the protesters yells at Noam Chomsky in the movie, The Manufacturing Manufacturing Consent, which
 
@@ -120,7 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:03:34] Adam: terrific documentary.
 
-[00:03:35] Will: That's not what I was thinking about. No, no, but but I'm sure it is.
+[00:03:35] Will: That's not what I was thinking about. No, no, but I'm sure it is.
 
 [00:03:38] Adam: Oh, yeah, it's linguist. You are linguist. Language has meaning.
 
@@ -128,21 +128,21 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:03:46] Adam: Nice segue, though, because I like adaptations. Why do you ask?
 
-[00:03:48] Will: I think we all like adaptations. We got a letter which I lost when my mail program crashed, but I'm going to read it here in a moment if I find it, and if not, I'm just going to say it was from. Uh, Joseph Swick. That's it. Uh, he says, " Hey, Adam, Will, and Norm. The recent spoiler cast for Edge of Tomorrow slash All You Need Is Kill got me wondering what movies based on books, including comic books, you felt were better than the original source material, rather than just good enough or reasonably close. I'd be willing to bet that Blade Runner is probably on that list for Adam, but I'm curious as to what other movie adaptations rank highly.
+[00:03:48] Will: I think we all like adaptations. We got a letter which I lost when my mail program crashed, but I'm going to read it here in a moment if I find it, and if not, I'm just going to say it was from. Joseph Swick. That's it. He says, " Hey, Adam, Will, and Norm. The recent spoiler cast for Edge of Tomorrow slash All You Need Is Kill got me wondering what movies based on books, including comic books, you felt were better than the original source material, rather than just good enough or reasonably close. I'd be willing to bet that Blade Runner is probably on that list for Adam, but I'm curious as to what other movie adaptations rank highly.
 
-[00:04:20] Adam: Well, Blade Runner is on that list. Um, I love Philip K. Dick for his ideas, um, not as much for his actual writing.
+[00:04:20] Adam: Well, Blade Runner is on that list. I love Philip K. Dick for his ideas, um, not as much for his actual writing.
 
-[00:04:30] Will: I'd say almost all of the Philip K. Dick, almost all the stuff based on Philip K. Dick short stories. The ideas are great, and and the writing, the actual like he wasn't very good at dialogue.
+[00:04:30] Will: I'd say almost all of the Philip K. Dick, almost all the stuff based on Philip K. Dick short stories. The ideas are great, and the writing, the actual like he wasn't very good at dialogue.
 
-[00:04:40] Adam: No, no. Um, but also Blade Runner, it's that is apples and oranges because Blade Runner the movie is a very different movie, and and and is looking at a very different
+[00:04:40] Adam: No, no. But also Blade Runner, it's that is apples and oranges because Blade Runner the movie is a very different movie, and is looking at a very different
 
 [00:04:50] Will: Which Blade Runner?
 
 [00:04:51] Adam: cultural commentary.
 
-[00:04:52] Will: The one with the with the with the voiceover.
+[00:04:52] Will: The one with the voiceover.
 
-[00:04:54] Adam: Any of the cuts are are are are. I think um they're looking at. I mean, I know that Philip K. Dick and Ridley Scott fought bitterly. Throughout the course, about what the point of the movie was, and Philip K. Dick did not like the idea, if I remember correctly, that Harrison Ford is a replicant. But it's a central thesis; it's a central central theme of Blade Runner, and the thing that gives the film all of its meaning. So, to me, they're just totally different. They have some superficial comparators, but they're not the same material.
+[00:04:54] Adam: Any of the cuts are. I think they're looking at. I mean, I know that Philip K. Dick and Ridley Scott fought bitterly. Throughout the course, about what the point of the movie was, and Philip K. Dick did not like the idea, if I remember correctly, that Harrison Ford is a replicant. But it's a central thesis; it's a central central theme of Blade Runner, and the thing that gives the film all of its meaning. So, to me, they're just totally different. They have some superficial comparators, but they're not the same material.
 
 [00:05:24] Will: And like, there's two kind of different kinds of adaptations too. Like that that adaptation is is just here is the core concept.
 
@@ -168,17 +168,17 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:06:36] Adam: Ah, yeah, Dune, Dune, and Dune went through so many. In fact, the first attempt to bring Dune to the screen is one of the reasons that we have Alien, Alien,
 
-[00:06:46] Will: and and there is a documentary about this. It's on. It's been on my list of things to watch for the last couple of weeks. So
+[00:06:46] Will: and there is a documentary about this. It's on. It's been on my list of things to watch for the last couple of weeks. So
 
 [00:06:52] Norm: Chandler is on the other hand, his movies, his books also adapted.
 
-[00:06:55] Adam: It has. Oh, I was going to bring up the other. So there is another movie where I consider. It's a it's a Hammett adaptation where I think the movie is so much better than the source material, and it's one of my favorite Coen Brothers movie, Miller's Crossing.
+[00:06:55] Adam: It has. Oh, I was going to bring up the other. So there is another movie where I consider. It's a Hammett adaptation where I think the movie is so much better than the source material, and it's one of my favorite Coen Brothers movie, Miller's Crossing.
 
 [00:07:09] Will: Ooh, Miller's Miller's Crossing? I didn't know was based on a book, but it's wonderful.
 
 [00:07:12] Adam: Well, it's based on the Glass Key by Dashiell Hammett, and it's again, there are a lot of key there are a lot of differences, but whatever is interesting about the Glass Key is in Miller's Crossing, and a lot more. And it's beautiful. I mean, I just love Miller's Crossing. I love that dialogue. I think that's perfect movie.
 
-[00:07:31] Norm: It's it happens. It seems to happen all the time in Hollywood that good ideas come out of either books, comic books, short stories, short films, and then they are adapted for big screen, and the studios buy the rights, and there is no pretense. You know, they can say to tell the narrative of the production that it was taken from the source, but it is really the screenwriter and director's work. On the other
+[00:07:31] Norm: It's it happens. It seems to happen all the time in Hollywood that good ideas come out of either books, comic books, short stories, short films, and then they are adapted for big screen, and the studios buy the rights, and there is no pretense. They can say to tell the narrative of the production that it was taken from the source, but it is really the screenwriter and director's work. On the other
 
 [00:07:52] Adam: And they're totally different.
 
@@ -186,9 +186,9 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:08:12] Adam: Case in point, I'd say Harry Potter books are incredibly
 
-[00:08:15] Norm: Lord of the Rings and Harry Potter's, and this is where the fan base and the people who they want to get to go on the first day, and are have a special connection to the material. It happens, you know, with Twilight and all that stuff. It's. I'm not a screenwriter, and I knew I wasn't a screenwriter because I can read a book and I can, and everyone has read a book and imagine how it would be on screen, and you and you think you're a director. I know exactly how this seemed to play out. But when you watch a movie, and you see how they twist the words around, and how they shorten scenes, or how does the craft,
+[00:08:15] Norm: Lord of the Rings and Harry Potter's, and this is where the fan base and the people who they want to get to go on the first day, and are have a special connection to the material. It happens with Twilight and all that stuff. It's. I'm not a screenwriter, and I knew I wasn't a screenwriter because I can read a book and I can, and everyone has read a book and imagine how it would be on screen, and you think you're a director. I know exactly how this seemed to play out. But when you watch a movie, and you see how they twist the words around, and how they shorten scenes, or how does the craft,
 
-[00:08:47] Will: the cuts, the cuts are the heart. Like if you look at what came out of those Harry Potter books to make a movie that feels exactly like those Harry Potter books made made me feel, you know. I the Harry Potter books were probably the first adaptation I read because I don't I wasn't I love the Lord of the Rings movies as movies I don't think they're particularly good adaptations of the things that I liked about the Lord of the Rings books when I was 15 I also watched them when I was 30
+[00:08:47] Will: the cuts are the heart. Like if you look at what came out of those Harry Potter books to make a movie that feels exactly like those Harry Potter books made made me feel. I the Harry Potter books were probably the first adaptation I read because I don't I wasn't I love the Lord of the Rings movies as movies I don't think they're particularly good adaptations of the things that I liked about the Lord of the Rings books when I was 15 I also watched them when I was 30
 
 [00:08:47] Norm: you wanted more songs
 
@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:09:56] Will: I think better
 
-[00:09:57] Adam: look I. One of the things that I think often gets lost is that it's really the amount of material that happens in a full-length novel is a is a ton more than happens in your full-length movie.
+[00:09:57] Adam: look I. One of the things that I think often gets lost is that it's really the amount of material that happens in a full-length novel is a ton more than happens in your full-length movie.
 
 [00:09:57] Will: Yeah,
 
@@ -234,7 +234,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:10:41] Will: I don't feel good. Sorry.
 
-[00:10:42] Norm: If they're if they're writing more descriptively and and doing the production design in the book as opposed to it being you know over a span of several weeks or years in a book, then it makes a little different how you adapt it. But I think we can all agree, people. It's difficult to read a book and then go into a movie without preconceptions.
+[00:10:42] Norm: If they're writing more descriptively and doing the production design in the book as opposed to it being you know over a span of several weeks or years in a book, then it makes a little different how you adapt it. But I think we can all agree, people. It's difficult to read a book and then go into a movie without preconceptions.
 
 [00:10:42] Adam: It is,
 
@@ -244,15 +244,15 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:11:27] Norm: Well, Fargo, and
 
-[00:11:28] Will: well, and there are there are huge adaptations. Like there's a Pat Rothfuss's Kingkiller Chronicles, Chronicle, Chronicle. Anyway, those those books are wonderful, wonderful fantasy books. They are written like his prose is is good for good fiction, not good for genre fiction. He's a wonderful, wonderful writer. He's very kind of has a twisted perspective on things that I find delightful. And they're making a series in the Game of Thrones style. Of those books,
+[00:11:28] Will: well, and there are huge adaptations. Like there's a Pat Rothfuss's Kingkiller Chronicles, Chronicle, Chronicle. Anyway, those those books are wonderful, wonderful fantasy books. They are written like his prose is is good for good fiction, not good for genre fiction. He's a wonderful, wonderful writer. He's very kind of has a twisted perspective on things that I find delightful. And they're making a series in the Game of Thrones style. Of those books,
 
 [00:11:28] Adam: Oh, that's great.
 
 [00:11:28] Will: which is the perfect place to explore really this sprawling story of a young man who's coming of age.
 
-[00:12:03] Norm: And you mentioned Game of Thrones, that is a perfect example of an adaptation now being fleshed out into many seasons and books. And that is, you know, there are stories dedicated to what's different from the books and the TV show, and it is a the craft of adaptation.
+[00:12:03] Norm: And you mentioned Game of Thrones, that is a perfect example of an adaptation now being fleshed out into many seasons and books. And that is there are stories dedicated to what's different from the books and the TV show, and it is a the craft of adaptation.
 
-[00:12:17] Adam: And I will tell you, I will tell you, I do have a favorite adaptation.
+[00:12:17] Adam: And I will tell you, I do have a favorite adaptation.
 
 [00:12:17] Norm: Okay.
 
@@ -268,13 +268,13 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:12:40] Will: yeah. Okay.
 
-[00:12:40] Adam: This is this is the this is the role that defined him, and in fact, it's the reason he plays Mister Darcy in * Bridget Jones' Diary* because it's the same character, effectively.
+[00:12:40] Adam: This is the role that defined him, and in fact, it's the reason he plays Mister Darcy in * Bridget Jones' Diary* because it's the same character, effectively.
 
 [00:12:40] Will: Yeah.
 
 [00:12:40] Adam: Modernized, but the BBC version of that film is so great. I can't recommend it enough. I've actually sat through it twice. And it's worth it. It's Jennifer Ehle, who you might remember playing one of the scientists from * Contagion*, Steven Soderbergh's film. She plays the scientist in the lab wearing the biohazard suit. She's just, she's an incredible actress, and she's, she's beautiful, and also clearly really, really brilliant. And that comes across in her portrayal of the lead in * Pride and Prejudice*.
 
-[00:13:24] Will: What, what, what do you think makes a good adaptation? Like, like you look at things like * Hitchhiker's Guide to the Galaxy*, which should be a slam dunk adaptation,
+[00:13:24] Will: What do you think makes a good adaptation? Like you look at things like * Hitchhiker's Guide to the Galaxy*, which should be a slam dunk adaptation,
 
 [00:13:24] Adam: right?
 
@@ -284,13 +284,13 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:13:55] Will: yeah,
 
-[00:13:55] Adam: I mean. From what I know of the directors that I know, and the process of movie making, I know you can do all the right things and end up with a terrible movie, and you can do all the wrong things and end up with an amazing movie. Francis Ford Coppola thought he was going to be fired every day on The Godfather, and he was under 30. He was working under the most egregiously terrible conditions and made one of the greatest movies in cinema. Right? You never have any idea what when you put all the elements in and shake them, what you're going to come out with. So, you know, I feel like it's a it's there's always people going to be unhappy. There's all there are always going to be people unhappy with an adaptation because it didn't follow the source material, or took things in a different direction, or it didn't even con it didn't think that the main point that they liked was actually the point that the film.
+[00:13:55] Adam: I mean. From what I know of the directors that I know, and the process of movie making, I know you can do all the right things and end up with a terrible movie, and you can do all the wrong things and end up with an amazing movie. Francis Ford Coppola thought he was going to be fired every day on The Godfather, and he was under 30. He was working under the most egregiously terrible conditions and made one of the greatest movies in cinema. Right? You never have any idea what when you put all the elements in and shake them, what you're going to come out with. So I feel like it's a it's there's always people going to be unhappy. There's all there are always going to be people unhappy with an adaptation because it didn't follow the source material, or took things in a different direction, or it didn't even con it didn't think that the main point that they liked was actually the point that the film.
 
 [00:14:43] Norm: Reading is subjective.
 
 [00:14:43] Will: I mean, some of the Chandler adaptations basically just took the character and dropped him in a whole different mob thing, right?
 
-[00:14:51] Adam: Yeah, and and you know, actually, and very specifically speaking of Chandler. I don't feel like his hero Philip Marlowe has truly been represented on film. Like
+[00:14:51] Adam: Yeah, and actually, and very specifically speaking of Chandler. I don't feel like his hero Philip Marlowe has truly been represented on film. Like
 
 [00:15:04] Norm: only Elliott Gould that captures.
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:15:55] Will: Robin Hood adaptation.
 
-[00:15:56] Adam: I just found out that the the actor that plays the preacher on Serenity. Was also Sergeant Dietrich from Barney Miller?
+[00:15:56] Adam: I just found out that the actor that plays the preacher on Serenity. Was also Sergeant Dietrich from Barney Miller?
 
 [00:16:03] Will: What's Barney Miller?
 
@@ -336,21 +336,21 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:16:07] Will: I know what Barney Miller is. You might have to tell Norm though.
 
-[00:16:09] Adam: But wait, wait, wait. Where is that going? Oh, Marlowe. Yeah. So Marlowe, Chandler's hero. There's a lot of there's a lot of Chandler in the movie Chinatown, and Robert Towne, who wrote it, was absolutely totally channeling Hammett and Chandler. But his hero, Jake Gittes, is way too tarnished to be Marlowe. Marlowe is more like if I if I had to cast an actor right now to be the perfect Marlowe, it would be Clive Owen. He can totally display the amount of warmth and coldness all in relation to each other.
+[00:16:09] Adam: But wait, wait, wait. Where is that going? Oh, Marlowe. Yeah. So Marlowe, Chandler's hero. There's a lot of Chandler in the movie Chinatown, and Robert Towne, who wrote it, was absolutely totally channeling Hammett and Chandler. But his hero, Jake Gittes, is way too tarnished to be Marlowe. Marlowe is more like if I had to cast an actor right now to be the perfect Marlowe, it would be Clive Owen. He can totally display the amount of warmth and coldness all in relation to each other.
 
 [00:16:47] Will: Sin City is a is the character he plays in Sin City is Marlowe, right? Maybe a little more violent and a little less thinky, but
 
 [00:16:47] Adam: yeah, yeah, yeah, indeed,
 
-[00:16:47] Will: very Marlowe esque. Um, you know, one of the things like. I I people I think a lot of times people get upset about adaptations because they don't they they change plot points or they change the small details without like like I think I think the mark of a really great adaptation is something that captures the essence of what makes the original source material great not necessarily that at the end the this guy ends up with this girl and the bad guy dies by falling off of the edge of a cliff
+[00:16:47] Will: very Marlowe esque. One of the things like. I people I think a lot of times people get upset about adaptations because they don't they change plot points or they change the small details without like I think the mark of a really great adaptation is something that captures the essence of what makes the original source material great not necessarily that at the end the this guy ends up with this girl and the bad guy dies by falling off of the edge of a cliff
 
 [00:16:47] Adam: right
 
 [00:16:47] Will: and I'm of course blanking on any kind of example of something like this.
 
-[00:17:23] Adam: well so we could also talk about adaptations of a different sort which is for instance like Kurosawa paying homage to the American Western and then getting copied by Sergio Leone yeah and then Sam Peckinpah you know to all of that sort of movement across and when we get to that zone we get to my favorite awful adaptation which is the remake of Wim Wenders's Angels uh uh city sorry
+[00:17:23] Adam: well so we could also talk about adaptations of a different sort which is for instance like Kurosawa paying homage to the American Western and then getting copied by Sergio Leone yeah and then Sam Peckinpah you know to all of that sort of movement across and when we get to that zone we get to my favorite awful adaptation which is the remake of Wim Wenders's Angels city sorry
 
-[00:17:51] Will: Angel not not the not the movie from Home Alone.
+[00:17:51] Will: Angel not the movie from Home Alone.
 
 [00:17:54] Adam: What is? Oh my god, I can't believe I am drawing a blank on this. Wim Wenders's film about angels in East Berlin. It's called Wings of Desire.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:19:41] Adam: of Femme Nikita.
 
-[00:19:48] Will: It is. It is. But but that's one that they actually kind of took. Like they lifted scenes from, like the diving down the laundry chute or the dumbwaiter, whatever it is.
+[00:19:48] Will: It is. It is. But that's one that they actually kind of took. Like they lifted scenes from, like the diving down the laundry chute or the dumbwaiter, whatever it is.
 
 [00:19:48] Adam: There’s a lot of shot for shot.
 
@@ -454,11 +454,11 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:21:28] Will: No, no, no, no, no. So,
 
-[00:21:29] Norm: what is the what is what is the?
+[00:21:29] Norm: what is the?
 
 [00:21:32] Adam: They weren't even written by Alan Dean Foster.
 
-[00:21:33] Norm: What is the literary the the book that was turned to the movie that was the worst?
+[00:21:33] Norm: What is the literary the book that was turned to the movie that was the worst?
 
 [00:21:40] Adam: Oh,
 
@@ -476,7 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:21:53] Adam: Give me one.
 
-[00:21:53] Norm: I have the the Positronic Man, Asimov, which turned into Robin Williams Bicentennial Man.
+[00:21:53] Norm: I have the Positronic Man, Asimov, which turned into Robin Williams Bicentennial Man.
 
 [00:22:01] Will: Didn't you work on Bicentennial Man, Adam?
 
@@ -500,7 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:24:00] Will: dressed as a robot.
 
-[00:24:00] Adam: Really, it was a that part of the film was great. I, my supervisor of that film was a terrible, terrible supervisor, and it was it was not a fun job for any of the modeling crew. We were working under weird time constrictions, and it was a strange film.
+[00:24:00] Adam: Really, it was a that part of the film was great. I, my supervisor of that film was a terrible, terrible supervisor, and it was not a fun job for any of the modeling crew. We were working under weird time constrictions, and it was a strange film.
 
 [00:24:17] Norm: Strange film was right.
 
@@ -542,7 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:25:12] Adam: Manhunter is the original William Petersen version of Red Dragon, which is weird and terrible. Although Brian Cox's Brian Cox was the first actor to play Hannibal Lecter
 
-[00:25:25] Will: in in Manhunter,
+[00:25:25] Will: in Manhunter,
 
 [00:25:26] Adam: and he's terrific.
 
@@ -568,7 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:26:03] Will: not the typical Marvel girlfriend.
 
-[00:26:04] Adam: She is she is one of the most badass of badass comic book characters. And Frank Miller, when he had the power to do whatever he wanted, which is great for the world because he should be able to do whatever he wants, even though he's a Republican nut job. Uh, when Frank Miller got power, he was working with all of his favorite illustrators, and he did this unbelievable version of a separate graphic novel of Elektra in eight issues with the amazing illustrator Bill Sienkiewicz, which was one of the first graphic novels that got me into comic books as a high art form, not even a pretender to it. Um, it is an amazing set. Read it; it's wonderful. Her character speaks two words in all of in the entire graphic novel.
+[00:26:04] Adam: She is one of the most badass of badass comic book characters. And Frank Miller, when he had the power to do whatever he wanted, which is great for the world because he should be able to do whatever he wants, even though he's a Republican nut job. When Frank Miller got power, he was working with all of his favorite illustrators, and he did this unbelievable version of a separate graphic novel of Elektra in eight issues with the amazing illustrator Bill Sienkiewicz, which was one of the first graphic novels that got me into comic books as a high art form, not even a pretender to it. It is an amazing set. Read it; it's wonderful. Her character speaks two words in all of in the entire graphic novel.
 
 [00:26:04] Will: Wow!
 
@@ -600,9 +600,9 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:27:27] Norm: John Romita.
 
-[00:27:30] Adam: Yeah, and there is a there is a compendium of all of Miller's Daredevils in in a couple of graphic novels, and they're great. But that that the Elektra's.
+[00:27:30] Adam: Yeah, and there is a compendium of all of Miller's Daredevils in a couple of graphic novels, and they're great. But that that the Elektra's.
 
-[00:27:38] Will: What about um very? What about Jackie Brown?
+[00:27:38] Will: What about very? What about Jackie Brown?
 
 [00:27:41] Adam: Jackie Brown.
 
@@ -612,17 +612,17 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:27:42] Will: Right.
 
-[00:27:42] Adam: In fact, it's more of an in spirit of Elmore Leonard adaptation than a direct a direct copy of Rum Punch, which is the original novel. But if and if I said this before, if you haven't read Elmore Leonard, just grab an Elmore Leonard and read it because they're all amazing.
+[00:27:42] Adam: In fact, it's more of an in spirit of Elmore Leonard adaptation than a direct copy of Rum Punch, which is the original novel. But if and if I said this before, if you haven't read Elmore Leonard, just grab an Elmore Leonard and read it because they're all amazing.
 
 [00:27:42] Will: Yeah,
 
-[00:27:42] Adam: and Elmore Leonard has written a million books that got made into great movies. Starting, I mean, you know, 52 Pickup with Roy Scheider and Ann-Margret, and then Get Shorty and Be Cool, which is eh.
+[00:27:42] Adam: and Elmore Leonard has written a million books that got made into great movies. Starting, I mean 52 Pickup with Roy Scheider and Ann-Margret, and then Get Shorty and Be Cool, which is eh.
 
 [00:28:17] Will: But Get Shorty's great,
 
 [00:28:18] Adam: Get Shorty is amazing. Jackie Brown's amazing. Out of Sight is based on an Elmore Leonard novel.
 
-[00:28:22] Will: That's the J Lo, J Lo, George Clooney. That was the first movie I saw with George Clooney. It was like, wow, that guy can act. And then, and I was like, she can act too.
+[00:28:22] Will: That's the J Lo, George Clooney. That was the first movie I saw with George Clooney. It was like, wow, that guy can act. And then, and I was like, she can act too.
 
 [00:28:30] Adam: She can totally act. Yeah, she's fantastic.
 
@@ -638,7 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:28:34] Adam: And all of these movies adapted from Elmore Leonard novels. So his great thing as a writer is character and dialogue. And I don't even remember almost any of his plots, but I remember his characters. And actually, one of his one of my favorite characters of his, Raylan Givens, is the main character of Justified, the TV show based on Elmore Leonard's novels. Starring Raylan Givens, I think he wrote three novels with Raylan.
 
-[00:29:04] Will: Well, the the his characters have cadence, like their voices have a kind of boom, boom, boom.
+[00:29:04] Will: Well, the his characters have cadence, like their voices have a kind of boom, boom, boom.
 
 [00:29:09] Adam: Nobody writes better dialogue. Nobody writes better dialogue, and even with missing words and a patois, like criminal underclass, and all of that. I mean, Elmore Leonard is one of the was he's RIP. I really, I'm sad that he passed away this year. One of the great voices of American speech, totally, and really frequently gets made into terrific adaptations. There is a really abysmal one, which is called The Big Bounce, starring Luke Wilson and Morgan Freeman.
 
@@ -650,9 +650,9 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:30:04] Norm: I think we covered. And we covered it, and also just barely scratched the surface.
 
-[00:30:08] Adam: Yeah, we did. There's no way to do an in depth. I mean, this would be like a 40 part podcast to go into deep. But I think we've covered. Thank you for the for the comic and the Elmore Leonard tip because that those are fertile grounds for adaptation.
+[00:30:08] Adam: Yeah, we did. There's no way to do an in depth. I mean, this would be like a 40 part podcast to go into deep. But I think we've covered. Thank you for the comic and the Elmore Leonard tip because that those are fertile grounds for adaptation.
 
-[00:30:22] Will: Yeah, well, and and then there's also like the meta adaptation, like adaptation, which is a movie about adapting and adapt. And yeah, you can go down deep holes. We'll be back next week with another episode.
+[00:30:22] Will: Yeah, well, and then there's also like the meta adaptation, like adaptation, which is a movie about adapting and adapt. And yeah, you can go down deep holes. We'll be back next week with another episode.
 
 [00:30:22] Adam: We will.
 

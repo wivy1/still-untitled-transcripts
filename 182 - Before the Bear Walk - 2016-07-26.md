@@ -60,9 +60,9 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:01:56] Adam: I very much enjoy seeing Comic Con through somebody new's eyes because it's an overwhelming slog. It. Is it is like a freight train, and for me, I'm up from like eight a.m. till two a.m. five days in a row, and I go home and I kind of recover. But when I see it through someone, someone's eyes who hasn't been before, it kind of freshens it up.
 
-[00:02:22] Simone: Yeah, yeah. I think I think I mean it was a lot of fun, and especially yesterday, we went to a lot of different parties, and I didn't really expect that aspect of it. I thought it was mainly just the convention and people walking around, but there's just so much stuff going around or going on around it. But I think I mean yesterday because we were filming. I was filming in the center for maybe four hours, and it's just like it's it demands so much processing power of your brain just to navigate big crowds and all the impressions, and it just like I don't know. I feel like I could stare into a wall for a long time and not be bored.
+[00:02:22] Simone: Yeah, yeah. I think I mean it was a lot of fun, and especially yesterday, we went to a lot of different parties, and I didn't really expect that aspect of it. I thought it was mainly just the convention and people walking around, but there's just so much stuff going around or going on around it. But I think I mean yesterday because we were filming. I was filming in the center for maybe four hours, and it's just like it's it demands so much processing power of your brain just to navigate big crowds and all the impressions, and it just like I don't know. I feel like I could stare into a wall for a long time and not be bored.
 
-[00:03:01] Norm: I feel like how Superman feels. With all the sensory overload he gets when, with all the sounds that we have to like turn off things, turn off the smells when you're in the convention center, focus on on your target and navigate.
+[00:03:01] Norm: I feel like how Superman feels. With all the sensory overload he gets when, with all the sounds that we have to like turn off things, turn off the smells when you're in the convention center, focus on your target and navigate.
 
 [00:03:15] Adam: Well, and every other year before this year, I've had to fly back from Comic Con on Sunday and be filming MythBusters on Monday.
 
@@ -108,9 +108,9 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:05:22] Norm: Yes,
 
-[00:05:23] Adam: and that I find really exciting. Now, one of the symptoms one of the one of the symptoms of this is is the Force Awakens. There's tons and tons of girls and women dressed as Rey from the Force Awakens, and I love that costume. It's everyone looks great.
+[00:05:23] Adam: and that I find really exciting. Now, one of the symptoms of this is is the Force Awakens. There's tons and tons of girls and women dressed as Rey from the Force Awakens, and I love that costume. It's everyone looks great.
 
-[00:05:39] Norm: And in previous years, we saw like the rise of gender-crossing cosplay. Like you would be groups would come in where the roles would be reversed. You'd have women playing Superman and Batman, and men playing Wonder Woman and and and a lot of the female heroes. And now, yeah,
+[00:05:39] Norm: And in previous years, we saw like the rise of gender-crossing cosplay. Like you would be groups would come in where the roles would be reversed. You'd have women playing Superman and Batman, and men playing Wonder Woman and a lot of the female heroes. And now, yeah,
 
 [00:05:56] Adam: I saw a female. I saw a drag Thor.
 
@@ -122,13 +122,13 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:06:11] Simone: But I think also, I mean, because it feels like a lot of the previous or older female characters are very like it's like super tight, super like hot panty kind of thing, and maybe not everyone feels comfortable with that. And now they have another assortment of female characters that are a little bit like more dressed down that they can choose from.
 
-[00:06:30] Adam: And so you understand a little bit of the history of Comic Con and cons in general. Is it's a very it's a very touchy area where where attendees, cosplayers, are coming and wearing those skimpy costumes, where it's been required to invent the phrase " cosplay does not equal consent."
+[00:06:30] Adam: And so you understand a little bit of the history of Comic Con and cons in general. Is it's a very touchy area where attendees, cosplayers, are coming and wearing those skimpy costumes, where it's been required to invent the phrase " cosplay does not equal consent."
 
 [00:06:51] Norm: Yes,
 
-[00:06:51] Adam: because these women and girls are getting groped and or their photos taken creepily. The the the ethic here is that you ask someone to take their photo, you let them pose for you, you take the photo, you don't just creep out and take lots of them.
+[00:06:51] Adam: because these women and girls are getting groped and or their photos taken creepily. The ethic here is that you ask someone to take their photo, you let them pose for you take the photo, you don't just creep out and take lots of them.
 
-[00:07:04] Norm: Yeah, we walked around. Simone and I walked around and like did like a little tour of the show, and we saw like. Just in like the statues and figurines. This is the most impractical costume.
+[00:07:04] Norm: Yeah, we walked around. Simone and I walked around and did a little tour of the show, and we saw like. Just in like the statues and figurines. This is the most impractical costume.
 
 [00:07:14] Adam: Impractical is a—
 
@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:08:03] Adam: Yeah.
 
-[00:08:03] Norm: And also for Suicide Squad, and you had like the the actors like milled out versions of their their uh. Their mannequins in them.
+[00:08:03] Norm: And also for Suicide Squad, and you had like the actors like milled out versions of their. Their mannequins in them.
 
 [00:08:12] Adam: I aspire to the kind of display that I've been seeing—the Star Wars booth, all the Force Awakens and Rogue One costumes on display, beautifully laid out, like just fantastic reference materials. The way I think about it, but gorgeous display.
 
@@ -168,15 +168,15 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:08:43] Norm: Yes.
 
-[00:08:43] Adam: out on the floor—the Anovos Kylo Ren, which is, from what I understand, it's patterned right off the original that Adam Driver wore. I did a test fit with the Anovos of the suit that was cut to Driver to discover that turns out my shoulders are less broad than his, but I think we knew that. But the costume itself was an amazing costume to wear. I think, I mean, the pictures came out incredibly. But also, you know, Deborah Nadoolman Landis talks about how a good costume puts you into the character, literally, physically pours you into a character. How a British naval uniform from the 18th century will pull your shoulders back, that a captain can't even raise his arm above this because it's supposed to look regal. And Kylo's costume does that. It's like four heavy layers of fabric around your midsection and this tight belt. And there's a way in which it just wearing the costume makes you stand like an angry Sith.
+[00:08:43] Adam: out on the floor—the Anovos Kylo Ren, which is, from what I understand, it's patterned right off the original that Adam Driver wore. I did a test fit with the Anovos of the suit that was cut to Driver to discover that turns out my shoulders are less broad than his, but I think we knew that. But the costume itself was an amazing costume to wear. I think, I mean, the pictures came out incredibly. But also Deborah Nadoolman Landis talks about how a good costume puts you into the character, literally, physically pours you into a character. How a British naval uniform from the 18th century will pull your shoulders back, that a captain can't even raise his arm above this because it's supposed to look regal. And Kylo's costume does that. It's like four heavy layers of fabric around your midsection and this tight belt. And there's a way in which it just wearing the costume makes you stand like an angry Sith.
 
 [00:09:41] Norm: Now that's a really good point because Simone asked a good question. What's the difference between cosplay and like just costuming for Halloween? And since we podcasted last, your TED Talk has come out in which you talk about your lifelong love of cosplay, and that's exactly what you're talking about. I think it's struggled to explain it, but like when you cosplay, you embody the character more.
 
-[00:10:01] Adam: You are, you are. It's it's a performance more than it is. There's a performative aspect to Halloween, but it is often swept under the rug because it's a little weird and it's a little embarrassing. And when people put on, you know, we do this every day. We put on our favorite shirt and we feel a little better about the day, and that's great. That's important, and that's that's a costume. You that that's a signifier both to you and to the people you're meeting. Costumes are the same thing, but it's it can be so extreme when you put on a Han Solo outfit that feels good and it's weird. That Halloween, I think, is a little bit more, you know,
+[00:10:01] Adam: You are. It's a performance more than it is. There's a performative aspect to Halloween, but it is often swept under the rug because it's a little weird and it's a little embarrassing. And when people put on we do this every day. We put on our favorite shirt and we feel a little better about the day, and that's great. That's important, and that's a costume. You that that's a signifier both to you and to the people you're meeting. Costumes are the same thing, but it's it can be so extreme when you put on a Han Solo outfit that feels good and it's weird. That Halloween, I think, is a little bit more
 
 [00:10:41] Simone: people don't really dare to like go full force into character, and
 
-[00:10:45] Adam: but when you when you and I had to learn this, I first came in Hellboy, and I wasn't thinking about posing as Hellboy, but when you work towards building a costume, and then once you have the costume, you work on putting the character into it. It's this whole other other layer.
+[00:10:45] Adam: but when you and I had to learn this, I first came in Hellboy, and I wasn't thinking about posing as Hellboy, but when you work towards building a costume, and then once you have the costume, you work on putting the character into it. It's this whole other other layer.
 
 [00:11:00] Norm: It's like Batman, Bruce Wayne is the mask. Batman is the true character.  It’s the true persona.
 
@@ -206,17 +206,17 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:11:58] Adam: The little hint of beard, of the gorgeous, or my hair in the back—
 
-[00:12:02] Simone: the way his neck creases—isn't that, isn't that Adam Savage?
+[00:12:02] Simone: the way his neck creases—isn't that Adam Savage?
 
 [00:12:06] Adam: I told you this yesterday, and you were like, " Is it your walk?"
 
 [00:12:11] Norm: The gait, yeah.
 
-[00:12:11] Adam: And so I saw this—I saw this cosplay Jamie—and I went up and I said, " Can I take a picture?" And he said, " Yeah." And then he took a picture. And then after we took the pictures, I said, " I'm Adam Savage." He was like, " No way!" I was like, " Yep." And then he found out for real because he sat in my autograph line yesterday, and we signed autographs and we took some pictures, which is—I actually hit the front page of Imgur yesterday.
+[00:12:11] Adam: And so I saw this cosplay Jamie—and I went up and I said, " Can I take a picture?" And he said, " Yeah." And then he took a picture. And then after we took the pictures, I said, " I'm Adam Savage." He was like, " No way!" I was like, " Yep." And then he found out for real because he sat in my autograph line yesterday, and we signed autographs and we took some pictures, which is—I actually hit the front page of Imgur yesterday.
 
 [00:12:33] Norm: Oh, that's great!
 
-[00:12:35] Adam: So that was awesome. You know, I signed autographs for two hours for several hundred people yesterday, and that was also amazing. We we we took some pictures. We tweeted a bunch of people's costumes. There's every manner. There's a couple things I love here. One is the beautiful costumes. Two is people committing to wearing them, and every costume is hot. Yeah, and every costume is uncomfortable. That's
+[00:12:35] Adam: So that was awesome. I signed autographs for two hours for several hundred people yesterday, and that was also amazing. We took some pictures. We tweeted a bunch of people's costumes. There's every manner. There's a couple things I love here. One is the beautiful costumes. Two is people committing to wearing them, and every costume is hot. Yeah, and every costume is uncomfortable. That's
 
 [00:12:59] Simone: and it's been really warm here.
 
@@ -278,15 +278,15 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:15:47] Adam: It has a story inherent in its construction that it looks like it's not the best construction. It's not perfectly built.
 
-[00:15:54] Norm: It's apparently JJ Abrams. Has like a movie worth a movie's full worth of story just for that lightsaber hilt, including, for example, the bottom is an additional engine. The reason there's a red red wire exposed is because it got burnt out on the top engine, so he had to add a bottom engine, and the wire comes out. the The wire is translucent. The cross guards. People always ask, you know, it's actually work. Well, it's made of Mandalorian iron, so it will actually lightsaber will not block, will not cut through it. Yeah, things like that. Like there's damage on there that comes from his previous battles that have already been imagined but not put on film on or paper.
+[00:15:54] Norm: It's apparently JJ Abrams. Has like a movie worth a movie's full worth of story just for that lightsaber hilt, including, for example, the bottom is an additional engine. The reason there's a red red wire exposed is because it got burnt out on the top engine, so he had to add a bottom engine, and the wire comes out. the wire is translucent. The cross guards. People always ask it's actually work. Well, it's made of Mandalorian iron, so it will actually lightsaber will not block, will not cut through it. Yeah, things like that. Like there's damage on there that comes from his previous battles that have already been imagined but not put on film on or paper.
 
-[00:16:33] Adam: That's you know that's why I love the storytellers, man. Yeah. Imbuing everything with with with a history.
+[00:16:33] Adam: That's you know that's why I love the storytellers, man. Yeah. Imbuing everything with a history.
 
 [00:16:40] Norm: And then the prop makers have to actually add that story because there's there's no film for any of that beforehand. So in their making of the prop, they actually they hear the story from the creative, and even though it'll never be explained. they actually have to put it in the prop.
 
 [00:16:54] Adam: Now we should also talk because some folks who are listening to the podcast have not been following our our social feeds and and tested. We started out Comic Con Wednesday night. I went to the world premiere of Star Trek Beyond, a incredible world premiere because it's the first time there's ever been an outdoor IMAX performance with a full Philharmonic for world premiere of a film. It was incredible. Michael Giacchino's incredible score was played by the San Diego Philharmonic outdoors here on San Diego Harbor.
 
-[00:17:26] Norm: So the the movie had no they had a cut of the movie without the score.
+[00:17:26] Norm: So the movie had no they had a cut of the movie without the score.
 
 [00:17:31] Adam: That's exactly right,
 
@@ -320,11 +320,11 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:18:56] Simone: Yeah, was it better? The second time, or
 
-[00:18:59] Adam: no, it's about the same. I, you know, I, I'm not a. I don't usually watch movies more than once, and
+[00:18:59] Adam: no, it's about the same. I I, I'm not a. I don't usually watch movies more than once, and
 
 [00:19:05] Simone: especially not within, yeah, like two days.
 
-[00:19:08] Adam: But it's it is it's great to sit and start to get to really see the layers of storytelling again within the frame that they're that they're layering in. It's got a few great guffaws in it. It's a terrific script by Simon Pegg. It's just it's a really fun movie. I I like this better than Into Darkness.
+[00:19:08] Adam: But it's it is it's great to sit and start to get to really see the layers of storytelling again within the frame that they're layering in. It's got a few great guffaws in it. It's a terrific script by Simon Pegg. It's just it's a really fun movie. I like this better than Into Darkness.
 
 [00:19:27] Norm: Yeah, yeah, I think it's a better movie also.
 
@@ -354,7 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:21:19] Simone: Yeah.
 
-[00:21:19] Norm: Last year, because we're we took a cart when you and Chris Hadfield were in the the water cooled astronaut suit, the 2001 suit. We were carted all the way there, yeah. And this one, there's also almost more of a performance because you'll be you have an accessory.
+[00:21:19] Norm: Last year, because we're we took a cart when you and Chris Hadfield were in the water cooled astronaut suit, the 2001 suit. We were carted all the way there, yeah. And this one, there's also almost more of a performance because you'll be you have an accessory.
 
 [00:21:34] Adam: Yeah, I do. I do have a big accessory.
 
@@ -374,7 +374,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:21:50] Unknown: Yes.
 
-[00:21:49] Simone: Yeah, you were you were you were rocking Starbucks on that Segway.
+[00:21:49] Simone: Yeah, you were rocking Starbucks on that Segway.
 
 [00:21:53] Unknown: [unclear: Didn’t step down one.]
 
@@ -382,11 +382,11 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:21:55] Adam: Really?
 
-[00:21:55] Norm: Because I check my I check my walking stats and. Like this is not to go on the convention floor. Of course, that would be a terrible fire hazard. And but you know, I'm getting my 20,000 steps in at Comic Con every day.
+[00:21:55] Norm: Because I check my walking stats and. Like this is not to go on the convention floor. Of course, that would be a terrible fire hazard. And but I'm getting my 20,000 steps in at Comic Con every day.
 
 [00:22:07] Adam: Yeah.
 
-[00:22:07] Norm: So in the times that I need to get places, and and I can go and there's a straightaway. I'm going to use the Segway.
+[00:22:07] Norm: So in the times that I need to get places, and I can go and there's a straightaway. I'm going to use the Segway.
 
 [00:22:14] Adam: Well, so and this is the thing for me with the Onewheel is the way Comic Con is constructed. The convention center is right along the harbor.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:23:08] Adam: So I just I hear people, wait, wait, wait a minute, what the like that kind of thing as I'm going through.
 
-[00:23:12] Simone: Because you were on front page of page of Imgur again, just in San Francisco, going around on your Onewheel.
+[00:23:12] Simone: Because you were on front page of Imgur again, just in San Francisco, going around on your Onewheel.
 
 [00:23:19] Adam: Yes, that’s right.
 
@@ -422,11 +422,11 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:23:21] Adam: Yeah. Exactly. So yeah, I they someone caught me leaving ritual with my coffee carrier, changing my sunglasses while on the Onewheel and making a U turn. Yeah. So I love that thing, and it's been. I think next year we should bring electric, more electric vehicles for the crew to be able to move around.
 
-[00:23:41] Norm: Hotels should definitely have this, like things you can get for guests to to rent or loan for the day. Yeah. To get around.
+[00:23:41] Norm: Hotels should definitely have this, like things you can get for guests to rent or loan for the day. Yeah. To get around.
 
 [00:23:48] Adam: Let's be clear, Comic Con is a Warren of one way streets here in the Gaslamp District. So jumping in an Uber to drive three blocks can take 30 minutes during Comic Con. At any time of day or night.
 
-[00:23:59] Norm: Well, there's also other ways getting around. There were the the
+[00:23:59] Norm: Well, there's also other ways getting around. There were the
 
 [00:24:01] Adam: pedicabs
 
@@ -434,11 +434,11 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:24:05] Adam: Like by the way, before you say this, I said to my assistant who lives here. I said we can rent one of those pedophiles or whatever it's called, and she goes, whatever it's called, it's just as dangerous.
 
-[00:24:16] Simone: Just pay $20. You can rent a pedophile. Oh gosh, yeah, no. So we were going. We were at a yacht party with IMDb, and we're going to a Weta party. And I didn't, I didn't anticipate how far it was. So we were five people, and we got into one of these rickshaws. What was it called?
+[00:24:16] Simone: Just pay $20. You can rent a pedophile. Oh gosh, yeah, no. So we were going. We were at a yacht party with IMDb, and we're going to a Weta party. And I didn't anticipate how far it was. So we were five people, and we got into one of these rickshaws. What was it called?
 
 [00:24:34] Norm: Pedicabs.
 
-[00:24:35] Simone: Pedicabs. Yes. And and and the guy was like, I was like, do you do you have like, are you okay with this?
+[00:24:35] Simone: Pedicabs. Yes. And the guy was like, I was like, do you have like, are you okay with this?
 
 [00:24:42] Norm: Because four people.
 
@@ -462,15 +462,15 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:26:18] Adam: Successful first Comic Con. Yeah, that is great.
 
-[00:26:20] Simone: Yeah, I felt yeah I felt really happy about it. But next time I'm gonna get into a costume because I really want that experience of like, and I've been seeing a lot of the great costumes, and I'm like, gosh, I just really want to work with that.
+[00:26:20] Simone: Yeah, I felt really happy about it. But next time I'm gonna get into a costume because I really want that experience of like, and I've been seeing a lot of the great costumes, and I'm like, gosh, I just really want to work with that.
 
-[00:26:33] Adam: Yeah, and I was walking as Kylo yesterday, and I saw a Rey walk past, and she was probably like 16, and she was like, you know, there's a lot of parts to Rey, and they wrap, and it's a lot of bits, and I know the Star Wars clothes, the how they hang is really important, but it's not always easy to construct them to hang right. And she's there, and she's fiddling with some part, and she looks a little like kind of pissed off about it, and it gave me this really warm feeling because. That's part of the costume. It's uncomfortable. It's it really takes this commitment, and it's just like being uncomfortable in your costume is one of the things that's going to happen.
+[00:26:33] Adam: Yeah, and I was walking as Kylo yesterday, and I saw a Rey walk past, and she was probably like 16, and she was like there's a lot of parts to Rey, and they wrap, and it's a lot of bits, and I know the Star Wars clothes, the how they hang is really important, but it's not always easy to construct them to hang right. And she's there, and she's fiddling with some part, and she looks a little like kind of pissed off about it, and it gave me this really warm feeling because. That's part of the costume. It's uncomfortable. It's it really takes this commitment, and it's just like being uncomfortable in your costume is one of the things that's going to happen.
 
-[00:27:07] Simone: Maybe it was the same Rey I saw. I saw Rey who, who was so like she had looked like she cried for hours. Yeah, she was she was crying and like walking around with what's the name of the other character?
+[00:27:07] Simone: Maybe it was the same Rey I saw. I saw Rey who, who was so like she had looked like she cried for hours. Yeah, she was crying and like walking around with what's the name of the other character?
 
 [00:27:18] Norm: Finn.
 
-[00:27:19] Simone: Finn. Yeah, walking around with a Finn, just like holding his hand, and and yeah, maybe that was. the same.
+[00:27:19] Simone: Finn. Yeah, walking around with a Finn, just like holding his hand, and yeah, maybe that was. the same.
 
 [00:27:24] Adam: Well, one of the things that happens here on Friday mornings of Comic Con is there's a lot of raffles to get into various panels and to get various exclusives here at Comic Con. There's raffles and there's auctions and there's like lotteries and there's people wait in line just to get maybe a ticket to get in a lottery to
 
@@ -482,17 +482,17 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:27:44] Adam: and so Friday morning is frankly a litany of disappointment for a large portion of attendees. I I ran into like. As I'm signing autographs, I say, " How's your con going?" Easily 20% of people are going not so great up until now, but this is better. And it's always the same story. We waited for hours this morning, and it didn't come to fruition.
 
-[00:28:07] Simone: Yeah, it's crazy. I didn't, I didn't anticipate that the people. I mean, they wait for like full days.
+[00:28:07] Simone: Yeah, it's crazy. I didn't anticipate that the people. I mean, they wait for like full days.
 
-[00:28:12] Adam: Well, and the waiting is actually it's hard to for for civilians maybe to understand, but the waiting is a key part of the culture here at Comic Con. The sitting in line and the community that's built with the people that are on either side of you in line is actually something that is intrinsic to the Comic Con experience, and it's not something you could remove if you stripped it out immediately and like did Disney World like no lines. You'd actually harm something important about it
+[00:28:12] Adam: Well, and the waiting is actually it's hard to for civilians maybe to understand, but the waiting is a key part of the culture here at Comic Con. The sitting in line and the community that's built with the people that are on either side of you in line is actually something that is intrinsic to the Comic Con experience, and it's not something you could remove if you stripped it out immediately and like did Disney World like no lines. You'd actually harm something important about it
 
-[00:28:40] Simone: because, as I mean, as as a person who who hasn't been to Comic Con before, I'm like, there must be more effective ways to do this. Couldn't you like go online and sign up for a list,
+[00:28:40] Simone: because, as I mean, as a person who who hasn't been to Comic Con before, I'm like, there must be more effective ways to do this. Couldn't you like go online and sign up for a list,
 
 [00:28:49] Adam: Oh, they tried.
 
 [00:28:49] Simone: and then have a lottery and stuff like that? I mean, it just people pay with their time, or that's like how you how how you prove how how much you want this. But maybe that is a part. I mean, maybe it's the part of the experience.
 
-[00:29:01] Adam: It is, and it's the it's the earning of the thing. It's the you know
+[00:29:01] Adam: It is, and it's the earning of the thing. It's the you know
 
 [00:29:04] Simone: right. You earn it by waiting, yeah.
 
@@ -504,7 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:29:29] Adam: Yeah,
 
-[00:29:30] Norm: talk about people who go all out and incognito and and put a costume on. He had a costume made by Ironhead Studios, who they did.
+[00:29:30] Norm: talk about people who go all out and incognito and put a costume on. He had a costume made by Ironhead Studios, who they did.
 
 [00:29:37] Adam: We cover.
 
@@ -516,15 +516,15 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:29:52] Norm: Yeah, you gotta check out that video on Conan's site.
 
-[00:29:56] Adam: So this has been this has been my favorite Comic Con. I I was out dancing with my sons at the Nerdist party. We brought a whole bunch of people over there. Chris and all the folks at Legendary and Felicia Day, Geek & Sundry threw just an incredible party at Petco Park. I've just been glowing all day long every day.
+[00:29:56] Adam: So this has been my favorite Comic Con. I was out dancing with my sons at the Nerdist party. We brought a whole bunch of people over there. Chris and all the folks at Legendary and Felicia Day, Geek & Sundry threw just an incredible party at Petco Park. I've just been glowing all day long every day.
 
 [00:30:17] Norm: And your kids have been enjoying it. It's because you've taken them many Comic Cons, and they've grown up with. Comic Con.
 
-[00:30:21] Adam: They have. They really have. I I didn't realize that, but yeah, they've worked for me every Comic Con. I pay them a day rate plus meals,
+[00:30:21] Adam: They have. They really have. I didn't realize that, but yeah, they've worked for me every Comic Con. I pay them a day rate plus meals,
 
 [00:30:30] Simone: travel.
 
-[00:30:34] Adam: Yeah. And they real they're having a fantastic time. Again, tonight is the big industry party, the EW party, and Thing One has never gotten to go to it. So tonight he's my date, and this is where it's it's a crazy heady mix of like all your favorite television actors, plus all your favorite showrunners, plus a bunch of your favorite movie stars, like all in one room.
+[00:30:34] Adam: Yeah. And they real they're having a fantastic time. Again, tonight is the big industry party, the EW party, and Thing One has never gotten to go to it. So tonight he's my date, and this is where it's a crazy heady mix of like all your favorite television actors, plus all your favorite showrunners, plus a bunch of your favorite movie stars, like all in one room.
 
 [00:30:58] Simone: It's a lot to process.
 
@@ -560,11 +560,11 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:32:13] Norm: That's called a furry convention.
 
-[00:32:14] Adam: Regency era. It's going to be a Regency era furry. No, it's there is specifically this Regency era men's costume that I found a picture of that I've had in my in my files for a few years now that I'm kind of obsessed with because I don't think of it's almost like it could look like an Alex it could be an Alexander McQueen or Gautier outfit because it's so well cut and it's it has so much character and attitude within it. We think of Regency as just being the men in the stiff Mr. Derby Derby jackets and the breeches and things like that. This one is like the high art form of design from that era, and I'd love to replicate that costume. Why? I have no idea,  yeah.
+[00:32:14] Adam: Regency era. It's going to be a Regency era furry. No, it's there is specifically this Regency era men's costume that I found a picture of that I've had in my files for a few years now that I'm kind of obsessed with because I don't think of it's almost like it could look like an Alex it could be an Alexander McQueen or Gautier outfit because it's so well cut and it's it has so much character and attitude within it. We think of Regency as just being the men in the stiff Mr. Derby Derby jackets and the breeches and things like that. This one is like the high art form of design from that era, and I'd love to replicate that costume. Why? I have no idea, yeah.
 
 [00:33:00] Simone: but it's No, having no idea is good enough reason. Just so you want to do it
 
-[00:33:04] Adam: exactly. Do you have any ideas, Simone, of what kind of costume you might be interested in in wearing?
+[00:33:04] Adam: exactly. Do you have any ideas, Simone, of what kind of costume you might be interested in wearing?
 
 [00:33:10] Simone: I would love next year or Comic Con New York. I would love to have a full-on astronaut costume.
 

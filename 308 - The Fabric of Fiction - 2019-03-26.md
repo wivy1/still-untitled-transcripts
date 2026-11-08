@@ -32,17 +32,17 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:01:03] Will: You guys know Scalzi and Pat, and a bunch of wonderful human beings.
 
-[00:01:07] Adam: I love Pat. Did you Did you see his tweet this weekend? he was on a plane and he said he was getting a pat down, and he went, " Oh yeah,
+[00:01:07] Adam: I love Pat. Did you see his tweet this weekend? he was on a plane and he said he was getting a pat down, and he went, " Oh yeah,
 
 [00:01:16] Will: just work the
 
 [00:01:16] Adam: hair." And that voice,
 
-[00:01:18] Will: work the beard. He did. He did the first w00tstock. I went. He read from his children's book, the one that's like it seems like a normal, wholesome children's book, and then you get to the part where it's like, if you're reading with your child, you might not want to go past this point. And and then I I had what I would describe as the single most embarrassing celebrity interaction I've ever had with Pat at backstage at w00tstock, and he was very generous and kind, and I continued to be horrified by my behavior.
+[00:01:18] Will: work the beard. He did. He did the first w00tstock. I went. He read from his children's book, the one that's like it seems like a normal, wholesome children's book, and then you get to the part where it's like, if you're reading with your child, you might not want to go past this point. And then I I had what I would describe as the single most embarrassing celebrity interaction I've ever had with Pat at backstage at w00tstock, and he was very generous and kind, and I continued to be horrified by my behavior.
 
 [00:01:44] Adam: What did you do?
 
-[00:01:45] Will: I just walked up to him. I was like, I I I I really love like your book is really good. It's the only fantasy I'm not. embarrassed to recommend to my friends, and then I just walked away because I was like, " Well, that's done. I can never speak to him again."
+[00:01:45] Will: I just walked up to him. I was like, I I really love like your book is really good. It's the only fantasy I'm not. embarrassed to recommend to my friends, and then I just walked away because I was like, " Well, that's done. I can never speak to him again."
 
 [00:01:59] Adam: Well, that ought to do it.
 
@@ -56,11 +56,11 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:02:19] Will: Oh, it's very cute then. But yeah, and Max is a good friend. Max has been. We've known you since I think back in the whiskey media days in the basement of the.
 
-[00:02:30] Max: Well, I got I got very lucky that when I got, you know, I sort of started coming to game conferences and started getting into the industry and and meeting people and stuff, and I just somehow, well, Ryan was an early cards fan and he found it and played it on the bombcast. I think you were there.
+[00:02:30] Max: Well, I got very lucky that when I got I sort of started coming to game conferences and started getting into the industry and meeting people and stuff, and I just somehow, well, Ryan was an early cards fan and he found it and played it on the bombcast. I think you were there.
 
 [00:02:44] Will: I was there.
 
-[00:02:45] Max: You were on that episode, and I remember watching that. Was I didn't really know what Giant Bomb was because I, you know, I wasn't from the video game world, and I remember watching that video, and then it just exploded. And I was like, " Who are these guys?
+[00:02:45] Max: You were on that episode, and I remember watching that. Was I didn't really know what Giant Bomb was because I I wasn't from the video game world, and I remember watching that video, and then it just exploded. And I was like, " Who are these guys?
 
 [00:02:56] Will: " We sold out Amazon of cards before.
 
@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:04:42] Adam: And I started for some reason. I was like, " Wow! I just I really like Mayor Pete." And then saying that phrase in my head, I was like, " Wait a minute! Wait a minute! Wait a minute!" And I looked through my calendar, and it turns out, yeah, in 2018, I actually spoke in Indiana at North at what do you call it, Notre Dame, and I sat on a panel at City Hall with Mayor Pete talking about city infrastructure. That I met him.
 
-[00:05:11] Will: Oh, oh, so you you have a relationship?
+[00:05:11] Will: Oh, oh, so you have a relationship?
 
 [00:05:13] Adam: Yeah, and I like I they brought me there to be part of an idea festival that that they were bringing innovation to the town, and they had telling me about the smart sewers they built to deal with flooding that shut themselves off to keep flooding from ending up in different parts of the city, and I was like, " This place is great!
 
@@ -134,9 +134,9 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:06:14] Unknown (Adam, Max or Will): Yeah.
 
-[00:06:15] Max: And Democrats are so we're so like brow beaten over the last 20 years of politics. We're so afraid to like want things and be in favor of things. It's I mean it's true, and and it and you can hear it when you hear people talk and they have this mealy mouth like weasel language and like I support every hardworking person's right to have access to an opportunity to maybe get affordable health care. Wait, what the fuck are you talking about? And it's so bracing when you hear a AOC or or any of these sort of like like young like millennial Democrats who get elected and they're like health care is a human right. Everyone has should have health care. And you're like, are you allowed? Well, are we allowed? Are we allowed to want that?
+[00:06:15] Max: And Democrats are so we're so like brow beaten over the last 20 years of politics. We're so afraid to like want things and be in favor of things. It's I mean it's true, and it and you can hear it when you hear people talk and they have this mealy mouth like weasel language and like I support every hardworking person's right to have access to an opportunity to maybe get affordable health care. Wait, what the fuck are you talking about? And it's so bracing when you hear a AOC or any of these sort of like young like millennial Democrats who get elected and they're like health care is a human right. Everyone has should have health care. And you're like, are you allowed? Well, are we allowed? Are we allowed to want that?
 
-[00:06:52] Adam: Yeah. I will tell you that when I was speaking in the town. They were like, I was like, I did the panel and it was really fun and great and really informative. And the the crowd of people from the city interested in the city's future, etc., was a really interesting speaking engagement. And I was saying to the woman who was taking me on to the appearance that I was doing, I was like, Mayor Pete's great. She's like, Oh yeah, yeah, we're all hoping he'll run for president. And I was like, 37 year old mayor of a small, yeah. I mean, that is sweet.
+[00:06:52] Adam: Yeah. I will tell you that when I was speaking in the town. They were like, I was like, I did the panel and it was really fun and great and really informative. And the crowd of people from the city interested in the city's future, etc., was a really interesting speaking engagement. And I was saying to the woman who was taking me on to the appearance that I was doing, I was like, Mayor Pete's great. She's like, Oh yeah, yeah, we're all hoping he'll run for president. And I was like, 37 year old mayor of a small, yeah. I mean, that is sweet.
 
 [00:07:22] Will: Good luck.
 
@@ -146,17 +146,17 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:07:32] Adam: Let's do something.
 
-[00:07:33] Will: Watching AOC like come into congressional hearings and and you
+[00:07:33] Will: Watching AOC like come into congressional hearings and you
 
 [00:07:37] Adam: dude
 
-[00:07:37] Will: like you see there's a level of preparation. Like I I worked on the Hill for two summers when I was in college, right? I I went to a lot of committee hearings,
+[00:07:37] Will: like you see there's a level of preparation. Like I I worked on the Hill for two summers when I was in college, right? I went to a lot of committee hearings,
 
 [00:07:44] Adam: right?
 
 [00:07:44] Will: And the old white men who typically are asking questions in those places are like two thirds grandstanding for C-SPAN and then one third trying to remember the question that they were supposed to ask by their their aides told them to ask. Yeah, and and she comes in. And she sits down with four questions and gets exactly the information that out that she wants. It's going to kick off a hearing, sorry, an investigation in you know where whatever jurisdiction the person she's talking about.
 
-[00:08:07] Max: Well, the other thing, the other thing that I can tell you why that is, and the reason is when you see the grandstanding and you see you know you know using a wrestling you know
+[00:08:07] Max: Well, the other thing that I can tell you why that is, and the reason is when you see the grandstanding and you see you know using a wrestling you know
 
 [00:08:15] Will: I’m familiar with Greek or Roman, right?
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:08:49] Max: Yeah, yeah yeah no I appreciate
 
-[00:08:49] Adam: I I I will say that Max Landis turned me around on all of this to to love the whole idea of it wrestling is fake right you’ve seen his video
+[00:08:49] Adam: I will say that Max Landis turned me around on all of this to love the whole idea of it wrestling is fake right you’ve seen his video
 
 [00:08:58] Will: it's the great
 
@@ -192,7 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:09:18] Unknown (Adam, Max or Will): Radio Lab.
 
-[00:09:20] Max: As long as we're saying our you know our cool masculine ways that we got into wrestling you know, academic YouTube video on a Radio Lab episode, but politics has a kayfabe to it. There's a way that we all are pretend to behave in certain ways in this veneer of like civility over it, and part of when people behave according to that kayfabe is because they have they owe people things. There's powerful interests and lobbyists and money who gave people money, and now they want
+[00:09:20] Max: As long as we're saying our you know our cool masculine ways that we got into wrestling academic YouTube video on a Radio Lab episode, but politics has a kayfabe to it. There's a way that we all are pretend to behave in certain ways in this veneer of like civility over it, and part of when people behave according to that kayfabe is because they have they owe people things. There's powerful interests and lobbyists and money who gave people money, and now they want
 
 [00:09:44] Will: a lot of money.
 
@@ -214,7 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:10:19] Max: Tweet at Will Smith with any of your comments.
 
-[00:10:21] Will: Boost my social media. Um. So, the thing that the thing that I find is that I'm looking at the people running for president on the Democratic side this year, and we have a bunch of young people, a bunch of middle aged people, a bunch of old people. Most of the the baggage that comes with the middle aged and older people, I I think is going to be disqualifying in the long term. You look at Joe Biden, who people think of as Uncle Joe because of a bunch of onion bits from the last 15 years, but he has a 40 year history of terrible terrible voting that that should by all rights sink him, except for he's Cool dad and sunglasses.
+[00:10:21] Will: Boost my social media. So, the thing that I find is that I'm looking at the people running for president on the Democratic side this year, and we have a bunch of young people, a bunch of middle aged people, a bunch of old people. Most of the baggage that comes with the middle aged and older people, I I think is going to be disqualifying in the long term. You look at Joe Biden, who people think of as Uncle Joe because of a bunch of onion bits from the last 15 years, but he has a 40 year history of terrible terrible voting that that should by all rights sink him, except for he's Cool dad and sunglasses.
 
 [00:10:56] Adam: Yeah,
 
@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:11:48] Will: How do I get? How do I get average?
 
-[00:11:49] Max: I don't know. Maybe a couple a couple of zannies and we can stop checking Twitter all the time. But that kind of blew my mind because it really reinforced to me that when you're talking about oh like. The people's opinions about Biden or this or that, like most people, Biden's the only one anyone's heard of. Like nobody knows who Kamala Harris. We do because we're
+[00:11:49] Max: I don't know. Maybe a couple of zannies and we can stop checking Twitter all the time. But that kind of blew my mind because it really reinforced to me that when you're talking about oh like. The people's opinions about Biden or this or that, like most people, Biden's the only one anyone's heard of. Like nobody knows who Kamala Harris. We do because we're
 
 [00:12:06] Will: we're in California.
 
@@ -250,9 +250,9 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:12:11] Will: Against her twice.
 
-[00:12:11] Max: Wow, that's very woke of you. Will. I—we’re all impressed, but I'm just saying, like the the the the die has not been cast here, right? Like the voters have no idea who these people are. These polls are all over the place. And name, it's you're just asking name ID right now. You're just asking who have people heard of. Well, we're we're almost. I think we're just past exactly one year until Iowa caucuses. So there's a long, a long, long way to go. Yeah,
+[00:12:11] Max: Wow, that's very woke of you. Will. I—we’re all impressed, but I'm just saying, like the die has not been cast here, right? Like the voters have no idea who these people are. These polls are all over the place. And name, it's you're just asking name ID right now. You're just asking who have people heard of. Well, we're almost. I think we're just past exactly one year until Iowa caucuses. So there's a long, long way to go. Yeah,
 
-[00:12:37] Will: and and and this is the thing. Like I, there's a lot of talk in journalism circles about how we cover presidential elections, how journalists cover presidential elections, and there's a lot of talk about horse race journalism and what and and I feel like a lot of people that don't follow that that specific subset of politics don't know what that means. But it's the idea that there are opinion polls right now that have Biden and and and Harris in the lead and Elizabeth Warren in the lead. But it's it's literally just because of that. It's because people recognize those names. So when somebody calls, when Gallup calls them during dinner time and says, " Hey, who do you think is going to win the Democratic primary?" and they're like, " I don't know. What about that Biden guy?"
+[00:12:37] Will: and this is the thing. Like I, there's a lot of talk in journalism circles about how we cover presidential elections, how journalists cover presidential elections, and there's a lot of talk about horse race journalism and what and I feel like a lot of people that don't follow that that specific subset of politics don't know what that means. But it's the idea that there are opinion polls right now that have Biden and Harris in the lead and Elizabeth Warren in the lead. But it's literally just because of that. It's because people recognize those names. So when somebody calls, when Gallup calls them during dinner time and says, " Hey, who do you think is going to win the Democratic primary?" and they're like, " I don't know. What about that Biden guy?"
 
 [00:13:14] Adam: Yeah, no, it's going to be President Boaty McBoatface.
 
@@ -292,7 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:14:13] Max: It's a good restaurant at the Parker Hotel.
 
-[00:14:15] Adam: It is terrific. The food is great. The staff is great. The conference. Everyone at the conference is so overwhelmed by the by the intellectual prowess and work incredible work of all the other people at the conference that it feels like a completely level playing field. I was so. Last night, I was enjoying some cigars by the fire pit,
+[00:14:15] Adam: It is terrific. The food is great. The staff is great. The conference. Everyone at the conference is so overwhelmed by the intellectual prowess and work incredible work of all the other people at the conference that it feels like a completely level playing field. I was so. Last night, I was enjoying some cigars by the fire pit,
 
 [00:14:36] Will: as one does in 1997. Adam,
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:14:56] Max: Oh, like the Borg Queen puts on Brent Spiner and starts her First Contact. Right. Yeah.
 
-[00:14:59] Adam: So I'm talking to her, and we're we're chatting, and we're talking about the conference. And I said, " Wait, let's listen to this crowd. " About 100 people around the fire pit, and you know, 40 conversations going on, and. I'm realizing, you know, a party a party where everyone's drinking. Usually, you're hearing a lot of loud stories, a lot of hearty laughter, a lot of posturing, and the sound of this. And it's like 11:30 at night. Is all these people just trading information as fast as they can, all really, really excited, and you can feel that energy. And it was stunning. So last night was the final night of the conference. I interviewed.
+[00:14:59] Adam: So I'm talking to her, and we're chatting, and we're talking about the conference. And I said, " Wait, let's listen to this crowd. " About 100 people around the fire pit, and 40 conversations going on, and. I'm realizing, you know, a party where everyone's drinking. Usually, you're hearing a lot of loud stories, a lot of hearty laughter, a lot of posturing, and the sound of this. And it's like 11:30 at night. Is all these people just trading information as fast as they can, all really, really excited, and you can feel that energy. And it was stunning. So last night was the final night of the conference. I interviewed.
 
 [00:15:35] Max: Was Jeff Bezos there?
 
@@ -312,13 +312,13 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:15:39] Max: You do. What's he like?
 
-[00:15:40] Adam: He's he has an infectious laugh. He is intensely curious. On an interpersonal level, I really like him. You know, he he his his effect on the world has large positive things and large negative things, and I recognize that on on a personal level. I you know.
+[00:15:40] Adam: He's he has an infectious laugh. He is intensely curious. On an interpersonal level, I really like him. He his his effect on the world has large positive things and large negative things, and I recognize that on a personal level. I you know.
 
 [00:15:59] Will: Do you think he's aware of that?
 
 [00:16:00] Adam: I'm sure he's aware of that. I don't think you can't be aware of that.
 
-[00:16:03] Will: I mean, I don't know. I I know a lot of people who've reached a certain point and then become kind of unaware of the wake that they leave.
+[00:16:03] Will: I mean, I don't know. I know a lot of people who've reached a certain point and then become kind of unaware of the wake that they leave.
 
 [00:16:10] Adam: I have met. A few billionaires in my life, and I will say that Jeff seems like the sanest one, or the most approachable one I have met. But it's also plausible because we're almost the same age. I'm only a couple of years younger than him, and really, it feels like the whole reason this conference exists is to engender conversations between people from different fields and see what things they can collaborate on in the future.
 
@@ -372,7 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:18:20] Adam: I do think so. I think. I think it. I feel like it definitely is.
 
-[00:18:25] Will: Spoilers for Seveneves, but but like that book, the first 1,000 pages.
+[00:18:25] Will: Spoilers for Seveneves, but like that book, the first 1,000 pages.
 
 [00:18:29] Adam: Hold on. Real spoilers. I strongly recommend you read this book. And if you have any inkling you're going to read the book, don't listen to any of these spoilers.
 
@@ -380,13 +380,13 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:18:37] Adam: Yeah, but go ahead.
 
-[00:18:38] Will: That book, the the the climax of that book is us getting to a point where we've destroyed every single one billionth and of the population of the world,
+[00:18:38] Will: That book, the climax of that book is us getting to a point where we've destroyed every single one billionth and of the population of the world,
 
 [00:18:46] Adam: and we somehow pull it out of the fire.
 
 [00:18:49] Max: But I'm not. But I'm not. I mean, I I I like
 
-[00:18:51] Adam: Cixin Liu. I've just read Ball Lightning, the the Three Body Problem trilogy.
+[00:18:51] Adam: Cixin Liu. I've just read Ball Lightning, the Three Body Problem trilogy.
 
 [00:18:55] Max: Oh yeah, yeah,
 
@@ -394,15 +394,15 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:19:00] Max: Okay.
 
-[00:19:00] Adam: Um, both very positive about humanity.
+[00:19:00] Adam: Both very positive about humanity.
 
-[00:19:03] Will: I would say Kim Stanley Robinson is the other is is the counterpoint to that though, because like Aurora is a is a deeply.
+[00:19:03] Will: I would say Kim Stanley Robinson is the other is is the counterpoint to that though, because like Aurora is a deeply.
 
 [00:19:10] Adam: It’s Kim Stanley Robinson's also Red Mars,
 
 [00:19:11] Will: Green Mars. Red Mars, Green Mars, Blue Mars?
 
-[00:19:13] Max: I'm thinking so. I do love all this stuff, and I agree with you. Like they're showing like a way for the human. Spirit to triumph even in the face of this like catastrophe. Although, where's the like really optimistic science fiction where we don't destroy the planet in some way? We don't have a catastrophe. But not only that, but also like if you look at the stuff that breaks through into the mainstream, you know the the really mainstream stuff, like it's all superhero content now.
+[00:19:13] Max: I'm thinking so. I do love all this stuff, and I agree with you. Like they're showing like a way for the human. Spirit to triumph even in the face of this like catastrophe. Although, where's the like really optimistic science fiction where we don't destroy the planet in some way? We don't have a catastrophe. But not only that, but also like if you look at the stuff that breaks through into the mainstream, you know the really mainstream stuff, like it's all superhero content now.
 
 [00:19:33] Adam: Right.
 
@@ -422,7 +422,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:20:13] Max: Right.
 
-[00:20:13] Will: He's Tony Stark and and the what's his name with the cat from Spectre.
+[00:20:13] Will: He's Tony Stark and the what's his name with the cat from Spectre.
 
 [00:20:18] Max: Well. it, Tony, all of—
 
@@ -442,7 +442,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:20:31] Will: I mean, he's the cause of and solution to most of my problems.
 
-[00:20:36] Adam: Well done. So, in essence, you are saying you you are asserting that our culture is dropping the ball in positive visions of the future in the middle of this morass. Where
+[00:20:36] Adam: Well done. So, in essence, you are saying you are asserting that our culture is dropping the ball in positive visions of the future in the middle of this morass. Where
 
 [00:20:47] Max: or that it's just telling that we don't have the if those exist that they don't they're not what people want to hear right now.
 
@@ -458,7 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:21:08] Max: I like the opening scene.
 
-[00:21:10] Will: Look, the opening, the opening, the cold opens of those movies are the best part of the movies.
+[00:21:10] Will: Look, the opening, the cold opens of those movies are the best part of the movies.
 
 [00:21:13] Adam: Well, the cold open of the 2009,
 
@@ -504,17 +504,17 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:21:56] Max: And I caught up about it, and it's. I'm telling you, it's. It the Orville is good now.
 
-[00:21:59] Adam: And what you mean, like, so what I've been, he, like, their hearts in the right place, and they're making something genuine instead of making something that's in the response to something.
+[00:21:59] Adam: And what you mean so what I've been, he their hearts in the right place, and they're making something genuine instead of making something that's in the response to something.
 
 [00:22:09] Max: Like I can't wait to see the next episode.
 
-[00:22:11] Will: Does it seem like Galaxy Quest? Does it feel like Galaxy Quest? But but like [unclear: to me?]
+[00:22:11] Will: Does it seem like Galaxy Quest? Does it feel like Galaxy Quest? But like [unclear: to me?]
 
-[00:22:14] Max: it is the. It's the it's the heir to the classic Star Trek that I'm nostalgic for.
+[00:22:14] Max: it is the. It's the heir to the classic Star Trek that I'm nostalgic for.
 
 [00:22:19] Will: Okay.
 
-[00:22:19] Max: Yeah. They, they somehow they nailed it. I think they had to figure out. I think they had some balancing of like how much of a Seth MacFarlane comedy and how much of an earnest sci-fi are we doing. And I am telling you, the Orville it's so good,
+[00:22:19] Max: Yeah. They somehow they nailed it. I think they had to figure out. I think they had some balancing of like how much of a Seth MacFarlane comedy and how much of an earnest sci-fi are we doing. And I am telling you, the Orville it's so good,
 
 [00:22:32] Adam: fascinating.
 
@@ -524,9 +524,9 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:22:38] Max: It's really good. It's really good.
 
-[00:22:40] Adam: Um, in preparation for the interview with Ty and Daniel, I rewatched all three seasons of The Expanse, which is even better the second time. Honestly, I I love that show. I mean, I also am, I think, a sort of honorary part of the extended family. So, full disclosure, I've been on the show. I was killed at the end of season two, and I know those guys really, all those folks, really well. But it's a terrific. It's a terrific. Uh, it's terrific. It's like my favorite kind of sci fi.
+[00:22:40] Adam: In preparation for the interview with Ty and Daniel, I rewatched all three seasons of The Expanse, which is even better the second time. Honestly, I I love that show. I mean, I also am, I think, a sort of honorary part of the extended family. So, full disclosure, I've been on the show. I was killed at the end of season two, and I know those guys really, all those folks, really well. But it's a terrific. It's a terrific. It's terrific. It's like my favorite kind of sci fi.
 
-[00:23:09] Will: It's one of those things they they they've they took the source material in the books and they made a really honest, a really honest imagine reimagining of that that also is very true to the original from from what I've seen.
+[00:23:09] Will: It's one of those things they they've they took the source material in the books and they made a really honest imagine reimagining of that that also is very true to the original from what I've seen.
 
 [00:23:21] Adam: Yeah, it really is. It's terrific.
 
@@ -534,9 +534,9 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:23:31] Adam: I'm not sure I agree with that. I actually think ultimately the Expanse is quite optimistic about people.
 
-[00:23:35] Will: Ultimately, well, so I I think I think most modern science fiction is optimistic about people as a singular and and pessimistic about people as a as a plural as a whole.
+[00:23:35] Will: Ultimately, well, so I I think most modern science fiction is optimistic about people as a singular and pessimistic about people as a plural as a whole.
 
-[00:23:47] Adam: I'd actually counter that. I think that that that the the thrust at the end of season three is the opposite of that.
+[00:23:47] Adam: I'd actually counter that. I think that that that the thrust at the end of season three is the opposite of that.
 
 [00:23:54] Will: I haven’t watched all of season three.
 
@@ -546,7 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:23:56] Adam: but that ultimately people will figure out a way to do the right thing, and it's not always in the hands solely of the hero. So, so they really do like collective action helps save the day at the end of season three. Spoilers.
 
-[00:24:11] Will: This is this is one of the things that Scalzi's new trilogy, or I suppose the trilogy series, the Collapsing Empire books, deals with because it's basically a society that is very fragile and is faced up against what seems to be a society. Ending calamity, and the whole series seems to be about how they're approaching this problem, how the society is, and there
+[00:24:11] Will: This is one of the things that Scalzi's new trilogy, or I suppose the trilogy series, the Collapsing Empire books, deals with because it's basically a society that is very fragile and is faced up against what seems to be a society. Ending calamity, and the whole series seems to be about how they're approaching this problem, how the society is, and there
 
 [00:24:32] Max: is there a Netflix thing that Scalzi wrote that's out now?
 
@@ -566,7 +566,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:24:54] Max: Oh,
 
-[00:24:54] Will: that are all animated. It's kind of like the Animatrix in that each seems to have their own unique art style. It's unclear to me so far if they live in the same world, and the tone has varied dramatically from like, like Game of Thrones, not not exactly sexposition, but kind of like early Game of Thrones, uncomfortable violence and nudity.
+[00:24:54] Will: that are all animated. It's kind of like the Animatrix in that each seems to have their own unique art style. It's unclear to me so far if they live in the same world, and the tone has varied dramatically from like Game of Thrones, not not exactly sexposition, but kind of like early Game of Thrones, uncomfortable violence and nudity.
 
 [00:25:15] Adam: It's love, sex, and robots. Officially,
 
@@ -582,7 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:25:23] Adam: Okay, should I watch it?
 
-[00:25:24] Will: See, Um, I I'm three in like it's the seven the the anthologies are 17 minutes. I would definitely watch the second one like that. The second one tells the story of these three different, very different robots. One is like a Tars Stars kind of interstellar robot. One is
+[00:25:24] Will: See I I'm three in like it's the seven the anthologies are 17 minutes. I would definitely watch the second one like that. The second one tells the story of these three different, very different robots. One is like a Tars Stars kind of interstellar robot. One is
 
 [00:25:39] Adam: Tars.
 
@@ -592,11 +592,11 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:25:42] Will: It's very good. One is.
 
-[00:25:43] Max: Were you were you? I was waiting the whole movie for the betrayal or for the for the
+[00:25:43] Max: Were you? I was waiting the whole movie for the betrayal or for the
 
 [00:25:47] Will: For the robot to be the baddie?.
 
-[00:25:48] Max: For Something yeah for something with TARS and I was delighted by that they that they made it how it really would work. I guess
+[00:25:48] Max: For Something yeah for something with TARS and I was delighted by that they made it how it really would work. I guess
 
 [00:25:54] Adam: so much.
 
@@ -608,13 +608,13 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:26:01] Adam: Sorry, I apologize. The idea of hiring Bill Irwin to do Tars, both the action and the voice, is was so inspired to bring in such a perfect physical mover as like our greatest living clown.
 
-[00:26:15] Will: Oh, and and like the moments that that that they have when the when he goes into the star formation starts rolling through the water.
+[00:26:15] Will: Oh, and like the moments that that that they have when the when he goes into the star formation starts rolling through the water.
 
 [00:26:20] Max: on the water planet. Yeah.
 
 [00:26:21] Adam: Oh my god, when he's carrying out of the yeah, I'm chill. I chills. Amazing. My Tars is my favorite part of interstellar.
 
-[00:26:27] Will: So so. The second episode of Love, Death, Robots is basically three very disparate robots. One is like your typical kind of iRobot humanoid murderbot. One is like a little friendly baby monitor robot, and one is the tar style. And they're just tourists through the post-apocalypse, and they're like taking pictures, like picking up picking up stuff, and like wondering what did humans use this for? Oh, meat bags. Very, you know, it's very Bender, Bending Rodriguez meets like hard gritty sci-fi that I found utterly charming. I I would bet that that's one of the Scalzi ones, but I don't know for sure.
+[00:26:27] Will: So so. The second episode of Love, Death, Robots is basically three very disparate robots. One is like your typical kind of iRobot humanoid murderbot. One is like a little friendly baby monitor robot, and one is the tar style. And they're just tourists through the post-apocalypse, and they're like taking pictures, like picking up stuff, and like wondering what did humans use this for? Oh, meat bags. Very it's very Bender, Bending Rodriguez meets like hard gritty sci-fi that I found utterly charming. I would bet that that's one of the Scalzi ones, but I don't know for sure.
 
 [00:26:58] Max: There's a lot of content to watch now.
 
@@ -628,7 +628,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:27:10] Will: Ooh!
 
-[00:27:10] Adam: So we went and saw. We we talked about this on a podcast last week. We went and saw Captain Marvel,
+[00:27:10] Adam: So we went and saw. We talked about this on a podcast last week. We went and saw Captain Marvel,
 
 [00:27:19] Will: okay,
 
@@ -674,7 +674,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:28:19] Max: This is good podcast.
 
-[00:28:20] Will: This is good podcast. Nothing like nothing like texting live on the podcast. Hey Gunther, cut this bit out.
+[00:28:20] Will: This is good podcast. Nothing like texting live on the podcast. Hey Gunther, cut this bit out.
 
 [00:28:26] Adam: No, he's not cutting it. out.
 
@@ -686,23 +686,23 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:29:28] Adam: You want an app?
 
-[00:29:29] Max: I have I have questions for Adam.
+[00:29:29] Max: I have questions for Adam.
 
 [00:29:30] Adam: Yeah.
 
-[00:29:30] Max: Can I can I ask you questions?
+[00:29:30] Max: Can I ask you questions?
 
 [00:29:31] Adam: By all means.
 
-[00:29:31] Max: Okay. Here's I have on the topic of attention span length thing. I'm actually very I'm actually really interested in this. So I'm I'm a I'm a I'm a big fan. I've been following your career for a long time, and I watched MythBusters all boy. I mean, at least all through college, but if not if not before. And it really helped. It it made it gave me a feeling of I could do it. I could just do it. That there were that there are these big things out. There are these big impossible things out there that are so huge in their ambition and so crazy and so dumb in some cases.
+[00:29:31] Max: Okay. Here's I have on the topic of attention span length thing. I'm actually very I'm actually really interested in this. So I'm I'm a big fan. I've been following your career for a long time, and I watched MythBusters all boy. I mean, at least all through college, but if not before. And it really helped. It made it gave me a feeling of I could do it. I could just do it. That there were that there are these big things out. There are these big impossible things out there that are so huge in their ambition and so crazy and so dumb in some cases.
 
 [00:30:05] Adam: Yeah, totally.
 
-[00:30:05] Max: And the only difference between it happening and it not happening is that you can just do it. And I really and I really appreciate and and that was a gave me and it still gives me that feeling watching Junior.
+[00:30:05] Max: And the only difference between it happening and it not happening is that you can just do it. And I really appreciate and that was a gave me and it still gives me that feeling watching Junior.
 
-[00:30:16] Adam: You could barely give bestow a higher compliment on the show. Honestly, that is the exactly what we were. That's the story we that's the story we were always trying to tell.
+[00:30:16] Adam: You could barely give bestow a higher compliment on the show. Honestly, that is the exactly what we were. That's the story we were always trying to tell.
 
-[00:30:25] Max: Well, I I it came it came through to me, and it was I I really feel like it. I I learned it was. I mean, yeah, it was. It made a big impression on me. But here is my.
+[00:30:25] Max: Well, I I it came through to me, and it was I I really feel like it. I learned it was. I mean, yeah, it was. It made a big impression on me. But here is my.
 
 [00:30:33] Will: This is more of a comment than a question.
 
@@ -716,7 +716,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:31:12] Will: Well, it's like running a website about.
 
-[00:31:14] Max: So I totally know what you mean. Maybe that's the maybe that's the answer. But I mean, you just have a higher output. You come up with cool things to do, and you do them, and then you finish them, right? There are not. I do not see. 75 half-finished projects out.
+[00:31:14] Max: So I totally know what you mean. Maybe that's the answer. But I mean, you just have a higher output. You come up with cool things to do, and you do them, and then you finish them, right? There are not. I do not see. 75 half-finished projects out.
 
 [00:31:28] Adam: Well, I'll show you because on the rack above my table saw is 75 unfinished projects, and I literally put them one level deep on a set of shelves so that they were always looking at me.
 
@@ -726,11 +726,11 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:31:37] Max: the wall of shame.
 
-[00:31:38] Adam: The unfinished. The unfinished business is something I get questions about a lot, and as for the output, it's it's a really interesting question because my wife wonders when I'll slow down. Certainly.
+[00:31:38] Adam: The unfinished. The unfinished business is something I get questions about a lot, and as for the output, it's a really interesting question because my wife wonders when I'll slow down. Certainly.
 
 [00:31:50] Max: Yeah.
 
-[00:31:50] Adam: But I've also been building a larger infrastructure here with shop assistants and getting more projects done. the The Mercury Cockpit over there is one of them. The Blade Runner Blimp is another one, made possible by me asking for hiring and supervising help to complete things. But there's so much to do.
+[00:31:50] Adam: But I've also been building a larger infrastructure here with shop assistants and getting more projects done. the Mercury Cockpit over there is one of them. The Blade Runner Blimp is another one, made possible by me asking for hiring and supervising help to complete things. But there's so much to do.
 
 [00:32:11] Will: I think.
 
@@ -744,17 +744,17 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:32:51] Adam: Right, We were filming the tail end of the long term.
 
-[00:32:53] Will: We did ZF1, the the Mechahand from Hellboy. There were a lot of projects that had been kind of stewing for you for a really long time. In some cases, that then we caught up on it. And the thing that's been fascinating for me to watch from the outside now is over the last two or three years, you've been doing more kind of start to finish projects that have been things that you wanted to do clearly for a really long time, and then kind of had never had an excuse. Like I think in a lot of ways, Tested is a good excuse for you to do some of this stuff.
+[00:32:53] Will: We did ZF1, the Mechahand from Hellboy. There were a lot of projects that had been kind of stewing for you for a really long time. In some cases, that then we caught up on it. And the thing that's been fascinating for me to watch from the outside now is over the last two or three years, you've been doing more kind of start to finish projects that have been things that you wanted to do clearly for a really long time, and then kind of had never had an excuse. Like I think in a lot of ways, Tested is a good excuse for you to do some of this stuff.
 
-[00:33:22] Adam: Oh, it's it's a significantly good excuse, and also. Your question drifts into this other thing, which is happening right now, which is the difference between the television viewing use case and the YouTube viewing use case. On television, you have very specific restrictions within the agreed upon model of having a really good hook, an awesome hold, and a phenomenal payoff. And while that doesn't hurt with a YouTube video, I mean, you know, my 1,000 shot Nerf gun, which got like 26 million streams, wouldn't have gotten that many if we hadn't shot dinosaurs at the end, and that was a really amazing finish that Norm Chan thought up. At the same time, a lot of people write to me and say that my one day build videos, our one day build videos, are things they put on their computer at the end of their workbench and then they work.
+[00:33:22] Adam: Oh, it's a significantly good excuse, and also. Your question drifts into this other thing, which is happening right now, which is the difference between the television viewing use case and the YouTube viewing use case. On television, you have very specific restrictions within the agreed upon model of having a really good hook, an awesome hold, and a phenomenal payoff. And while that doesn't hurt with a YouTube video, I mean, you know, my 1,000 shot Nerf gun, which got like 26 million streams, wouldn't have gotten that many if we hadn't shot dinosaurs at the end, and that was a really amazing finish that Norm Chan thought up. At the same time, a lot of people write to me and say that my one day build videos, our one day build videos, are things they put on their computer at the end of their workbench and then they work.
 
 [00:34:16] Will: And people tell me they work in like a kitchen on the line, and they run that stuff in the background because it's great to listen to, and they can kind of glance up occasionally when they want to see something.
 
-[00:34:24] Adam: And I really appreciate the different. it didn’t occur to me for the longest time that we were telling fundamentally different stories that way. That you know, Joey and I learned together how to kind of cut silence into the videos because so much of building involves this kind of like half an hour of you going.
+[00:34:24] Adam: And I really appreciate the different. it didn’t occur to me for the longest time that we were telling fundamentally different stories that way. That Joey and I learned together how to kind of cut silence into the videos because so much of building involves this kind of like half an hour of you going.
 
-[00:34:44] Will: I remember when we started, we we used to have conversations about, hey, is it okay to show? Like, do we have to record voiceover for all of the stuff that you are doing so that we can show it, or can we? And like, we couldn't decide what to do.
+[00:34:44] Will: I remember when we started, we used to have conversations about, hey, is it okay to show? Like, do we have to record voiceover for all of the stuff that you are doing so that we can show it, or can we? And like, we couldn't decide what to do.
 
-[00:34:56] Max: There is more stuff in the build videos that doesn't work as well. I mean, you get some of that on TV, but in general, the the the the momentum of TV is like we tried it; it worked; it was successful. But whereas on the builds, like you are genuinely in suspense of you are like, we're gonna try it. I don't know, and then sometimes it does, and sometimes it doesn't work.
+[00:34:56] Max: There is more stuff in the build videos that doesn't work as well. I mean, you get some of that on TV, but in general, the momentum of TV is like we tried it; it worked; it was successful. But whereas on the builds, like you are genuinely in suspense of you are like, we're gonna try it. I don't know, and then sometimes it does, and sometimes it doesn't work.
 
 [00:35:14] Adam: So I am pleased to say that again. And I am sorry I keep teasing the show without telling you guys its title or its release date, but I will have those things soon.
 
@@ -766,7 +766,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:35:45] Max: There's a there's a book I really like. I think it's called " 99 Things I Learned in Architecture School," and it's like a design theory book. And he's there's a he has a list in there of things that are important to the creative process. And one of them that I think about all the time is part of becoming like creatively successful is learning to embrace as normal the anxiety of not knowing what to do next. And I think to people who I work with, I mean, I have many friends. I work with people who like they get an idea in their head and they're like, " What if I never have another idea? Like, this is it." Like, and part of it is part of it is no, is you have to be at peace with sometimes you don't know what to do next.
 
-[00:36:19] Adam: You know, when I was a I was a graphic designer for a few years, and there was a point at which I decided to go take some classes in graphic design because I hadn't done that. I was I learned on a stat machine that was like ordering the [unclear: Sertronics / Sotronics] type. This is just before computers,
+[00:36:19] Adam: You know, when I was a graphic designer for a few years, and there was a point at which I decided to go take some classes in graphic design because I hadn't done that. I was I learned on a stat machine that was like ordering the [unclear: Sertronics / Sotronics] type. This is just before computers,
 
 [00:36:34] Max: a linotype.
 
@@ -798,7 +798,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:38:00] Adam: not by googling that.
 
-[00:38:01] Max: Enough of this, like, inspiration nonsense. Like, the other thing I want to know is, like, so let's say you sit down to build something. Like, here, this is something I've actually never seen you talk about.
+[00:38:01] Max: Enough of this inspiration nonsense. Like, the other thing I want to know is so let's say you sit down to build something. Like, here, this is something I've actually never seen you talk about.
 
 [00:38:09] Adam: Okay.
 
@@ -810,11 +810,11 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:38:27] Will: Yeah,
 
-[00:38:27] Adam: you and you always begin with with days and sometimes weeks. And in some cases, months of me thinking about the build before I jump in.
+[00:38:27] Adam: you and you always begin with days and sometimes weeks. And in some cases, months of me thinking about the build before I jump in.
 
 [00:38:37] Max: Is there a text file? So, what do you do when you come up with you're like, " Oh, it'd be cool to make that"? Is there a text file? Is it an app?
 
-[00:38:42] Adam: No, it's it's my sketchbook, which I don't have here because I left it at the house this morning.
+[00:38:42] Adam: No, it's my sketchbook, which I don't have here because I left it at the house this morning.
 
 [00:38:47] Max: What if you have an idea?
 
@@ -826,7 +826,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:38:52] Max: And you have the black wing pencils with the black erasers.
 
-[00:38:55] Adam: You know what? It's the it's the Papermate Sharpwriter number two.
+[00:38:55] Adam: You know what? It's the Papermate Sharpwriter number two.
 
 [00:38:59] Max: Okay,
 
@@ -834,7 +834,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:39:01] Max: I mean, Uniball Vision Elite.
 
-[00:39:04] Adam: It's extra fine. It's the one I love, and I buy them by the case. And so I'll so if it's a if it's a simple build like oh I'm going to organize a drawer with foam core, I do just jump in and start grabbing. But if it's has any level of complexity to it, I will sit and think about how I want it to. I want the overall structure to be, and so there's I can't begin until I've solved a certain level of the problems, and it may be only 10% of the problems, but I've solved the ones that I know are going to kick my ass mentally. Um. And one of the ways I do that is I just I start drawing the thing, I do sketches of it, and then I start doing sketches of the components. Okay, it's going to require some electronics. Going to try five buttons, which means I got to do a wiring diagram, and then I start to think it through. And in some cases, I have sketches of the same prop in four different sketchbooks over the last eight years.
+[00:39:04] Adam: It's extra fine. It's the one I love, and I buy them by the case. And so I'll so if it's a simple build like oh I'm going to organize a drawer with foam core, I do just jump in and start grabbing. But if it's has any level of complexity to it, I will sit and think about how I want it to. I want the overall structure to be, and so there's I can't begin until I've solved a certain level of the problems, and it may be only 10% of the problems, but I've solved the ones that I know are going to kick my ass mentally. And one of the ways I do that is I just I start drawing the thing, I do sketches of it, and then I start doing sketches of the components. Okay, it's going to require some electronics. Going to try five buttons, which means I got to do a wiring diagram, and then I start to think it through. And in some cases, I have sketches of the same prop in four different sketchbooks over the last eight years.
 
 [00:39:53] Will: The other thing you do that I think is really interesting is you have that catalog. You like you catalog photos in a exhaustively like research materials and photos.
 
@@ -842,7 +842,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:40:01] Max: How do you do that?
 
-[00:40:02] Adam: Um. So if I'm interested in something, let's see one of the most one of the most recent ones is uh,
+[00:40:02] Adam: So if I'm interested in something, let's see one of the most recent ones is
 
 [00:40:11] Will: we'll do the Mecha Hand.
 
@@ -850,13 +850,13 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:40:12] Will: Because we had thousands of photos for that.
 
-[00:40:13] Adam: So for the okay, so for the Mecha Hand there, the Hellboy Mecha Hand, um, I started out by downloading every photo I could online, and then I started buying magazines and I'll scan pictures out of those magazines.
+[00:40:13] Adam: So for the okay, so for the Mecha Hand there, the Hellboy Mecha Hand I started out by downloading every photo I could online, and then I started buying magazines and I'll scan pictures out of those magazines.
 
 [00:40:24] Max: And where do those go?
 
-[00:40:25] Adam: Um, those go into uh, I have a folder on my computer called Creative Projects, and in there I'll make a fold. I'll uh actually. In creative projects, there's a Guillermo del Toro folder, and in Guillermo del Toro, there's a Hellboy, and in Hellboy, there's already a bunch of things which I've already built, and the Mechahand becomes one. So Rasputin's Mechahand becomes a folder.
+[00:40:25] Adam: Those go into I have a folder on my computer called Creative Projects, and in there I'll make a fold. I'll actually. In creative projects, there's a Guillermo del Toro folder, and in Guillermo del Toro, there's a Hellboy, and in Hellboy, there's already a bunch of things which I've already built, and the Mechahand becomes one. So Rasputin's Mechahand becomes a folder.
 
-[00:40:43] Max: And is this is this on a cloud somewhere? Is it just a folder on your desktop?
+[00:40:43] Max: And is this on a cloud somewhere? Is it just a folder on your desktop?
 
 [00:40:46] Adam: No, no, I keep it on my hard drive.
 
@@ -870,9 +870,9 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:40:51] Max: You back up. Okay. Okay.
 
-[00:40:52] Adam: So the first pass is photos. Just start. I start dumping every piece of reference material I can, and then if I'm on a plane and I can't I can't download because the internet sucks, I'll start looking at the photos and I'll start thinking. Okay, at a certain point, I get the saturation of let's say 70 photos. Now it's time to start breaking the project into chunks. And what are the first chunks? Okay, well, there's the there's all the test tubes. There's like 11 test tubes on the thing. Okay, so let me just start to quantify those. So I'll make a document and I'll number them, and then I'll have a folder for each one, and I start and then I'll start taking larger photos and doing uh you know selecting. Test tube number four. So for the Blade Runner blimp, there's 24 antennae that go around the perimeter. I have a folder for every single one of those antennae, and I, in every shot I could find of it, I would grab. Oh, okay. So here's the A through D I can see on the front right. Here's the Z, you know, N through T on the bottom left, and I'll, I'll make broad folders, and then I'll start to hone them in until once it's time to actually do those, I had a box with 24 compartments in it with the etched brass that went in each one, and the light that went in each one, and the stock that went in each one,
+[00:40:52] Adam: So the first pass is photos. Just start. I start dumping every piece of reference material I can, and then if I'm on a plane and I can't download because the internet sucks, I'll start looking at the photos and I'll start thinking. Okay, at a certain point, I get the saturation of let's say 70 photos. Now it's time to start breaking the project into chunks. And what are the first chunks? Okay, well, there's the there's all the test tubes. There's like 11 test tubes on the thing. Okay, so let me just start to quantify those. So I'll make a document and I'll number them, and then I'll have a folder for each one, and I start and then I'll start taking larger photos and doing you know selecting. Test tube number four. So for the Blade Runner blimp, there's 24 antennae that go around the perimeter. I have a folder for every single one of those antennae, and I, in every shot I could find of it, I would grab. Oh, okay. So here's the A through D I can see on the front right. Here's the Z N through T on the bottom left, and I'll, I'll make broad folders, and then I'll start to hone them in until once it's time to actually do those, I had a box with 24 compartments in it with the etched brass that went in each one, and the light that went in each one, and the stock that went in each one,
 
-[00:42:07] Will: and they, they the
+[00:42:07] Will: and they the
 
 [00:42:07] Adam: photo reference,
 
@@ -892,9 +892,9 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:42:28] Adam: It's like 98.
 
-[00:42:29] Will: Yeah, it was it was like a one megapixel or 0.6 megapixel digital camera or something.
+[00:42:29] Will: Yeah, it was like a one megapixel or 0.6 megapixel digital camera or something.
 
-[00:42:33] Adam: So that Canon sold bundled software with that for for surfing on your Finder through your photos, and Bridge is like the super advanced version of that.
+[00:42:33] Adam: So that Canon sold bundled software with that for surfing on your Finder through your photos, and Bridge is like the super advanced version of that.
 
 [00:42:44] Max: And and so when you say you have folders of images, there there or you use Bridge to sort of break out the folders and view everything.
 
@@ -912,15 +912,15 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:43:09] Adam: I certainly could share it to Dropbox, and I've done screen sharing sometimes, but I've never found that I needed it because my laptop is almost always within six feet of me.
 
-[00:43:19] Max: I something I really like about this organization of the photos, like I I am a procrastinator and and I'm a I'm a pretty lazy person like and so I a lot of times like if I have a project that needs to get done, I'm kind of Waiting for the spirit to strike, of like, I kind of need to be into it to work on it, and then sometimes I am just like, boy, I hope I feel like working on this before the deadline. And then when that, when the muse strikes, I am like, here we go, it's we're off, I am doing it. I don't want to not be able to find my pen,
+[00:43:19] Max: I something I really like about this organization of the photos, like I I am a procrastinator and I'm a pretty lazy person like and so I a lot of times like if I have a project that needs to get done, I'm kind of Waiting for the spirit to strike, of like, I kind of need to be into it to work on it, and then sometimes I am just like, boy, I hope I feel like working on this before the deadline. And then when that, when the muse strikes, I am like, here we go, it's we're off, I am doing it. I don't want to not be able to find my pen,
 
 [00:43:48] Adam: right?
 
-[00:43:48] Max: Because that will be an excuse for me to be like, I wonder if Will's playing PUBG right now. You know, it's like any little thing will sort of knock me off my horse, and I and I am very particular of like teeing myself up, right? So having your reference photos, like when you are ready to go, it is such a gift to yourself to have all the reference folders cataloged and be like, okay, I've I've helped myself here by organizing a little bit,
+[00:43:48] Max: Because that will be an excuse for me to be like, I wonder if Will's playing PUBG right now. It's like any little thing will sort of knock me off my horse, and I am very particular of like teeing myself up, right? So having your reference photos, like when you are ready to go, it is such a gift to yourself to have all the reference folders cataloged and be like, okay, I've I've helped myself here by organizing a little bit,
 
 [00:44:11] Adam: and even more than that, it's such a value to me, even years later, to go, okay, Han Solo's DL-44, the scope knob, the different scope knobs between the different models, and I can go into my computer and immediately find that within two minutes, and when I can't, I literally spend a couple of hours the following day, like. Doing a search bracketing by the dates, I know that photo had to have been taken. I recently had a thing where what was the photo I was looking for? I had taken some pictures of a prop while I was on a trip, and I can't find those photos, and it's killing me that I can't find them.
 
-[00:44:51] Max: You know, there's Will. This is more in Will's domain, but you know, there's like stuff out there now that will sort of search your photos visually. So you
+[00:44:51] Max: There's Will. This is more in Will's domain, but there's like stuff out there now that will sort of search your photos visually. So you
 
 [00:44:58] Adam: You have to upload them all to Google to do that.
 
@@ -936,7 +936,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:45:19] Adam: Yeah,
 
-[00:45:19] Will: which I was okay with because now I can search for you know my daughter's name in a yellow dress, and I get all the pictures of her in a yellow dress. But but like your stuff is maybe specialized to the point that I don't think that. That contextual search will work.
+[00:45:19] Will: which I was okay with because now I can search for you know my daughter's name in a yellow dress, and I get all the pictures of her in a yellow dress. But like your stuff is maybe specialized to the point that I don't think that. That contextual search will work.
 
 [00:45:31] Adam: Here's the other thing I love about Bridge because I've over the past few years I have brought in many, many, many more collaborators than I ever had before, and that has enriched and extended what I can do. And I can move things in and out of Dropbox right from Bridge's interface, which to me is a huge time saver.
 
@@ -960,13 +960,13 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:46:11] Adam: So over the last couple of years, we archived all the costumes to a degree where there is a Google spreadsheet of all 78 completed costumes with all of their component parts, pictures of every single one, where I got it, who made it, how accurate I think it is, whether I want another one, and that I can access on my phone. At any time,
 
-[00:46:32] Max: and where where does that live?
+[00:46:32] Max: and where does that live?
 
 [00:46:34] Adam: That’s a Google.
 
 [00:46:35] Max: It’s a Google Doc.
 
-[00:46:36] Adam: And then I'm also I'm working. Freddie is going to start working on making a hard copy of that because I want a I want a notebook here in the shop that you can flip through.
+[00:46:36] Adam: And then I'm also I'm working. Freddie is going to start working on making a hard copy of that because I want a notebook here in the shop that you can flip through.
 
 [00:46:45] Max: Like a ledger.
 
@@ -984,13 +984,13 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:47:02] Adam: And I mean, another thing that I often do is I'll print things in one one one to one scale. So I do a lot of Photoshop work, making sure that I've I've sized the photo so that when I have the hard copy, it's exactly the size of what I need to build.
 
-[00:47:15] Max: So when you're working on a project, you have your reference images, and you've kind of broken it into chunks in your in your just mentally in terms of knowing where you're going to start.
+[00:47:15] Max: So when you're working on a project, you have your reference images, and you've kind of broken it into chunks in your just mentally in terms of knowing where you're going to start.
 
 [00:47:23] Adam: Yeah.
 
 [00:47:23] Max: Do you have a to do? Do you have like a project manager, a to do list, or any sort of software that like tells you what to do next?
 
-[00:47:29] Adam: It's it's Pencil written, it's lists written in pencil with check boxes on the left.
+[00:47:29] Adam: It's Pencil written, it's lists written in pencil with check boxes on the left.
 
 [00:47:34] Max: How do you know what? So, leaving aside maybe any specific build, just you don't have a to-do list in general.
 
@@ -1020,13 +1020,13 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:48:34] Adam: I keep trying to use the iPads for this, so I have the pencil, I have the iPad Pro. They're beautiful. I think the pencil's interface is a remarkable advancement in human engineering, and I still can't. And I draw. I like at least every two months, I'll try and do a drawing on an iPad, and it just doesn't have the same immediacy for me as a pencil on paper.
 
-[00:48:53] Max: What's What's great about this, like, if you get into the right productivity software, is like you can really dick around with that thing. I mean, it really beats work.
+[00:48:53] Max: What's What's great about this if you get into the right productivity software, is like you can really dick around with that thing. I mean, it really beats work.
 
 [00:48:59] Will: It's a real real use of wasting time.
 
-[00:49:01] Max: Yeah, yeah, I'll go into OmniFocus and be like, oh, and I'll be like, have a crushing deadline that's about to destroy my life, and I'll be like, I should really redo my tag infrastructure. Like, I can barely, I can barely find anything in here.
+[00:49:01] Max: Yeah, yeah, I'll go into OmniFocus and be like, oh, and I'll be like, have a crushing deadline that's about to destroy my life, and I'll be like, I should really redo my tag infrastructure. Like, I can barely find anything in here.
 
-[00:49:11] Adam: So this is my one of the things that I was playing with was some some short fiction filmmaking that I was thinking about doing, and I was shocked to find out that nobody makes a really good storyboard app for the iPad. There are a lot of storyboard apps for the iPad, but there's as far as I can tell, there's none that fit my needs, which is. I don't need it to be an AD’s soup to nuts all in one thing. I want something where I can make drawings and assign them numbers so that I can look at them in order to make storyboards. I want to be able to choose my frame aspect ratio and make drawings for those storyboards. And I actually ended up I reached out to a friend of mine from Apple who connected me with connected me with some designers at Adobe. And I spent a few months going back and forth with Adobe about them just making something like this. And it hasn't happened yet. But for me, my productivity apps that I would want would be exceedingly simple. Like Bridge is a ludicrously simple app to me.
+[00:49:11] Adam: So this is my one of the things that I was playing with was some some short fiction filmmaking that I was thinking about doing, and I was shocked to find out that nobody makes a really good storyboard app for the iPad. There are a lot of storyboard apps for the iPad, but there's as far as I can tell, there's none that fit my needs, which is. I don't need it to be an AD’s soup to nuts all in one thing. I want something where I can make drawings and assign them numbers so that I can look at them in order to make storyboards. I want to be able to choose my frame aspect ratio and make drawings for those storyboards. And I actually ended up I reached out to a friend of mine from Apple who connected me with some designers at Adobe. And I spent a few months going back and forth with Adobe about them just making something like this. And it hasn't happened yet. But for me, my productivity apps that I would want would be exceedingly simple. Like Bridge is a ludicrously simple app to me.
 
 [00:50:09] Max: Yeah.
 
@@ -1054,7 +1054,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:50:36] Adam: Drawing on every single
 
-[00:50:38] Will: shirt. No, they're going to be screen printed. Just to be just to be clear, the normal Cotton Bureau great screen printing on a fabulous t-shirt.
+[00:50:38] Will: shirt. No, they're going to be screen printed. Just to be clear, the normal Cotton Bureau great screen printing on a fabulous t-shirt.
 
 [00:50:44] Max: It's a good shirt. I've been admiring that shirt.
 
@@ -1064,15 +1064,15 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:51:10] Adam: And that was sort of my favorite moments. And Hyneman and I used to really value. You'd fight for your idea. You fight, fight, fight. And it's fun to argue and say no, that's not how we should do it. This is how we should do it. And someone else goes, what if we use rubber bands? And everyone looks over and goes. Oh yeah, that's how we're doing it. And often we can't even remember who came up with the idea because it doesn't even matter. It's just like it's the collective.
 
-[00:51:32] Will: That there is a fundamental one of my fundamental precepts about coming up with good ideas for content is that if you don't have a conversation, if you don't discuss, if you don't fight about it, then you are not you are not doing the most you can to get the the to chisel the good thing out of the bad.
+[00:51:32] Will: That there is a fundamental one of my fundamental precepts about coming up with good ideas for content is that if you don't have a conversation, if you don't discuss, if you don't fight about it, then you are not doing the most you can to get the to chisel the good thing out of the bad.
 
 [00:51:48] Adam: You need other opinions. You need to defend yours. It's a really important and difficult part of the process.
 
-[00:51:53] Max: Isn't it a great feeling to collaborate with people too who are all in the service of the of the larger idea and the project? And instead of a defensive kind of crouch,
+[00:51:53] Max: Isn't it a great feeling to collaborate with people too who are all in the service of the larger idea and the project? And instead of a defensive kind of crouch,
 
 [00:52:02] Adam: yeah, the most boring argument to have in the world is an argument with someone who just wants their idea to be the one you use.
 
-[00:52:09] Max: Yeah, yeah, what a good feeling! What a what a wonderful feeling that is to have that that collaboration with someone. I really value that.
+[00:52:09] Max: Yeah, yeah, what a good feeling! What a wonderful feeling that is to have that that collaboration with someone. I really value that.
 
 [00:52:14] Adam: And I didn't get. I don't. I still don't get along with Jamie, but I value the fact that we both had that as our highest value. Right, like we have healthy egos, but they didn't get in that way. They didn't get in our way in that way.
 
@@ -1084,7 +1084,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:52:31] Max: Okay.
 
-[00:52:31] Will: Um. Uh. Where can people find out?
+[00:52:31] Will: Where can people find out?
 
 [00:52:33] Max: Yeah.
 
@@ -1098,19 +1098,19 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:52:47] Will: You and Pat made what I would describe as one of my favorite conversational podcasts. It's just about two kind of nerdy guys.
 
-[00:52:54] Max: The premise of the podcast is I would get on Skype with Pat for an hour and just wind him up, and then then lean back, and it was just story time with Pat.
+[00:52:54] Max: The premise of the podcast is I would get on Skype with Pat for an hour and just wind him up, and then lean back, and it was just story time with Pat.
 
 [00:53:01] Will: So good.
 
 [00:53:02] Max: It was. It was great. And I actually we like recorded a bunch of episodes. We got on a schedule, and I just need to get my shit together and put them together.
 
-[00:53:08] Will: It was one of my. It was one of the things I put on when we were in the car. It's it's a it's a it's a very good like. Here's a. I'm right in the car with my friends Max and Pat, and it's very good.
+[00:53:08] Will: It was one of my. It was one of the things I put on when we were in the car. It's a very good like. Here's a. I'm right in the car with my friends Max and Pat, and it's very good.
 
 [00:53:16] Max: That's awesome. That's very nice to say.
 
-[00:53:16] Will: And and Cards Against Humanity, you can find at Target probably
+[00:53:16] Will: And Cards Against Humanity, you can find at Target probably
 
-[00:53:20] Max: right now. I don’t care. Don’t worry about it. Um.
+[00:53:20] Max: right now. I don’t care. Don’t worry about it.
 
 [00:53:22] Unknown (Adam, Max or Will): Thank you for being on.
 

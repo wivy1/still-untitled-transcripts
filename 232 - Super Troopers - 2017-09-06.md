@@ -44,7 +44,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:00:52] Adam: And you have to take that. Like I watched a lot of production managers on MythBusters try this in a lot of different ways, and some people were broken by the job.
 
-[00:01:19] Ryan Kiser: That happens, that happens. You know, you think it's really just kind of to people just need stuff and and need stuff fast, and and and that's really what it comes down to: get it fast and smile
+[00:01:19] Ryan Kiser: That happens. You think it's really just kind of to people just need stuff and need stuff fast, and that's really what it comes down to: get it fast and smile
 
 [00:01:29] Norm: and get it done,
 
@@ -60,11 +60,11 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:02:00] Ryan Kiser: For second, I thought I was like, " Wait, did I do that?"
 
-[00:02:01] Norm: That's why everyone should start at that job. Start if you've if you've never done the the entry level, the the most menial task, you're never going to relate.
+[00:02:01] Norm: That's why everyone should start at that job. Start if you've never done the entry level, the most menial task, you're never going to relate.
 
-[00:02:14] Adam: And let me tell you, the the entry level job is both tedious, exhausting, stressful, and boring. And it is all of those things at the same time to work as a PA.
+[00:02:14] Adam: And let me tell you, the entry level job is both tedious, exhausting, stressful, and boring. And it is all of those things at the same time to work as a PA.
 
-[00:02:24] Ryan Kiser: Absolutely, absolutely. And you know, actually, I don't know if you was. I mean, I started off as a PA at Mythbusters. I mean, I just moved up really quick. But it just you, it's yeah. You you do a lot of running. It's really. I guess people ask us all the time. It's like, oh, you know, what do you do? What's your what's your day? You know, what was it a day like on Mythbusters? And you're just like hot. Times outside, and you're just running. You're just running around, and then boom, stuff explodes, and then you go on to the next day, and then same thing.
+[00:02:24] Ryan Kiser: Absolutely, absolutely. And actually, I don't know if you was. I mean, I started off as a PA at Mythbusters. I mean, I just moved up really quick. But it just you, it's yeah. You do a lot of running. It's really. I guess people ask us all the time. It's like, oh, you know, what do you do? What's your day? You know, what was it a day like on Mythbusters? And you're just like hot. Times outside, and you're just running. You're just running around, and then boom, stuff explodes, and then you go on to the next day, and then same thing.
 
 [00:02:49] Adam: And speak. Okay, I'm gonna do. I'm going to segue here because you said it's hot.
 
@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:02:49] Adam: because holy hell, literally, it's hot as balls in San Francisco. My deck thermometer read 105.
 
-[00:03:04] Norm: What you almost hit the peak, the the record, 106.
+[00:03:04] Norm: What you almost hit the peak, the record, 106.
 
 [00:03:08] Adam: It was absolutely. I'm not saying that my beautiful restoration hardware brass thermometer is super accurate. It's probably plus or minus four or five degrees, but and the heat hasn't broken. It's Tuesday, and it is still like really unpleasantly hot in this shop.
 
@@ -88,13 +88,13 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:03:41] Norm: Because we made a pact with the bay when we moved here, was that the fog would keep us cool and comforted, and we'd have natural air conditioning and the water absorbing all the heat. But it was insane.
 
-[00:03:52] Adam: Look, the whole thing that happened last year, where we were in the we were in the throes of a six year drought. The worst drought we'd had in hundreds of years in the Bay Area. We, the denizens of the Bay Area, and then it was solved by an epic, epic rainy winter. Now that's great. Then in one season, our drought was like all of our reservoirs were back up to normal. That's awesome. But that's just the same terrible global warming destabilizing weather patterns affecting us in a positive way, just by happenstance.
+[00:03:52] Adam: Look, the whole thing that happened last year, where we were in the throes of a six year drought. The worst drought we'd had in hundreds of years in the Bay Area. We, the denizens of the Bay Area, and then it was solved by an epic, epic rainy winter. Now that's great. Then in one season, our drought was like all of our reservoirs were back up to normal. That's awesome. But that's just the same terrible global warming destabilizing weather patterns affecting us in a positive way, just by happenstance.
 
 [00:03:52] Ryan Kiser: Yeah.
 
-[00:03:52] Adam: Meanwhile, Hurricane Irma has just been upgraded to Category Five and is heading towards people. This is this is yeah. It's destabilizing because again the nights are beautiful. Like on my deck, there's no more magical place to be in the mission than on my deck with my family and my friends and hanging out as I have been all this weekend. But it is tinged with this like the world's ending.
+[00:03:52] Adam: Meanwhile, Hurricane Irma has just been upgraded to Category Five and is heading towards people. This is yeah. It's destabilizing because again the nights are beautiful. Like on my deck, there's no more magical place to be in the mission than on my deck with my family and my friends and hanging out as I have been all this weekend. But it is tinged with this like the world's ending.
 
-[00:04:53] Ryan Kiser: It's hot, people. It's hot. I'm originally from Las Vegas, and like you know, people was like, " Oh, this is like nothing." But like something like Las Vegas is like designed, you know what I mean?
+[00:04:53] Ryan Kiser: It's hot, people. It's hot. I'm originally from Las Vegas, and people was like, " Oh, this is like nothing." But something like Las Vegas is like designed, you know what I mean?
 
 [00:04:53] Adam: Right.
 
@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:05:13] Ryan Kiser: Fair and accurate, completely accurate. And that's what we realize here is like once it hits like 80 here, like you just you know what I mean? We're just losing our minds.
 
-[00:05:19] Norm: Our infrastructure is not made for it. Our constitution, yeah, is not made for it. I saw you you treated Maggie your dog to some relief.
+[00:05:19] Norm: Our infrastructure is not made for it. Our constitution, yeah, is not made for it. I saw you treated Maggie your dog to some relief.
 
 [00:05:28] Adam: I took So Maggie, my wired border terrier, is about 25 pounds, and she's real hairy and like she's not soft. I've talked about this. I love her to death. She's not soft. Well, I made her soft this weekend. I brought. I looked up a couple of YouTube videos grooming your wired terrier, right? Because I wanted to know one how hard it was to groom a dog. Like what could I expect? So I watched a couple of videos of dogs. I saw the arrangement, which is like you know a leash just kind of going up. That's really key. It doesn't have to be taut. But a leash so that they can't quite sit down, and if the leash is going up, the dog is like, " Oh, the leash is there, so I'm just hanging."
 
@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:07:07] Adam: Absolutely, I'm sure cats are easy to shave.
 
-[00:07:10] Norm: You know, one of the fun things about working with Ryan at Tested is everyone assumes people who work with us is a super nerd,
+[00:07:10] Norm: One of the fun things about working with Ryan at Tested is everyone assumes people who work with us is a super nerd,
 
 [00:07:10] Adam: right?
 
@@ -152,7 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:07:19] Ryan Kiser: I'm so glad you brought this up.
 
-[00:07:19] Norm: Ingrained, like they they can cite every Star Wars reference, recite the script to Episode Four, Five, and Six.
+[00:07:19] Norm: Ingrained, like they can cite every Star Wars reference, recite the script to Episode Four, Five, and Six.
 
 [00:07:28] Adam: Your preliminary statement makes an assumption about a nerd,
 
@@ -160,7 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:07:31] Adam: and that a nerd is interested in science fiction films specifically. And here is where
 
-[00:07:36] Norm: or had or had you know or or can do the math or something. Ryan,
+[00:07:36] Norm: or had you know or can do the math or something. Ryan,
 
 [00:07:41] Ryan Kiser: the Zach,
 
@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:07:54] Adam: National treasure.
 
-[00:07:56] Ryan Kiser: Very well. As you can see, I talk about her almost daily. I find a way to segue her into something. You know, you know, I'm actually a big outside person, so I'm learning a lot, and it is no joke. They do explain a lot of things to me. There's a lot of I give this look that Norm is very familiar with, and he just immediately talks it down to my level, so I understand what he's talking about.
+[00:07:56] Ryan Kiser: Very well. As you can see, I talk about her almost daily. I find a way to segue her into something. I'm actually a big outside person, so I'm learning a lot, and it is no joke. They do explain a lot of things to me. There's a lot of I give this look that Norm is very familiar with, and he just immediately talks it down to my level, so I understand what he's talking about.
 
 [00:08:16] Adam: He Ryan explains it.
 
@@ -190,7 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:08:46] Ryan Kiser: A lot of explaining that's done to me, but
 
-[00:08:49] Adam: that was that was you said that to Eric Haven, legendary Star Wars nerd, MythBusters producer, and award winning comic book artist. You are literally. You were I was almost like harming what you were doing.
+[00:08:49] Adam: that was you said that to Eric Haven, legendary Star Wars nerd, MythBusters producer, and award winning comic book artist. You are literally. You were I was almost like harming what you were doing.
 
 [00:09:02] Ryan Kiser: I think I did a little bit. Yeah, we were. We never quite were this close after that. But yeah,
 
@@ -216,7 +216,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:09:26] Adam: How about these kind of crowds?
 
-[00:09:28] Ryan Kiser: I am, you know, I'm absolutely amazed. I said this to Norm. I've said it before. Silicon Valley. There was this couple that came in, and they were characters for Galaxy Quest.
+[00:09:28] Ryan Kiser: I am I'm absolutely amazed. I said this to Norm. I've said it before. Silicon Valley. There was this couple that came in, and they were characters for Galaxy Quest.
 
 [00:09:39] Norm: Yes, the aliens,
 
@@ -224,7 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:09:40] Adam: Thermians,
 
-[00:09:41] Ryan Kiser: Thermians, and there was something just so genuine that you see, and it's just this moment of just like just love and just happiness and just like embracing these characters for this day that they have, maybe two days, and then go back. You know, they get to go back to their normal life, and like not normal. You know, to their life, their everyday life,
+[00:09:41] Ryan Kiser: Thermians, and there was something just so genuine that you see, and it's just this moment of just like just love and just happiness and just like embracing these characters for this day that they have, maybe two days, and then go back. They get to go back to their normal life, and like not normal. To their life, their everyday life,
 
 [00:10:01] Norm: Mm-hmm.
 
@@ -232,13 +232,13 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:10:07] Norm: Because they came in character. They came in character. They walked into the room, not just dressed and up as, but performing.
 
-[00:10:13] Ryan Kiser: 100%. I mean, movements, that whole hand thing, which I can't emulate. I don't want to offend anybody by trying to, but I mean, it was just, and so now every time I look at somebody that's that's in cosplay, I don't see, you know, oh, that's somebody dressed up. I see somebody having the time of their life for that day.
+[00:10:13] Ryan Kiser: 100%. I mean, movements, that whole hand thing, which I can't emulate. I don't want to offend anybody by trying to, but I mean, it was just, and so now every time I look at somebody that's in cosplay, I don't see oh, that's somebody dressed up. I see somebody having the time of their life for that day.
 
 [00:10:13] Norm: Yeah.
 
-[00:10:13] Ryan Kiser: You know, I see somebody who spent you know weeks or months on this you know creating something, and they get to show it off. And like now, I get just as excited. I mean, again, I don't know what half of it is, but I get so excited to see the enthusiasm that comes out.
+[00:10:13] Ryan Kiser: I see somebody who spent you know weeks or months on this you know creating something, and they get to show it off. And like now, I get just as excited. I mean, again, I don't know what half of it is, but I get so excited to see the enthusiasm that comes out.
 
-[00:10:41] Adam: And that's that's totally that. I think if there's anything that's a requirement with us, it's that. Like, I love it when you bring me something that a fan has made, and then you get super excited about sending them something back.
+[00:10:41] Adam: And that's totally that. I think if there's anything that's a requirement with us, it's that. Like, I love it when you bring me something that a fan has made, and then you get super excited about sending them something back.
 
 [00:10:54] Ryan Kiser: Yeah. Right.
 
@@ -246,11 +246,11 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:10:54] Ryan Kiser: absolutely,
 
-[00:10:54] Adam: and it feels it feels like we're guardians of something really special,
+[00:10:54] Adam: and it feels like we're guardians of something really special,
 
-[00:11:04] Ryan Kiser: absolutely. And like you're talking about the expo, you know, and and you know, you know, we're kind of in this, you know, this box. You know, we we make stuff, we put it out, and we read comments. But like, you know, you get somebody that comes up, and and you know, we had all these props set up, and people like, I remember that video, I remember this video, and there's just the again, it's the genuine just love of just like, wow, I learned how to do this because of this, and like that's like priceless. Yeah. There's, I mean, the worst day in the world turned around after you know 10 minutes with somebody from college. You know,
+[00:11:04] Ryan Kiser: absolutely. And like you're talking about the expo and we're kind of in this, you know, this box. We make stuff, we put it out, and we read comments. But you get somebody that comes up, and we had all these props set up, and people like, I remember that video, I remember this video, and there's just the again, it's the genuine just love of just like, wow, I learned how to do this because of this, and like that's like priceless. Yeah. There's, I mean, the worst day in the world turned around after you know 10 minutes with somebody from college. You know,
 
-[00:11:32] Adam: 100%. I um I was I was it was a little rough having Totoro out of my house for a whole weekend. The weekend of the Crunchyroll Expo, I am really glad that like hundreds and hundreds of people got pictures with Totoro. Um, this Friday, my friend Stephen's band, the Morning Line, played a show at the Makeout Room, and was that Friday or Saturday? I'm thinking I can't honestly remember. It was one of those two days. Anyway, the Morning Line was. Fabulous! It was a great show. It was all our friends at the makeout room. We brought them all back to the house because, again, it was still 80 on the deck.
+[00:11:32] Adam: 100%. I was it was a little rough having Totoro out of my house for a whole weekend. The weekend of the Crunchyroll Expo, I am really glad that like hundreds and hundreds of people got pictures with Totoro. This Friday, my friend Stephen's band, the Morning Line, played a show at the Makeout Room, and was that Friday or Saturday? I'm thinking I can't honestly remember. It was one of those two days. Anyway, the Morning Line was. Fabulous! It was a great show. It was all our friends at the makeout room. We brought them all back to the house because, again, it was still 80 on the deck.
 
 [00:12:07] Norm: Right.
 
@@ -258,7 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:12:08] Ryan Kiser: Just so happy. Just so happy. I just even yeah.
 
-[00:12:25] Norm: I think the only two things that we've exposed to that have that elicited that type of reaction it's Totoro and Wall-E, both those all ages hugs. People like they they are real, manifest in life size.
+[00:12:25] Norm: I think the only two things that we've exposed to that have that elicited that type of reaction it's Totoro and Wall-E, both those all ages hugs. People like they are real, manifest in life size.
 
 [00:12:25] Adam: Yeah,
 
@@ -296,7 +296,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:13:07] Norm: Full on. I think I saw him online. He he got he ordered like cheeseburgers and handed them out late at night on on the cheeseburger platform.
 
-[00:13:17] Adam: That is that is like how to build your army. Honestly, that's DragonCon because those folks will follow you forever for that kind of gracious generosity.
+[00:13:17] Adam: That is like how to build your army. Honestly, that's DragonCon because those folks will follow you forever for that kind of gracious generosity.
 
 [00:13:26] Ryan Kiser: That's how you get that loyalty.
 
@@ -304,7 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:13:36] Adam: DragonCon is. I'm I'm not going to say that it makes many other cons I've been to feel like amateur night because it totally doesn't. But there is a there is a saturation to the cosplay at DragonCon that is really unique. It is a it's a smaller con on average about 40,000 people go
 
-[00:13:56] Norm: and it's it's a different type of structure.
+[00:13:56] Norm: and it's a different type of structure.
 
 [00:13:59] Adam: Downtown Atlanta,
 
@@ -326,7 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:14:33] Ryan Kiser: I have no idea. Tell, tell."
 
-[00:14:34] Norm: Yeah, so DragonCon's been in downtown Atlanta, and it is like three or four different of their major hotels connected. It's the the Hilton and the Marriott.
+[00:14:34] Norm: Yeah, so DragonCon's been in downtown Atlanta, and it is like three or four different of their major hotels connected. It's the Hilton and the Marriott.
 
 [00:14:43] Adam: They're all connected by like walkways.
 
@@ -336,9 +336,9 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:14:50] Norm: Marriott is like the main hub. It's the center hotel, the biggest atrium, like like Luxor style, right? In terms of like you see the hotel rooms and you see a giant space. And the carpet of DragonCon, that Marriott hotel is so iconic to the people who've been going for years. This convention, that people have found the pattern from the or redesigned themselves and made costumes and decorated entire outfits, skinned tiny cars to that pattern and gone camouflage or just hung out.
 
-[00:15:24] Ryan Kiser: Can I just say, like that's that's the thing about the about the cons that just like my heart just but, but. Fluttering right now.
+[00:15:24] Ryan Kiser: Can I just say, like that's the thing about the cons that just like my heart just but. Fluttering right now.
 
-[00:15:29] Adam: But but we have a friend of tested
+[00:15:29] Adam: But we have a friend of tested
 
 [00:15:32] Norm: yes
 
@@ -354,11 +354,11 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:15:59] Ryan Kiser: Seriously.
 
-[00:16:00] Norm: And then it was controversial because the Marriott changed the carpet for certain floors. It was like a big; they had a big send-off. Like, but this this old carpet, this old design, is forever tied to Dragon Con and the cosplayers. And people still dress up, even though the carpet's not there. They still dress up because they recognize that pattern.
+[00:16:00] Norm: And then it was controversial because the Marriott changed the carpet for certain floors. It was like a big; they had a big send-off. Like, but this old carpet, this old design, is forever tied to Dragon Con and the cosplayers. And people still dress up, even though the carpet's not there. They still dress up because they recognize that pattern.
 
 [00:16:00] Adam: Dude,
 
-[00:16:00] Norm: is there is there a group?
+[00:16:00] Norm: is there a group?
 
 [00:16:20] Adam: Wow, [unclear: is there trouble? No, the literally / The debt, literally]
 
@@ -368,17 +368,17 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:16:35] Norm: PDX? Yeah, Portland. Yeah,
 
-[00:16:37] Adam: people love the GPS, the the satellite imagery carpet.
+[00:16:37] Adam: people love the GPS, the satellite imagery carpet.
 
-[00:16:40] Norm: Yeah, and then when when things go away, when these institutions go away, it's like the weird things that our our town, our city, our group affiliates with. You know, there's resistance to that.
+[00:16:40] Norm: Yeah, and then when things go away, when these institutions go away, it's like the weird things that our town, our city, our group affiliates with. There's resistance to that.
 
-[00:16:52] Adam: I I think that one of the other things that makes Makes our jobs exciting and fun, and yours, as well, is that it's different every day.
+[00:16:52] Adam: I think that one of the other things that makes Makes our jobs exciting and fun, and yours, as well, is that it's different every day.
 
 [00:16:52] Unknown speaker (Norm or Ryan): Absolutely,
 
 [00:16:52] Adam: the stuff you have to chase down and the people you've got to communicate and the things you have to arrange are radically different every single day.
 
-[00:17:12] Ryan Kiser: Every single day. I mean, you know, just when he thinks people like, well, again, what's a day like for you? And I'm like, who knows? Who knows? I'm like, depends on if Adams in or not, because that's going to change. You don't know who's going to be able to walk in. You don't know what you're building. You know what I mean? Like, it's we have no clue what's going to happen. And and you know, the way we work is, you know, we have uh, you know, most of everything we do is a front-attested. So a lot of things are like, hey, tomorrow, can we find out two hours? You know, we kill two hours to go like do something, and we figure that out, and and that it's really exciting. And um, but yes, people ask all the time. They're like, you know, like, what do you? I don't know. I I don't know. Sometime in the morning we get there. Sometime in the afternoon there's a lot that happens. It's uh
+[00:17:12] Ryan Kiser: Every single day. I mean just when he thinks people like, well, again, what's a day like for you? And I'm like, who knows? Who knows? I'm like, depends on if Adams in or not, because that's going to change. You don't know who's going to be able to walk in. You don't know what you're building. You know what I mean? Like, it's we have no clue what's going to happen. And you know, the way we work is we have most of everything we do is a front-attested. So a lot of things are like, hey, tomorrow, can we find out two hours? We kill two hours to go like do something, and we figure that out, and that it's really exciting. And but yes, people ask all the time. They're like like, what do you? I don't know. I don't know. Sometime in the morning we get there. Sometime in the afternoon there's a lot that happens. It's
 
 [00:17:12] Adam: yeah quite interesting.
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:18:07] Adam: Guillermo del Toro's new film. And we don't just love movies; we love making fun even of movies we love.
 
-[00:18:17] Norm: Yeah, absolutely. And then, and we try to, having watched a lot of movies, be constructive in criticism. It's a thought experiment. Where you know we're not filmmakers ourselves, but we can have fun being fans. But there's a little bit of a toxicity in some of the the criticism online, and this was brought up recently with
+[00:18:17] Norm: Yeah, absolutely. And then, and we try to, having watched a lot of movies, be constructive in criticism. It's a thought experiment. Where you know we're not filmmakers ourselves, but we can have fun being fans. But there's a little bit of a toxicity in some of the criticism online, and this was brought up recently with
 
 [00:18:17] Adam: shocking
 
@@ -422,7 +422,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:19:28] Adam: I love Honest Trailers
 
-[00:19:29] Norm: it’s great and he he actually Honest Trailers wasn't the one he had any problem with he actually he did a video with them to critique his own film and poke fun of it yes like and he said out front the director is always going to be the harshest critic themselves
+[00:19:29] Norm: it’s great and he actually Honest Trailers wasn't the one he had any problem with he actually he did a video with them to critique his own film and poke fun of it yes like and he said out front the director is always going to be the harshest critic themselves
 
 [00:19:29] Adam: right
 
@@ -436,7 +436,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:20:24] Ryan Kiser: I've not.
 
-[00:20:25] Norm: It's it's the the last King Kong movie. It's in the the shared universe with the Godzilla film. I thought
+[00:20:25] Norm: It's the last King Kong movie. It's in the shared universe with the Godzilla film. I thought
 
 [00:20:31] Adam: Larson, Sam Jackson,
 
@@ -458,7 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:20:55] Norm: and the action is gorgeous.
 
-[00:20:56] Adam: The physics are very enjoyably accurate in far as I mean, you know.
+[00:20:56] Adam: The physics are very enjoyably accurate in far as I mean.
 
 [00:21:01] Norm: And apparently, I didn't even know this. He addressed this in his Screen Junkies video, but people took issue with the helicopter math, saying in that scene there are too many helicopters. How does Kong have so many helicopters? And he said, " Well, you're going to see a Kong movie. You expect to see King Kong throw helicopters around. What do you want? Four helicopters? Of course, it's gonna be a ton of helicopters. And guess what? The helicopter math works out because here's a shot with a boat and the helicopters coming out of the boat. And guess what's inside the boat? More helicopters.
 
@@ -472,7 +472,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:21:50] Adam: Totally.
 
-[00:21:51] Norm: The gut response. You know, social media and internet makes it really easy to be snarky, to put something out that is funny, you know, but can can be demeaning or mean to, and not productive to the creative process.
+[00:21:51] Norm: The gut response. Social media and internet makes it really easy to be snarky, to put something out that is funny but can can be demeaning or mean to, and not productive to the creative process.
 
 [00:22:05] Adam: So, who did Jordan Vogt Roberts have a problem with?
 
@@ -482,9 +482,9 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:22:14] Norm: I forget the name of the YouTube channel. It's it's one of those, another one of those like it's not honest trailers, but it's it's like them. It's like Cinema Sins.
 
-[00:22:14] Adam: Cinema Sins. There you go. And he felt like they were they were filling space with criticisms where they didn't have genuine criticisms, and I actually think that's a that's a a nice subtle note to give because look, we are we are as aware as anybody else of the tyranny of producing content, of of needing to produce X minutes of content for a thing, and making sure that you are fully buttoned down, even though it seems like you know. were a bit of a shoestring operation, and by some metrics, we are. You still have to get all your camera angles. Your sound has to be good. Your editor needs all this stuff. There's a lot of support. There's titles. There's graphics. All of that has to be done. And a small place like Cinema Sins probably has the same. They've got all sorts of demands. They've got advertisers. They've got clients.
+[00:22:14] Adam: Cinema Sins. There you go. And he felt like they were filling space with criticisms where they didn't have genuine criticisms, and I actually think that's a nice subtle note to give because look, we are as aware as anybody else of the tyranny of producing content, of needing to produce X minutes of content for a thing, and making sure that you are fully buttoned down, even though it seems like you know. were a bit of a shoestring operation, and by some metrics, we are. You still have to get all your camera angles. Your sound has to be good. Your editor needs all this stuff. There's a lot of support. There's titles. There's graphics. All of that has to be done. And a small place like Cinema Sins probably has the same. They've got all sorts of demands. They've got advertisers. They've got clients.
 
-[00:23:10] Norm: Well, I also think that you know they can they can make the argument that they're they're cheap shots. If that's what they were, there were there was less criticism than it was satire, comedy, right?
+[00:23:10] Norm: Well, I also think that you know they can make the argument that they're cheap shots. If that's what they were, there was less criticism than it was satire, comedy, right?
 
 [00:23:10] Adam: Right.
 
@@ -494,21 +494,21 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:23:10] Norm: Right. They want to nitpick on these things. That's what they're feeding them. But that can be subject to criticism too. If you're going to write a satirical review over nitpicking points of a film, you got to do it well.
 
-[00:23:41] Adam: Yeah, and to you know, Honest Trailers has taken some films I love to task. And they've also like you got to watch the honest trailers about Guardians of the Galaxy because like a third, two thirds of the way through, they're like, we we love this movie. We're running out of shit to complain about.
+[00:23:41] Adam: Yeah, and to you know, Honest Trailers has taken some films I love to task. And they've also like you got to watch the honest trailers about Guardians of the Galaxy because like a third, two thirds of the way through, they're like, we love this movie. We're running out of shit to complain about.
 
 [00:23:57] Ryan Kiser: Why am I not? I'm just going to say why you're not showing this with me? Oh my goodness!
 
-[00:24:00] Adam: Honest Trailers, honest trailers is like give up four hours of your night tonight.
+[00:24:00] Adam: Honest Trailers is like give up four hours of your night tonight.
 
 [00:24:05] Ryan Kiser: Okay,
 
-[00:24:06] Adam: because you will just one after the boom and boom and yeah.
+[00:24:06] Adam: because you will just one after the boom and yeah.
 
 [00:24:07] Ryan Kiser: Okay,
 
-[00:24:07] Adam: it's like it's like doing that YouTube search for comedian owns heckler.
+[00:24:07] Adam: it's like doing that YouTube search for comedian owns heckler.
 
-[00:24:14] Ryan Kiser: Oh, yes, yes, yes, yes. I would definitely look into that because. Okay. But how did he respond though? Did he respond on on a separate?
+[00:24:14] Ryan Kiser: Oh, yes, yes, yes, yes. I would definitely look into that because. Okay. But how did he respond though? Did he respond on a separate?
 
 [00:24:22] Norm: So he had a whole big Twitter rant about the CinemaSins video, and then at the same time, I guess he was already working on this honest trailers collaboration, and that video just came out today where he critiques his own film with the honest trailers.
 
@@ -522,13 +522,13 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:24:44] Norm: Right, like. No film is going. No film can be perfect because no film can be the same thing for everyone.
 
-[00:24:51] Adam: I'm also. I should explain. I have a little bias here in that I know and like Jordan and his movie, and I have not watched either the Cinemasins or the Honest Trailer about Kong. So I, you know, I clearly have a little bit of a side in this, but I'm I'm taking a side, but it's not it's not an educated position.
+[00:24:51] Adam: I'm also. I should explain. I have a little bias here in that I know and like Jordan and his movie, and I have not watched either the Cinemasins or the Honest Trailer about Kong. So I I clearly have a little bit of a side in this, but I'm I'm taking a side, but it's not an educated position.
 
-[00:25:09] Norm: I mean, everyone with with internet, everyone can have an opinion, right?
+[00:25:09] Norm: I mean, everyone with internet, everyone can have an opinion, right?
 
 [00:25:09] Ryan Kiser: And they do,
 
-[00:25:09] Norm: and they do. And the other reason I wanted to bring this up was because over the weekend there was the the announcement of the the Joker film, right? Warner Brothers is talking about developing a a Joker standalone movie as a spinoff from Suicide Squad, the Batman films, and likely being led by Jared Leto. And there was a lot of resistance, to to put it mildly, on the internet. And really, one of our screenwriter friends initially tweeted something like, " I don't think this this this is a terrible idea," and then took it back and said he regretted messaging that because as a As someone who works in the creative process,
+[00:25:09] Norm: and they do. And the other reason I wanted to bring this up was because over the weekend there was the announcement of the Joker film, right? Warner Brothers is talking about developing a Joker standalone movie as a spinoff from Suicide Squad, the Batman films, and likely being led by Jared Leto. And there was a lot of resistance, to put it mildly, on the internet. And really, one of our screenwriter friends initially tweeted something like, " I don't think this this this is a terrible idea," and then took it back and said he regretted messaging that because as a As someone who works in the creative process,
 
 [00:25:09] Adam: there's no information.
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:25:09] Norm: without seeing how it can be developed.
 
-[00:26:01] Adam: Oh no, no, no! I read a detailed, like, 1,000-word article about how stupid it was to set Wonder Woman in World War One.
+[00:26:01] Adam: Oh no, no, no! I read a detailed 1,000-word article about how stupid it was to set Wonder Woman in World War One.
 
 [00:26:01] Norm: Right, right.
 
@@ -548,7 +548,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:26:01] Adam: Like before anyone had seen any pictures of anything, and someone's like, " Well, I need to spend 1,000 words telling you why this should never happen, and this film will fail."
 
-[00:26:24] Norm: Well, did you hear about the the six stages of fandom? Right, it's like I love this, um, I, I love this, I own this,
+[00:26:24] Norm: Well, did you hear about the six stages of fandom? Right, it's like I love this I own this,
 
 [00:26:24] Adam: Mm-hmm.
 
@@ -566,7 +566,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:27:36] Norm: You could pull Ron Howard.
 
-[00:27:37] Adam: I'm ready to pull Ron Howard. I can lose some weight and get thinner because he need he's he's pretty skinny, and you apparently that's necessary. I don't know. I'm riffing now. Anyway,
+[00:27:37] Adam: I'm ready to pull Ron Howard. I can lose some weight and get thinner because he need he's pretty skinny, and you apparently that's necessary. I don't know. I'm riffing now. Anyway,
 
 [00:27:47] Norm: seconded.
 
@@ -590,11 +590,11 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:28:26] Norm: Yeah,
 
-[00:28:26] Adam: right. It's like the end of Die Hard. Shoots the glass, shoots the glass
+[00:28:26] Adam: right. It's like the end of Die Hard. Shoots the glass
 
 [00:28:35] Norm: Adam, what have you been working on lately? I know last week we talked about the chair project that, and we'll be doing more more coverage of that. But you've been working on some other stuff too, right?
 
-[00:28:45] Adam: Yes, we are. So we just did a video where we were lathing some wooden bowls with a wonderful maker in the East Bay, and that will go up on Tested. I am finishing. I lathe half of a bowl in in in on that video. I'm finishing that, so I pulled my wood lathe out. This is hilarious because everyone in the tested crews has come by the shop today and gone. I didn't know you had a wood lathe.
+[00:28:45] Adam: Yes, we are. So we just did a video where we were lathing some wooden bowls with a wonderful maker in the East Bay, and that will go up on Tested. I am finishing. I lathe half of a bowl in on that video. I'm finishing that, so I pulled my wood lathe out. This is hilarious because everyone in the tested crews has come by the shop today and gone. I didn't know you had a wood lathe.
 
 [00:29:09] Norm: Yeah, no, it's a tool you have not used. yet.
 
@@ -602,11 +602,11 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:29:21] Ryan Kiser: Yeah, yeah, industrial.
 
-[00:29:23] Adam: Do you need the hole punch that makes the the rectangular hole? Because I have that too. Yeah, so I've been getting the wood lathe back up and running because we're going to film that tomorrow.
+[00:29:23] Adam: Do you need the hole punch that makes the rectangular hole? Because I have that too. Yeah, so I've been getting the wood lathe back up and running because we're going to film that tomorrow.
 
 [00:29:23] Norm: Yes,
 
-[00:29:23] Adam: I have been. I have been working on. I'm just wondering where to begin with this story. But years ago, I bought a cast iron replica of the key that the Marquis de Lafayette sent to Washington. From a son to his adopted, he wrote this beautiful leather letter. The Marquis de Lafayette was, of course, Washington's aide de camp, made famous by Daveed Diggs in Hamilton. The Marquis then, after the Revolutionary War, went back to France and would helped start the French Revolution for better or mostly worse. But in the beginning, when it was all heady and everyone was excited, they they stormed the Bastille. They and then the Marquis de Lafayette sent the key to the front door of the Bastille to Washington, and it still hangs in Washington's foyer at Mount Vernon, and it comes with a beautiful letter that said, " From a son to an adopted to his adopted father, from an aide de camp to his general, from a from a something like from a pilgrim of liberty to its patriarch, I send this symbol of of the elimination of despotism."
+[00:29:23] Adam: I have been. I have been working on. I'm just wondering where to begin with this story. But years ago, I bought a cast iron replica of the key that the Marquis de Lafayette sent to Washington. From a son to his adopted, he wrote this beautiful leather letter. The Marquis de Lafayette was, of course, Washington's aide de camp, made famous by Daveed Diggs in Hamilton. The Marquis then, after the Revolutionary War, went back to France and would helped start the French Revolution for better or mostly worse. But in the beginning, when it was all heady and everyone was excited, they stormed the Bastille. They and then the Marquis de Lafayette sent the key to the front door of the Bastille to Washington, and it still hangs in Washington's foyer at Mount Vernon, and it comes with a beautiful letter that said, " From a son to an adopted to his adopted father, from an aide de camp to his general, from a from a something like from a pilgrim of liberty to its patriarch, I send this symbol of of the elimination of despotism."
 
 [00:29:23] Unknown speaker (Norm or Ryan): Right.
 
@@ -624,9 +624,9 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:31:32] Adam: Yeah, yeah.
 
-[00:31:32] Norm: And this is this is a different type.
+[00:31:32] Norm: And this is a different type.
 
-[00:31:45] Adam: It is, and I have a I have a a few pounds of Sculpey in the shop at all times, and I make sure it's like. You know, if you leave it around too long, it can get real crusty, and you have to throw it out. So I, you know, I make sure I've always got good Sculpey And I, I, this was a very successful endeavor of trying the sculpt. And before I do the final weathering, I think I'm going to throw this into some silicone.
+[00:31:45] Adam: It is, and I have a few pounds of Sculpey in the shop at all times, and I make sure it's like. You know, if you leave it around too long, it can get real crusty, and you have to throw it out. So I I make sure I've always got good Sculpey And I, I, this was a very successful endeavor of trying the sculpt. And before I do the final weathering, I think I'm going to throw this into some silicone.
 
 [00:32:07] Norm: That's awesome.
 
@@ -634,9 +634,9 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:32:07] Norm: we'll definitely be covering that.
 
-[00:32:09] Adam: And and by the way, I have a second key, and I will. We can film the cover. We can cover me machining that second key to be super accurate, because now I know how.
+[00:32:09] Adam: And by the way, I have a second key, and I will. We can film the cover. We can cover me machining that second key to be super accurate, because now I know how.
 
-[00:32:21] Norm: Awesome. You get a sneak peek into the the pre production process.
+[00:32:21] Norm: Awesome. You get a sneak peek into the pre production process.
 
 [00:32:24] Adam: Exactly. Exactly.
 

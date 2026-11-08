@@ -14,13 +14,13 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:00:08] Will: Hey, guys. It's raining in San Francisco. Yay!
 
-[00:00:11] Adam: So exciting. I drove. My my wife's job is at effectively. It's a five-minute car ride from our house.
+[00:00:11] Adam: So exciting. I drove. My wife's job is at effectively. It's a five-minute car ride from our house.
 
 [00:00:20] Will: Okay, so that's like three quarters of San Francisco.
 
-[00:00:22] Adam: You know, it's it's actually great. It took 40 minutes to drive this morning because San Franciscans all lose their minds in the rain.
+[00:00:22] Adam: It's actually great. It took 40 minutes to drive this morning because San Franciscans all lose their minds in the rain.
 
-[00:00:32] Will: Totally true. Karl the Fog this morning tweeted, and and just to be clear, we realize the irony of complaining about weather here on the West Coast when right now,
+[00:00:32] Will: Totally true. Karl the Fog this morning tweeted, and just to be clear, we realize the irony of complaining about weather here on the West Coast when right now,
 
 [00:00:39] Adam: I'm not complaining about weather. I love the rain. I love the rain.
 
@@ -112,7 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:03:44] Adam: oh that's awesome yeah I love hearing that
 
-[00:03:46] Will: good good science and like like my daughter loves it she doesn't care that she's learning stuff she's really it's really good
+[00:03:46] Will: good good science and like my daughter loves it she doesn't care that she's learning stuff she's really it's really good
 
 [00:03:51] Norm: well have you watched that Black Mirror episode about child rearing
 
@@ -130,19 +130,19 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:04:03] Adam: I feel like the Black Mirror Metalhead episode from this season is the best Terminator movie that's been made in years.
 
-[00:04:09] Will: Yes. What about what about
+[00:04:09] Will: Yes. What about
 
 [00:04:10] Norm: the Boston Dynamics robot killer robot dog?
 
-[00:04:12] Will: You know, I'm scared of those videos, and they just post them on YouTube. You don't have to have Netflix to watch them.
+[00:04:12] Will: I'm scared of those videos, and they just post them on YouTube. You don't have to have Netflix to watch them.
 
 [00:04:16] Adam: This video is this video basically. If you're wondering, hmm, those Boston Dynamics videos kind of freak me out. I wonder what the worst case scenario would be. Black Mirror has written it and filmed it.
 
-[00:04:27] Norm: Well, I think one of the reasons that we we both come to conclusion that it feels like a great Terminator movie, and that's not to say there are you know some of the Terminator movies have been better than others. But there's
+[00:04:27] Norm: Well, I think one of the reasons that we both come to conclusion that it feels like a great Terminator movie, and that's not to say there are you know some of the Terminator movies have been better than others. But there's
 
 [00:04:36] Will: more than two.
 
-[00:04:37] Norm: Yeah, exactly. Right, they're they're the good two.
+[00:04:37] Norm: Yeah, exactly. Right, they're the good two.
 
 [00:04:40] Will: In retrospect, three was nowhere near as bad as I thought it was at the time.
 
@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:04:44] Adam: I worked on three. I built the particle accelerator.
 
-[00:04:46] Norm: That's right. The the yes, the magnetic, tiny magnetic particle accelerator.
+[00:04:46] Norm: That's right. The yes, the magnetic, tiny magnetic particle accelerator.
 
 [00:04:50] Adam: I didn't build the set. I built the miniature that you see through the window.
 
@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:04:55] Adam: I built that set.
 
-[00:04:57] Norm: The films never caught. They reuse the same idea of what, like, what was unnerving about the first one was the machine looked like a human, right? And you could not tell who was the assassin. But the idea does not. It it didn't carry over. Like they just use the same idea over and over again. Yeah, it needs a big crazy chase. Yes, like, but what the metalhead episode of Black Mirror does is it takes that same unnerving feel and takes it to actually what makes sense today. Something we can relate to, which is the anthropomorphizing of robots.
+[00:04:57] Norm: The films never caught. They reuse the same idea of what what was unnerving about the first one was the machine looked like a human, right? And you could not tell who was the assassin. But the idea does not. It didn't carry over. Like they just use the same idea over and over again. Yeah, it needs a big crazy chase. Yes but what the metalhead episode of Black Mirror does is it takes that same unnerving feel and takes it to actually what makes sense today. Something we can relate to, which is the anthropomorphizing of robots.
 
 [00:05:28] Adam: But also that specific weird uncanny valley of watching them. Like you get to see this dog run towards you from a distance, and it's.
 
@@ -166,7 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:05:36] Adam: feel that it's biological, but it's also not quite. And the fact that it's coming to kill you is this is even weirder.
 
-[00:05:42] Norm: And that is exactly what the first Terminator film tapped into: the uncanny valley of of the robot killer.
+[00:05:42] Norm: And that is exactly what the first Terminator film tapped into: the uncanny valley of the robot killer.
 
 [00:05:47] Adam: Right. Arnold was born to play a robot.
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:05:50] Adam: his whole face is in the uncanny valley.
 
-[00:05:51] Will: Yeah, when when Robert Pattinson,
+[00:05:51] Will: Yeah, when Robert Pattinson,
 
 [00:05:51] Norm: Robert Patrick,
 
@@ -182,11 +182,11 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:05:58] Adam: I don't think Cedric Diggory is. Going to make a good Terminator,
 
-[00:06:00] Will: but he's running and he's running, and it's such a mechanical, like like the the the mechanism is repeated in a way that normal that humans don't do when they run.
+[00:06:00] Will: but he's running and it's such a mechanical, like the mechanism is repeated in a way that normal that humans don't do when they run.
 
-[00:06:09] Norm: It really is about that that weird gap between Uncanny Valley, and they went way over the top in the the most recent Terminator films, and like, well, what if it just looked like a robot with some like skin pasted on it? That's not Uncanny Valley. With a dog, it's like it doesn't need to look like a robot, a dog. But anyone who's watched the Boston Dynamics videos sees Uncanny Valley in that because we impose upon it life.
+[00:06:09] Norm: It really is about that that weird gap between Uncanny Valley, and they went way over the top in the most recent Terminator films, and well, what if it just looked like a robot with some like skin pasted on it? That's not Uncanny Valley. With a dog, it's like it doesn't need to look like a robot, a dog. But anyone who's watched the Boston Dynamics videos sees Uncanny Valley in that because we impose upon it life.
 
-[00:06:31] Adam: Also, the the season opener for this year's Black Mirror, which is a Star Trek,
+[00:06:31] Adam: Also, the season opener for this year's Black Mirror, which is a Star Trek,
 
 [00:06:35] Norm: yes,
 
@@ -200,11 +200,11 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:06:43] Norm: He was just in Breaking Bad, just that one season. Yeah, Neo-Nazi.
 
-[00:06:46] Adam: he was amazing in Breaking Bad. Um,
+[00:06:46] Adam: he was amazing in Breaking Bad.
 
 [00:06:48] Norm: and Fargo season two.
 
-[00:06:49] Adam: That episode, I'm sorry, you you.
+[00:06:49] Adam: That episode, I'm sorry, you.
 
 [00:06:52] Will: It's fine.
 
@@ -220,9 +220,9 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:07:05] Will: So everybody has mustaches.
 
-[00:07:07] Adam: It's it's a really amazing episode. In fact, the layers within layers that that episode gets to, I won't spoil it for you. Just to say that if it looks to you like it's the most lighthearted of that of this season's Black Mirror episodes, get ready because that one's still pretty freaking dark.
+[00:07:07] Adam: It's a really amazing episode. In fact, the layers within layers that that episode gets to, I won't spoil it for you. Just to say that if it looks to you like it's the most lighthearted of that of this season's Black Mirror episodes, get ready because that one's still pretty freaking dark.
 
-[00:07:23] Will: No, I mean, look, it's the way Black Mirror works is you're watching episodes, and at some point I'll watch it. But 2018 so far has been a little rough. Like at some point you're watching it, and then you realize that there's a turn coming, but you have no idea what the turn is. And then next thing you know, you're kind of in a ball on the floor, weeping for the future of humanity.
+[00:07:23] Will: No, I mean, look, it's the way Black Mirror works is you're watching episodes, and at some point I'll watch it. But 2018 so far has been a little rough. Like at some point you're watching it, and then you realize that there's a turn coming, but you have no idea what the turn is. And then next thing you're kind of in a ball on the floor, weeping for the future of humanity.
 
 [00:07:23] Adam: Yeah,
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:08:31] Will: No, there's no chance.
 
-[00:08:34] Adam: Um, I would.
+[00:08:34] Adam: I would.
 
 [00:08:36] Norm: I and then say your child at this point because you have a you have 18 year olds. You have a youngin.
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:09:00] Adam: They would have to have all the agency in the implementation of that technology.
 
-[00:09:03] Will: Like, like we turned off. Like, Gina and I had a big conversation about this because when when our daughter turned, when she started expressing desires, right? That that to me, that's when that's when I stopped doing a bunch of dads because it felt creepy, like I was telling somebody else's stories instead of telling mine, right? And it's when, um, it's when, when we turned off the nursery camera, we took the nursery camera out because it felt like,
+[00:09:03] Will: Like we turned off. Like, Gina and I had a big conversation about this because when our daughter turned, when she started expressing desires, right? That that to me, that's when I stopped doing a bunch of dads because it felt creepy, like I was telling somebody else's stories instead of telling mine, right? And it's when we turned off the nursery camera, we took the nursery camera out because it felt like,
 
 [00:09:03] Norm: yeah,
 
@@ -302,7 +302,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:09:57] Will: Yeah.
 
-[00:09:57] Adam: Right. But this parent, I still understand wanting to know what they're saying. Uh. But you know, their privacy is a thing, even at two. And so he, I don't know if it's he or she. The parent walks in through the dark hallway to the lit kid's room, and you see the little girl like sorting her toys and talking to herself. And they move all the way into the room, and the daughter doesn't notice them. And then the parent giggles, and the daughter turns up and goes, " Oh!" and like freaks out.
+[00:09:57] Adam: Right. But this parent, I still understand wanting to know what they're saying. But you know, their privacy is a thing, even at two. And so he, I don't know if it's he or she. The parent walks in through the dark hallway to the lit kid's room, and you see the little girl like sorting her toys and talking to herself. And they move all the way into the room, and the daughter doesn't notice them. And then the parent giggles, and the daughter turns up and goes, " Oh!" and like freaks out.
 
 [00:10:24] Will: Scared the hell out of her.
 
@@ -316,13 +316,13 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:10:47] Adam: Don't get me wrong. I also have tracked my thing one and thing two's phones through Find My Friends and Find My iPhone at many different points in their lives.
 
-[00:10:56] Norm: But they know that that's that that's a thing that you do.
+[00:10:56] Norm: But they know that that's a thing that you do.
 
 [00:10:57] Adam: They do. I've been very open and upfront with them about that.
 
 [00:10:59] Will: I mean, my my wife and I turn that on for each other so that. Like it's just, yeah. Like that's a time saving thing too. It's it's hey, instead of me texting you and saying hey, are you blah blah blah.
 
-[00:11:09] Norm: I I tell you that is a that is a bad thing for relationships.
+[00:11:09] Norm: I tell you that is a bad thing for relationships.
 
 [00:11:13] Will: What texting or having it on?
 
@@ -330,13 +330,13 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:11:17] Will: Really? Oh, it's been great for us.
 
-[00:11:18] Adam: Yeah, and Drew Curtis has a practice in which whenever he, whenever he and I have a meeting in a different in a city,
+[00:11:18] Adam: Yeah, and Drew Curtis has a practice in which whenever he and I have a meeting in a different in a city,
 
 [00:11:18] Will: yeah,
 
 [00:11:18] Adam: that morning he'll text me his loca he'll share with me his location.
 
-[00:11:28] Norm: But that's a that's a proactive thing where he is texting you like I can share for the next hour.
+[00:11:28] Norm: But that's a proactive thing where he is texting you like I can share for the next hour.
 
 [00:11:28] Adam: Yeah.
 
@@ -354,15 +354,15 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:11:47] Will: what's your Black Mirror episode?
 
-[00:11:48] Norm: The car, the car is still at the house.
+[00:11:48] Norm: The car is still at the house.
 
 [00:11:49] Adam: You can't promote that fallacy of an argument.
 
-[00:11:52] Will: I know, I know, I know, I know.
+[00:11:52] Will: I know.
 
 [00:11:53] Adam: That is a terrible thing. If I have nothing to hide, what do I have to fear? That's the worst.
 
-[00:11:58] Will: But but I mean. The I guess the question is the thing the thing is we're talking about Black Mirror. I'm thinking this is the closest thing we have to Twilight Zone now.
+[00:11:58] Will: But I mean. The I guess the question is the thing is we're talking about Black Mirror. I'm thinking this is the closest thing we have to Twilight Zone now.
 
 [00:11:58] Adam: Oh yeah, no, like no doubt a perfectly modern updated Twilight Zone.
 
@@ -372,7 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:12:14] Will: Yeah, okay. Sounds great.
 
-[00:12:17] Adam: Um, hey, can we go to? I want to talk about a movie that I saw this week.
+[00:12:17] Adam: Hey, can we go to? I want to talk about a movie that I saw this week.
 
 [00:12:21] Will: Do you see Last Jedi again?
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:13:00] Adam: that was a great Golden Globes on an activist front in every way.
 
-[00:13:04] Will: I I love my way of watching like everything but the Academy Awards now is just to sit in Twitter and watch the clips as they come up, so I can watch the entire thing in about 18 minutes.
+[00:13:04] Will: I love my way of watching like everything but the Academy Awards now is just to sit in Twitter and watch the clips as they come up, so I can watch the entire thing in about 18 minutes.
 
 [00:13:12] Adam: That's why I like Deadspin for seeing how soccer's doing.
 
@@ -420,13 +420,13 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:13:21] Adam: Nifty head goal. Ooh, own goal.
 
-[00:13:22] Will: But um, but yeah, the Natalie Portman thing, the Oprah talk was incredible.
+[00:13:22] Will: But yeah, the Natalie Portman thing, the Oprah talk was incredible.
 
 [00:13:27] Adam: I turned to my friends and I was like, " I'm going to go out on a limb here and say that Oprah is really good at talking. "
 
 [00:13:33] Will: I don't. Yeah, who knew? I don't know why they bleep Frances McDormand on the TV.
 
-[00:13:39] Adam: They were afraid she was. I I think they kept on being afraid that she was going to say shit or fuck, and I think that a couple of times they thought she was saying that, so they kept on
+[00:13:39] Adam: They were afraid she was. I think they kept on being afraid that she was going to say shit or fuck, and I think that a couple of times they thought she was saying that, so they kept on
 
 [00:13:39] Will: trigger finger.
 
@@ -460,7 +460,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:14:26] Will: So yeah, it's fine. We can spoil away.
 
-[00:14:27] Norm: Well, let's let's do a couple minutes of non-spoilery talk. It's been so the background for The Shape of Water. Guillermo del Toro. It's his 10th film. He has done you know previous to this. I think his last two films were Crimson Peak and then Pacific Rim. And this is apparently an idea that he had festering in his head while the making of Pacific Rim, kind of like the the Universal monster movie he's always wanted to make.
+[00:14:27] Norm: Well, let's let's do a couple minutes of non-spoilery talk. It's been so the background for The Shape of Water. Guillermo del Toro. It's his 10th film. He has done you know previous to this. I think his last two films were Crimson Peak and then Pacific Rim. And this is apparently an idea that he had festering in his head while the making of Pacific Rim, kind of like the Universal monster movie he's always wanted to make.
 
 [00:14:53] Adam: He said it to me. It was his version of. Creature from the Black Lagoon,
 
@@ -486,13 +486,13 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:15:21] Adam: There you go.
 
-[00:15:22] Will: But okay, and and is Creature from the Black Lagoon a monster or is he like a superhero environmentalist who happens to have swamp powers?
+[00:15:22] Will: But okay, and is Creature from the Black Lagoon a monster or is he like a superhero environmentalist who happens to have swamp powers?
 
 [00:15:30] Norm: Monster. Monster.
 
 [00:15:30] Will: Okay. Okay. Monster. Good. Good. Good. Thank you.
 
-[00:15:33] Norm: And Guillermo del Toro has done, you know, as you see in Hellboy, Abe Sapien, which you know he didn't create, but is an underwater character, and he has said that he loves Abe Sapien, but that is not a monster creature.
+[00:15:33] Norm: And Guillermo del Toro has done as you see in Hellboy, Abe Sapien, which you know he didn't create, but is an underwater character, and he has said that he loves Abe Sapien, but that is not a monster creature.
 
 [00:15:33] Will: No.
 
@@ -528,11 +528,11 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:16:55] Norm: Mm hmm.
 
-[00:16:56] Will: But like, you know, I saw Hellboy in the theater. I saw Hellboy, and I was like, " This is this is an amazing filmmaker, Pan's Labyrinth." Was like I walked out of that movie just wrecked,
+[00:16:56] Will: But like I saw Hellboy in the theater. I saw Hellboy, and I was like, " This is this is an amazing filmmaker, Pan's Labyrinth." Was like I walked out of that movie just wrecked,
 
 [00:17:04] Adam: yeah.
 
-[00:17:04] Will: And and you kind of never know what you're. It's like Danny Boyle; you never know you're going to get when you go see a Guillermo film.
+[00:17:04] Will: And you kind of never know what you're. It's like Danny Boyle; you never know you're going to get when you go see a Guillermo film.
 
 [00:17:10] Adam: He's a genre enthusiast and deeply, deeply knowledgeable film historian.
 
@@ -540,33 +540,33 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:17:19] Adam: I did a set of interviews with Guillermo for Criterion last year, and he gave me, I think, 15 or 16 films to watch before the interview, and it was such a masterclass in seeing how amazing film history has been in these corners that you don't know about. So he's yeah, all of this he brings to bear on every project, and it might be a giant tentpole action adventure movie, or it might be like this, a really, really beautiful, small, intimate monster film that is unique
 
-[00:17:54] Norm: and very clearly he is a visual artist, like from his sketchbooks, which he's in his Cabinet of Curiosities book. You get a lot of his sketches, whereas, like you know, Tarantino, who. Made an equivalent number of films, I want to say, close to it. You know, you you kind of know what you get with a Tarantino film in the texture of the dialogue, like right. You know, you are going to get Tarantino.
+[00:17:54] Norm: and very clearly he is a visual artist, like from his sketchbooks, which he's in his Cabinet of Curiosities book. You get a lot of his sketches, whereas, like Tarantino, who. Made an equivalent number of films, I want to say, close to it. You kind of know what you get with a Tarantino film in the texture of the dialogue, like right. You are going to get Tarantino.
 
 [00:18:18] Adam: Right, right.
 
-[00:18:19] Norm: Like, what do what would you say you get when you get when you buy into buy a ticket to watch a Guillermo del Toro film if you know nothing about it? Like, what is the through line of his films?
+[00:18:19] Norm: Like, what do what would you say you get when you buy into buy a ticket to watch a Guillermo del Toro film if you know nothing about it? Like, what is the through line of his films?
 
 [00:18:29] Adam: There is always there. There is always on at least one character's part a search for this a really important emotional search for some missing part of their heart. As far as I, that's right off the top of my head. I haven't spent time thinking about this. It's a great question.
 
-[00:18:45] Will: I mean, if you yeah, if you think about like Pans, there is a child looking for for parents, right? For parental figures, and if you think about, I mean, I don't know what it is
+[00:18:45] Will: I mean, if you yeah, if you think about like Pans, there is a child looking for parents, right? For parental figures, and if you think about, I mean, I don't know what it is
 
-[00:18:53] Adam: looking to also make sense out of a senseless war world out of out of nonsense and fairy tales,
+[00:18:53] Adam: looking to also make sense out of a senseless war world out of nonsense and fairy tales,
 
 [00:18:59] Will: yeah.
 
 [00:18:59] Adam: You know the little girl. I think of the little girl holding the red shoe in Pacific Rim as the centerpiece of that movie.
 
-[00:19:06] Will: There's actually a lot of that in his films. Like Hellboy is about Hellboy looking for for a demon with daddy issues, right?
+[00:19:06] Will: There's actually a lot of that in his films. Like Hellboy is about Hellboy looking for a demon with daddy issues, right?
 
-[00:19:13] Adam: Totally, and and and he even said in the description of the little girl, it's like the little girl is walking. He says he described in an interview that she's walking with something that's obviously a metaphor for her heart.
+[00:19:13] Adam: Totally, and he even said in the description of the little girl, it's like the little girl is walking. He says he described in an interview that she's walking with something that's obviously a metaphor for her heart.
 
-[00:19:23] Norm: And his his stories are they're all myths. They're all like modern myths, like monster films, vampire films, you know, Blade Two, ghost stories.
+[00:19:23] Norm: And his his stories are they're all myths. They're all like modern myths, like monster films, vampire films Blade Two, ghost stories.
 
 [00:19:31] Will: Giant
 
 [00:19:31] Unknown speaker: Monster,
 
-[00:19:33] Will: Monster versus Robots. Yeah, yeah, but but also you're going to see something you've probably never seen before. Like when you go into Pan's Labyrinth, he took us into a world of I I like it's a world that I didn't know existed. It's a world I'd never even imagined existing,
+[00:19:33] Will: Monster versus Robots. Yeah, yeah, but also you're going to see something you've probably never seen before. Like when you go into Pan's Labyrinth, he took us into a world of I I like it's a world that I didn't know existed. It's a world I'd never even imagined existing,
 
 [00:19:47] Adam: like Spirited Away.
 
@@ -578,7 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:20:02] Adam: We've gone non-spoilery up till now.
 
-[00:20:04] Norm: I mean, like, if you're not sold on this movie,
+[00:20:04] Norm: I mean if you're not sold on this movie,
 
 [00:20:06] Unknown speaker: Wait, I wonder also.
 
@@ -618,15 +618,15 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:20:42] Adam: That Guillermo wanted to give him that honor of allowing him to use both his voice and his body for the role of Abe Sapien.
 
-[00:21:23] Norm: And he is a lead in the new Star Trek Discovery show in in full creature makeup, but also his performance, his voice, and everything.
+[00:21:23] Norm: And he is a lead in the new Star Trek Discovery show in full creature makeup, but also his performance, his voice, and everything.
 
 [00:21:29] Adam: I did not know that. Oh, that's really cool.
 
 [00:21:29] Norm: Yeah, yeah.
 
-[00:21:29] Adam: So his performance as the monster in in in Shape of Water is also amazing. is is beautiful, and you know, I've read some interviews about how Guillermo spent a long time trying to make the monster kind of sexy.
+[00:21:29] Adam: So his performance as the monster in Shape of Water is also amazing. is is beautiful, and I've read some interviews about how Guillermo spent a long time trying to make the monster kind of sexy.
 
-[00:21:44] Norm: Yeah, yeah. So we like there. You know, there's a creature in it, and it's inspired obviously by Creature of Black Lagoon and lessons learned from designing Abe Sapien. But they wanted something more monsterish than the the elegance of Abe Sapien. So Legacy Effects did the initial previs for it, and then we talked about last week. Guillermo brought in Mike Hill, sculptor Mike Hill, who is a patron of and a sculptor. We we know amazing sculptor to
+[00:21:44] Norm: Yeah, yeah. So we like there. There's a creature in it, and it's inspired obviously by Creature of Black Lagoon and lessons learned from designing Abe Sapien. But they wanted something more monsterish than the elegance of Abe Sapien. So Legacy Effects did the initial previs for it, and then we talked about last week. Guillermo brought in Mike Hill, sculptor Mike Hill, who is a patron of and a sculptor. We know amazing sculptor to
 
 [00:22:10] Adam: unbelievable
 
@@ -638,7 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:22:15] Will: [unclear: and Cheney and a bunch of portraits / a bunch of other things].
 
-[00:22:19] Adam: Yeah. Yeah. He did those full size figures of of of what do you call it? Edgar Allan Poe. That Guillermo has at Bleak House, and also of Lovecraft, H.P. Lovecraft.
+[00:22:19] Adam: Yeah. Yeah. He did those full size figures of what do you call it? Edgar Allan Poe. That Guillermo has at Bleak House, and also of Lovecraft, H.P. Lovecraft.
 
 [00:22:31] Norm: And it's the subtle understanding of like human anatomy and and how you combine that with creature anatomy to make this character. I would describe this creature as very princely in in the shape of water. There's a regalness to it. I mean, it is a creature, but like just the way the gills around the neck, you get full looks around the creature.
 
@@ -648,13 +648,13 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:22:51] Will: In the water?
 
-[00:22:51] Norm: In the water with you know silicone hands and and and an animatronic rigs in the back for the moving gills and that is not easy to perform in in six hours at a time.
+[00:22:51] Norm: In the water with you know silicone hands and an animatronic rigs in the back for the moving gills and that is not easy to perform in six hours at a time.
 
-[00:23:09] Adam: No, it's it's an incredible performance. Incredible. All the performances in the movie: Richard Jenkins, Sally Hawkins, Octavia Spencer, Michael Shannon.
+[00:23:09] Adam: No, it's an incredible performance. Incredible. All the performances in the movie: Richard Jenkins, Sally Hawkins, Octavia Spencer, Michael Shannon.
 
 [00:23:09] Norm: Yeah.
 
-[00:23:09] Adam: Everybody is amazing in this movie. Wow. Everybody is is it, and the main character who is a mute janitor played by Sally Hawkins is, uh, it's a lot like we talked about downsizing. I said in both downsizing and Shape of Water, you meet women you haven't met frequently in movies before, and Sally Hawkins' character is an amazing character.
+[00:23:09] Adam: Everybody is amazing in this movie. Wow. Everybody is is it, and the main character who is a mute janitor played by Sally Hawkins is it's a lot like we talked about downsizing. I said in both downsizing and Shape of Water, you meet women you haven't met frequently in movies before, and Sally Hawkins' character is an amazing character.
 
 [00:23:41] Norm: Apparently, the character was written for her.
 
@@ -678,17 +678,17 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:24:24] Adam: Right?
 
-[00:24:24] Will: You are not, you are not going to miss anything by coming in spoiled. It's just like Man of Steel when we talked about that years ago. You said it's fine to talk about this without having seen the movie. I am sorry, I am sorry, Guillermo. Well done. I didn't really mean that.
+[00:24:24] Will: You are not going to miss anything by coming in spoiled. It's just like Man of Steel when we talked about that years ago. You said it's fine to talk about this without having seen the movie. I am sorry, Guillermo. Well done. I didn't really mean that.
 
 [00:24:45] Adam: So there is obviously she falls in love with the creature that is the centerpiece of this film. She and the creature really do have a love affair, and they achieve sex.
 
 [00:24:59] Will: Okay,
 
-[00:25:00] Adam: we don't get to see that graphically, although it is a it is a hard R-rated movie
+[00:25:00] Adam: we don't get to see that graphically, although it is a hard R-rated movie
 
 [00:25:05] Norm: that earns its hard R
 
-[00:25:06] Adam: from from from what it could do to have that hard R. But there's a point at which Octavia Spencer says, "Really?" to Sally Hawkins, and says, " Does he even have a?" And Sally Hawkins nods, and then I'm not going to try to do the pantomime, but she does a pantomime of what she encountered.
+[00:25:06] Adam: from what it could do to have that hard R. But there's a point at which Octavia Spencer says, "Really?" to Sally Hawkins, and says, " Does he even have a?" And Sally Hawkins nods, and then I'm not going to try to do the pantomime, but she does a pantomime of what she encountered.
 
 [00:25:29] Will: Oh boy,
 
@@ -716,7 +716,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:26:07] Norm: Yeah,
 
-[00:26:07] Adam: like I totally agree with you. But there's, and in addition to that, when she does that little pantomime, it's such a a sweetly intimate moment of her enjoyment of the intimacy. She's not afraid of the intimacy at all.
+[00:26:07] Adam: like I totally agree with you. But there's, and in addition to that, when she does that little pantomime, it's such a sweetly intimate moment of her enjoyment of the intimacy. She's not afraid of the intimacy at all.
 
 [00:26:25] Norm: Yeah,
 
@@ -724,11 +724,11 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:26:30] Norm: Right.
 
-[00:26:30] Will: How does she compare to like the woman from Logan? Did you you saw you both saw Logan right?
+[00:26:30] Will: How does she compare to like the woman from Logan? Did you saw you both saw Logan right?
 
 [00:26:35] Norm: The little girl?
 
-[00:26:36] Will: No, no. The woman who who the woman who brought the little girl out of the you know because that was again it's it's like the cleaning staff at the facility or the orderlies at the facility pull these kids. rescue these kids.
+[00:26:36] Will: No, no. The woman who who the woman who brought the little girl out of the you know because that was again it's like the cleaning staff at the facility or the orderlies at the facility pull these kids. rescue these kids.
 
 [00:26:48] Norm: Completely different characters. Yeah, completely different characters. I feel like this is the texture of this film is so much like a graphic novel, so much a painting.
 
@@ -750,25 +750,25 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:27:19] Norm: I don't know exactly.
 
-[00:27:22] Adam: I'm you know what I was reading this long thing on [unclear: Michael Delee / Michael Deely] last night, so my my cinematographer brain is totally.
+[00:27:22] Adam: I'm you know what I was reading this long thing on [unclear: Michael Delee / Michael Deely] last night, so my cinematographer brain is totally.
 
 [00:27:28] Norm: But yeah, the look of the film is is textured for sure. It's 1960s, early 1960s,
 
 [00:27:28] Adam: '62.
 
-[00:27:28] Norm: '62. It's definitely in that post-war, but right before like Camelot Falls, or right before, right before
+[00:27:28] Norm: '62. It's definitely in that post-war, but right before like Camelot Falls, or right before
 
 [00:27:46] Adam: The men are all still in suits, they still wear hats,
 
-[00:27:49] Norm: but it's it's not Mad Men. It's like at the end of Mad Men, before Vietnam, where like we feel like. America's in a fairy tale, but like the the ugliness is starting to seep in, and um and there is some ugliness.
+[00:27:49] Norm: but it's not Mad Men. It's like at the end of Mad Men, before Vietnam, where like we feel like. America's in a fairy tale, but the ugliness is starting to seep in, and there is some ugliness.
 
-[00:28:03] Adam: There's a lot of ugliness. In fact, um my misses don't try this. My wife, um there's a scene in which Michael Shannon as the villain in the film, and he's a much more complex villain than the trailers would lead you to believe. Where Michael Shannon is effectively torturing the creature with a cattle prod, and that's when my wife walked out. She couldn't deal.
+[00:28:03] Adam: There's a lot of ugliness. In fact my misses don't try this. My wife there's a scene in which Michael Shannon as the villain in the film, and he's a much more complex villain than the trailers would lead you to believe. Where Michael Shannon is effectively torturing the creature with a cattle prod, and that's when my wife walked out. She couldn't deal.
 
 [00:28:03] Norm: Wow.
 
-[00:28:03] Adam: Um, we all have our thresholds for movies.
+[00:28:03] Adam: We all have our thresholds for movies.
 
-[00:28:27] Norm: I think I think Guillermo would be okay with that. With like, he wants his films to have those moments where people are uncomfortable and would would walk out.
+[00:28:27] Norm: I think Guillermo would be okay with that. With like, he wants his films to have those moments where people are uncomfortable and would would walk out.
 
 [00:28:34] Will: Yeah, if you look at Pans or Mimic or any of like any of his like less mainstream movies, I mean, Pans is hard to watch.
 
@@ -778,9 +778,9 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:28:48] Adam: any scene with the Colonel is is almost
 
-[00:28:50] Will: um Dan Laustsen was the cinematographer, the DP.
+[00:28:50] Will: Dan Laustsen was the cinematographer, the DP.
 
-[00:28:53] Adam: It's amazing. It's beautiful, and as you said, not only layered, but layered like a painting. Like every scene has lighting and and detail going deep into the back.
+[00:28:53] Adam: It's amazing. It's beautiful, and as you said, not only layered, but layered like a painting. Like every scene has lighting and detail going deep into the back.
 
 [00:29:03] Norm: Something I did not know until I read the art of the book, which is highly recommended if you love the film. Is that in the sets? So one of the sets she lives in apartment that mirrors neighbors with Richard Jenkins. Richard Jenkins is the other guy who's not Bradley Whitford in Cabin in the Woods.
 
@@ -790,7 +790,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:29:21] Unknown speaker: Yeah.
 
-[00:29:21] Norm: Their whole residence. But one thing that in the production that may not get may not get caught is on her wall. There's a mural. Did you know that there is a mural of the Japanese waves?
+[00:29:21] Norm: Their whole residence. But one thing that in the production that may not get caught is on her wall. There's a mural. Did you know that there is a mural of the Japanese waves?
 
 [00:29:42] Adam: Oh no, I did not.
 
@@ -798,7 +798,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:29:43] Unknown speaker: Oh.
 
-[00:29:43] Norm: And it's a it's all cracked, and and they the production designer painted it on the wall, and it's all falling apart. But that's just. There,
+[00:29:43] Norm: And it's a it's all cracked, and they the production designer painted it on the wall, and it's all falling apart. But that's just. There,
 
 [00:29:57] Adam: awesome.
 
@@ -816,7 +816,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:30:30] Adam: Exactly.
 
-[00:30:31] Will: Oh, that's funny. Um. So so you know, at the end of the movie, what what is this about? Like, is this a love story? Is this a happy ending? Is this
+[00:30:31] Will: Oh, that's funny. So so at the end of the movie, what is this about? Like, is this a love story? Is this a happy ending? Is this
 
 [00:30:40] Norm: I think
 
@@ -882,11 +882,11 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:33:15] Adam: Give it your go see it in the theater. It is super worth seeing in the theater.
 
-[00:33:22] Norm: I'll I'll give one more thing. This is something that I didn't I didn't realize. I had to read about it, but I want to share it. I thought it was special. The movie poster is of them embracing in the water,
+[00:33:22] Norm: I'll I'll give one more thing. This is something that I didn't realize. I had to read about it, but I want to share it. I thought it was special. The movie poster is of them embracing in the water,
 
 [00:33:22] Adam: Mm-hmm.
 
-[00:33:22] Norm: and it's it's in the film. This is a scene in the film.
+[00:33:22] Norm: and it's in the film. This is a scene in the film.
 
 [00:33:35] Will: It's right before the monster says, and that's the shape of water.
 
@@ -898,7 +898,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:33:58] Adam: that's a lovely elaboration.
 
-[00:34:03] Will: I mean, I I'm excited to go see this in theater. Usually, his films are so big, and there's so much detail and texture in each shot that, like, when you watch Pacific Rim, even on a 65 inch TV at home, it looks like a cartoon instead of like something that has real impact, and it's a different experience. So I'm going to go this week.
+[00:34:03] Will: I mean, I I'm excited to go see this in theater. Usually, his films are so big, and there's so much detail and texture in each shot that when you watch Pacific Rim, even on a 65 inch TV at home, it looks like a cartoon instead of like something that has real impact, and it's a different experience. So I'm going to go this week.
 
 [00:34:21] Norm: Hey, both Stranger Things and Shape of Water did bad things to cats this year.
 

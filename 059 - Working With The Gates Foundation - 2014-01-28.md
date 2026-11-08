@@ -20,7 +20,7 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:00:11] Will: just a second.
 
-[00:00:11] Norm: Just as as between podcasts.
+[00:00:11] Norm: Just as between podcasts.
 
 [00:00:13] Will: imagine.
 
@@ -34,7 +34,7 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:00:17] Will: where you can buy concert tickets from an ATM.
 
-[00:00:21] Adam: Right, and and $20 concert tickets are only $59.95 after the convenience fees.
+[00:00:21] Adam: Right, and $20 concert tickets are only $59.95 after the convenience fees.
 
 [00:00:27] Will: Don't forget the $15 super convenience fee for the venue. Now,
 
@@ -52,15 +52,15 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:00:49] Norm: and they can target very specific people, and he can design it and just shoo it in.
 
-[00:00:53] Will: I don't like that. I like my machines dumb and unfriendly. Like the worst, one of one of my least favorite things of the last year is when you buy a new piece of consumer electronics and instead Instead of like saying, " Here is the EULA," it's all written in horrible lawyerese, and then it says, " This, this here is what this means." It means that if you don't like what we do, instead of suing us, you have to go to talk to a special man about how we disagree.
+[00:00:53] Will: I don't like that. I like my machines dumb and unfriendly. Like the worst, one of my least favorite things of the last year is when you buy a new piece of consumer electronics and instead Instead of like saying, " Here is the EULA," it's all written in horrible lawyerese, and then it says, " This, this here is what this means." It means that if you don't like what we do, instead of suing us, you have to go to talk to a special man about how we disagree.
 
-[00:01:17] Adam: Or, or the ATM that says, " Choose your language: English," and then it says, " You've chosen English. Press OK to choose English." I thought I just chose English by pressing yes.
+[00:01:17] Adam: Or the ATM that says, " Choose your language: English," and then it says, " You've chosen English. Press OK to choose English." I thought I just chose English by pressing yes.
 
 [00:01:27] Will: Why does that not just stick? Why is that setting?
 
 [00:01:30] Norm: You can stick if you sign if you in if you use ATM, log into your account. You can.
 
-[00:01:36] Adam: It's it's it's really it drives me frigging crazy.
+[00:01:36] Adam: It's really it drives me frigging crazy.
 
 [00:01:38] Norm: Yes,
 
@@ -74,7 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:01:43] Adam: What movie tickets did you buy?
 
-[00:01:44] Norm: What? What, uh, Neutral Milk Hotel.
+[00:01:44] Norm: What? What Neutral Milk Hotel.
 
 [00:01:45] Will: Ooh,
 
@@ -82,9 +82,9 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:01:47] Norm: Oh,
 
-[00:01:47] Adam: you know, is that a band?
+[00:01:47] Adam: Is that a band?
 
-[00:01:48] Norm: It’s, it’s a band that, uh—
+[00:01:48] Norm: It’s a band that—
 
 [00:01:49] Adam: sounds like it could be a movie by Wong Kar-wai.
 
@@ -92,7 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:01:54] Will: Oh no! Yeah, okay.
 
-[00:01:55] Norm: And or in Georgia, and, uh, they disappeared for a long time. They're coming back.
+[00:01:55] Norm: And or in Georgia, and they disappeared for a long time. They're coming back.
 
 [00:02:00] Adam: Oh, all right.
 
@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:02:06] Adam: All right,
 
-[00:02:07] Will: Um, you had an interesting day yesterday, as I understand it,
+[00:02:07] Will: You had an interesting day yesterday, as I understand it,
 
 [00:02:10] Adam: I had.
 
@@ -116,15 +116,15 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:02:14] Norm: I want to talk about technology. Was the [unclear: same].
 
-[00:02:16] Adam: I had a I had a very interesting day. So during our planning week, we got an email, Jamie and I, from the Bill and Melinda Gates Foundation,
+[00:02:16] Adam: I had a very interesting day. So during our planning week, we got an email, Jamie and I, from the Bill and Melinda Gates Foundation,
 
 [00:02:26] Will: the makers of mosquito nets and
 
-[00:02:30] Adam: cures of malaria, and I mean, really, it is that they have they have given away, they've put more money into helping people than any other foundation in history,
+[00:02:30] Adam: cures of malaria, and I mean, really, it is that they have given away, they've put more money into helping people than any other foundation in history,
 
-[00:02:41] Will: and I love the approach that they take because they they've taken a really data driven approach and said how many people can we help per dollar spent, and that's what they're like that that seems to be a large, and it's not it's not ephemeral help.
+[00:02:41] Will: and I love the approach that they take because they they've taken a really data driven approach and said how many people can we help per dollar spent, and that's what they're like that that seems to be a large, and it's not ephemeral help.
 
-[00:02:54] Adam: No, it's not ephemeral help, and it's it's really basically that you know Bill Gates, the richest man in the world, has.
+[00:02:54] Adam: No, it's not ephemeral help, and it's really basically that you know Bill Gates, the richest man in the world, has.
 
 [00:03:01] Will: Not anymore, though.
 
@@ -136,13 +136,13 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:03:18] Will: Yeah.
 
-[00:03:18] Adam: And applied that towards philanthropy. And Jamie and I are huge believers in their mission. We've been following them for years, so they reached out to us and said, every year they write a letter that's sort of a mission statement of what the foundation's going to do that year. And this year, they wanted to do something a little bit differently. There, there are myths that people believe about charitable giving, and they really wanted to dispel those. And they thought, if they're going to be myth busting, who better to do that with than the actual MythBusters?
+[00:03:18] Adam: And applied that towards philanthropy. And Jamie and I are huge believers in their mission. We've been following them for years, so they reached out to us and said, every year they write a letter that's sort of a mission statement of what the foundation's going to do that year. And this year, they wanted to do something a little bit differently. There are myths that people believe about charitable giving, and they really wanted to dispel those. And they thought, if they're going to be myth busting, who better to do that with than the actual MythBusters?
 
 [00:03:48] Will: Oh yeah, you guys do do that,
 
 [00:03:49] Norm: right? You don't have $1 billion to donate to charity,
 
-[00:03:52] Adam: right? But we do. We we we do have some science and some humor to bear. And just to briefly explain the myths that they wanted to dispel, a lot of people, and these aren't just things that the general public believes. Like Bill says that he gets. buttonholed by world leaders who believe this sometimes, which is things like giving money to a third world country is just pouring it into the hands of corrupt officials. That's one. Another is that
+[00:03:52] Adam: right? But we do. We do have some science and some humor to bear. And just to briefly explain the myths that they wanted to dispel, a lot of people, and these aren't just things that the general public believes. Like Bill says that he gets. buttonholed by world leaders who believe this sometimes, which is things like giving money to a third world country is just pouring it into the hands of corrupt officials. That's one. Another is that
 
 [00:04:16] Will: that's true, right?
 
@@ -154,7 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:04:51] Will: And it takes less than you would think.
 
-[00:04:53] Adam: Yes, and then the third one, and this was Melinda's particular bailiwick, was about birth control, about birth control, family planning, and you know, basically. Health care, so that people live longer, and there are people who think, " Wow, well, that's just going to lead to overpopulation," and they they wanted to dispel all of those and wanted to figure out a way to do it with us. So we came up with, well, I don't want to spoil the the actual lines that we came up with.
+[00:04:53] Adam: Yes, and then the third one, and this was Melinda's particular bailiwick, was about birth control, family planning, and basically. Health care, so that people live longer, and there are people who think, " Wow, well, that's just going to lead to overpopulation," and they wanted to dispel all of those and wanted to figure out a way to do it with us. So we came up with, well, I don't want to spoil the actual lines that we came up with.
 
 [00:05:16] Will: You can see it now, right?
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:05:23] Adam: Yes, do we always do it?
 
-[00:05:25] Will: Most of most of the time,
+[00:05:25] Will: Most of the time,
 
 [00:05:26] Norm: We'll definitely do it this time.
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:05:30] Will: Making a note,
 
-[00:05:31] Adam: but so it not only did we want to do it, but amazingly, their timeline was very tight, and it worked perfectly with our ability to do it because after our planning week, we had a few days off before getting into shooting, so to give our our researchers and associate producers time to set up locations, set up materials, and get us some things so that we could jump in and start filming MythBusters. During that time off was when the Gates Foundation wanted us to come up to Seattle, so they flew us up. We, uh—right, it was yesterday, or no, it was day before yesterday. So they flew us up to Seattle in the morning. Uh, we went to the Gates Foundation, which is an unbelievable building.
+[00:05:31] Adam: but so it not only did we want to do it, but amazingly, their timeline was very tight, and it worked perfectly with our ability to do it because after our planning week, we had a few days off before getting into shooting, so to give our researchers and associate producers time to set up locations, set up materials, and get us some things so that we could jump in and start filming MythBusters. During that time off was when the Gates Foundation wanted us to come up to Seattle, so they flew us up. We, uh—right, it was yesterday, or no, it was day before yesterday. So they flew us up to Seattle in the morning. We went to the Gates Foundation, which is an unbelievable building.
 
 [00:06:12] Norm: Describe it.
 
@@ -184,13 +184,13 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:06:14] Will: Is it glass?
 
-[00:06:16] Adam: It is. It's right across the street, effectively from the, uh, EMP and the Space Needle.
+[00:06:16] Adam: It is. It's right across the street, effectively from the EMP and the Space Needle.
 
 [00:06:21] Will: Oh, okay.
 
 [00:06:21] Adam: So out of all the windows, you see this gorgeous views of the Space Needle and the EMP.
 
-[00:06:28] Will: Did you, did you take the monorail there?
+[00:06:28] Will: Did you take the monorail there?
 
 [00:06:30] Adam: No, no, we were driven. We drove. there.
 
@@ -204,17 +204,17 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:06:35] Will: It's one of the only functional monorails outside of Disney World in the world.
 
-[00:06:39] Adam: Um, so the the building, uh, it's incredibly green. It has things like living roofs and a 1 million gallon cistern of rainwater that runs all the faucets and toilets in the place. Um, it is.
+[00:06:39] Adam: So the building it's incredibly green. It has things like living roofs and a 1 million gallon cistern of rainwater that runs all the faucets and toilets in the place. It is.
 
 [00:06:54] Will: Do they do like electrical generation and stuff like that?
 
-[00:06:56] Adam: I I I don't know. I—it’s one of the greenest buildings in in Washington, if not the West Coast.
+[00:06:56] Adam: I don't know. I—it’s one of the greenest buildings in Washington, if not the West Coast.
 
 [00:07:02] Norm: Not difficult for Seattle, and yeah,
 
 [00:07:05] Will: yeah. Well, Seattle's very green,
 
-[00:07:06] Adam: right? Um, but how do I put this? It felt the closest analog I have is having worked up at the ranch at the Lucasfilm ranch. It's like you're sitting there having lunch on the lawn at the ranch, and you look around and you realize I'm in the middle of a project generated by a very big thinker.
+[00:07:06] Adam: right? But how do I put this? It felt the closest analog I have is having worked up at the ranch at the Lucasfilm ranch. It's like you're sitting there having lunch on the lawn at the ranch, and you look around and you realize I'm in the middle of a project generated by a very big thinker.
 
 [00:07:26] Will: Yeah.
 
@@ -226,23 +226,23 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:07:30] Will: you've talked a lot of smack about George,
 
-[00:07:31] Adam: but he is a giant thinker, and his projects are beautiful. It can be the ranch is a magnificent thing. Something like 800 people work up there, and you can't see any of their cars, and you can't see any of the buildings from any of the other buildings, and it feels like a beautiful, idyllic place. And he's built it to be a respite. The Bill and Melinda Gates Foundation feels like a similar level of really big thinking of how to build an organization that I mean the the type of advanced humanitarian and philanthropic stuff that they do there is incredible. And the environment that they've created for what something like 1,200 people to do it in is also incredible, and that is a great confluence because it's self-generating in terms of the energy.
+[00:07:31] Adam: but he is a giant thinker, and his projects are beautiful. It can be the ranch is a magnificent thing. Something like 800 people work up there, and you can't see any of their cars, and you can't see any of the buildings from any of the other buildings, and it feels like a beautiful, idyllic place. And he's built it to be a respite. The Bill and Melinda Gates Foundation feels like a similar level of really big thinking of how to build an organization that I mean the type of advanced humanitarian and philanthropic stuff that they do there is incredible. And the environment that they've created for what something like 1,200 people to do it in is also incredible, and that is a great confluence because it's self-generating in terms of the energy.
 
-[00:08:19] Will: And and like the thing that you notice when you go to Microsoft or Google or or any of the kind of these these places that tend to absorb the smart people is and it's it's unusual at least I feel like it's unusual for me. But you walk into one of these rooms and you realize that you're far from the smartest person in the room. Um, you know, which I that kind of came out wrong, but the upshot is by building these environments for people to come work in, they are able to get people who are much more interested and are contributing at a much higher level.
+[00:08:19] Will: And like the thing that you notice when you go to Microsoft or Google or any of the kind of these these places that tend to absorb the smart people is and it's unusual at least I feel like it's unusual for me. But you walk into one of these rooms and you realize that you're far from the smartest person in the room. Which I that kind of came out wrong, but the upshot is by building these environments for people to come work in, they are able to get people who are much more interested and are contributing at a much higher level.
 
 [00:08:49] Adam: Absolutely,
 
-[00:08:49] Will: are really really engaged, and it's it's a it is a like walking around Microsoft in the early 2000s, you had a very specific vibe that I don't think I've really felt other places, maybe Apple.
+[00:08:49] Will: are really really engaged, and it's a it is a like walking around Microsoft in the early 2000s, you had a very specific vibe that I don't think I've really felt other places, maybe Apple.
 
 [00:09:00] Adam: Right. Right. Right. So I will also say one of the things I noticed walking around, and we were walking around for a while with this wonderful guy who is Melinda's chief of staff and his kids. And I was saying, I, first of all, I noticed, " Wow, is that a genuine Banksy over there?" And he said, " Yeah." And I said, " I noticed something unusual about the art all over the walls here." And he said, " What?" And I said, " It's actually good. This is this is something." And he said, " That's really driven by Melinda, but that, you know, the—I normally hate public art, and I love art, but I think that most public art is total shit."
 
-[00:09:38] Will: You mean the stuff that people pay for because they have to to put it in the lobby of their building in San Francisco?
+[00:09:38] Will: You mean the stuff that people pay for because they have to put it in the lobby of their building in San Francisco?
 
-[00:09:42] Adam: It always feels like a compromise. You know, it feels like you know, barely a notch above hotel room art.
+[00:09:42] Adam: It always feels like a compromise. You know, it feels like barely a notch above hotel room art.
 
 [00:09:48] Will: It's inoffensive.
 
-[00:09:49] Adam: It's inoffensive and and not interesting. And all of the art was genuinely challenging and interesting and beautiful and unique and and and and you know, it made you think. It was. That just that was like a metric for what they really believed in and what they considered a priority in this place.
+[00:09:49] Adam: It's inoffensive and not interesting. And all of the art was genuinely challenging and interesting and beautiful and unique and it made you think. It was. That just that was like a metric for what they really believed in and what they considered a priority in this place.
 
 [00:10:09] Will: Well, the interesting thing about the Gates Foundation is the thing that is the problem for most people is not a problem for them,
 
@@ -258,21 +258,21 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:10:20] Norm: right? And be efficient with the money
 
-[00:10:22] Will: and and where they can get the biggest impact. So, so did you get to spend time with Bill and Melinda?
+[00:10:22] Will: and where they can get the biggest impact. So, so did you get to spend time with Bill and Melinda?
 
 [00:10:27] Adam: A little bit of time. They are obviously they are incredibly busy in a way that I don't think any of us will ever.
 
 [00:10:33] Norm: For you to say that,
 
-[00:10:34] Adam: right? So yeah, no, no, no. I mean, we we you're
+[00:10:34] Adam: right? So yeah, no, no, no. I mean, we you're
 
 [00:10:37] Will: right. Just to be clear, I thought I was busy, and then we met you and and Jamie, and and that's a level of busy that I didn't think existed. So like we're talking orders of magnitude.
 
-[00:10:49] Adam: We are talking orders of magnitude. I mean, when we when we contacted them, their their best day was actually tomorrow this week to get together, and I'm having surgery tomorrow, a minor surgery, but I'm having surgery, so I absolutely couldn't reschedule that. And they said, well, they could get together for 30 minutes on Tuesday, like. That's how busy they are.
+[00:10:49] Adam: We are talking orders of magnitude. I mean, when we contacted them, their best day was actually tomorrow this week to get together, and I'm having surgery tomorrow, a minor surgery, but I'm having surgery, so I absolutely couldn't reschedule that. And they said, well, they could get together for 30 minutes on Tuesday, like. That's how busy they are.
 
 [00:11:06] Will: So did he like walk in right at the clock tick and then walk out right at the?
 
-[00:11:09] Adam: Effectively did it was sort of like working with Obama, right? So he walks in. We had already shot everything we needed except for his parts, and then they moved out. They were very sweet. They were very nice. It's totally amazing to shake hands with the man and his wife. They are, you know, I'm a huge admirer. I did the. I will say that we shot three different endings, and I don't know at this point while we're recording this which ending they're going with. One of the things we pitched them was to go with all three, so that whenever you click the video, you weren't sure which ending you're going to get.
+[00:11:09] Adam: Effectively did it was sort of like working with Obama, right? So he walks in. We had already shot everything we needed except for his parts, and then they moved out. They were very sweet. They were very nice. It's totally amazing to shake hands with the man and his wife. They are I'm a huge admirer. I did the. I will say that we shot three different endings, and I don't know at this point while we're recording this which ending they're going with. One of the things we pitched them was to go with all three, so that whenever you click the video, you weren't sure which ending you're going to get.
 
 [00:11:42] Will: Mrs. Peacock is the killer in one.
 
@@ -284,7 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:12:06] Will: He's Nixon.
 
-[00:12:06] Adam: He's moved all the no. He's moved much farther towards sainthood than Nixon could ever get. And and we're playing on that joke. I said we're playing on that joke. We are making our very presence belies the fact that we believe that, and that's why the joke is funny and biting. And they were like, " Well, do you have anything else?" And I pitched this other joke, and I thought, " Well, that's kind of funny. It's a little, that's a little gross, which is also funny." Do you have anything else? And I pitched this third joke that was playing off a classic, a classic idea about what Bill might ask MythBusters to do. But his staff said we're not sure we want to pitch that to him. Are you willing to pitch that to him?
+[00:12:06] Adam: He's moved all the no. He's moved much farther towards sainthood than Nixon could ever get. And we're playing on that joke. I said we're playing on that joke. We are making our very presence belies the fact that we believe that, and that's why the joke is funny and biting. And they were like, " Well, do you have anything else?" And I pitched this other joke, and I thought, " Well, that's kind of funny. It's a little, that's a little gross, which is also funny." Do you have anything else? And I pitched this third joke that was playing off a classic idea about what Bill might ask MythBusters to do. But his staff said we're not sure we want to pitch that to him. Are you willing to pitch that to him?
 
 [00:12:41] Will: Oh,
 
@@ -292,7 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:12:43] Will: And just hold on, but just to be clear, the Bill Gates pitch is through all of technology one of the scariest because he has a reputation for taking a pitch, knowing more about the thing that you're pitching than you do when you take it, and then dismantling people. Well, so like people came out of his office broken after pitching products that didn't go well.
 
-[00:13:01] Adam: You know and. One of the things that they wanted, I felt here's where I got a little bit of confidence. One of the things they wanted us to participate in this for was to hopefully get the video to have more reach, to quote unquote,
+[00:13:01] Adam: And. One of the things that they wanted, I felt here's where I got a little bit of confidence. One of the things they wanted us to participate in this for was to hopefully get the video to have more reach, to quote unquote,
 
 [00:13:16] Unknown speaker: yeah,
 
@@ -308,7 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:13:38] Will: And he's not a humorless guy. He is a funny guy.
 
-[00:13:40] Norm: He understands reach. He did hold the. He he did a Reddit Secret Santa thing.
+[00:13:40] Norm: He understands reach. He did hold the. He did a Reddit Secret Santa thing.
 
 [00:13:44] Adam: Absolutely right. Right. That was yeah, totally, totally.
 
@@ -326,11 +326,11 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:13:56] Will: Full of whimsy.
 
-[00:13:57] Adam: So we're almost done shooting, and the director says, Adam. Do you want to tell Bill the ideas you have? And I did, and he and Melinda conferred with each other through, you know, a secret language of eye contact. Obviously, you know they've they've got to be quick on their feet, and they agreed to do them, and we shot it all three different ways, and all three of them are great. So I'm really looking forward to seeing what what makes it. And I hope they go with all three because we had a great time. the The staff up there that we worked with, both the social media and the video crews, the directors, everyone was fantastic. Like,
+[00:13:57] Adam: So we're almost done shooting, and the director says, Adam. Do you want to tell Bill the ideas you have? And I did, and he and Melinda conferred with each other through, you know, a secret language of eye contact. Obviously they've they've got to be quick on their feet, and they agreed to do them, and we shot it all three different ways, and all three of them are great. So I'm really looking forward to seeing what makes it. And I hope they go with all three because we had a great time. the staff up there that we worked with, both the social media and the video crews, the directors, everyone was fantastic. Like,
 
 [00:14:38] Will: well, they had only the best people.
 
-[00:14:39] Adam: I know that you could be listening to this and thinking, " Well, Adam has to say that because this is a public outreach thing, and he believes in the mission, and he would have to say that." But it's totally freaking true. These were great people to work with. It is really rare that we get pitched something that we instantly want to do. Number one, that we have time to do. Number two, and that the people we're working with get us, we get them, and doing it is really easy and fun. Number three, and this this Fulfilled all of that.
+[00:14:39] Adam: I know that you could be listening to this and thinking, " Well, Adam has to say that because this is a public outreach thing, and he believes in the mission, and he would have to say that." But it's totally freaking true. These were great people to work with. It is really rare that we get pitched something that we instantly want to do. Number one, that we have time to do. Number two, and that the people we're working with get us, we get them, and doing it is really easy and fun. Number three, and this Fulfilled all of that.
 
 [00:15:04] Will: That's fantastic.
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:15:06] Norm: What was his presence like? Like when he,
 
-[00:15:08] Adam: um, you know,
+[00:15:08] Adam: you know,
 
 [00:15:10] Will: is he tall?
 
@@ -350,17 +350,17 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:15:12] Will: I've only seen him on stage. So it’s tough to say.
 
-[00:15:13] Adam: no, he's he's a little shorter than me.
+[00:15:13] Adam: no, he's a little shorter than me.
 
 [00:15:15] Will: Okay.
 
-[00:15:15] Adam: Um, I think I can't be sure about this, but I think Melinda is a tiny bit taller than him.
+[00:15:15] Adam: I think I can't be sure about this, but I think Melinda is a tiny bit taller than him.
 
 [00:15:20] Will: Wait, was he wearing heels?
 
 [00:15:21] Norm: You know, how he interacted with people
 
-[00:15:23] Adam: and um, it was look, I have, I have some insight into this. I know what it's like to walk into a room and know that everyone in that room has been waiting for me and has, you know, they have some expectation about what it's going to be like to meet me. There's a lot of pressure,
+[00:15:23] Adam: and it was look, I have some insight into this. I know what it's like to walk into a room and know that everyone in that room has been waiting for me and has they have some expectation about what it's going to be like to meet me. There's a lot of pressure,
 
 [00:15:40] Will: yeah,
 
@@ -368,11 +368,11 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:15:56] Will: they all want something. Like yeah,
 
-[00:15:58] Adam: even if you know, even if what they want is to not upset. Them or to make things easy for them, that is still a pressure on the person that it's happening to. So I'm very sensitive to that. So I, for one, you know, I seek to make the greeting really quick and you know, bulleted so that we can get out and not to be standing around and staring at them. You know, that's so. It's all a long way of saying that you know, Bill and Melinda showed up. They're among their staff that they're that they've worked with a long time, and I just saw it, and we all saw it. Jamie and I were up there. We brought our executive producer for MythBusters, Dan Tapster, who’s great at helping us. Did that reading go well, or could we add something to that? And we did a couple more takes because of Dan's input, which was awesome. And we also brought Kristen Lomasney, our social media person, who's worked with, who was working with Bill and Melinda's social media person to make sure we get enough outreach for this. So we all made sure that we weren't just standing around staring at Bill and Melinda. But the ultimate goal was to get them in and out quickly. Yeah. Like I said, they're really busy, so it wasn't like we got to spend time hanging out or talking about stuff. It was this was all business. Okay.
+[00:15:58] Adam: even if you know, even if what they want is to not upset. Them or to make things easy for them, that is still a pressure on the person that it's happening to. So I'm very sensitive to that. So I, for one I seek to make the greeting really quick and bulleted so that we can get out and not to be standing around and staring at them. You know, that's so. It's all a long way of saying that Bill and Melinda showed up. They're among their staff that they're that they've worked with a long time, and I just saw it, and we all saw it. Jamie and I were up there. We brought our executive producer for MythBusters, Dan Tapster, who’s great at helping us. Did that reading go well, or could we add something to that? And we did a couple more takes because of Dan's input, which was awesome. And we also brought Kristen Lomasney, our social media person, who's worked with, who was working with Bill and Melinda's social media person to make sure we get enough outreach for this. So we all made sure that we weren't just standing around staring at Bill and Melinda. But the ultimate goal was to get them in and out quickly. Yeah. Like I said, they're really busy, so it wasn't like we got to spend time hanging out or talking about stuff. It was this was all business. Okay.
 
-[00:17:04] Norm: If I was meeting Bill Gates, it would be. The the meter of like how much money this is costing them. Like when we hang out with you, Adam, the meter moves. Little maybe not as fast as with Bill Gates.
+[00:17:04] Norm: If I was meeting Bill Gates, it would be. The meter of like how much money this is costing them. Like when we hang out with you, Adam, the meter moves. Little maybe not as fast as with Bill Gates.
 
-[00:17:16] Adam: Do you remember the? Do you remember the? I don't know if you remember this, but back in the back in the '90s, when you know he was the richest man in the world, there was there was a thing of like Bill could throw $100 bills over his shoulder and it wouldn't be worth his time to pick them up.
+[00:17:16] Adam: Do you remember the? Do you remember the? I don't know if you remember this, but back in the '90s, when you know he was the richest man in the world, there was a thing of like Bill could throw $100 bills over his shoulder and it wouldn't be worth his time to pick them up.
 
 [00:17:31] Norm: Yeah,
 
@@ -380,7 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:17:35] Will: It's I mean clearly he wanted to be remembered something other than that,
 
-[00:17:38] Adam: and boy, he has really he has really done that. You know, I told his staff about that great poster of all the lives that the foundation has saved, and at the bottom it says, " Suck it, Batman! This is what a billionaire does to help people." Like they've actually figured out that over all of the comic books and movies, Batman has helped something like 800 people.
+[00:17:38] Adam: and boy, he has really done that. I told his staff about that great poster of all the lives that the foundation has saved, and at the bottom it says, " Suck it, Batman! This is what a billionaire does to help people." Like they've actually figured out that over all of the comic books and movies, Batman has helped something like 800 people.
 
 [00:17:57] Norm: Superheroes
 
@@ -392,7 +392,7 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:18:19] Will: Only we had a show where you talked to people about things and stuff.
 
-[00:18:20] Adam: You know, I I would publicly announce that this would that I would kill to have Bill and Melinda on the Talking Room. They would be exactly. They would.
+[00:18:20] Adam: I would publicly announce that this would that I would kill to have Bill and Melinda on the Talking Room. They would be exactly. They would.
 
 [00:18:31] Will: Joey just passed out.
 
@@ -406,13 +406,13 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:18:49] Adam: yeah,
 
-[00:18:49] Will: and then we'll then we'll roll on to some other stuff. But when you usually when you shake someone's hand and when I shake someone's hand whose work I admire, you know, I I kind of you kind of want to say, man, I really love X. What is X? What like? What's the? What's? Is it just? Oh, it's so nice to meet you. When when you when you're introduced to Bill,
+[00:18:49] Will: and then we'll roll on to some other stuff. But when you usually when you shake someone's hand and when I shake someone's hand whose work I admire I I kind of you kind of want to say, man, I really love X. What is X? What like? What's the? What's? Is it just? Oh, it's so nice to meet you. When you when you're introduced to Bill,
 
-[00:19:07] Adam: what did I say? I said I shook his hand and I said it's really a pleasure to meet you. I'm a I'm a really big fan of your work. I'm that's
+[00:19:07] Adam: what did I say? I said I shook his hand and I said it's really a pleasure to meet you. I'm a really big fan of your work. I'm that's
 
 [00:19:14] Will: that's always a good way to go.
 
-[00:19:15] Adam: Very in and out with that, you know. I I appreciate personally, and I'll tell you this: if you meet me and you're wondering whether to play it cool or just to tell me that you're a fan, I prefer it if you tell me you're a fan.
+[00:19:15] Adam: Very in and out with that. I appreciate personally, and I'll tell you this: if you meet me and you're wondering whether to play it cool or just to tell me that you're a fan, I prefer it if you tell me you're a fan.
 
 [00:19:29] Will: It's much less awkward all around.
 
@@ -424,13 +424,13 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:19:56] Will: You don't mind?
 
-[00:19:56] Adam: No, and you know when I'm busy, if someone Is gonna just be quick about it. That's also great. Tell me that you're a fan, and we can move on. So that's my goal. We're meeting someone on that level of of Bill and Melinda. I just wanted to be like, I'm a big fan of your work, and if and if we get to talk further, all of that is gravy. But I am not going to seek it out. Yeah, it's like I met Peter Gabriel years and years ago, and I always go back to this in my mind because I met him. I got to art direct a set that he was playing on, and then I got to hear him do a sound check of the song " Here Comes the Flood," which is one of my all time favorite Peter Gabriel songs. And then I went up to him afterwards, and I could see him see me coming, and I could see him while he was talking to someone, you know, seek to be generous and shake my hand. Available,
+[00:19:56] Adam: No, and you know when I'm busy, if someone Is gonna just be quick about it. That's also great. Tell me that you're a fan, and we can move on. So that's my goal. We're meeting someone on that level of Bill and Melinda. I just wanted to be like, I'm a big fan of your work, and if we get to talk further, all of that is gravy. But I am not going to seek it out. Yeah, it's like I met Peter Gabriel years and years ago, and I always go back to this in my mind because I met him. I got to art direct a set that he was playing on, and then I got to hear him do a sound check of the song " Here Comes the Flood," which is one of my all time favorite Peter Gabriel songs. And then I went up to him afterwards, and I could see him see me coming, and I could see him while he was talking to someone seek to be generous and shake my hand. Available,
 
 [00:20:44] Unknown speaker: yeah,
 
-[00:20:44] Adam: available. But I could also see that it made him nervous because he's Peter Gabriel, and he's been meeting people he doesn't know for decades. And I remember every aspect of meeting him because he's so important to me. I remember that. Look on his face and my response to it when I meet people who I know that I represent something to them. However, on whatever level and whatever scale I represent, I recognize that I'm representing something to them, and it's just it's made me more bold and more reserved when I meet people that I admire. And I, you know, it's a it's a fascinating thing, you know, because these people do stuff you admire. They're really busy. They're also, you know,
+[00:20:44] Adam: available. But I could also see that it made him nervous because he's Peter Gabriel, and he's been meeting people he doesn't know for decades. And I remember every aspect of meeting him because he's so important to me. I remember that. Look on his face and my response to it when I meet people who I know that I represent something to them. However, on whatever level and whatever scale I represent, I recognize that I'm representing something to them, and it's just it's made me more bold and more reserved when I meet people that I admire. And I it's a fascinating thing because these people do stuff you admire. They're really busy. They're also
 
-[00:21:26] Will: it's an awkward it's an awkward transaction for everyone involved. I mean, just to be clear,
+[00:21:26] Will: it's an awkward transaction for everyone involved. I mean, just to be clear,
 
 [00:21:29] Adam: it is you're absolutely right. It's not just what it is.
 
@@ -496,13 +496,13 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:23:37] Adam: Oh no, I forgot about that. Oh,
 
-[00:23:41] Will: I think I think maybe everyone did. Um, we have premium memberships.
+[00:23:41] Will: I think maybe everyone did. We have premium memberships.
 
 [00:23:45] Adam: We do have premium memberships. There is all sorts of cool stuff in them.
 
-[00:23:47] Will: There's good stuff on the site. Um, you know, as always, there is a ton of good stuff that's available for everyone. There is also some other behind the scenes stuff and some special, more Adam, Will, Norm, Jamie-driven stuff for premium members. You can find out all about it by going to Tested dot com and clicking on the premium link at the top of the page.
+[00:23:47] Will: There's good stuff on the site. As always, there is a ton of good stuff that's available for everyone. There is also some other behind the scenes stuff and some special, more Adam, Will, Norm, Jamie-driven stuff for premium members. You can find out all about it by going to Tested dot com and clicking on the premium link at the top of the page.
 
-[00:24:05] Adam: And frankly, we take your comments and and and your comments and criticisms.
+[00:24:05] Adam: And frankly, we take your comments and criticisms.
 
 [00:24:08] Will: Yeah.
 

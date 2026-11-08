@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:00:57] Will: I miss good safety videos. Songs.
 
-[00:01:00] Norm: The New Zealand one, because you know the the safety video. Really was pioneered by Virgin America.
+[00:01:00] Norm: The New Zealand one, because you know the safety video. Really was pioneered by Virgin America.
 
 [00:01:08] Adam: The exciting and funny safety video.
 
@@ -76,11 +76,11 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:02:01] Will: There was like a Wired or a Business Insider article about the process. It was like a multi-year process to get that Virgin America the first one, the first video.
 
-[00:02:08] Adam: Listen, I, I wrote to, uh, uh, uh, because the Lord of the Rings people did, uh, uh, what do you call it?
+[00:02:08] Adam: Listen, I, I wrote to because the Lord of the Rings people did what do you call it?
 
 [00:02:17] Will: The New Zealand
 
-[00:02:18] Adam: New Zealand Air Safety video. Uh, I have written to the New Zealand Air people and told them it's my lifelong dream to be in or to produce a safety video for them or anyone else who's listening.
+[00:02:18] Adam: New Zealand Air Safety video. I have written to the New Zealand Air people and told them it's my lifelong dream to be in or to produce a safety video for them or anyone else who's listening.
 
 [00:02:31] Will: Any airline?
 
@@ -108,11 +108,11 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:03:22] Will: Were your arms tired?
 
-[00:03:23] Adam: Um, We we I don't know if you listened to the podcast last week.
+[00:03:23] Adam: We I don't know if you listened to the podcast last week.
 
 [00:03:27] Will: I have not yet,
 
-[00:03:27] Adam: but, uh, we had it. I, within 30 minutes of landing. I was putting a fire out.
+[00:03:27] Adam: but we had it. I, within 30 minutes of landing. I was putting a fire out.
 
 [00:03:32] Will: Oh,
 
@@ -136,15 +136,15 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:03:55] Will: I've never seen you put a fire out. I'm really disappointed.
 
-[00:03:59] Adam: Um, It was great. We finished off with Friday drinks with the entire Weta workshop. And I mean, we just feel so welcome, and it's the third time we've used the office over there as a production office behind Richard's place and behind Richard's office. It just feels like family.
+[00:03:59] Adam: It was great. We finished off with Friday drinks with the entire Weta workshop. And I mean, we just feel so welcome, and it's the third time we've used the office over there as a production office behind Richard's place and behind Richard's office. It just feels like family.
 
 [00:04:15] Norm: It does. It yeah.
 
 [00:04:17] Will: It seems like you guys. It's like going to camp almost.
 
-[00:04:19] Adam: It is warm and fuzzy, you know. And you know, we walk through, and there's all sorts of amazing things going on, and like there, you know, in a special effects shop, I, I can't talk about a lot of what we saw because a lot of it's proprietary, uh, for different projects that Weta is working on. But I will say that there are a few places more entertainingly absurd than an effects shop in mid-production, because you will see just like lines of the most bizarre things you could imagine, whether it's babies or giant light bulbs, neither of which were at Weta, but you know that kind of thing.
+[00:04:19] Adam: It is warm and fuzzy. And we walk through, and there's all sorts of amazing things going on, and there in a special effects shop, I, I can't talk about a lot of what we saw because a lot of it's proprietary for different projects that Weta is working on. But I will say that there are a few places more entertainingly absurd than an effects shop in mid-production, because you will see just like lines of the most bizarre things you could imagine, whether it's babies or giant light bulbs, neither of which were at Weta, but you know that kind of thing.
 
-[00:04:53] Will: I remember one time Norm and I went into a shop, and we just saw a line of heads in various states of exploding for a stop motion thing. Right, right. It's like the same head in in frame one, frame two, frame three, frame four. It's like
+[00:04:53] Will: I remember one time Norm and I went into a shop, and we just saw a line of heads in various states of exploding for a stop motion thing. Right, right. It's like the same head in frame one, frame two, frame three, frame four. It's like
 
 [00:05:06] Norm: ah. More so than any shop I've been in, and maybe that's, it's not indicative of the shops in the past, because Weta is a very sprawling place.
 
@@ -154,15 +154,15 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:05:16] Adam: different shops and multiple buildings
 
-[00:05:18] Norm: all the time. It's like multiple buildings connected. Like they bought this building, this building, and then open a door here, and things are being constantly rearranged. So it feels more like a college campus than anything.
+[00:05:18] Norm: all the time. It's like multiple buildings connected. Like they bought this building, and then open a door here, and things are being constantly rearranged. So it feels more like a college campus than anything.
 
 [00:05:28] Adam: The thing. Go ahead. Sorry.
 
-[00:05:29] Norm: And, and, you know, we visit a lot of shops in LA, and in LA, a lot of shops are big open warehouse spaces because they're storage, and you see everything in one or two rooms. You know, molds are happening here, paintings happening here, and because it's like a rabbit warren, and because it's like a university, it really feels like you know Hogwarts. Um,
+[00:05:29] Norm: And we visit a lot of shops in LA, and in LA, a lot of shops are big open warehouse spaces because they're storage, and you see everything in one or two rooms. Molds are happening here, paintings happening here, and because it's like a rabbit warren, and because it's like a university, it really feels like you know Hogwarts.
 
 [00:05:45] Adam: It also feels like the old Industrial Light and Magic because ILM was the same thing. It was George bought all the buildings on either side of Kerner Boulevard for like half a kilometer, and every building was one of ours. You know, that was the building you went to go get yelled at in. That was the building in which you had to push a $1 million model across the street to go film with it. Literally, you'd be pushing a $1 million model into traffic.
 
-[00:06:08] Norm: And so there are different departments, you know.
+[00:06:08] Norm: And so there are different departments.
 
 [00:06:10] Adam: To get it over to where
 
@@ -176,13 +176,13 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:06:16] Norm: and it's and people are in their own groups, and so everyone has their own little stories, and we're getting glimpses of each of them every time we're in a different room, a different part of the shop. It's like we're popping into, you know, a Harry Potter movie.
 
-[00:06:28] Will: Do they do they have like a family? One of the things I loved when we talked to David Chang years ago is I learned about the family dinner at restaurants where they sit down at the end of service and they talk about what went right and what did. I wonder, like, do they have a family dinner kind of equivalent there?
+[00:06:28] Will: Do they have like a family? One of the things I loved when we talked to David Chang years ago is I learned about the family dinner at restaurants where they sit down at the end of service and they talk about what went right and what did. I wonder do they have a family dinner kind of equivalent there?
 
 [00:06:39] Adam: They do a monthly Friday drinks,
 
 [00:06:41] Will: okay.
 
-[00:06:41] Adam: Uh, and, uh, at this Friday drinks, you know, they make announcements about how the company is doing. They celebrated the 83rd baby born to a Weta staff member since its inception.
+[00:06:41] Adam: And at this Friday drinks they make announcements about how the company is doing. They celebrated the 83rd baby born to a Weta staff member since its inception.
 
 [00:06:52] Will: That's so cool.
 
@@ -194,13 +194,13 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:06:55] Norm: We're at three.
 
-[00:06:58] Adam: But you know, yeah, it's, it's that, um, I just love going there every single time. I leave glowing. I am just so ecstatic, and everyone is so gracious.
+[00:06:58] Adam: But yeah, it's that I just love going there every single time. I leave glowing. I am just so ecstatic, and everyone is so gracious.
 
 [00:07:08] Norm: We're renewed with mana, like it is rejuvenating. It's inspiring. It's humbling, for sure.
 
 [00:07:13] Adam: Oh my god,
 
-[00:07:14] Norm: it's humbling to be there, uh, and it's really great to hear that many of those people feel the same way.
+[00:07:14] Norm: it's humbling to be there and it's really great to hear that many of those people feel the same way.
 
 [00:07:19] Adam: Um, and
 
@@ -238,27 +238,27 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:08:48] Unknown speaker (Will or Norm): What'd you watch?
 
-[00:08:48] Adam: Uh, I watched Ready or Not.
+[00:08:48] Adam: I watched Ready or Not.
 
-[00:08:51] Will: Oh, this is this is a movie, uh, we talked about a little bit a few weeks ago.
+[00:08:51] Will: Oh, this is a movie we talked about a little bit a few weeks ago.
 
-[00:08:55] Norm: Samara Weaving, um, and
+[00:08:55] Norm: Samara Weaving and
 
 [00:08:58] Adam: playing Margot Robbie.
 
-[00:08:58] Norm: They are from the same like mold. They're, they're, they're, Jamie Priestley or and yeah,
+[00:08:58] Norm: They are from the same like mold. They're, Jamie Priestley or and yeah,
 
 [00:09:03] Will: Jaime Pressly,
 
 [00:09:04] Norm: Jaime Pressly Margot. Yeah,
 
-[00:09:05] Adam: What, what was her name?
+[00:09:05] Adam: What was her name?
 
-[00:09:06] Norm: Uh, Samara Weaving. She is Hugo Weaving's niece.
+[00:09:06] Norm: Samara Weaving. She is Hugo Weaving's niece.
 
-[00:09:09] Adam: Ah, she's. Terrific in the film. She has to carry a lot of. She has to carry the movie, and she does. And, uh, it's a it's a movie about, um, a woman marrying into a rich family that has a very spoilers. I think this is a movie totally worth
+[00:09:09] Adam: Ah, she's. Terrific in the film. She has to carry a lot of. She has to carry the movie, and she does. And it's a movie about a woman marrying into a rich family that has a very spoilers. I think this is a movie totally worth
 
-[00:09:25] Will: The, the the trailer spoils the whole thing,
+[00:09:25] Will: The trailer spoils the whole thing,
 
 [00:09:27] Adam: right?
 
@@ -270,9 +270,9 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:09:39] Adam: It's a game. It's a lethal game of hide and seek that turns into much darker, even darker,
 
-[00:09:43] Norm: and great cosplay too in the bloody wedding dress with the the the bandolier
+[00:09:43] Norm: and great cosplay too in the bloody wedding dress with the bandolier
 
-[00:09:48] Adam: with the bandolier and the big elephant killing shotgun. Yes, Um, the movie has, uh, the movie is entertaining. Uh, it overstays many scenes. Overstay their welcome. I felt it.
+[00:09:48] Adam: with the bandolier and the big elephant killing shotgun. Yes the movie has the movie is entertaining. It overstays many scenes. Overstay their welcome. I felt it.
 
 [00:10:01] Will: So, so when I saw the trailer for this, I assumed it was going to be kind of your Saw, Hostel torture [unclear: or anything].
 
@@ -298,7 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:10:49] Will: I know it's been a while since I saw the movie
 
-[00:10:51] Adam: here comes the spoiler her fiance her fiance turns on her she's in here he says when he realizes he's about to lose her
+[00:10:51] Adam: here comes the spoiler her fiance turns on her she's in here he says when he realizes he's about to lose her
 
 [00:10:57] Will: oh yeah
 
@@ -308,11 +308,11 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:11:06] Adam: and I, it just he didn't he like he was not set up in any way to be selfish or venal.
 
-[00:11:13] Will: Um, I felt like it was foreshadowed in the early parts of the film, but not like like the thing is I wasn't paying attention to the fiance at all because I thought he was one of the least interesting characters in the movie.
+[00:11:13] Will: I felt like it was foreshadowed in the early parts of the film, but not like the thing is I wasn't paying attention to the fiance at all because I thought he was one of the least interesting characters in the movie.
 
 [00:11:23] Adam: Bingo.
 
-[00:11:23] Will: Adrien Brody, uh, his character,
+[00:11:23] Will: Adrien Brody his character,
 
 [00:11:26] Adam: Adam Brody,
 
@@ -320,7 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:11:27] Adam: Adam Brody,
 
-[00:11:27] Will: Adam, not Adrien Brody from the OC, from the OC, yeah, the OC guy.
+[00:11:27] Will: Adam, not Adrien Brody from the OC, yeah, the OC guy.
 
 [00:11:31] Adam: I have never watched it.
 
@@ -330,11 +330,11 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:11:34] Norm: No,
 
-[00:11:35] Will: no, no. The the, the, brother-in-law.
+[00:11:35] Will: no, no. The, brother-in-law.
 
-[00:11:36] Adam: brother, the brother, the kind of the bearded brother.
+[00:11:36] Adam: brother, the kind of the bearded brother.
 
-[00:11:39] Will: No, the other one, the the younger, the attractive, dark haired, dark curly hair.
+[00:11:39] Will: No, the other one, the younger, the attractive, dark haired, dark curly hair.
 
 [00:11:47] Adam: Yeah, yeah,
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:11:47] Will: I couldn't remember.
 
-[00:11:47] Adam: He does. He's married to the, um, Olivia Munn stand-in. It was like every actor.
+[00:11:47] Adam: He does. He's married to the Olivia Munn stand-in. It was like every actor.
 
 [00:11:52] Will: It was a lot of character actors in this movie.
 
@@ -354,7 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:12:01] Adam: I did too.
 
-[00:12:01] Will: I thought he was very like he he he he was the one I was I was watching him and Samantha Samara weaving
+[00:12:01] Will: I thought he was very like he was the one I was watching him and Samantha Samara weaving
 
 [00:12:07] Adam: Mm-hmm.
 
@@ -370,7 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:12:19] Will: Yeah, the mom,
 
-[00:12:21] Adam: the mom. Anyway, I enjoyed the movie. I found it light and fun. It didn't earn its turn. Yeah, it didn't, it didn't earn that third act turn, which upset me.
+[00:12:21] Adam: the mom. Anyway, I enjoyed the movie. I found it light and fun. It didn't earn its turn. Yeah, it didn't earn that third act turn, which upset me.
 
 [00:12:27] Norm: And if you like horror comedy, what we just spoiled does not ruin the enjoyment of the horror comedy elements of that movie.
 
@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:12:40] Norm: Yeah, yeah, it's fun gory, like it's schlocky, yeah,
 
-[00:12:42] Will: like um, it's not like.
+[00:12:42] Will: like it's not like.
 
 [00:12:44] Adam: But if you want fun gory, watch Free Fire. That's the movie to watch.
 
@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:13:03] Adam: Ben Wheatley
 
-[00:13:03] Norm: was the guy who, uh.
+[00:13:03] Norm: was the guy who.
 
 [00:13:05] Adam: Wait, is he an actor?
 
@@ -410,9 +410,9 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:13:06] Norm: But sounds like a name of the actor.
 
-[00:13:09] Adam: He's. It's beautifully directed. It's really, really fun, and it's, uh, it like yeah.
+[00:13:09] Adam: He's. It's beautifully directed. It's really, really fun, and it's it like yeah.
 
-[00:13:15] Norm: Anyway, uh, Knives Out was not on the flight,
+[00:13:15] Norm: Anyway Knives Out was not on the flight,
 
 [00:13:18] Adam: Not, not, which I still haven't seen because I'm an idiot. And was not on the flight.
 
@@ -426,7 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:13:35] Norm: Yeah.
 
-[00:13:36] Will: There are there are there is a
+[00:13:36] Will: There are there is a
 
 [00:13:37] Norm: themes and big houses that
 
@@ -436,11 +436,11 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:13:46] Will: One of my favorite games
 
-[00:13:47] Norm: fit together. Um, New Zealand Air, great.
+[00:13:47] Norm: fit together. New Zealand Air, great.
 
 [00:13:50] Adam: New Zealand Air is the best
 
-[00:13:52] Norm: entertainment system. Uh, It's free Wi-Fi,
+[00:13:52] Norm: entertainment system. It's free Wi-Fi,
 
 [00:13:55] Adam: free Wi-Fi
 
@@ -454,7 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:14:04] Norm: So on the way there, free Wi-Fi worked the whole time. Great,
 
-[00:14:06] Adam: Yeah, but but slow as molasses.
+[00:14:06] Adam: Yeah, but slow as molasses.
 
 [00:14:08] Norm: Slow.
 
@@ -476,7 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:15:00] Unknown speaker (Adam, Will or Norm): Oh no!
 
-[00:15:00] Norm: I love that you know right. And and oh, that's why, but it was fast because no one realized the Wi-Fi was back on.
+[00:15:00] Norm: I love that you know right. And oh, that's why, but it was fast because no one realized the Wi-Fi was back on.
 
 [00:15:06] Will: Do you think they rebooted the router?
 
@@ -490,7 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:15:24] Will: Oh man!
 
-[00:15:24] Adam: In the Auckland Airport, I had some pork and shrimp dumplings with a a pork steamed pork bun. Those dumplings were legit, as good as any dumplings I've ever had. They were stellar.
+[00:15:24] Adam: In the Auckland Airport, I had some pork and shrimp dumplings with a pork steamed pork bun. Those dumplings were legit, as good as any dumplings I've ever had. They were stellar.
 
 [00:15:38] Will: How they set up the kingdom of?
 
@@ -502,7 +502,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:15:41] Adam: They were stunning. I actually was eating them so assiduously that it didn't occur to me to tell Norm they were amazing until I was done, and then I was like, " Norm, these were amazing, and I should have given him one." It just didn't even occur to me because I was just plowing them into my face.
 
-[00:15:54] Norm: You know, you're, you said I'm in the middle of composing a tweet about how good these dumplings are. I don't think I should share where we are right now.
+[00:15:54] Norm: You're, you said I'm in the middle of composing a tweet about how good these dumplings are. I don't think I should share where we are right now.
 
 [00:16:01] Adam: I literally was going to send it while I was sitting there, because this is something else. I'm way more famous in New Zealand than I am here in the United States.
 
@@ -520,7 +520,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:16:32] Will: Oh yeah.
 
-[00:16:33] Adam: Right when you're like, I'll just have a piece of garlic bread, bread please, and the tea is fine, and I don't even need tea. I just had water for most of the flight, and they get they get very huffy and nervous about you when you don't eat anything.
+[00:16:33] Adam: Right when you're like, I'll just have a piece of garlic bread, bread please, and the tea is fine, and I don't even need tea. I just had water for most of the flight, and they get very huffy and nervous about you when you don't eat anything.
 
 [00:16:44] Norm: Well, I think they realize for 11 o'clock flight or 11 hour flight, some people if they don't take the food, they get will get cranky later on, and it becomes a problem for them.
 
@@ -532,21 +532,21 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:16:59] Norm: You gotta keep them fed.
 
-[00:16:59] Will: definitely yeah the don't wear capes heroes of our of our time.
+[00:16:59] Will: definitely yeah the don't wear capes heroes of our time.
 
-[00:17:03] Adam: We've just another shout out. I don't know if it's even still up, but customershaming dot com, which is a Website where flight attendants share their own horror stories, um, and pictures of the nastiest toenails that people stick into the windows, and
+[00:17:03] Adam: We've just another shout out. I don't know if it's even still up, but customershaming dot com, which is a Website where flight attendants share their own horror stories and pictures of the nastiest toenails that people stick into the windows, and
 
 [00:17:17] Norm: Yeah.
 
-[00:17:18] Will: I, there, there used to be a really great, it's probably up, but it's a pilot blog that tells like the pilot horror stories.
+[00:17:18] Will: I, there used to be a really great, it's probably up, but it's a pilot blog that tells like the pilot horror stories.
 
 [00:17:23] Adam: Yeah,
 
-[00:17:24] Will: it's it's the place, it's the place of the famous, um, I think it was a FedEx flight that they had to emergency land because somebody dropped dumped the cooler with dry ice instead of regular ice into the chemical toilet.
+[00:17:24] Will: it's the place of the famous I think it was a FedEx flight that they had to emergency land because somebody dropped dumped the cooler with dry ice instead of regular ice into the chemical toilet.
 
 [00:17:36] Adam: Oh my god.
 
-[00:17:36] Will: Yeah, and it like foamed up the entire back of the plane, uh, because the the chemical toilet stuff. But anyway,
+[00:17:36] Will: Yeah, and it like foamed up the entire back of the plane because the chemical toilet stuff. But anyway,
 
 [00:17:43] Adam: yeah,
 
@@ -560,7 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:18:37] Will: I am such a pain in the ass."
 
-[00:18:39] Adam: No, no, that's that's we have all done this, and you said today I have a hard out, and we said this plumbing repair should take 10 minutes,
+[00:18:39] Adam: No, no, that's we have all done this, and you said today I have a hard out, and we said this plumbing repair should take 10 minutes,
 
 [00:18:45] Will: and I somewhere
 
@@ -570,7 +570,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:18:49] Adam: And then, how long did it take?
 
-[00:18:49] Will: About eight minutes. Yeah. You guys, you guys really hammered through it. Um, I, plumbing repair, plumbing is one of those things; it's a nightmare. Like you can get into real trouble in no time.
+[00:18:49] Will: About eight minutes. Yeah. You guys really hammered through it. I, plumbing repair, plumbing is one of those things; it's a nightmare. Like you can get into real trouble in no time.
 
 [00:19:01] Adam: Well, the thing is, is that it's deceptively simple, but the stakes are often quite high. The stakes of a mistake.
 
@@ -578,23 +578,23 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:19:09] Adam: They get wet and wild in a hurry.
 
-[00:19:12] Will: Well, and and like your minimum. Cost of a of a of a expert emergency repair for a plumber in the Bay Area is between $500 and $1,000, in my experience. Yeah,
+[00:19:12] Will: Well, and like your minimum. Cost of a expert emergency repair for a plumber in the Bay Area is between $500 and $1,000, in my experience. Yeah,
 
-[00:19:21] Adam: it's it's real. Yeah,
+[00:19:21] Adam: it's real. Yeah,
 
 [00:19:21] Norm: and your experience may vary.
 
 [00:19:23] Will: Yeah,
 
-[00:19:23] Norm: your success with with those people that you call.
+[00:19:23] Norm: your success with those people that you call.
 
 [00:19:25] Will: Yeah,
 
-[00:19:26] Adam: and you know, it's all about having the right parts.
+[00:19:26] Adam: and it's all about having the right parts.
 
 [00:19:28] Unknown speaker (Will or Norm): Yes,
 
-[00:19:28] Adam: and lining them up. So, but there is always something you don't expect. Like you know, you'll turn off the water, and you think it's only going to be for 10 minutes. But as you are trying to undo the spigot that you are about to replace on the system, the nipple holding it on cracks, and all of a sudden you have to pull out the welder and weld the thing to that, and then spray some Kroil on there and let it soak for an hour, and then you can hit it with a mallet and slowly you start to like I've been there with all of that stuff, and that's what you pay an expert for. They can see those mistakes before, before you cause them, and they also go to the hardware store once, whereas every home plumber goes to the hardware store like seven times for any repair, no matter how small.
+[00:19:28] Adam: and lining them up. So, but there is always something you don't expect. Like you'll turn off the water, and you think it's only going to be for 10 minutes. But as you are trying to undo the spigot that you are about to replace on the system, the nipple holding it on cracks, and all of a sudden you have to pull out the welder and weld the thing to that, and then spray some Kroil on there and let it soak for an hour, and then you can hit it with a mallet and slowly you start to like I've been there with all of that stuff, and that's what you pay an expert for. They can see those mistakes before, before you cause them, and they also go to the hardware store once, whereas every home plumber goes to the hardware store like seven times for any repair, no matter how small.
 
 [00:20:09] Will: Well, so my all-time worst—I've made a bad mistake plumbing error was the night before Thanksgiving. We had. I think 20 people coming that year, so we had a table set up in the backyard for a bazillion people, and we, an unnamed person in our family, ran a bunch of potato peels down the garbage disposal, and the potato.
 
@@ -604,11 +604,11 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:20:33] Adam: Okay, they don't
 
-[00:20:34] Will: sweet potatoes are fibrous and they get they get and
+[00:20:34] Will: sweet potatoes are fibrous and they get and
 
 [00:20:37] Adam: I know limes limes are an absolute nightmare.
 
-[00:20:39] Will: Look, this here is the the secret tip.
+[00:20:39] Will: Look, this here is the secret tip.
 
 [00:20:42] Norm: Why limes and not a bunch of citrus?
 
@@ -622,7 +622,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:20:56] Adam: Okay,
 
-[00:20:56] Will: and they're they're they clog up your pipe. So
+[00:20:56] Will: and they're they clog up your pipe. So
 
 [00:21:00] Adam: so they use potato peels.
 
@@ -634,11 +634,11 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:21:11] Adam: Oh.
 
-[00:21:12] Will: Oh, so. You know, I go get the plumbing snake as one does.
+[00:21:12] Will: Oh, so. I go get the plumbing snake as one does.
 
 [00:21:16] Adam: Is it long enough? Is the question.
 
-[00:21:18] Will: It's 11 o'clock at night right now. This is where we're starting this moment. We have one bathroom in the house. We have 20 people coming the next day. So, like, I'm thinking, if I don't fix this, we're going to cancel Thanksgiving for 20 people. So, or we'll have to move someplace else. So we, so I get the snake. I snake nothing. No love.
+[00:21:18] Will: It's 11 o'clock at night right now. This is where we're starting this moment. We have one bathroom in the house. We have 20 people coming the next day. So I'm thinking, if I don't fix this, we're going to cancel Thanksgiving for 20 people. So, or we'll have to move someplace else. So we, so I get the snake. I snake nothing. No love.
 
 [00:21:32] Adam: Yeah.
 
@@ -646,7 +646,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:21:43] Adam: Yeah.
 
-[00:21:43] Will: And it's the only thing. It's the thing that makes it seal. So I get the pipe in. I get the snake. No, no love. I pour the Drano at this point. I'm desperate, right? Whatever I can do. I go back and I start snaking further, and I'm like, literally, I'm I'm at the holding the end of the snake with a with a vice grip to turn it because the the I've run out of line, and I feel it bite, and I'm like, oh, thank God. So I finally pull it out, but then I have to fix the leaky garbage disposal in the only kitchen sink we have, and the only way we can do dishes. It was a disaster. The upshot is,
+[00:21:43] Will: And it's the only thing. It's the thing that makes it seal. So I get the pipe in. I get the snake. No, no love. I pour the Drano at this point. I'm desperate, right? Whatever I can do. I go back and I start snaking further, and I'm like, literally, I'm I'm at the holding the end of the snake with a vice grip to turn it because the I've run out of line, and I feel it bite, and I'm like, oh, thank God. So I finally pull it out, but then I have to fix the leaky garbage disposal in the only kitchen sink we have, and the only way we can do dishes. It was a disaster. The upshot is,
 
 [00:22:14] Adam: at that point, you have to buy a new garbage disposal.
 
@@ -662,7 +662,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:22:25] Adam: I had a job once where I went to Home Depot at two in the morning. Again at four in the morning.
 
-[00:22:29] Will: Oh God! I I just I got the epoxy, the the the two sided stuff.
+[00:22:29] Will: Oh God! I just I got the epoxy, the two sided stuff.
 
 [00:22:33] Adam: Oh yeah,
 
@@ -672,7 +672,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:22:39] Will: yeah, that was two years ago. Now
 
-[00:22:41] Adam: the the about, God, at this point, 25 years ago, I was living down at the end of Hunters Point on Yosemite Street. Um, now denizens of Hunters Point will know Yosemite is where the police station is. There was no police station there back when I lived there. Um, there was no. I think there's even a big box store down there. No, but I was in this mattress factory, and
+[00:22:41] Adam: the about, God, at this point, 25 years ago, I was living down at the end of Hunters Point on Yosemite Street. Now denizens of Hunters Point will know Yosemite is where the police station is. There was no police station there back when I lived there. There was no. I think there's even a big box store down there. No, but I was in this mattress factory, and
 
 [00:23:05] Will: like you lived in the mattress factory.
 
@@ -684,7 +684,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:23:26] Will: That sounds awesome.
 
-[00:23:27] Adam: It was it was fabulous. And then after we'd been there about a year, the heating element blew out, and I I actually knew enough to test its continuity, see that it'd blown out. I turned off the water. I removed the heating element, spec'd the one that I needed to get, and planned to get it the next morning. And what I didn't know was that while I thought I'd shut the water off, I hadn't.
+[00:23:27] Adam: It was fabulous. And then after we'd been there about a year, the heating element blew out, and I I actually knew enough to test its continuity, see that it'd blown out. I turned off the water. I removed the heating element, spec'd the one that I needed to get, and planned to get it the next morning. And what I didn't know was that while I thought I'd shut the water off, I hadn't.
 
 [00:23:53] Will: Oh, you turned it on?
 
@@ -692,11 +692,11 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:24:11] Will: Oh no!
 
-[00:24:11] Adam: You know, Cut Loose clothing over here on Valencia. They used to have their storage warehouse. Underneath my loft space,
+[00:24:11] Adam: Cut Loose clothing over here on Valencia. They used to have their storage warehouse. Underneath my loft space,
 
 [00:24:19] Will: at least it absorbed all the water.
 
-[00:24:21] Adam: Oh my god! I I mean, it was like so. I am using one of those, you know, slop mop buckets.
+[00:24:21] Adam: Oh my god! I mean, it was like so. I am using one of those slop mop buckets.
 
 [00:24:28] Unknown speaker (Will or Norm): Yeah,
 
@@ -704,7 +704,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:24:31] Will: 2,000 square feet of two inches of water—that is an unbelievable amount of water.
 
-[00:24:34] Adam: And running into the like, I'm shoving rags to keep it from running down the hole into the clothing. And they're banging on the door, and we're like, " We're sorry." Oh, that was that was
+[00:24:34] Adam: And running into the like, I'm shoving rags to keep it from running down the hole into the clothing. And they're banging on the door, and we're like, " We're sorry." Oh, that was
 
 [00:24:42] Will: that's a bad day.
 
@@ -712,13 +712,13 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:24:52] Will: God, what a nightmare!
 
-[00:24:53] Adam: But this is this is home plumbing. We we we all have those stories.
+[00:24:53] Adam: But this is home plumbing. We all have those stories.
 
 [00:24:57] Will: We once upon a time we had a Thanksgiving. All of our stuff happens at Thanksgiving. We had a Thanksgiving where we were the upstairs unit in a two building two bedroom loft, and the downstairs neighbors had gone to their families for Thanksgiving. But something they had left something in the sink, or something. Shit runs downhill.
 
 [00:25:14] Adam: Yeah, yeah, it does.
 
-[00:25:15] Will: And and our dishwater from Thanksgiving aftermath was coming up their sink. And it just it it was a disaster. It was it was in fairness that was way worse for them than it was for us. We weren't, we didn't get along super well with the downstairs neighbors after that. I can't. I don't understand why. Really
+[00:25:15] Will: And our dishwater from Thanksgiving aftermath was coming up their sink. And it just it was a disaster. It was in fairness that was way worse for them than it was for us. We weren't, we didn't get along super well with the downstairs neighbors after that. I can't. I don't understand why. Really
 
 [00:25:33] Adam: hilarious.
 
@@ -736,7 +736,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:25:46] Will: Yeah,
 
-[00:25:46] Adam: Um, and then I will be sliding back through Denver, where thing one lives, because, um, my boys turned 21 recently. Yeah, Um, very exciting.
+[00:25:46] Adam: And then I will be sliding back through Denver, where thing one lives, because my boys turned 21 recently. Yeah very exciting.
 
 [00:25:58] Will: Wow, they were.
 
@@ -768,7 +768,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:26:28] Will: This weekend?
 
-[00:26:28] Norm: Yes, that is this weekend. Hey, also, like, I completely forgot because we were in New Zealand for a whole week. But literally, the Thursday, the morning before you flew out,
+[00:26:28] Norm: Yes, that is this weekend. Hey, also I completely forgot because we were in New Zealand for a whole week. But literally, the Thursday, the morning before you flew out,
 
 [00:26:39] Adam: we buried the lead
 
@@ -776,7 +776,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:26:42] Will: That, that video is incredible. It was really fun.
 
-[00:26:45] Norm: So we we did four videos. I can even tell you what they are. And the first one that's out, Adam got to chat with the prop master, and you got
+[00:26:45] Norm: So we did four videos. I can even tell you what they are. And the first one that's out, Adam got to chat with the prop master, and you got
 
 [00:26:54] Adam: so much.
 
@@ -792,15 +792,15 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:27:16] Adam: I know. I know that was awesome.
 
-[00:27:17] Norm: in there in the cabinet. There's a shot of it in the video. Like they have, they have to remake the paper, right? And the guy's like, " We have specifically 65 sheets of the Reynolds pamphlet,
+[00:27:17] Norm: in there in the cabinet. There's a shot of it in the video. Like they have to remake the paper, right? And the guy's like, " We have specifically 65 sheets of the Reynolds pamphlet,
 
-[00:27:26] Adam: And they chose, and they chose all these specific pieces of paper. Like the the the when she burns the letter,
+[00:27:26] Adam: And they chose all these specific pieces of paper. Like the when she burns the letter,
 
 [00:27:31] Will: yeah,
 
 [00:27:31] Adam: that's a specific type of paper, and they burned tons and tons of different paper,
 
-[00:27:35] Norm: because they know for duration of burn the song how how much they could burn because the the actress has to be holding it. It's the one piece that actually lights on fire on the show.
+[00:27:35] Norm: because they know for duration of burn the song how how much they could burn because the actress has to be holding it. It's the one piece that actually lights on fire on the show.
 
 [00:27:44] Will: Wow,
 
@@ -828,11 +828,11 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:28:19] Will: It took a minute for me to like attach to it and be like.
 
-[00:28:22] Adam: No, no, okay, yeah, yeah, that works. Here's the here's the brain process. You see, you hear Silicon Valley Comic Con is changing its name, and you think, okay, how could that go? And then you hear SiliCon, and you're like, hmm, it's very much the sort of first thing most people would think of, which means that could it actually be good? It is actually good. It's actually communicates. It works. It tracks. It scans. Let's do it. And so, yeah, I had the same thing. I thought, oh, no, that actually is great.
+[00:28:22] Adam: No, no, okay, yeah, yeah, that works. Here's the brain process. You see, you hear Silicon Valley Comic Con is changing its name, and you think, okay, how could that go? And then you hear SiliCon, and you're like, hmm, it's very much the sort of first thing most people would think of, which means that could it actually be good? It is actually good. It's actually communicates. It works. It tracks. It scans. Let's do it. And so, yeah, I had the same thing. I thought, oh, no, that actually is great.
 
 [00:28:49] Will: No, I yeah, ah, yeah, okay,
 
-[00:28:51] Adam: um, I'm in. So, uh, there will be ongoing announcements and coverage of this as as we progress towards the October the the the latter half of October dates for SiliCon. You can sign up right now, and we'll put some links below. Um, but for the broadest picture, um, one of the reasons we've been going every year since its inception is because SiliCon, in addition to the wonderful pop culture tracks and the celebrity panels that you can expect at any given con, they've also, uh, put a heavy focus into maker culture and tech and also, uh, science. And this isn't to say that other cons don't, uh, also prioritize those, because it's one of the great things about the cons is that bleed through of all of our favorite things in one place.
+[00:28:51] Adam: I'm in. So there will be ongoing announcements and coverage of this as we progress towards the October the latter half of October dates for SiliCon. You can sign up right now, and we'll put some links below. But for the broadest picture one of the reasons we've been going every year since its inception is because SiliCon, in addition to the wonderful pop culture tracks and the celebrity panels that you can expect at any given con, they've also put a heavy focus into maker culture and tech and also science. And this isn't to say that other cons don't also prioritize those, because it's one of the great things about the cons is that bleed through of all of our favorite things in one place.
 
 [00:29:38] Norm: You just listed some things, some topics that we are well very interested in.
 
@@ -840,13 +840,13 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:29:41] Norm: Science and making [unclear: Norm to your newsletter],
 
-[00:29:44] Adam: and so just suffice to say, I'm very excited about putting together some really specific panels on pop culture, on science, on making, on technology, uh, in order to really widen and deepen the con experience with all the stuff that we love about it.
+[00:29:44] Adam: and so just suffice to say, I'm very excited about putting together some really specific panels on pop culture, on science, on making, on technology in order to really widen and deepen the con experience with all the stuff that we love about it.
 
-[00:29:58] Norm: I think that's that's the big story here. Is not just that you're putting your name on it and you're going to be there for the duration and have a bigger presence as creative director. You know, you're going to be actually initiating these tracks.
+[00:29:58] Norm: I think that's the big story here. Is not just that you're putting your name on it and you're going to be there for the duration and have a bigger presence as creative director. You're going to be actually initiating these tracks.
 
 [00:30:10] Will: You're programming,
 
-[00:30:11] Adam: yes, and and that's that's it's really exciting because we have have point of view and we, you know, we I feel we feel really simpatico with the entire team of SiliCon. We have the same aims. It's that's just feels like we're firing on all cylinders. So I'm really excited what this year portends for that.
+[00:30:11] Adam: yes, and that's it's really exciting because we have have point of view and we we I feel we feel really simpatico with the entire team of SiliCon. We have the same aims. It's that's just feels like we're firing on all cylinders. So I'm really excited what this year portends for that.
 
 [00:30:30] Will: That's so awesome!
 
@@ -854,29 +854,29 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:30:31] Will: that's rad.
 
-[00:30:32] Adam: And again, like, there's a lot more to to say about it, but I think that's enough.
+[00:30:32] Adam: And again there's a lot more to say about it, but I think that's enough.
 
-[00:30:36] Norm: But I think people out there, if you, you know, one, you should go. But if people want to pitch us things, feel free to reach out. We're open ideas for for tracks and things.
+[00:30:36] Norm: But I think people out there, if one, you should go. But if people want to pitch us things, feel free to reach out. We're open ideas for tracks and things.
 
 [00:30:45] Will: What's the best way to do that? Twitter,
 
 [00:30:47] Norm: probably. Twitter, email,
 
-[00:30:49] Adam: email. Um, one of the things is very specifically within maker culture. I want a deeper dive into the sharing the sharing economy that is maker culture. As specific,
+[00:30:49] Adam: email. One of the things is very specifically within maker culture. I want a deeper dive into the sharing economy that is maker culture. As specific,
 
 [00:31:00] Will: what on earth is that?
 
-[00:31:00] Adam: Was that my Siri? Oh, Siri, somehow I said something that she thought. I didn't. Stop! Stop! Um. Anyway. Uh. Yes, maker cosplay the open source sharing economy of the make of the cosplay community and the maker community. I'm like I love when those two intersect on this deep level, and we plan to help.
+[00:31:00] Adam: Was that my Siri? Oh, Siri, somehow I said something that she thought. I didn't. Stop! Stop! Anyway. Uh. Yes, maker cosplay the open source sharing economy of the make of the cosplay community and the maker community. I'm like I love when those two intersect on this deep level, and we plan to help.
 
 [00:31:23] Will: So you want to see some places where people could come and take the. The hard-earned lessons and share them with other people so that they are less hard-earned.
 
-[00:31:29] Adam: Yeah, because what have we been doing the last few years, but just covering wonderful innovations by all sorts of different people working in their shops across the country. It's time to like codify more and more of that of that sharing of information.
+[00:31:29] Adam: Yeah, because what have we been doing the last few years, but just covering wonderful innovations by all sorts of different people working in their shops across the country. It's time to like codify more and more of that sharing of information.
 
-[00:31:42] Norm: I love that. Yeah. Before we wrap, I want to give one more shout out. We were there in Wellington for a full week, and we only got basically one day—the last day before we left—to do a little bit of walking around. And you know, we stayed at a hotel that's very close to the Te Papa Museum, and the Te Papa Museum is highly recommended, as always. They have the scale of our War Gallipoli exhibit, which is, I believe, running at least through 2023.
+[00:31:42] Norm: I love that. Yeah. Before we wrap, I want to give one more shout out. We were there in Wellington for a full week, and we only got basically one day—the last day before we left—to do a little bit of walking around. And we stayed at a hotel that's very close to the Te Papa Museum, and the Te Papa Museum is highly recommended, as always. They have the scale of our War Gallipoli exhibit, which is, I believe, running at least through 2023.
 
 [00:32:03] Unknown speaker (Adam or Will): Yep.
 
-[00:32:03] Norm: This is Weta putting together these six large-scale 2.4x humans and diorama pieces about the the soldiers and the people who participated in Gallipoli. But they also have this exhibit running through March 8th. That's about Alice in Wonderland. It was created by the Australian Center for Moving Image, basically the Aussie version of the New York Museum of Moving Image, which any Institution that celebrates, you know, cinema and television and computer games, and this is about Alice in Wonderland. It's called Wonderland. It's there through March 8. Highly recommended.
+[00:32:03] Norm: This is Weta putting together these six large-scale 2.4x humans and diorama pieces about the soldiers and the people who participated in Gallipoli. But they also have this exhibit running through March 8th. That's about Alice in Wonderland. It was created by the Australian Center for Moving Image, basically the Aussie version of the New York Museum of Moving Image, which any Institution that celebrates cinema and television and computer games, and this is about Alice in Wonderland. It's called Wonderland. It's there through March 8. Highly recommended.
 
 [00:32:38] Will: Is it Any particular version or all versions?
 
@@ -898,7 +898,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:33:16] Adam: Yes, we will be back. We will be back before too long.
 
-[00:33:18] Will: Just relocate tested to to.
+[00:33:18] Will: Just relocate tested to.
 
 [00:33:21] Adam: I think we need the satellite office. I think it's totally clear to everybody.
 
@@ -908,15 +908,15 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:33:40] Will: Good snuggles,
 
-[00:33:40] Adam: yeah. She she spent a lot of time just hanging out on my lap, and yeah.
+[00:33:40] Adam: yeah. She spent a lot of time just hanging out on my lap, and yeah.
 
 [00:33:45] Norm: Well, what's going on new in your world?
 
-[00:33:47] Will: Uh, new episode of Tech Pod is out this week. It's a Q and A episode. We've done we we made a ranking of Windowses over the last two weeks. Windowses. We started with Windows 3.0, maybe 3.1, and went all and and like talked through like it's it was interesting to go through and talk through 25 30 years of of of you know what was the dominant operating system for a really long time, still is,
+[00:33:47] Will: New episode of Tech Pod is out this week. It's a Q and A episode. We've done we made a ranking of Windowses over the last two weeks. Windowses. We started with Windows 3.0, maybe 3.1, and went all and like talked through like it's it was interesting to go through and talk through 25 30 years of you know what was the dominant operating system for a really long time, still is,
 
 [00:34:09] Norm: yeah,
 
-[00:34:09] Will: and and how things have changed and watch what's gotten better and what's gotten worse. As Microsoft went from selling a packaged good that you can install on your computer to shipping a software as a service that is, you know, maybe not as awesome as just buying a thing and maybe not being the customer. So anyway, you can find that at techpod.content.town.
+[00:34:09] Will: and how things have changed and watch what's gotten better and what's gotten worse. As Microsoft went from selling a packaged good that you can install on your computer to shipping a software as a service that is maybe not as awesome as just buying a thing and maybe not being the customer. So anyway, you can find that at techpod.content.town.
 
 [00:34:28] Norm: Cool. All right, we'll be back next week. Thanks for listening.
 

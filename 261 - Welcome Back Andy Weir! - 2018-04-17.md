@@ -28,7 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:00:58] Adam: Is it really that long?
 
-[00:00:59] Andy: Uh, quite a while.
+[00:00:59] Andy: Quite a while.
 
 [00:01:00] Adam: Yeah, I mean, and then you and I tried to get a project off the ground together.
 
@@ -38,7 +38,7 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:01:05] Unknown speaker (Andy or Norm): Yes.
 
-[00:01:09] Norm: Um, but listeners of Tested may know Andy as the author of The Martian, of course, and also most recently Artemis.
+[00:01:09] Norm: But listeners of Tested may know Andy as the author of The Martian, of course, and also most recently Artemis.
 
 [00:01:17] Andy: Yes.
 
@@ -60,11 +60,11 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:02:11] Adam: When this is really interesting. When so I'm sure writers out there who want to get published would be loath to throw out 70,000 words, but that's kind of part of a process of being a writer, isn't it?
 
-[00:02:25] Andy: Yeah, it hurts. Yeah, it that was not fun, but I just had to. I didn't want to, and you know, there was a lot of pressure following up The Martian.
+[00:02:25] Andy: Yeah, it hurts. Yeah, it that was not fun, but I just had to. I didn't want to, and there was a lot of pressure following up The Martian.
 
 [00:02:25] Adam: Right.
 
-[00:02:25] Andy: It's like you know, you know, the expectations are really high, and I didn't want to release a stinker.
+[00:02:25] Andy: It's like the expectations are really high, and I didn't want to release a stinker.
 
 [00:02:41] Adam: Well, so was was Artemis bouncing around in the back of your head while you were writing it? Was it another idea?
 
@@ -78,17 +78,17 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:03:05] Andy: Yeah,
 
-[00:03:06] Adam: that's that's an intense moment to come to a realization. What does it feel like to make that decision?
+[00:03:06] Adam: that's an intense moment to come to a realization. What does it feel like to make that decision?
 
 [00:03:11] Andy: It feels bad, Adam.
 
 [00:03:12] Adam: I am not trying to get you to feel bad.
 
-[00:03:15] Andy: No, no, it was it was a slow dawning. It's basically the story was having problems. the The narrative wasn't moving fast enough. The characters are kind of fighting me. It didn't. It just wasn't working, and I kept trying different things to fix it,
+[00:03:15] Andy: No, no, it was a slow dawning. It's basically the story was having problems. the narrative wasn't moving fast enough. The characters are kind of fighting me. It didn't. It just wasn't working, and I kept trying different things to fix it,
 
 [00:03:15] Unknown speaker (Andy or Adam): Mm-hmm.
 
-[00:03:15] Andy: and they kept not working. You know, so it wasn't like all at once. I was like, " Doink!" Oh, this is bad.
+[00:03:15] Andy: and they kept not working. So it wasn't like all at once. I was like, " Doink!" Oh, this is bad.
 
 [00:03:15] Unknown speaker (Andy or Adam): Sure.
 
@@ -96,7 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:03:47] Norm: What was the straw that broke the camel's back?
 
-[00:03:50] Andy: Um, when I got to about the 70,000 word mark, I was like, " I am still in the first act."
+[00:03:50] Andy: When I got to about the 70,000 word mark, I was like, " I am still in the first act."
 
 [00:03:56] Norm: Oh,
 
@@ -120,23 +120,23 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:05:02] Norm: So, I mean, is it an idea that kicks off a book? What's your process?
 
-[00:05:06] Andy: Usually, an idea that kicks off a book. Yeah, it's like in the case of Artemis, for instance, it was like I started off saying like I want to I want to think about what would humanity's first city that's not on Earth be like. And the first thing I had to do was come up with an economic model that worked, and so on. With Jacques, what really kicked it off was I said like I want to come up with interstellar travel in a plausible way.
+[00:05:06] Andy: Usually, an idea that kicks off a book. Yeah, it's like in the case of Artemis, for instance, it was like I started off saying like I want to think about what would humanity's first city that's not on Earth be like. And the first thing I had to do was come up with an economic model that worked, and so on. With Jacques, what really kicked it off was I said like I want to come up with interstellar travel in a plausible way.
 
 [00:05:34] Norm: Right, right. Time dilation and everything.
 
-[00:05:36] Andy: Well, actually, I ended up I ended up saying like, well, I want faster than light travel, and that's because I was going the soft sci fi route at the time. I said I want faster than light travel, so I'll try to come up with something that breaks as few rules as possible. But anyway, that's not one of the elements that I would steal from Jacques. I have these other ideas for how aliens would work and stuff.
+[00:05:36] Andy: Well, actually, I ended up saying like, well, I want faster than light travel, and that's because I was going the soft sci fi route at the time. I said I want faster than light travel, so I'll try to come up with something that breaks as few rules as possible. But anyway, that's not one of the elements that I would steal from Jacques. I have these other ideas for how aliens would work and stuff.
 
-[00:05:58] Adam: That one of my favorite authors of all time is Raymond Chandler, who famously. Got his start writing for Black Mask and other pulp fiction magazines, and then his first books, actually, I think, yeah, his first few books are have big chunks of his early short stories lifted whole cloth and put in. And when I was first reading Chandler, I was I'm a completist, so I devoured everything. And now I actually can't read those original stories because I prefer the the final form of the novel.
+[00:05:58] Adam: That one of my favorite authors of all time is Raymond Chandler, who famously. Got his start writing for Black Mask and other pulp fiction magazines, and then his first books, actually, I think, yeah, his first few books are have big chunks of his early short stories lifted whole cloth and put in. And when I was first reading Chandler, I was I'm a completist, so I devoured everything. And now I actually can't read those original stories because I prefer the final form of the novel.
 
 [00:06:30] Andy: Well, sure, that makes sense because he had more time to revise it and blend them in and stuff.
 
-[00:06:35] Adam: Okay, so I want to talk about about science fiction that you imbibe, and I'm wondering if if you're noticing culturally some long tail effects from The Martian on science fiction in general.
+[00:06:35] Adam: Okay, so I want to talk about about science fiction that you imbibe, and I'm wondering if you're noticing culturally some long tail effects from The Martian on science fiction in general.
 
-[00:06:48] Andy: You know, honestly, not as much as I'd hoped, because I would really like there to be a bunch of hard sci fi, a bunch of scientifically accurate fiction out there that I could read, because that's my favorite kind.
+[00:06:48] Andy: Honestly, not as much as I'd hoped, because I would really like there to be a bunch of hard sci fi, a bunch of scientifically accurate fiction out there that I could read, because that's my favorite kind.
 
 [00:06:59] Adam: Well, we have the Expanse.
 
-[00:07:00] Andy: We have the Expanse, yes, and that's fantastic. Yes, the the Bifurcated being that is James S. A. Corey.
+[00:07:00] Andy: We have the Expanse, yes, and that's fantastic. Yes, the Bifurcated being that is James S. A. Corey.
 
 [00:07:09] Adam: I love that being.
 
@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:07:53] Unknown speaker (Norm or Adam): Yeah, I saw on Twitter. You like that movie?
 
-[00:07:53] Andy: Yeah, yeah. It's I'm very much like I like I loved the book. I love the movie. And so there's kind of an exception to every rule. I I hate dystopia. I loved Ready Player One. I hate novels with a strong political message, but I love The Handmaid's Tale. I hate, you know, so there's for anything I for any blanket statement I make, you can find an exception.
+[00:07:53] Andy: Yeah, yeah. It's I'm very much like I loved the book. I love the movie. And so there's kind of an exception to every rule. I hate dystopia. I loved Ready Player One. I hate novels with a strong political message, but I love The Handmaid's Tale. I hate so there's for anything I for any blanket statement I make, you can find an exception.
 
 [00:08:12] Adam: I think that's true of every one of us,
 
@@ -178,7 +178,7 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:08:21] Norm: Yeah, with the research in mind, like wanting to do the research.
 
-[00:08:36] Andy: Absolutely. Oh, I love the the most fun for me in writing Artemis was designing the city. Say like, okay, I need this has to be like a city. It can't. It's not full of astronauts. It's full of ordinary people. They have to be kept safe from the environment outside. It like the city actually in a way has to protect them from themselves. That's why the hulls are six centimeters of aluminum followed by a meter of crushed lunar rock followed by another six centimeters of aluminum. So it's like an idiot with a rivet gun on the inside. Won't accidentally kill everybody.
+[00:08:36] Andy: Absolutely. Oh, I love the most fun for me in writing Artemis was designing the city. Say like, okay, I need this has to be like a city. It can't. It's not full of astronauts. It's full of ordinary people. They have to be kept safe from the environment outside. It like the city actually in a way has to protect them from themselves. That's why the hulls are six centimeters of aluminum followed by a meter of crushed lunar rock followed by another six centimeters of aluminum. So it's like an idiot with a rivet gun on the inside. Won't accidentally kill everybody.
 
 [00:09:07] Adam: Well, I also I love how deep you got into the scientific weeds, which I really appreciate. Talking about the kilopascals of the suits and their pressures, of course, the places they can get damaged.
 
@@ -188,7 +188,7 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:09:19] Andy: You're a suit nerd.
 
-[00:09:20] Adam: Um, and you you actually had asked me at one point about simulating moon's gravity.
+[00:09:20] Adam: And you actually had asked me at one point about simulating moon's gravity.
 
 [00:09:25] Andy: Yes, because of the MythBusters episode where you did that very thing.
 
@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:09:39] Adam: Normal planes. So,
 
-[00:09:41] Andy: but um, in that episode, you did the um, you did you had these wire work guys who put you in a harness that kind of, I mean, it wasn't perfect, but it was like pretty good at that. And what I was trying to figure out is how do you how how would you run in zero g because this is a situation that hasn't come up in the real world before where people are in a pressurized environment. And moving around, so you don't have an EVA suit on or anything like that, but it's still one six G. I'm like, what kind of traction would you get with shoes? And I want to run because there's some action elements in the story. How do I run? Would I just like Fred Flintstone? My not not able to get traction.
+[00:09:41] Andy: but in that episode, you did the you did you had these wire work guys who put you in a harness that kind of, I mean, it wasn't perfect, but it was like pretty good at that. And what I was trying to figure out is how do you how how would you run in zero g because this is a situation that hasn't come up in the real world before where people are in a pressurized environment. And moving around, so you don't have an EVA suit on or anything like that, but it's still one six G. I'm like, what kind of traction would you get with shoes? And I want to run because there's some action elements in the story. How do I run? Would I just like Fred Flintstone? My not not able to get traction.
 
 [00:10:19] Adam: You get bigger strides.
 
@@ -220,7 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:10:26] Unknown speaker (Andy or Adam): A lot.
 
-[00:10:27] Andy: Goes around goes around corners by going kind of running up the walls and stuff. When she's in a hurry.
+[00:10:27] Andy: Goes around corners by going kind of running up the walls and stuff. When she's in a hurry.
 
 [00:10:31] Adam: Like Trinity.
 
@@ -238,19 +238,19 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:10:43] Andy: Yes.
 
-[00:10:43] Norm: Right, like Elon Musk. Right. So, like, what are some of the ideas other people have that you've learned about space cities that may differ or or be well you had in mind too?
+[00:10:43] Norm: Right, like Elon Musk. Right. So what are some of the ideas other people have that you've learned about space cities that may differ or be well you had in mind too?
 
 [00:10:55] Andy: Of course, anything that isn't my idea is wrong. Right. No, lots of ideas for space cities. I was just on a panel here earlier today where one of the panelists was talking about. You might not want to build space cities out of local stuff. You might want to grow them, and so the idea is you take like this thin plastic bubble, and then it's inflatable or whatever, and you let first a layer of fungus grow, then you let thicker things grow, and so on, and in the end you have this like spherical, like woody substance that provides the structure you need.
 
 [00:10:55] Adam: Wow.
 
-[00:10:55] Andy: And then then you've got to still maintain the pressure, but and it's just this really interesting concept she had.
+[00:10:55] Andy: And then you've got to still maintain the pressure, but and it's just this really interesting concept she had.
 
 [00:11:33] Adam: This is like the super extreme version of those tree bridges that you can see that people have spent decades cultivating.
 
 [00:11:40] Andy: Yes.
 
-[00:11:40] Adam: Yes. I'm a I'm a big fan, as you know, of the two of the lava tubes on Mars.
+[00:11:40] Adam: Yes. I'm a big fan, as you know, of the two of the lava tubes on Mars.
 
 [00:11:44] Andy: Yes.
 
@@ -260,7 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:11:48] Adam: what?
 
-[00:11:49] Norm: You got you got your non-expired Diet Coke.
+[00:11:49] Norm: You got your non-expired Diet Coke.
 
 [00:11:51] Unknown speaker (Andy or Adam): Oh yay!
 
@@ -300,11 +300,11 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:12:48] Adam: Well, wait, you could explain why you need a couple of meters of dirt on top of your moon city.
 
-[00:12:52] Andy: Yes. So Artemis has a full meter of crushed lunar regolith. It serves like kind of a triple purpose. First off, it's like armor, so it Protects against like fast moving objects like idiots with rivet guns inside your city or micro meteorites coming from outside your city, and it maintains the pressure even though you broke one of the hulls. Number two, it provides thermal insulation. The moon has wild, well, and Mars as well has wild temperature variations from day and night, and they're very much not human habitable temperatures. And finally, and probably most importantly, it provides radiation protection. Anywhere outside of Earth's magnetic field has a whole bunch of like fast moving. They're called GCRs, which means galactic cosmic rays, but that's a bad name because they're actually very fast moving atoms. But they're they'll smack into you and give you you know a lethal dose of radiation, and you need a lot of just mass between you and it. Lava tubes are cool because you're going into a cave underground, and so you're completely surrounded by radiation protection material, and also that area would be Would have much less variance in temperature. Me though, a lot of people are big fans of lava tubes, and not just not just enthusiasts, but actual like real hardcore scientists who study this and do this for a living. I'm just an enthusiast, but my opinion is that you can basically simulate lava tubes by piling a bunch of dirt on top of your city, and then you're not limited to building in lava tubes. Yeah. Then you can have your city be anywhere. And in the case of Artemis, Artemis's main source of income is that it's a tourist destination for people who want to see the Apollo 11 landing site. So it has to be near the Apollo 11 landing site, and
+[00:12:52] Andy: Yes. So Artemis has a full meter of crushed lunar regolith. It serves like kind of a triple purpose. First off, it's like armor, so it Protects against like fast moving objects like idiots with rivet guns inside your city or micro meteorites coming from outside your city, and it maintains the pressure even though you broke one of the hulls. Number two, it provides thermal insulation. The moon has wild, well, and Mars as well has wild temperature variations from day and night, and they're very much not human habitable temperatures. And finally, and probably most importantly, it provides radiation protection. Anywhere outside of Earth's magnetic field has a whole bunch of like fast moving. They're called GCRs, which means galactic cosmic rays, but that's a bad name because they're actually very fast moving atoms. But they're they'll smack into you and give you know a lethal dose of radiation, and you need a lot of just mass between you and it. Lava tubes are cool because you're going into a cave underground, and so you're completely surrounded by radiation protection material, and also that area would be Would have much less variance in temperature. Me though, a lot of people are big fans of lava tubes, and not just enthusiasts, but actual like real hardcore scientists who study this and do this for a living. I'm just an enthusiast, but my opinion is that you can basically simulate lava tubes by piling a bunch of dirt on top of your city, and then you're not limited to building in lava tubes. Yeah. Then you can have your city be anywhere. And in the case of Artemis, Artemis's main source of income is that it's a tourist destination for people who want to see the Apollo 11 landing site. So it has to be near the Apollo 11 landing site, and
 
 [00:14:35] Adam: which means you don't have the choice that it's got lava tubes.
 
-[00:14:38] Andy: Yeah, you don't have lava tubes, but yes, the moon does have skylights, as they call them. That's how that's how we identify lava tubes. Is you see what appears to be a crater, but underneath you see the shadow of the crater is shifted, which means that it's a crater that leads into a larger area, and then the sunlight's going down and hitting the bottom. And it's really cool.
+[00:14:38] Andy: Yeah, you don't have lava tubes, but yes, the moon does have skylights, as they call them. That's how we identify lava tubes. Is you see what appears to be a crater, but underneath you see the shadow of the crater is shifted, which means that it's a crater that leads into a larger area, and then the sunlight's going down and hitting the bottom. And it's really cool.
 
 [00:14:59] Adam: I want to tell you after having spent many dozens of hours in Andy's company that hanging out with him is precisely like this.
 
@@ -334,15 +334,15 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:16:17] Norm: right, right. They had only had the two and a half hours or two hours.
 
-[00:16:19] Andy: Yeah. I can tell you that as the novelist, your your main job on a film is to cash the check. I mean, it's you get it published. You have no say.
+[00:16:19] Andy: Yeah. I can tell you that as the novelist, your main job on a film is to cash the check. I mean, it's you get it published. You have no say.
 
 [00:16:27] Adam: Yeah,
 
 [00:16:28] Unknown speaker (Andy or Norm or Adam): yeah.
 
-[00:16:28] Norm: Well, with something like the Expanse, you know, it's television show; it's longer form.
+[00:16:28] Norm: Well, with something like the Expanse it's television show; it's longer form.
 
-[00:16:32] Andy: Yeah, no. So those the the avatars of James Corey are the showrunners.
+[00:16:32] Andy: Yeah, no. So those the avatars of James Corey are the showrunners.
 
 [00:16:39] Adam: They are not officially the showrunners.
 
@@ -368,9 +368,9 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:17:18] Norm: And even though it's not picked up for show for the preparation for the pilot, it's not just filming the hour-long pilot. You had to do all the well, plot and everything.
 
-[00:17:26] Andy: Yeah, we we worked out the whole season arc for season one and everything like that, and we made the first episode. And the sets were beautiful, and the production was great.
+[00:17:26] Andy: Yeah, we worked out the whole season arc for season one and everything like that, and we made the first episode. And the sets were beautiful, and the production was great.
 
-[00:17:34] Adam: Here's the question: You you were saying that you have a more difficult time because knowing how the industry works, both in fiction and in making movies from fiction. I'm curious, though. I'm always surprised by what are my what I have lots of suspension of disbelief deal breakers,
+[00:17:34] Adam: Here's the question: You were saying that you have a more difficult time because knowing how the industry works, both in fiction and in making movies from fiction. I'm curious, though. I'm always surprised by what are my what I have lots of suspension of disbelief deal breakers,
 
 [00:17:34] Andy: Mm-hmm.
 
@@ -420,7 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:19:50] Norm: impulse is I believe quarter c and it is not warping space so the effects of time dilation happens and that's why full impulse is Starfleet regulated at quarter c to limit time dilation So that you don't have to readjust your clocks.
 
-[00:20:04] Andy: Nice. So that you don't have to readjust your clocks. That's the whole reason. I always love the fact that the starship is like guided by Sulu reaching over to that analog little pointy thing between the navigation and weapons stations, and that's that's the course heading. And I'm like, that is awesome. I want a spaceship with like an analog.
+[00:20:04] Andy: Nice. So that you don't have to readjust your clocks. That's the whole reason. I always love the fact that the starship is like guided by Sulu reaching over to that analog little pointy thing between the navigation and weapons stations, and that's the course heading. And I'm like, that is awesome. I want a spaceship with like an analog.
 
 [00:20:25] Adam: Totally. I want to. I want to. When I'm giving full power, I want to have to push on something really hard.
 
@@ -446,11 +446,11 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:21:32] Adam: How does that work as an economy?
 
-[00:21:33] Andy: As an economy, yeah, it's like wait a minute, you're mining helium three from the moon and you have like a whole bunch of people doing it. That why why don't you have robots doing it? Right. Like why you know why or the reasons for colonizing? It's like oh we colonized because Earth was overpopulated. I'm like really did you did you try colonizing the ocean or Antarctica or anywhere else? It's any literally any location on Earth is easier to get to than any location on the moon, right?
+[00:21:33] Andy: As an economy, yeah, it's like wait a minute, you're mining helium three from the moon and you have like a whole bunch of people doing it. That why why don't you have robots doing it? Right. Like why you know why or the reasons for colonizing? It's like oh we colonized because Earth was overpopulated. I'm like really did you try colonizing the ocean or Antarctica or anywhere else? It's any literally any location on Earth is easier to get to than any location on the moon, right?
 
 [00:21:58] Adam: Right.
 
-[00:21:58] Andy: It's like oh we we we move to the moon to escape persecution. I'm like if you can afford to go to the moon, you're not the persecuted.
+[00:21:58] Andy: It's like oh we move to the moon to escape persecution. I'm like if you can afford to go to the moon, you're not the persecuted.
 
 [00:21:33] Unknown speaker (Adam or Andy): Okay. True.
 
@@ -462,7 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:22:15] Unknown speaker (Adam or Andy): That would be lovely.
 
-[00:22:15] Andy: Yeah, but so that those things are important to me, which is why, by the way, I love the Mad Max universe, like the the the wasteland, which is where it all takes place. If you look at the movies, the wasteland has an internally consistent economy that makes sense.
+[00:22:15] Andy: Yeah, but so that those things are important to me, which is why, by the way, I love the Mad Max universe, like the wasteland, which is where it all takes place. If you look at the movies, the wasteland has an internally consistent economy that makes sense.
 
 [00:22:33] Norm: With gas and bullets.
 
@@ -494,7 +494,7 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:23:23] Andy: I never know the dang schedules. I'm well. The solo movie coming out. What else we got Star Wars wise coming up? Just Ep nine after that, or what?
 
-[00:23:31] Norm: I think it's in a little a little while out, a little further out. Yeah, so
+[00:23:31] Norm: I think it's in a little while out, a little further out. Yeah, so
 
 [00:23:35] Adam: we have the Avengers coming up.
 
@@ -528,7 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:24:09] Norm: And I didn't have to put on the costume this morning.
 
-[00:24:11] Adam: Really upsetting. Yeah, I just think like it's it's like you're looking through the back window of a
+[00:24:11] Adam: Really upsetting. Yeah, I just think like it's like you're looking through the back window of a
 
 [00:24:16] Unknown speaker (Norm or Adam): VW bus or
 
@@ -554,7 +554,7 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:24:31] Norm: well, we'll find you on tested.
 
-[00:24:35] Andy: Yeah, we'll be we'll be eating unicorn at the famous people's party that no one knows about. Right.
+[00:24:35] Andy: Yeah, we'll be eating unicorn at the famous people's party that no one knows about. Right.
 
 [00:24:41] Adam: That is the greatest way to wrap a podcast I've ever heard.
 

@@ -16,7 +16,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:00:33] Will: You've got some balls in the air.
 
-[00:00:34] Adam: I have many, many, many, many balls in the air. We are back in production on MythBusters, and it's going great. Production's going great. We have some fantastic stories we're filming, and today, you know, we're doing podcasting in the shop, but we're doing a couple of other sequences and segments, and I've got like three other things on the fire.
+[00:00:34] Adam: I have many, many, many, many balls in the air. We are back in production on MythBusters, and it's going great. Production's going great. We have some fantastic stories we're filming, and today we're doing podcasting in the shop, but we're doing a couple of other sequences and segments, and I've got like three other things on the fire.
 
 [00:00:53] Will: The balls are in the air.
 
@@ -26,13 +26,13 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:01:02] Adam: Yeah.
 
-[00:01:02] Will: in a in a i3 a BMW i3 their electric car this weekend, and it made me like it drives differently than most gas powered cars because when you let off the gas, even the slightest bit, it starts regenerative charging and it just slams to a stop.
+[00:01:02] Will: in a i3 a BMW i3 their electric car this weekend, and it made me like it drives differently than most gas powered cars because when you let off the gas, even the slightest bit, it starts regenerative charging and it just slams to a stop.
 
 [00:01:16] Adam: Oh, it doesn't roll.
 
-[00:01:17] Will: No, there's no coast. And I had to think about like how I learned to drive again at 40 years of age, and I don't know how you teach. Like my wife and I were talking about it as we were driving around because we have a two year old. It's a it's a distant future for us, but you are teaching your kids how to drive now, and I don't know like a how you do that in a big ass city like San Francisco, or b like even what the rules are now.
+[00:01:17] Will: No, there's no coast. And I had to think about like how I learned to drive again at 40 years of age, and I don't know how you teach. Like my wife and I were talking about it as we were driving around because we have a two year old. It's a distant future for us, but you are teaching your kids how to drive now, and I don't know like a how you do that in a big ass city like San Francisco, or b like even what the rules are now.
 
-[00:01:41] Adam: Well, it's thing two is the first one to have completed his online driver's test and had his first official lesson, so i I am now allowed to put him behind the wheel of my car.
+[00:01:41] Adam: Well, it's thing two is the first one to have completed his online driver's test and had his first official lesson, so i am now allowed to put him behind the wheel of my car.
 
 [00:01:52] Norm: That's the most valuable slip of paper for 15 year olds,
 
@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:01:54] Norm: the driver's permit.
 
-[00:01:56] Will: So you so you have to. They have to take an online test, which we had to do for a learner's permit. Which
+[00:01:56] Will: So you have to. They have to take an online test, which we had to do for a learner's permit. Which
 
 [00:02:01] Adam: the online test takes the online course takes something like 20 hours.
 
@@ -70,7 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:02:43] Will: Well, and they're ambiguous too.
 
-[00:02:44] Adam: But it's not. yeah, it's weirdly ambiguous. At any rate, he finally passed it on the second run. And he Thing Two is is Quick with the physical, they're both actually very physically adept. And for the last few years, I think I've said this on the podcast before. I've taken them to the Infineon Raceway to do go kart racing on their birthdays. And last time I went, I had trouble keeping up with Thing Two. And you know, it doesn't hurt that he's got 50 pounds. He's 50 pounds lighter than me,
+[00:02:44] Adam: But it's not. yeah, it's weirdly ambiguous. At any rate, he finally passed it on the second run. And he Thing Two is is Quick with the physical, they're both actually very physically adept. And for the last few years, I think I've said this on the podcast before. I've taken them to the Infineon Raceway to do go kart racing on their birthdays. And last time I went, I had trouble keeping up with Thing Two. And it doesn't hurt that he's got 50 pounds. He's 50 pounds lighter than me,
 
 [00:03:16] Will: and a complete lack of fear.
 
@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:04:05] Will: Well, that's I learned to drive manual transmission in a Land Cruiser, and then my first car that I bought was a Ford Ranger, 1985 Ford Ranger, and it was a five speed manual, and it was real bouncy.
 
-[00:04:17] Adam: I I I kind of love the fact that the boys will not have a car while they're living in San Francisco. It's just not feasible.
+[00:04:17] Adam: I kind of love the fact that the boys will not have a car while they're living in San Francisco. It's just not feasible.
 
 [00:04:23] Will: You don't need one.
 
@@ -126,7 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:04:53] Adam: And the best motorcycle rider I ever knew. Was t-boned on 19th Avenue and killed a few years back. A good friend of Grant Imahara and Tory Belleci and mine.
 
-[00:05:03] Will: Well, I mean, even our friend Brian, he might have had the accident before you knew him, but he was a he was a devout motorcycle rider for the first two or three years that I knew him, and then he was just driving along and didn't even do anything wrong. Somebody just came over on him and pinned his leg between the car and the motorcycle and broke it in like four places. Right. He was laid up for six months.
+[00:05:03] Will: Well, I mean, even our friend Brian, he might have had the accident before you knew him, but he was a devout motorcycle rider for the first two or three years that I knew him, and then he was just driving along and didn't even do anything wrong. Somebody just came over on him and pinned his leg between the car and the motorcycle and broke it in like four places. Right. He was laid up for six months.
 
 [00:05:21] Adam: Yeah.
 
@@ -138,15 +138,15 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:05:34] Adam: Yes, it does.
 
-[00:05:34] Norm: Okay. Oh, so what's interesting is all three of us drive, obviously, and we, you know, are comfortable driving, but it's tough to put yourself in the mindset of someone who's never really driven before. How do they think? Do you remember how did you how did you think a car worked?
+[00:05:34] Norm: Okay. Oh, so what's interesting is all three of us drive, obviously, and we are comfortable driving, but it's tough to put yourself in the mindset of someone who's never really driven before. How do they think? Do you remember how did you think a car worked?
 
 [00:05:50] Adam: Oh,
 
 [00:05:51] Norm: Cause.
 
-[00:05:51] Adam: you know, it's funny. I kind of knew how you shifted up through the gears. Actually, Thing Two has sat in the passenger seat and shifted for me. And I think the Fiat is a great car for him to learn on because it's a pretty tight little clutch window, which is great to learn on a tighter rather than looser clutch.
+[00:05:51] Adam: It's funny. I kind of knew how you shifted up through the gears. Actually, Thing Two has sat in the passenger seat and shifted for me. And I think the Fiat is a great car for him to learn on because it's a pretty tight little clutch window, which is great to learn on a tighter rather than looser clutch.
 
-[00:06:12] Will: Yeah, I I learned on a pickup truck, and well, actually, I learned on a tractor, which is the loosest of clutch windows. Yeah, and then you know, from there, everything feels like a sports car.
+[00:06:12] Will: Yeah, I I learned on a pickup truck, and well, actually, I learned on a tractor, which is the loosest of clutch windows. Yeah, and then from there, everything feels like a sports car.
 
 [00:06:20] Adam: You can mail a letter to the clutch, and the clutch will respond.
 
@@ -162,13 +162,13 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:06:39] Adam: I think the shift is going to be fairly simple. I mean, there'll be natives to it, right? Like where we aren't
 
-[00:06:45] Norm: Exactly. That's why it's it's uncomfortable.
+[00:06:45] Norm: Exactly. That's why it's uncomfortable.
 
 [00:06:47] Will: I mean, if you think about my daughter, who's two now, in 16 years, 14 years, it's really likely that there will be a significant number of cars. cars on the road that just drive themselves most of the time.
 
 [00:06:57] Adam: Oh yeah, and you can sit in the back and
 
-[00:06:59] Will: right. Wow. And she'll look at she'll look at me and be like, " Oh, you
+[00:06:59] Will: right. Wow. And she'll look at me and be like, " Oh, you
 
 [00:07:01] Norm: this is yeah, I've heard this theory."
 
@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:08:19] Adam: At any rate, where was I?
 
-[00:08:22] Will: You're saying if it saves, if it saves a certain number of lives.
+[00:08:22] Will: You're saying if it saves a certain number of lives.
 
 [00:08:24] Adam: Right. I think that Norm. I think if it all of a sudden starts to save lives and be incredibly convenient, and also perhaps instead.
 
@@ -242,11 +242,11 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:09:03] Adam: right?
 
-[00:09:03] Norm: Where it's always picking someone up, and and the problems solve themselves.
+[00:09:03] Norm: Where it's always picking someone up, and the problems solve themselves.
 
 [00:09:08] Will: Think think about the amount of resources tied up in cars that stay parked 90% of the time.
 
-[00:09:12] Norm: Yes, absolutely. I mean, it's partially why systems like Lyft and Uber work, but I think it's it's it's human nature.
+[00:09:12] Norm: Yes, absolutely. I mean, it's partially why systems like Lyft and Uber work, but I think it's human nature.
 
 [00:09:20] Adam: It's human nature right now.
 
@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:09:23] Norm: Yeah, and a very
 
-[00:09:24] Adam: American. I think that's a mutable. I think it's a it's a plastic reality.
+[00:09:24] Adam: American. I think that's a mutable. I think it's a plastic reality.
 
 [00:09:28] Will: And I mean, if you think about it, like so, I'm looking at buying an electric car. It has a 75 mile range.
 
@@ -266,17 +266,17 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:09:47] Will: So I don't know.
 
-[00:09:48] Adam: my my my daily drive is much more than that.
+[00:09:48] Adam: my daily drive is much more than that.
 
 [00:09:49] Will: I mean, you're all over the place.
 
-[00:09:49] Adam: We were just filming in Altamont this week, so it’s it’s like 48 miles or something out there. 53 miles.
+[00:09:49] Adam: We were just filming in Altamont this week, so it’s like 48 miles or something out there. 53 miles.
 
 [00:09:57] Will: You have a different. You have a little bit of an unusual commute situation.
 
 [00:09:59] Adam: I do. It changes all the time.
 
-[00:10:01] Norm: Did did your son go through driver's school and have to watch the the infamous video?
+[00:10:01] Norm: Did did your son go through driver's school and have to watch the infamous video?
 
 [00:10:07] Will: Oh, blood on the highway.
 
@@ -300,23 +300,23 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:10:37] Adam: Yeah.
 
-[00:10:37] Will: The thing for me about learning to drive, and and like many people, you know, the statistics say if you're going to have an accident in a motor vehicle, you probably that you cause it usually happens within the first two years after you started driving.
+[00:10:37] Will: The thing for me about learning to drive, and like many people, you know, the statistics say if you're going to have an accident in a motor vehicle, you probably that you cause it usually happens within the first two years after you started driving.
 
 [00:10:47] Adam: Oh, really?
 
-[00:10:47] Will: Um, yeah, it's why insurance premiums for 16 and 17 year olds are so spectacularly high. Um, so I had an accident when I was 17 years old, and literally, like, it was because I wasn't, I hadn't internalized the the mechanics of other cars on the road and me on the road, and I was, I just made a bad judgment. On a car that was coming out in front of me, and I crossed in front of him too close, and he and he was probably speeding,
+[00:10:47] Will: Um, yeah, it's why insurance premiums for 16 and 17 year olds are so spectacularly high. So I had an accident when I was 17 years old, and literally it was because I wasn't, I hadn't internalized the mechanics of other cars on the road and me on the road, and I was, I just made a bad judgment. On a car that was coming out in front of me, and I crossed in front of him too close, and he was probably speeding,
 
 [00:11:14] Adam: right?
 
-[00:11:14] Will: But but still, still my fault, so and my mistake.
+[00:11:14] Will: But still, still my fault, so and my mistake.
 
 [00:11:17] Adam: One of the things I've been telling them from the get go, the moment like it was coming, it was visible in the distance, the idea that they'd be driving. I've been saying, be predictable. It is the single safest thing you can do is to be predictable to the people around you, and to make sure that your behavior seems is predictable. I remember when I was first driving, that changing lanes was was completely terrifying.
 
 [00:11:44] Norm: Yeah, yes,
 
-[00:11:45] Adam: and passing, I passed. You know, we had lots of these little two-lane roads.
+[00:11:45] Adam: and passing, I passed. We had lots of these little two-lane roads.
 
-[00:11:49] Will: Well, you were in a rural area, so you you weren’t on the freeway a lot, right?
+[00:11:49] Will: Well, you were in a rural area, so you weren’t on the freeway a lot, right?
 
 [00:11:52] Adam: There was a highway. We had Route 9 in Westchester County, which is like two lanes and so crappy. Westchester County has signs all over were saying New York State is responsible for this highway.
 
@@ -330,7 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:12:17] Will: It was outside of the range.
 
-[00:12:18] Adam: And and and thing two was telling me in the driver's lesson he had on Saturday, they took him right out to Cesar Chavez, and he's like shifting lanes out there.
+[00:12:18] Adam: And thing two was telling me in the driver's lesson he had on Saturday, they took him right out to Cesar Chavez, and he's like shifting lanes out there.
 
 [00:12:26] Will: Wow,
 
@@ -348,7 +348,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:12:43] Adam: Well, and then you know they watch me making lefts and right turns off of my corner here in the Mission, which is like a freaking Frogger game.
 
-[00:12:51] Will: Well, so so part of it though has to be teaching them, like ingraining habits. Like one of the things that I had to learn when I moved to a city where there's a lot of pedestrian traffic that I'd never encountered driving in the suburbs and even like mid-sized American countries where people, uh, state cities where people don't walk.
+[00:12:51] Will: Well, so so part of it though has to be teaching them, like ingraining habits. Like one of the things that I had to learn when I moved to a city where there's a lot of pedestrian traffic that I'd never encountered driving in the suburbs and even like mid-sized American countries where people state cities where people don't walk.
 
 [00:13:05] Adam: Right.
 
@@ -358,7 +358,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:13:18] Adam: And half of them are jogging and will just run out into the street and expect you to stop, and you have to.
 
-[00:13:24] Will: Well, and the the place that's especially dangerous for me because of the glasses and is the post, the blind spot by the post on the on the by the pillar on the left side of the car.
+[00:13:24] Will: Well, and the place that's especially dangerous for me because of the glasses and is the post, the blind spot by the post on the by the pillar on the left side of the car.
 
 [00:13:32] Adam: So this is one thing I've also been telling them. My first big accident was I checked behind me and turned around and slammed into the car in front of me.
 
@@ -372,13 +372,13 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:14:05] Adam: right?
 
-[00:14:05] Norm: And so situational awareness, like the glance, like you you don't. Glance and linger.
+[00:14:05] Norm: And so situational awareness, like the glance, like you don't. Glance and linger.
 
 [00:14:11] Adam: Yeah,
 
-[00:14:11] Norm: you you glance quickly and then glance again.
+[00:14:11] Norm: you glance quickly and then glance again.
 
-[00:14:14] Adam: Nice with the situational awareness. We got corrected on the on on on on the site in the comments for me saying proprioception. That they were like proprioception is your sense of your own body in space. Situational awareness is your sense of other bodies in space.
+[00:14:14] Adam: Nice with the situational awareness. We got corrected on the site in the comments for me saying proprioception. That they were like proprioception is your sense of your own body in space. Situational awareness is your sense of other bodies in space.
 
 [00:14:26] Will: Well, so so I mean that's one of those things that amazes me about the capacity of the human brain, right? It's like you've done the thing where you're on the road trip, and after you get going for a while, you just know okay, the red Camry's behind me, the blue pickup truck's in front of me. There's a guy coming up on the left, and there's an 18 wheeler in the right lane, and you don't even have to think after you've been driving for a while.
 
@@ -404,15 +404,15 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:15:32] Adam: I know, and I am thinking about that seriously. Like I am about to be that voice. This is my first driving lesson with him.
 
-[00:15:36] Norm: That's that's crazy.
+[00:15:36] Norm: That's crazy.
 
 [00:15:37] Adam: So the other thing I remember him saying was drives drive as if everyone on the road wants to destroy you.
 
-[00:15:43] Will: Huh? That's a that's a safe
+[00:15:43] Will: Huh? That's a safe
 
 [00:15:45] Adam: Be super super super proactively defensive.
 
-[00:15:48] Will: The thing the thing that my dad said was and my mom too actually because they split duties because they're both masochist I guess. But but they basically said, look, assume you should always be thinking about how to get out of a situation caused by everyone that you can see at any moment, which sounds kind of intense. But once you get used to thinking about okay, if that guy pulls out, I'll swerve to the right, then it just becomes second nature, and you don't even like it doesn't even occur to me anymore to think okay, that guy could pull out in front of me. I need am I going to be able to brake in time to not kill anybody? Am I going to be able to brake in time to like the other thing is is constantly doing the other thing my mom always did was the constant practices. So she would be driving. She'd say, " What would you do if that guy swerved into your lane to avoid a cat? "
+[00:15:48] Will: The thing that my dad said was and my mom too actually because they split duties because they're both masochist I guess. But they basically said, look, assume you should always be thinking about how to get out of a situation caused by everyone that you can see at any moment, which sounds kind of intense. But once you get used to thinking about okay, if that guy pulls out, I'll swerve to the right, then it just becomes second nature, and you don't even like it doesn't even occur to me anymore to think okay, that guy could pull out in front of me. I need am I going to be able to brake in time to not kill anybody? Am I going to be able to brake in time to like the other thing is is constantly doing the other thing my mom always did was the constant practices. So she would be driving. She'd say, " What would you do if that guy swerved into your lane to avoid a cat? "
 
 [00:16:29] Adam: Yeah,
 
@@ -420,13 +420,13 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:16:32] Adam: Yeah,
 
-[00:16:32] Will: like how how do you do? It's the it's the I, Robot problem, right? Do you swerve to avoid the car and maybe hit another car and have a less bad wreck than you would if you had a head-on collision, or do you slam on the brakes and hope that the head-on collision isn't as bad as you know? And and how do you decide all that stuff in a the fractions of a second that you have? Um, her theory was always that you have to have that, like you have to be constantly thinking about that stuff,
+[00:16:32] Will: like how how do you do? It's the I, Robot problem, right? Do you swerve to avoid the car and maybe hit another car and have a less bad wreck than you would if you had a head-on collision, or do you slam on the brakes and hope that the head-on collision isn't as bad as you know? And how do you decide all that stuff in a the fractions of a second that you have? Her theory was always that you have to have that, like you have to be constantly thinking about that stuff,
 
 [00:16:56] Adam: yeah,
 
 [00:16:56] Will: or else.
 
-[00:16:57] Adam: You know, it's like I once got into a terrible accident because I swerved from one lane into the other to avoid something, and I slammed into someone. And now I'm much less likely to swerve.
+[00:16:57] Adam: It's like I once got into a terrible accident because I swerved from one lane into the other to avoid something, and I slammed into someone. And now I'm much less likely to swerve.
 
 [00:17:07] Will: Yeah,
 
@@ -434,11 +434,11 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:17:09] Will: Yeah. I'd much rather hit a road alligator, one of those big retread tires that's in the freeway, and wreck the bottom of my car, maybe get a little bit of air, than than swerve into and get run over by an 18 wheeler.
 
-[00:17:20] Norm: Do you feel like that? Obviously, like the the things that stick with you are when you when you've made the mistakes, you know. Whether it's
+[00:17:20] Norm: Do you feel like that? Obviously, like the things that stick with you are when you when you've made the mistakes, you know. Whether it's
 
 [00:17:27] Adam: well, and that's the trick is to get.
 
-[00:17:28] Norm: And so, do you almost hope that you know they they get the fear, they get into you know, not they get hurt, but they they you want to have a way for them to get that lesson ingrained in them.
+[00:17:28] Norm: And so, do you almost hope that you know they get the fear, they get into not they get hurt, but they you want to have a way for them to get that lesson ingrained in them.
 
 [00:17:39] Adam: You totally do, and that is a that's a tricky one. Look, I was I have to admit I was not a great driver before I started doing MythBusters, and all the training we've have we've had over the years has turned me into a very competent sort of almost stunt driver. But I was not awesome before that. I didn't always. I wasn't able to split my attention very well. I was one of those people who, if I looked to the right, I started steering over to the right.
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:18:06] Will: You were a New York driver. We had a word for you, people.
 
-[00:18:10] Adam: And. I, You know, I did have, I have had my share of all minor accidents, but I've had four or five accidents in which I’ve. I've sideswiped, been sideswiped, t-boned, been t-boned, rear-ended, and been rear-ended under all different circumstances. I'd say half of the accidents I've been in were absolutely my fault, and those have made me better driver.
+[00:18:10] Adam: And. I I did have, I have had my share of all minor accidents, but I've had four or five accidents in which I’ve. I've sideswiped, been sideswiped, t-boned, been t-boned, rear-ended, and been rear-ended under all different circumstances. I'd say half of the accidents I've been in were absolutely my fault, and those have made me better driver.
 
 [00:18:32] Will: You don't make
 
@@ -464,7 +464,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:18:37] Norm: it's going to happen.
 
-[00:18:38] Adam: One of the one of the one of the worst accident I've been in. No one was hurt, but I did try and make a left from the second lane to the left Oh. on Franklin, heading north, and I took out the the traffic light in front of Jardinière.
+[00:18:38] Adam: One of the worst accident I've been in. No one was hurt, but I did try and make a left from the second lane to the left Oh. on Franklin, heading north, and I took out the traffic light in front of Jardinière.
 
 [00:18:55] Will: Oh my goodness!
 
@@ -474,7 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:18:57] Adam: 2004, and I recently mentioned it to Traci, and she's like, " Oh my god, that was you! I totally remember that happening."
 
-[00:19:06] Will: The the the learning the learning from the mistakes I think the thing that my parents did that I felt was important was that they tried my dad had a was a used, was a car dealer when he finished high school and didn't want to go to college for a few years and then ended up going to college but as a result he had loaner cars from the dealership all the time and it was the like late '50s early '60s so they were you know it was basically madmen for car dealers and they were crashing cars left and right all the time and as a result of that he shared a lot of valuable stories and and things that I learned to avoid what was it like for you learning learning to drive in San Francisco Norm
+[00:19:06] Will: The learning from the mistakes I think the thing that my parents did that I felt was important was that they tried my dad had a was a used, was a car dealer when he finished high school and didn't want to go to college for a few years and then ended up going to college but as a result he had loaner cars from the dealership all the time and it was the like late '50s early '60s so they were you know it was basically madmen for car dealers and they were crashing cars left and right all the time and as a result of that he shared a lot of valuable stories and things that I learned to avoid what was it like for you learning learning to drive in San Francisco Norm
 
 [00:19:43] Norm: it was very simple I drove an Oldsmobile. I drove an Oldsmobile automatic all the way
 
@@ -516,7 +516,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:20:13] Adam: You did?
 
-[00:20:14] Norm: yeah. I did. I had one strike that was not like a, you know, touching the curb with the parking, which I think is
+[00:20:14] Norm: yeah. I did. I had one strike that was not like a touching the curb with the parking, which I think is
 
 [00:20:20] Will: really. They give you a strike if you touch the curb when you park.
 
@@ -534,7 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:20:32] Will: that's crazy town.
 
-[00:20:32] Adam: I failed my first driver's test. I got to, I was, I was, I took the first driver's test in a standard. I was on a hill, and an 18 wheeler pulled up right to my back bumper, Oh. and I like took my foot off the brake and started to slide, and the the tester had to pull my e brake.
+[00:20:32] Adam: I failed my first driver's test. I got to, I was, I took the first driver's test in a standard. I was on a hill, and an 18 wheeler pulled up right to my back bumper, Oh. and I like took my foot off the brake and started to slide, and the tester had to pull my e brake.
 
 [00:20:50] Will: Oh no!
 
@@ -542,13 +542,13 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:20:53] Unknown speaker: Yeah.
 
-[00:20:53] Adam: So the next time I took it, I took it in my neighbor, my neighbor's automatic.
+[00:20:53] Adam: So the next time I took it in my neighbor, my neighbor's automatic.
 
 [00:20:58] Will: So I learned to drive a manual transmission in a field in Northern Virginia with my aunt's Land Cruiser.
 
 [00:21:03] Adam: He says. Every time you got a story like that.
 
-[00:21:06] Will: Um, you have no idea. So, so when I got back to Tennessee, and we were driving my mom's car, which was a manual transmission Jeep, she let me drive because I had a permit and all that. And and I got to a hill to a stop sign on a hill on a busy road, and some people that I went to school with that were acquaintances but not friends, and maybe cordial, maybe not. You know, kind of a weird high school relationship. Pulled up directly on the bumper behind me when they saw that it was me at the at the stop sign, Oh. and it wasn't. It didn't have a pull brake. It had a foot. It had a foot e brake because it was a Jeep. It was it was it was a bad. That was a bad time.
+[00:21:06] Will: You have no idea. So, so when I got back to Tennessee, and we were driving my mom's car, which was a manual transmission Jeep, she let me drive because I had a permit and all that. And I got to a hill to a stop sign on a hill on a busy road, and some people that I went to school with that were acquaintances but not friends, and maybe cordial, maybe not. Kind of a weird high school relationship. Pulled up directly on the bumper behind me when they saw that it was me at the stop sign, Oh. and it wasn't. It didn't have a pull brake. It had a foot. It had a foot e brake because it was a Jeep. It was a bad. That was a bad time.
 
 [00:21:43] Adam: That was a bad time.
 
@@ -556,7 +556,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:21:45] Adam: Oh man.
 
-[00:21:45] Norm: So what's one big piece of advice that you would give to new drivers? And what was one thing you learned? I know you you shared yours already.
+[00:21:45] Norm: So what's one big piece of advice that you would give to new drivers? And what was one thing you learned? I know you shared yours already.
 
 [00:21:53] Adam: Yeah.
 
@@ -572,7 +572,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:22:05] Will: Yeah.
 
-[00:22:05] Norm: Yeah. You're always you always want to be Batman. Um, the one best piece of advice that I got from my parents when driving is when driving other people,
+[00:22:05] Norm: Yeah. You're always you always want to be Batman. The one best piece of advice that I got from my parents when driving is when driving other people,
 
 [00:22:14] Unknown speaker: It’s really helpful.
 

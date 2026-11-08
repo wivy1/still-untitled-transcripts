@@ -20,7 +20,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:00:28] Will: Yeah,
 
-[00:00:28] Adam: you know that is a role where when you're listening to the libretto of Hamilton, the the King George stuff gets a little tiring because it's the same song three times.
+[00:00:28] Adam: you know that is a role where when you're listening to the libretto of Hamilton, the King George stuff gets a little tiring because it's the same song three times.
 
 [00:00:43] Will: He's only twice on the score on the soundtrack.
 
@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:02:05] Will: Oh, that's awesome.
 
-[00:02:06] Adam: Yeah, he's incredible. And what what Groff does with King George with the little tiny,
+[00:02:06] Adam: Yeah, he's incredible. And what Groff does with King George with the little tiny,
 
 [00:02:11] Norm: very subdued,
 
@@ -50,7 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:02:18] Norm: Yes. Because when you listen to it just on the album, it's tough to visualize one that costume. Yeah. And then two, how what contrasts because it's a slow walk compared to the big set pieces that come right before it.
 
-[00:02:31] Adam: Oh, and when the second time or the third time, I think it's the second time he comes out. He's he's literally, his he's like dejected because he's lost the war. Yep. And he's dragging his scepter.
+[00:02:31] Adam: Oh, and when the second time or the third time, I think it's the second time he comes out. He's literally, his he's like dejected because he's lost the war. Yep. And he's dragging his scepter.
 
 [00:02:43] Norm: Right.
 
@@ -58,7 +58,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:02:46] Will: Poor King George.
 
-[00:02:46] Adam: It's the funniest physical comedy because he's he's rigidly moving in just a very prescribed way, so that every move he does off that line is hilarious. And it's a very
+[00:02:46] Adam: It's the funniest physical comedy because he's rigidly moving in just a very prescribed way, so that every move he does off that line is hilarious. And it's a very
 
 [00:02:58] Norm: great breaking of the fourth wall when he joins the audience in the third to watch the interpersonal conflict.
 
@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:03:37] Will: so okay for East Coast people, they're thinking, oh, Los Angeles is how far away? 368 miles. It's about a five-hour drive. It's
 
-[00:03:45] Adam: a lot. It's it's farther than driving to Cape Cod from New York City.
+[00:03:45] Adam: a lot. It's farther than driving to Cape Cod from New York City.
 
 [00:03:48] Will: Yeah, like I when I first moved, I went to college and I moved 300 miles, 250 miles,
 
@@ -104,13 +104,13 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:03:56] Adam: Yeah.
 
-[00:03:56] Will: and that seemed like a good amount of distance to me. 19 year old me, 18 year old me. Yeah, and then it was, it was like that was good. That's a big day.
+[00:03:56] Will: and that seemed like a good amount of distance to me. 19 year old me, 18 year old me. Yeah, and then it was like that was good. That's a big day.
 
 [00:04:08] Adam: I want to tell you, I did not deal with it gracefully.
 
 [00:04:11] Will: Did you cry?
 
-[00:04:11] Adam: I, I, I got weepy. Yes, I did cry. I didn't cry in front of him. I mean, I. My
+[00:04:11] Adam: I got weepy. Yes, I did cry. I didn't cry in front of him. I mean, I. My
 
 [00:04:17] Will: dad cried in front of me.
 
@@ -126,11 +126,11 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:04:58] Adam: You and me both.
 
-[00:04:59] Will: As if it was like, well, what does it Stephen King says? We we picture ourselves in our heads forever as we were when we were 19 years old.
+[00:04:59] Will: As if it was like, well, what does it Stephen King says? We picture ourselves in our heads forever as we were when we were 19 years old.
 
 [00:04:59] Adam: Yes, yeah, yeah.
 
-[00:04:59] Will: and and yeah, I remember getting in the car. And did you drive him down, or did he drive himself?
+[00:04:59] Will: and yeah, I remember getting in the car. And did you drive him down, or did he drive himself?
 
 [00:04:59] Adam: No, he drove himself.
 
@@ -150,9 +150,9 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:05:34] Adam: I my first car was a Volvo station wagon because it was the it could fit a four by eight of plywood in the back.
 
-[00:05:41] Will: Drew, we we have a friend Drew who is actually the white guy blinking meme. You've seen the white guy blinking on the internet? Oh yeah, yeah, yeah. That's our friend Drew. Shout out to Drew and Cloth Map. He makes awesome travel documentaries about video game stuff. But he bought a pickup truck, and it was this like a swarm of people. When he said, " Hey, guys, I got a new car. I got a pickup truck," like 15 people we'd never seen before came out. We're like, " Hey, what are you doing next weekend?"
+[00:05:41] Will: Drew, we have a friend Drew who is actually the white guy blinking meme. You've seen the white guy blinking on the internet? Oh yeah, yeah, yeah. That's our friend Drew. Shout out to Drew and Cloth Map. He makes awesome travel documentaries about video game stuff. But he bought a pickup truck, and it was this like a swarm of people. When he said, " Hey, guys, I got a new car. I got a pickup truck," like 15 people we'd never seen before came out. We're like, " Hey, what are you doing next weekend?"
 
-[00:06:06] Adam: I we just were talking about how what a what a what a what a violent question. What are you doing tomorrow? Is.
+[00:06:06] Adam: I we just were talking about how what a violent question. What are you doing tomorrow? Is.
 
 [00:06:13] Will: yeah, it's unkind.
 
@@ -168,7 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:06:35] Will: I am just like I am watching my friends send their five year olds off to kindergarten. I am like, oh my god, this is it. It's over. But that one, it really is over. When you
 
-[00:06:42] Adam: send a kid off to kindergarten, you are just gonna, you know, have to sit through a bunch of really, really terrible concerts for the next 12 years.
+[00:06:42] Adam: send a kid off to kindergarten, you are just gonna have to sit through a bunch of really, really terrible concerts for the next 12 years.
 
 [00:06:48] Will: I am fine with that. I have a phone. By then, the earbuds will be small enough you'll be able to see them. You are
 
@@ -176,13 +176,13 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:06:54] Adam: Oh, look, I got a Pokémon. Oh come on!
 
-[00:07:01] Norm: It's obscuring the the parts that I don't want to see of this play.
+[00:07:01] Norm: It's obscuring the parts that I don't want to see of this play.
 
 [00:07:06] Adam: You remember, by the way, mentioning at the last tested live show that some or two tested live shows ago, someone had turned the Castro Theatre into a Pokéstop.
 
 [00:07:15] Norm: Yes,
 
-[00:07:15] Adam: that was that was Thing Two.
+[00:07:15] Adam: that was Thing Two.
 
 [00:07:15] Will: Really, he did that.
 
@@ -192,7 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:07:19] Norm: Nice, nice.
 
-[00:07:19] Adam: So yeah, so that happened yesterday, and yeah, it's an intense thing. You know, they're they're they're young adults now. They're 18. They're
+[00:07:19] Adam: So yeah, so that happened yesterday, and yeah, it's an intense thing. They're young adults now. They're 18. They're
 
 [00:07:28] Norm: you have a free room.
 
@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:07:36] Adam: already.
 
-[00:07:36] Will: But it's it's one of those things that when you're 18, you're in the least probably self aware. At least I was the least self aware I would be for my entire life when I was 17 or 18 years old.
+[00:07:36] Will: But it's one of those things that when you're 18, you're in the least probably self aware. At least I was the least self aware I would be for my entire life when I was 17 or 18 years old.
 
 [00:07:47] Norm: God, It was helpful to hear that
 
@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:08:49] Will: Yeah, I can't even imagine.
 
-[00:08:53] Adam: Like, look, I I am blessed with two amazing boys. Young men. They are they are kind and thoughtful people.
+[00:08:53] Adam: Like, look, I I am blessed with two amazing boys. Young men. They are kind and thoughtful people.
 
 [00:09:01] Will: Two men, perhaps.
 
@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:09:17] Will: Yeah.
 
-[00:09:17] Adam: Well, no, they're gonna they're gonna come directly and ask for advice. And thing one and I were getting into it yesterday, and he was like, " This is the problem that you guys have." And I was like, " Oh, you're absolutely right. I let's okay, let's talk about working on that moving forward. Yeah, look, it's a it's a process. It's a family. They're always going to be family.
+[00:09:17] Adam: Well, no, they're gonna come directly and ask for advice. And thing one and I were getting into it yesterday, and he was like, " This is the problem that you guys have." And I was like, " Oh, you're absolutely right. I let's okay, let's talk about working on that moving forward. Yeah, look, it's a it's a process. It's a family. They're always going to be family.
 
 [00:09:39] Will: They installed the buttons.
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:09:47] Adam: How good is that movie? How much does that movie love you?
 
-[00:09:51] Will: I, I. I went into that movie, so I like I listened to their Kumail and Emily's podcast for years, right?
+[00:09:51] Will: I. I went into that movie, so I like I listened to their Kumail and Emily's podcast for years, right?
 
 [00:09:51] Adam: Oh, okay.
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:10:02] Adam: I didn't know that.
 
-[00:10:03] Will: But but they like it was such a unexpectedly sweet and lovely and heartfelt and real film, and they handled like there's there's a turn at the end where they could have done the Hollywood thing and made like every romantic comedy ever.
+[00:10:03] Will: But they like it was such a unexpectedly sweet and lovely and heartfelt and real film, and they handled like there's there's a turn at the end where they could have done the Hollywood thing and made like every romantic comedy ever.
 
 [00:10:20] Adam: Yeah. No. Right. Something in the kiss in the rain.
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:10:55] Adam: ever." Her or Frances McDormand.
 
-[00:10:57] Will: I I think I can handle Frances McDormand's more in the my mom scale.
+[00:10:57] Will: I think I can handle Frances McDormand's more in the my mom scale.
 
 [00:11:00] Adam: Have you seen the trailer for the three billboards new Coen brothers film?
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:11:34] Will: Yeah,
 
-[00:11:34] Adam: we we showed the boys broadcast news a couple of years ago.
+[00:11:34] Adam: we showed the boys broadcast news a couple of years ago.
 
 [00:11:42] Will: That movie has aged so well;
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:11:44] Adam: absolutely perfect.
 
-[00:11:47] Will: I I had a film studies class where it was about media portray media as portrayed in media and. We watch broadcast news, all the presidents men, and network as like a three.
+[00:11:47] Will: I had a film studies class where it was about media portray media as portrayed in media and. We watch broadcast news, all the presidents men, and network as like a three.
 
 [00:11:47] Adam: What a three.
 
@@ -372,7 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:12:10] Adam: Really, really amazing, perfectly cast, and all I keep doing is I keep going. It's mostly heroin. It's heroin is doing the heavy lifting. It's mostly heroin.
 
-[00:12:21] Norm: His comedy bit, which I think is his album's on Spotify, is a great like background material or or post watching the movie highly recommended. Also, it if the movie is inviting you into their lives,
+[00:12:21] Norm: His comedy bit, which I think is his album's on Spotify, is a great like background material or post watching the movie highly recommended. Also, it if the movie is inviting you into their lives,
 
 [00:12:21] Adam: Mm hmm.
 
@@ -380,19 +380,19 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:12:38] Adam: without a doubt.
 
-[00:12:40] Will: I mean, it it well, it feels real in a way that most comedies don't.
+[00:12:40] Will: I mean, it well, it feels real in a way that most comedies don't.
 
 [00:12:40] Adam: Yeah,
 
-[00:12:40] Will: and it's it's a romantic comedy about the relationship between Kumail and his girlfriend's parents, really for more than anything else.
+[00:12:40] Will: and it's a romantic comedy about the relationship between Kumail and his girlfriend's parents, really for more than anything else.
 
 [00:12:51] Adam: Right, and they're also I found. I found Ray Romano a little tiring, a little tiresome.
 
 [00:12:58] Will: I think he's like that's just Ray Romano, though.
 
-[00:13:00] Adam: But, but when that when he and Holly Hunter they play the parents, when he and Holly Hunter have an argument, it is one of the most realistically written arguments I've ever seen for a couple who's been together for a long time.
+[00:13:00] Adam: But when that when he and Holly Hunter they play the parents, when he and Holly Hunter have an argument, it is one of the most realistically written arguments I've ever seen for a couple who's been together for a long time.
 
-[00:13:14] Will: I thought all of the interpersonal relationships were written in that film in a way that felt shockingly honest. Yeah, for a for a Hollywood movie.
+[00:13:14] Will: I thought all of the interpersonal relationships were written in that film in a way that felt shockingly honest. Yeah, for a Hollywood movie.
 
 [00:13:23] Adam: either.
 
@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:13:23] Adam: not what a normal. Yeah,
 
-[00:13:25] Will: I mean they're they're real and standard for the real world, not for portrayals in film. Was what I walked away from.
+[00:13:25] Will: I mean they're real and standard for the real world, not for portrayals in film. Was what I walked away from.
 
 [00:13:31] Adam: So, speaking of,
 
@@ -424,7 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:14:01] Adam: We went to an anime con,
 
-[00:14:03] Norm: Crunchyroll Expo. They're one of our partners, and they invited us. We had a booth there. It was just in Santa Clara, first year convention, like you know, 10,000, 12,000 people, which it wasn't massive, so it felt really packed. And I hadn't been to many anime conventions.
+[00:14:03] Norm: Crunchyroll Expo. They're one of our partners, and they invited us. We had a booth there. It was just in Santa Clara, first year convention, like 10,000, 12,000 people, which it wasn't massive, so it felt really packed. And I hadn't been to many anime conventions.
 
 [00:14:18] Adam: I have not been to a single anime convention before,
 
@@ -438,7 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:14:24] Adam: And I brought down the suit of armor and Totoro.
 
-[00:14:34] Will: I saw the I saw the picture of the Totoro.
+[00:14:34] Will: I saw the picture of the Totoro.
 
 [00:14:36] Adam: Well, and apparently all weekend long there was a line to take pictures with Totoro.
 
@@ -446,11 +446,11 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:14:40] Norm: now,
 
-[00:14:40] Adam: but it was it was amazing just to meet. There are plenty of tested fans there,
+[00:14:40] Adam: but it was amazing just to meet. There are plenty of tested fans there,
 
 [00:14:40] Norm: but also it's anime, right? And people who love Japanese culture and manga and. I think what you were to say is yeah, plenty of cosplayers, but it was incredibly diverse.
 
-[00:14:56] Adam: That was the thing I found most surprising. Look. At San Diego Comic Con, in a 300-person autograph line, there's usually five people of color, African Americans. You know, there's at this one, it was probably 30%,
+[00:14:56] Adam: That was the thing I found most surprising. Look. At San Diego Comic Con, in a 300-person autograph line, there's usually five people of color, African Americans. There's at this one, it was probably 30%,
 
 [00:14:56] Norm: yeah,
 
@@ -458,19 +458,19 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:15:36] Will: You guys needed some more cons in your lives.
 
-[00:15:39] Adam: I mean, yeah, it's not like we need more things to go traveled to, but this one for a first year con, it was fantastic. The energy from people, like I said, was really lovely. I I love. I'm going to. The only reason No Face didn't go down is that he Kaonashi needs a refurb. I need to resew all of his costume parts and make put him on a mannequin so he can travel.
+[00:15:39] Adam: I mean, yeah, it's not like we need more things to go traveled to, but this one for a first year con, it was fantastic. The energy from people, like I said, was really lovely. I love. I'm going to. The only reason No Face didn't go down is that he Kaonashi needs a refurb. I need to resew all of his costume parts and make put him on a mannequin so he can travel.
 
 [00:16:00] Will: We learned that he did not travel well when we took him to San Diego that first year.
 
-[00:16:04] Norm: But even the the artist alley, so like typical big convention has a giant room, and maybe artist alley is like three rows of benches in one corner. And here they had one full ballroom that was their artist gallery and artist alley. And imagine like rows of these these tables, right? But they're back to back, so you have one row people facing one direction, and behind them is the immediate table of people behind them. No dividers, and that space that like three feet of space between the two rows becomes its own little community where people and their friends are just hanging out and sitting on the floor and drawing and chatting with their neighbors and walking up and down the aisle, as opposed to just sequestered sitting at their table the whole time.
+[00:16:04] Norm: But even the artist alley, so like typical big convention has a giant room, and maybe artist alley is like three rows of benches in one corner. And here they had one full ballroom that was their artist gallery and artist alley. And imagine like rows of these these tables, right? But they're back to back, so you have one row people facing one direction, and behind them is the immediate table of people behind them. No dividers, and that space that like three feet of space between the two rows becomes its own little community where people and their friends are just hanging out and sitting on the floor and drawing and chatting with their neighbors and walking up and down the aisle, as opposed to just sequestered sitting at their table the whole time.
 
 [00:16:46] Will: That's what Comic Con's artist alley was like when I was when I first started going 15 years ago, probably
 
 [00:16:46] Norm: right, right, right.
 
-[00:16:46] Will: Like you had way off on the H side of the hall, it was all a bunch of artist tables, and and there were just people sitting there doing sketches and like fans and artists doing sketches together, and it was super super cool. So that's really awesome.
+[00:16:46] Will: Like you had way off on the H side of the hall, it was all a bunch of artist tables, and there were just people sitting there doing sketches and like fans and artists doing sketches together, and it was super super cool. So that's really awesome.
 
-[00:17:05] Adam: We was a lovely a lovely gathering. And I love that so many people got to see and take pictures with Totoro.
+[00:17:05] Adam: We was a lovely gathering. And I love that so many people got to see and take pictures with Totoro.
 
 [00:17:12] Norm: Yeah,
 
@@ -484,9 +484,9 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:17:20] Norm: We did. Yes.
 
-[00:17:21] Adam: And you know, I I had just because it had been too long, I had watched * Spirited Away* by myself about three months ago, and there's just no. That is seriously one of my top five. I joke that there is 30 films in my top five films, but this one is in the actual top five, and it's never left. It is a masterpiece.
+[00:17:21] Adam: And I I had just because it had been too long, I had watched * Spirited Away* by myself about three months ago, and there's just no. That is seriously one of my top five. I joke that there is 30 films in my top five films, but this one is in the actual top five, and it's never left. It is a masterpiece.
 
-[00:17:42] Will: I I um, yeah. I we're we're getting to the point that we're gonna start. Like we're talking about introducing it to to my daughter.
+[00:17:42] Will: I um, yeah. I we're getting to the point that we're gonna start. Like we're talking about introducing it to my daughter.
 
 [00:17:42] Adam: Yeah.
 
@@ -494,7 +494,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:18:00] Adam: Yeah.
 
-[00:18:00] Will: Um, so we'll go see that in the theaters.
+[00:18:00] Will: So we'll go see that in the theaters.
 
 [00:18:02] Adam: My wife just revealed she has not seen. Castle in the Sky. I
 
@@ -526,7 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:18:53] Adam: Oh.
 
-[00:18:53] Norm: I mean, I think in animation, like the Don Bluth stuff, I think is a good comparison. Like, I think there's a story. Where did I read this? But the the Rats of NIMH. That's a movie where
+[00:18:53] Norm: I mean, I think in animation, like the Don Bluth stuff, I think is a good comparison. Like, I think there's a story. Where did I read this? But the Rats of NIMH. That's a movie where
 
 [00:19:05] Adam: The Secret of the,
 
@@ -538,11 +538,11 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:19:13] Adam: borrowers and the rescuers; those are two different movies.
 
-[00:19:16] Will: Well, the rescuers, the rescuers has is
+[00:19:16] Will: Well, the rescuers has is
 
 [00:19:19] Norm: the mice Disney one.
 
-[00:19:20] Will: It's the it's the mice with the not Zsa Zsa Gabor, but the Eva Gabor,
+[00:19:20] Will: It's the mice with the not Zsa Zsa Gabor, but the Eva Gabor,
 
 [00:19:25] Adam: Eva Gabor, one of the Gabor sisters,
 
@@ -574,21 +574,21 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:20:17] Will: Inside Out taught my three year old about emotions and how to manage her feelings.
 
-[00:20:22] Adam: Has you haven't seen? Um, you haven't watched Where the Wild Things Are either.
+[00:20:22] Adam: Has you haven't seen? You haven't watched Where the Wild Things Are either.
 
-[00:20:26] Will: We have. Oh, that was that was good, but I think she we hit her a little young on that.
+[00:20:26] Will: We have. Oh, that was good, but I think she we hit her a little young on that.
 
 [00:20:32] Adam: I love it. I love it when Chris Cooper goes. That was my favorite arm.
 
-[00:20:35] Will: The one, the one that was surprisingly awesome was Trolls.
+[00:20:35] Will: The one that was surprisingly awesome was Trolls.
 
 [00:20:35] Adam: Oh, never seen that film
 
-[00:20:35] Will: The DreamWorks Trolls film with, with Anna Kendrick and Justin Timberlake.
+[00:20:35] Will: The DreamWorks Trolls film with Anna Kendrick and Justin Timberlake.
 
 [00:20:35] Adam: Oh my god!
 
-[00:20:35] Will: Is is I expected from the trailer? I expected to be fart jokes and and a nightmare, and it is an absolute delight. The music's really good. They use physicality based rendering, so the animation is all. It looks like everything's made out of cloth. It's like felted felted cloth and stuff like that, and it is it is A delightful story about eating sentient beings to make yourself happy. It's really good.
+[00:20:35] Will: Is is I expected from the trailer? I expected to be fart jokes and a nightmare, and it is an absolute delight. The music's really good. They use physicality based rendering, so the animation is all. It looks like everything's made out of cloth. It's like felted felted cloth and stuff like that, and it is A delightful story about eating sentient beings to make yourself happy. It's really good.
 
 [00:20:35] Norm: Consumerism,
 
@@ -604,7 +604,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:21:24] Adam: Stuff that I'm making. I among the things I became obsessed with from the Stanley Kubrick exhibit, one of them was his director's chair.
 
-[00:21:35] Will: It's a unique. It's a unique setup, right? It has the the he had he had boxes on the side.
+[00:21:35] Will: It's a unique. It's a unique setup, right? It has the he had boxes on the side.
 
 [00:21:40] Norm: This is so funny at LACMA where I first saw the exhibit. You see the multiple times now. It is. It's in the entrance way, but
 
@@ -612,7 +612,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:21:48] Norm: and I don't think they give it enough. Like they don't signify enough to tell you that this is a one of a kind. There is something special about the construction of this chair. It's just okay. It belonged to him.
 
-[00:22:00] Adam: Um, and and and it's a it's a lovely chair. I wanted to find. I could see that it was built off a standard director's chair. But not an American director's chair. It turned out that it was a British director's chair.
+[00:22:00] Adam: And it's a lovely chair. I wanted to find. I could see that it was built off a standard director's chair. But not an American director's chair. It turned out that it was a British director's chair.
 
 [00:22:00] Will: Well, of course.
 
@@ -620,7 +620,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:23:05] Will: It's a good trick. It's a smart businessman. I strongly recommend it.
 
-[00:23:09] Adam: So I feel like I have pictures of. Not. I feel like. Sorry. I started, of course, getting obsessive about Kubrick sitting in director's chairs, and so I have photos of him sitting on almost all of his sets. And what you can see when you look at that is that he really liked having a script on the side of his chair. So for a long time, he used a wicker chair on The Shining. He's sitting in this wicker chair, but he had a vinyl basket attached to the side so he could put a script in it. So clearly, this was a thing he wanted. This progression keeps on happening. There's another chair you can see Jack Nicholson sitting in on The Shining that has that is a solid chair with one box on one side, but not the double box. And then when I finally got all the photos back from the from the Kubrick exhibit, I went and took a bunch of photos. Norm took some photos for me too. I realized that. In order to accommodate the two boxes, Kubrick had somebody dismantle this chair all the way down to every slat and put it back together in a perpendicular, upright way rather than slightly trapezoidal. So I had to do the same thing.
+[00:23:09] Adam: So I feel like I have pictures of. Not. I feel like. Sorry. I started, of course, getting obsessive about Kubrick sitting in director's chairs, and so I have photos of him sitting on almost all of his sets. And what you can see when you look at that is that he really liked having a script on the side of his chair. So for a long time, he used a wicker chair on The Shining. He's sitting in this wicker chair, but he had a vinyl basket attached to the side so he could put a script in it. So clearly, this was a thing he wanted. This progression keeps on happening. There's another chair you can see Jack Nicholson sitting in on The Shining that has that is a solid chair with one box on one side, but not the double box. And then when I finally got all the photos back from the Kubrick exhibit, I went and took a bunch of photos. Norm took some photos for me too. I realized that. In order to accommodate the two boxes, Kubrick had somebody dismantle this chair all the way down to every slat and put it back together in a perpendicular, upright way rather than slightly trapezoidal. So I had to do the same thing.
 
 [00:24:14] Norm: And this chairs were slightly trapezoidal for support.
 
@@ -628,13 +628,13 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:24:17] Norm: Right, but they wouldn't. It wouldn't. I mean, when you look at the chair and there are photos of it from the exhibit, it is
 
-[00:24:24] Adam: it's straight up and down in both axes. And I had to I had to go and do that in order to
+[00:24:24] Adam: it's straight up and down in both axes. And I had to go and do that in order to
 
 [00:24:29] Norm: It’s not a detail that registers.
 
 [00:24:30] Adam: No, and then as I'm looking at photos close up, I see that they use dowels to attach the boxes onto the side. But then I see marks that it's clear, like I can see the same holes from nail removal on that chair as I have on mine from going through the same process. And in this, I always feel like I'm talking to somebody from 45 years ago about what they were doing. Well, like somebody spent a couple of days on. I mean,
 
-[00:24:54] Will: you're doing. You're you're doing like archaeology in place, right? Yeah. It's it's like it's like the NASA folks who've gone through and recreated the Saturn V, so they could build the SLS to figure out how we did stuff on the Saturn V, so they can apply that to the SLS.
+[00:24:54] Will: you're doing. You're doing like archaeology in place, right? Yeah. It's like the NASA folks who've gone through and recreated the Saturn V, so they could build the SLS to figure out how we did stuff on the Saturn V, so they can apply that to the SLS.
 
 [00:24:54] Norm: Yes. Very Sherlock Holmes.
 
@@ -648,7 +648,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:25:55] Will: Why make one when you can buy two for double the price?
 
-[00:25:57] Adam: Exactly. It only takes it only takes a little more work to do two of something. So I built a set of boxes that were wrong, so I had to throw those out and start from scratch. But the luan that I was using didn't here in America. I went to Beronio Lumber and I spent half an hour looking through all their luan to find a sheet where the grain was actually close to the original because I'm like that.
+[00:25:57] Adam: Exactly. It only takes a little more work to do two of something. So I built a set of boxes that were wrong, so I had to throw those out and start from scratch. But the luan that I was using didn't here in America. I went to Beronio Lumber and I spent half an hour looking through all their luan to find a sheet where the grain was actually close to the original because I'm like that.
 
 [00:25:57] Will: I know.
 
@@ -694,9 +694,9 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:27:39] Will: Is it not in the cockpit?
 
-[00:27:40] Adam: No, it's not in the cockpit. It's actually it's from the it's from the cabin. It's a cabin reading lamp.
+[00:27:40] Adam: No, it's not in the cockpit. It's actually it's from the cabin. It's a cabin reading lamp.
 
-[00:27:44] Will: I thought a Vickers was a was a pew pew pew airplane, not a not a swoosh airplane.
+[00:27:44] Will: I thought a Vickers was a pew pew pew airplane, not a swoosh airplane.
 
 [00:27:49] Adam: No, I think it
 
@@ -712,7 +712,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:28:02] Norm: we're going to see at some point when you finish a project, we will do a piece on it and we'll take a look at it.
 
-[00:28:07] Adam: Oh yeah, yeah, yeah. We totally will. I'm I'm making one for another fellow Kubrick fanatic, and I'm hoping that he will come and participate in the unveiling.
+[00:28:07] Adam: Oh yeah, yeah, yeah. We totally will. I'm making one for another fellow Kubrick fanatic, and I'm hoping that he will come and participate in the unveiling.
 
 [00:28:17] Norm: That'd be awesome.
 
@@ -744,11 +744,11 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:29:09] Adam: But we just didn't get we didn't get footage of that being carving. So we have to get them to send us some of that.
 
-[00:29:13] Norm: Yeah, yeah. So that actually is they they they use a multi-axis robot arm. to mill out
+[00:29:13] Norm: Yeah, yeah. So that actually is they use a multi-axis robot arm. to mill out
 
 [00:29:18] Adam: repurposed auto industry.
 
-[00:29:20] Will: Wow, and they have like a like a Dremel on the end that just like
+[00:29:20] Will: Wow, and they have like a Dremel on the end that just like
 
 [00:29:23] Adam: a 10-inch round-ended half-inch milling bit.
 
@@ -760,11 +760,11 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:29:23] Adam: But they use like a more rigid polyurethane foam when they're doing mannequins for movie stars.
 
-[00:29:42] Will: So you, like, conceivably, right now, they could be just cranking out an army of yous, and you'd never know it.
+[00:29:42] Will: So you conceivably, right now, they could be just cranking out an army of yous, and you'd never know it.
 
 [00:29:42] Adam: Clearly, they are.
 
-[00:29:42] Will: Absolutely. the the army in China the Terracotta Army
+[00:29:42] Will: Absolutely. the army in China the Terracotta Army
 
 [00:29:52] Adam: that's how I'm going to be buried among like 3 600 versions of myself
 
@@ -778,7 +778,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:30:02] Will: Ooh.
 
-[00:30:02] Norm: um and either this week or next week we're be announcing the member gift for tested premium members this year so check that out on the site.
+[00:30:02] Norm: And either this week or next week we're be announcing the member gift for tested premium members this year so check that out on the site.
 
 [00:30:17] Unknown [Adam / Will]: it's going to be very cool
 

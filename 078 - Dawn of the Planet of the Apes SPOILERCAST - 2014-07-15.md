@@ -14,21 +14,21 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:00:10] Will: I'm Will Smith.
 
-[00:00:11] Adam: I was the only one without a a a contraction. I am.
+[00:00:11] Adam: I was the only one without a contraction. I am.
 
-[00:00:15] Will: It's good. It's good that we keep it different every time. You know, some people might accuse us of phoning these in at some point. after. We're coming up on 100 episodes. I think we're getting close.
+[00:00:15] Will: It's good. It's good that we keep it different every time. Some people might accuse us of phoning these in at some point. after. We're coming up on 100 episodes. I think we're getting close.
 
 [00:00:24] Norm: No way.
 
-[00:00:25] Will: Yeah, I think I think it's not. We're not too far off.
+[00:00:25] Will: Yeah, I think it's not. We're not too far off.
 
 [00:00:25] Adam: Wow.
 
-[00:00:25] Will: Yeah. So we don't number these. So I have no idea, but you can look at the feed and tell. Um,
+[00:00:25] Will: Yeah. So we don't number these. So I have no idea, but you can look at the feed and tell.
 
 [00:00:33] Adam: I'm sure some of them— How do you like your pebble? There, are you happy with it?
 
-[00:00:36] Norm: Uh, we both have one.
+[00:00:36] Norm: We both have one.
 
 [00:00:38] Adam: What's that?
 
@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:00:49] Adam: All I want to say is, it's Dick Tracy.
 
-[00:00:53] Will: Why can't you video conference? Why not? Why God? Um,
+[00:00:53] Will: Why can't you video conference? Why not? Why God?
 
 [00:00:58] Adam: stupid phone can't video conference. Stupid watch.
 
@@ -60,17 +60,17 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:01:13] Norm: No, we haven't.
 
-[00:01:14] Will: No, we we Norm and I talked about it on our on the other podcast.
+[00:01:14] Will: No, we Norm and I talked about it on our on the other podcast.
 
 [00:01:17] Adam: Right, right,
 
-[00:01:17] Will: right. But yeah, it's like the the fact that the traditionally very untechnologically savvy Supreme Court came down and said, " Yes, look, this thing is not just a phone. It's not like it's an extension of a wired phone that came out of your wall. It is a combination of a fax machine, a Rolodex, an eight-track player."
+[00:01:17] Will: right. But yeah, it's like the fact that the traditionally very untechnologically savvy Supreme Court came down and said, " Yes, look, this thing is not just a phone. It's not like it's an extension of a wired phone that came out of your wall. It is a combination of a fax machine, a Rolodex, an eight-track player."
 
-[00:01:35] Adam: On the on the tail end of their semi-strange opinion about whether a concept is patentable,
+[00:01:35] Adam: On the tail end of their semi-strange opinion about whether a concept is patentable,
 
 [00:01:44] Will: that was a yeah
 
-[00:01:45] Adam: right. The algorithm, whether the, the
+[00:01:45] Adam: right. The algorithm, whether the
 
 [00:01:45] Will: whether math
 
@@ -78,17 +78,17 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:01:45] Will: Yeah.
 
-[00:01:45] Adam: So it makes one very afraid for the future. Uh, when your courts don't have the technological savvy, or even seemingly often the desire to get the savvy, in order to make a proper legal judgment,
+[00:01:45] Adam: So it makes one very afraid for the future. When your courts don't have the technological savvy, or even seemingly often the desire to get the savvy, in order to make a proper legal judgment,
 
 [00:02:07] Will: I feel like that is self-correcting over a period of half centuries.
 
-[00:02:10] Adam: but there's been so many decisions in which, uh, appellate courts and circuit courts make decisions that are based on such a limited knowledge of what a website is and what hyperlinking is that for the Supreme Court to define a phone as something that's deeply embedded across your entire life with data in the cloud, so that the phone is not even merely a storage device but an access point, therefore it has much broader protections that the founders would have absolutely given it. Made me so happy to read.
+[00:02:10] Adam: but there's been so many decisions in which appellate courts and circuit courts make decisions that are based on such a limited knowledge of what a website is and what hyperlinking is that for the Supreme Court to define a phone as something that's deeply embedded across your entire life with data in the cloud, so that the phone is not even merely a storage device but an access point, therefore it has much broader protections that the founders would have absolutely given it. Made me so happy to read.
 
 [00:02:41] Will: Well, the that would there were a couple of interesting technology judgments that came down last week because the Aereo decision came down at the same time.
 
 [00:02:41] Adam: Yes,
 
-[00:02:41] Will: Um, and and then if you don't know what that is, they are a company that was basically, uh, sharing. They were selling time. They were selling antennas across the internet. So they were saying
+[00:02:41] Will: And then if you don't know what that is, they are a company that was basically sharing. They were selling time. They were selling antennas across the internet. So they were saying
 
 [00:02:57] Adam: the reason is is because you can get a broadcast television signal. As long as you have an antenna that can receive it,
 
@@ -98,21 +98,21 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:03:10] Norm: and saving it and then cloud services.
 
-[00:03:12] Adam: But they were they had a they had, they, their their assertion was that they had an antenna in their building with your name on it, and that was your antenna you were renting to them.
+[00:03:12] Adam: But they were they had a they had, they, their assertion was that they had an antenna in their building with your name on it, and that was your antenna you were renting to them.
 
-[00:03:21] Will: So the phone thing was a was a was a unanimous decision, right?
+[00:03:21] Will: So the phone thing was a unanimous decision, right?
 
 [00:03:21] Adam: Nine to zero,
 
-[00:03:21] Will: right? There was no dissent. The Aereo thing, there was a dissent. It was a four five split, I think. And the the majority basically said, " Hey, this is just some bullshit you guys came up with to bypass copyright restrictions and not have to pay the networks."
+[00:03:21] Will: right? There was no dissent. The Aereo thing, there was a dissent. It was a four five split, I think. And the majority basically said, " Hey, this is just some bullshit you guys came up with to bypass copyright restrictions and not have to pay the networks."
 
-[00:03:40] Adam: Was that, uh, Robert Scalia Thomas?
+[00:03:40] Adam: Was that Robert Scalia Thomas?
 
-[00:03:44] Will: I think Thomas was on the other side. I can't remember. Okay, I, I don't remember what the breakdown was, so I don't want to say. Um, but the dissent was actually really even the majority said, " Look, we want this. This is a ruling about copyright and and paying for broadcast rights of copyrighted material,
+[00:03:44] Will: I think Thomas was on the other side. I can't remember. Okay, I, I don't remember what the breakdown was, so I don't want to say. But the dissent was actually really even the majority said, " Look, we want this. This is a ruling about copyright and and paying for broadcast rights of copyrighted material,
 
 [00:03:44] Adam: Right.
 
-[00:03:44] Will: not about cloud, uh, services related to copyrighted material, so they they came out and were very explicit.
+[00:03:44] Will: not about cloud services related to copyrighted material, so they came out and were very explicit.
 
 [00:04:07] Adam: They tried to Limit their decision.
 
@@ -122,7 +122,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:04:27] Will: I've never heard of this before.
 
-[00:04:27] Adam: Oh, Click and Clack do this all the time. The end of every, uh, Car Talk episode. It's all these funny names of, um.
+[00:04:27] Adam: Oh, Click and Clack do this all the time. The end of every Car Talk episode. It's all these funny names of, um.
 
 [00:04:34] Will: I bet they get a lot of funny names.
 
@@ -134,11 +134,11 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:04:38] Will: I don't like Click and Clack. It's way better than Prairie Home Companion.
 
-[00:04:39] Adam: Oh, Click and Clack is great. Those guys are wonderful. Um, and they're super smart.
+[00:04:39] Adam: Oh, Click and Clack is great. Those guys are wonderful. And they're super smart.
 
 [00:04:45] Norm: Oh yes, I agree.
 
-[00:04:46] Adam: But, uh, but so yeah, there's a figure of there's a name for this construction of a name that describes what you do, and I thought you know our executive in charge of legal wrangling would be loophole.
+[00:04:46] Adam: But so yeah, there's a figure of there's a name for this construction of a name that describes what you do, and I thought you know our executive in charge of legal wrangling would be loophole.
 
 [00:04:59] Will: It's perfect, yeah,
 
@@ -148,19 +148,19 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:05:05] Adam: Why save? Why save such gold when I can spread it out to the world?
 
-[00:05:08] Will: Um, the dissent, the dissent on the Aereo thing, though.
+[00:05:08] Will: The dissent on the Aereo thing, though.
 
 [00:05:12] Adam: Yeah, sorry. Go ahead.
 
-[00:05:13] Will: No, it was it was interesting because the dissent was basically look the the the dissent said, hey, the the Constitution is does not have us here to close loopholes. That's Congress's job. We're just to enforce the law as written, and this does not violate the law as written. It is a loophole. That is what lawyers are supposed to do is find loopholes.
+[00:05:13] Will: No, it was interesting because the dissent was basically look the dissent said, hey, the Constitution is does not have us here to close loopholes. That's Congress's job. We're just to enforce the law as written, and this does not violate the law as written. It is a loophole. That is what lawyers are supposed to do is find loopholes.
 
 [00:05:13] Adam: Right, right, right.
 
-[00:05:13] Will: Um, so I I think actually the conservatives.
+[00:05:13] Will: So I I think actually the conservatives.
 
-[00:05:34] Adam: I'll bet the split was quite was quite interesting there.
+[00:05:34] Adam: I'll bet the split was quite interesting there.
 
-[00:05:36] Will: It was it was as I remember it was a it was a as as a completely uninformed outsider. It was an interesting like because I think the the strict constructionists were on the on the dissent rather than the majority.
+[00:05:36] Will: It was as I remember it was a as a completely uninformed outsider. It was an interesting like because I think the strict constructionists were on the dissent rather than the majority.
 
 [00:05:47] Adam: right. So that would be yeah interesting.
 
@@ -170,7 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:05:57] Adam: I thought you meant an actual segue.
 
-[00:05:58] Will: Yeah, I was waiting for. I've got one. I figured you've been working on it all this time. Um.
+[00:05:58] Will: Yeah, I was waiting for. I've got one. I figured you've been working on it all this time.
 
 [00:06:02] Adam: Well, Norman and I had a fun night last night. We went and saw the world premiere, which rarely happens here in San Francisco. We saw a world premiere of Rise of Planet of the— Dawn. Sorry, Dawn. Rise—
 
@@ -196,7 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:06:33] Adam: Um,
 
-[00:06:34] Norm: I don't know what your opinion is because we didn't actually get to chat afterward. Um, so let's both tell Will what our rating out of five or out of 10 is.
+[00:06:34] Norm: I don't know what your opinion is because we didn't actually get to chat afterward. So let's both tell Will what our rating out of five or out of 10 is.
 
 [00:06:44] Will: Just close your eyes and hold up a number of fingers.
 
@@ -232,7 +232,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:07:06] Norm: Very enjoyable.
 
-[00:07:07] Adam: intense. Um, look, I liked the first one.
+[00:07:07] Adam: intense. Look, I liked the first one.
 
 [00:07:09] Will: Did you watch the first one again before going to see this?
 
@@ -250,9 +250,9 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:07:16] Adam: Yeah, I did too. I thought the performances were terrific. Yeah.
 
-[00:07:19] Will: Um, what's the gist of the first one? Is the ape
+[00:07:19] Will: What's the gist of the first one? Is the ape
 
-[00:07:22] Adam: the gist of the first one? Is that, um?
+[00:07:22] Adam: the gist of the first one? Is that?
 
 [00:07:24] Will: Yeah, this should be a spoiler cast.
 
@@ -264,13 +264,13 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:07:26] Will: Two. Well, not two in a row, but we'll have another one between this and the last one. Spoiler cast.
 
-[00:07:31] Adam: So, um, the premise of the first one is it's Ape Zero, right? So it's the rise of the planet of the, right,
+[00:07:31] Adam: So the premise of the first one is it's Ape Zero, right? So it's the rise of the planet of the, right,
 
 [00:07:38] Norm: rise,
 
 [00:07:39] Will: rise,
 
-[00:07:39] Adam: rise of the planet of the apes is about the the experimentation that leads to the hyper intelligent ape Caesar, whose, uh, caretaker is played by, uh, James Franco, and it is about how Caesar becomes hyperintelligent and other apes also because of a virus, the simian flu virus, which also happens to have the negative quality of wiping out 499 out of every 500 people on Earth.
+[00:07:39] Adam: rise of the planet of the apes is about the experimentation that leads to the hyper intelligent ape Caesar, whose caretaker is played by James Franco, and it is about how Caesar becomes hyperintelligent and other apes also because of a virus, the simian flu virus, which also happens to have the negative quality of wiping out 499 out of every 500 people on Earth.
 
 [00:07:39] Norm: Yeah. Well,
 
@@ -290,7 +290,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:08:16] Norm: second reboot, but the third iteration. Because the Tim Burton one.
 
-[00:08:19] Adam: What about the, uh, Tim Roth Marky Mark one?
+[00:08:19] Adam: What about the Tim Roth Marky Mark one?
 
 [00:08:21] Norm: That's the second.
 
@@ -316,7 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:09:04] Adam: okay. How about that? I could start a story like that. Rick Baker told me that they showed him a list of actors they were thinking about casting for Apes for Planet of the Apes, and he said, " All these guys are fine. Please, please, please, for the love of God, do not cast Tim Roth. His nose is too big, and I won't be able to deal with it in ape makeup. Boom! They cast him as the lead ape, and he's like, I don't know what to do with him. I don't know what to do with him. And actually, uh, uh, that makeup is amazing. The way it moves on his face is incredible.
 
-[00:09:33] Will: That that movie has the best supporting materials because when you go and watch the DVD for that movie, which I own, yeah, um, it it goes through the whole ape school that they sent everybody to. Tim Roth and Hella, they all learned how to move like the The appropriate kind of apes, and the movie was still really bad.
+[00:09:33] Will: That that movie has the best supporting materials because when you go and watch the DVD for that movie, which I own, yeah it goes through the whole ape school that they sent everybody to. Tim Roth and Hella, they all learned how to move like the appropriate kind of apes, and the movie was still really bad.
 
 [00:09:33] Adam: Yeah,
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:10:10] Will: To Andy Serkis, but in real life,
 
-[00:10:12] Norm: and this movie and the Rise of Planet Apes, the Franco one, was all CG apes, combinations of CG and and some some practical stuff.
+[00:10:12] Norm: and this movie and the Rise of Planet Apes, the Franco one, was all CG apes, combinations of CG and some some practical stuff.
 
 [00:10:18] Adam: But they hired. Excuse me.
 
@@ -346,13 +346,13 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:10:26] Will: No, it's not.
 
-[00:10:26] Adam: Andy Serkis. So, uh, yeah, we're gonna have. They're gonna have to come up with a new a new definition of acting in order to give him an award because one, he's a goddamn genius.
+[00:10:26] Adam: Andy Serkis. So, uh, yeah, we're gonna have. They're gonna have to come up with a new definition of acting in order to give him an award because one, he's a goddamn genius.
 
-[00:10:41] Norm: I think it's it's acting.
+[00:10:41] Norm: I think it's acting.
 
 [00:10:41] Adam: He is acting.
 
-[00:10:41] Norm: Lobbying for for the longest time.
+[00:10:41] Norm: Lobbying for the longest time.
 
 [00:10:43] Adam: but Hollywood still. But they're still. They still call them motion capture performers.
 
@@ -362,7 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:10:48] Adam: No, he's not, and he's giving a full performance. And he did this for Gollum, and then he did it for King Kong, and he did it for Planet of the Apes, the first one, and for this one.
 
-[00:10:56] Norm: And movies like Tintin, you know, he was in that, and those movies, and this movie, when they're they're doing the motion capture, they're also doing the voices,
+[00:10:56] Norm: And movies like Tintin he was in that, and those movies, and this movie, when they're doing the motion capture, they're also doing the voices,
 
 [00:10:56] Adam: the voice, the vocal performance, right?
 
@@ -380,13 +380,13 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:11:17] Norm: it's mostly the actor.
 
-[00:11:27] Adam: You know, uh, Cameron, when when James Cameron visited MythBusters, we talked a bunch about that, and he said, frankly, it's true. Actors have trouble acting in empty sets with no props around them. At the same time, there are also a lot of actors that really love the freedom of. It's only the performance.
+[00:11:27] Adam: Cameron, when James Cameron visited MythBusters, we talked a bunch about that, and he said, frankly, it's true. Actors have trouble acting in empty sets with no props around them. At the same time, there are also a lot of actors that really love the freedom of. It's only the performance.
 
 [00:11:47] Norm: It's like acting in front of a mirror.
 
 [00:11:48] Will: It's like a black box theater,
 
-[00:11:50] Adam: right? And it's just it's it's really pure. And they can, because you don't have 75 people around holding shit up so that everything can happen perfectly. The actors can really concentrate and watch the performances and say, " I want to tweak this one, want to get this better, I want to do this right." And he said that you know that from a collaboration process, the actors found that really liberating.
+[00:11:50] Adam: right? And it's just it's really pure. And they can, because you don't have 75 people around holding shit up so that everything can happen perfectly. The actors can really concentrate and watch the performances and say, " I want to tweak this one, want to get this better, I want to do this right." And he said that you know that from a collaboration process, the actors found that really liberating.
 
 [00:12:11] Will: So, so I mean, the argument for me in favor of making Andy what Andy Serkis does just and just go ahead and calling it acting,
 
@@ -396,17 +396,17 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:12:11] Adam: Well, in that constraint that we've seen now, The— he's right now one of the masters of it. I mean, there are other people who are great physical performers, like Doug Jones, who has been in countless movies. If you look at his IMDb, he's been your favorite monster in every movie
 
-[00:12:35] Norm: in video games. Nolan North, um,
+[00:12:35] Norm: in video games. Nolan North
 
-[00:12:35] Adam: Mm-hmm. but also in in this in, uh, Dawn of Planet of the Apes, um, they have. Judy Greer plays one of the apes,
+[00:12:35] Adam: Mm-hmm. but also in this in Dawn of Planet of the Apes they have. Judy Greer plays one of the apes,
 
 [00:12:43] Norm: and you would, who's Judy Greer?
 
-[00:12:44] Adam: Great Judy Greer is a as a actress who is a wonderful actress. She was on Californication, but she's been oh she played the, uh
+[00:12:44] Adam: Great Judy Greer is a as a actress who is a wonderful actress. She was on Californication, but she's been oh she played the
 
 [00:12:51] Norm: she's the secretary in Arrested Development.
 
-[00:12:52] Will: Does she play the girlfriend, the the secret girl on Truman Show?
+[00:12:52] Will: Does she play the girlfriend, the secret girl on Truman Show?
 
 [00:12:56] Norm: Uh, no.
 
@@ -438,7 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:13:37] Adam: Anyway, go ahead.
 
-[00:13:38] Norm: You were talking about the plot of the the this, this, uh, last. The prequel to this, uh, Rise of the Planet of the Apes, with James Franco, which sets up, uh, the, right, uh, the origins of Caesar,
+[00:13:38] Norm: You were talking about the plot of the this last. The prequel to this Rise of the Planet of the Apes, with James Franco, which sets up the, right the origins of Caesar,
 
 [00:13:38] Adam: Yeah.
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:13:49] Adam: lead ape,
 
-[00:13:49] Norm: right? And it's if you remember the original five Planet of the Apes movies, it was time travel. It was it was time paradox that brought it— about the the Planet of the Apes.
+[00:13:49] Norm: right? And it's if you remember the original five Planet of the Apes movies, it was time travel. It was time paradox that brought it— about the Planet of the Apes.
 
 [00:14:02] Will: Charlton Heston goes forward in time to a world that shouldn't exist because it hasn't been created yet. Because he had to bring the apes back in order to make the world exist. Spoilers.
 
@@ -470,49 +470,49 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:14:37] Will: That makes the whole thing a much better.
 
-[00:14:38] Norm: No time travel whatsoever. Uh, The Rise of the Planet of the Apes movie is, I thought, was very. You didn't re-watch it, but I thought it was, um, very powerful and very resonant because of the relationship between Caesar and James Franco.
+[00:14:38] Norm: No time travel whatsoever. The Rise of the Planet of the Apes movie is, I thought, was very. You didn't re-watch it, but I thought it was very powerful and very resonant because of the relationship between Caesar and James Franco.
 
-[00:14:51] Adam: Absolutely, and and that that that tension between who you root for and the amount of empathy they manage to bring to the situation of a non-human entity on Earth,
+[00:14:51] Adam: Absolutely, and that that that tension between who you root for and the amount of empathy they manage to bring to the situation of a non-human entity on Earth,
 
 [00:15:05] Norm: which is something that is throughout this entire second movie. There are two factions: it's the Apes who are now in a who have built up a colony and their own home, and the surviving humans, one out of every 500 who survived the simian flu. We as humans want to root for the humans, but also
 
 [00:15:21] Adam: You spend the whole movie wondering who you should be rooting for, or feeling like I want to root for them. Oh, now they're together. Oh, I don't know who to root for, and you. It's that tension is very real in the film
 
-[00:15:31] Norm: because we're spoiling the very end of the movie. You realize the humans are peripheral. To the to the the story of the movie, it is not a story about human survival.
+[00:15:31] Norm: because we're spoiling the very end of the movie. You realize the humans are peripheral. To the story of the movie, it is not a story about human survival.
 
-[00:15:40] Adam: No, we we all know where the story is going.
+[00:15:40] Adam: No, we all know where the story is going.
 
-[00:15:42] Norm: Yeah, and and
+[00:15:42] Norm: Yeah, and
 
 [00:15:43] Will: Charlton Heston shows up.
 
-[00:15:44] Norm: The main human characters, Jason Clarke and Keri Russell, and and they just you. There is no epilogue for them. They fade away into the darkness.
+[00:15:44] Norm: The main human characters, Jason Clarke and Keri Russell, and they just you. There is no epilogue for them. They fade away into the darkness.
 
 [00:15:53] Adam: They do. They literally they leave a legacy with Caesar,
 
-[00:15:57] Norm: and and they teach him. It's more about informing him, right? And and and then about the apes learning about themselves,
+[00:15:57] Norm: and they teach him. It's more about informing him, right? And then about the apes learning about themselves,
 
 [00:15:57] Adam: yes,
 
 [00:15:57] Norm: and how they build their society.
 
-[00:16:04] Will: So the concept, like the science fiction concept of we are not the first main, you know, self aware civilization on the planet, is one of my absolute favorites. Like the like the doing archaeology and realizing that there's oh hey wait there's whole other civilizations that came before us. And I'm not talking about like the Romans, but I'm talking I'm talking about you know the giant cricket overlords or you know whatever. Um, so do they explore that at all with this, or is that presumably there's another movie coming? Right? There's a third movie coming.
+[00:16:04] Will: So the concept, like the science fiction concept of we are not the first main self aware civilization on the planet, is one of my absolute favorites. Like the doing archaeology and realizing that there's oh hey wait there's whole other civilizations that came before us. And I'm not talking about like the Romans, but I'm talking about you know the giant cricket overlords or you know whatever. So do they explore that at all with this, or is that presumably there's another movie coming? Right? There's a third movie coming.
 
 [00:16:32] Adam: They have others.
 
 [00:16:33] Norm: Oh yeah,
 
-[00:16:34] Adam: they have they have others in the pipeline. They're planning to do more. I think this one's going to do great business.
+[00:16:34] Adam: they have others in the pipeline. They're planning to do more. I think this one's going to do great business.
 
-[00:16:39] Norm: Yes, I think it's a seven, and we both gave it a seven because it's spectacular. Um. But unlike, for example, we did a spoiler cast for Edge of Tomorrow, a Tom Cruise movie, which I think is just a more fun film.
+[00:16:39] Norm: Yes, I think it's a seven, and we both gave it a seven because it's spectacular. But unlike, for example, we did a spoiler cast for Edge of Tomorrow, a Tom Cruise movie, which I think is just a more fun film.
 
 [00:16:39] Adam: Yeah,
 
-[00:16:39] Norm: this movie I didn't feel it was tense and and suspenseful and beautiful, but it wasn't didn't have the fun.
+[00:16:39] Norm: this movie I didn't feel it was tense and suspenseful and beautiful, but it wasn't didn't have the fun.
 
 [00:16:59] Will: Is it? Is it?
 
-[00:17:00] Adam: Well, I'll tell you where I thought it was really great. Is, um, there's the there's a tension between, uh, one of the movie's central points is a tension between Caesar and his sort of best friend and second in command, Koba. And Koba is more self-absorbed. Caesar is more a natural leader of his people, and, uh, the performance of Koba is astonishing. The characterization—he's the one-eyed ape from the first one with the scar across his eye—is phenomenal. Um, but when Koba tricks the humans with his whole sort of step and fetch it, it's terrifying kind of like I'm not threatening because you think of me as a dumb ape. Is actually, I think, one of the most it's it's an impressive little bit of filmmaking because you have these because it's it's an allegory. There's a clear allegory for racism across this film, uh.
+[00:17:00] Adam: Well, I'll tell you where I thought it was really great. Is there's the there's a tension between one of the movie's central points is a tension between Caesar and his sort of best friend and second in command, Koba. And Koba is more self-absorbed. Caesar is more a natural leader of his people, and the performance of Koba is astonishing. The characterization—he's the one-eyed ape from the first one with the scar across his eye—is phenomenal. But when Koba tricks the humans with his whole sort of step and fetch it, it's terrifying kind of like I'm not threatening because you think of me as a dumb ape. Is actually, I think, one of the most it's an impressive little bit of filmmaking because you have these because it's an allegory. There's a clear allegory for racism across this film.
 
 [00:17:57] Will: There's always been a clear allegory for racism.
 
@@ -520,7 +520,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:17:58] Norm: Is it the card on top of the head? Is Tarantino going to go faster?
 
-[00:18:03] Adam: Right? Is it the plight of the Negro? No, then it's King Kong. Yeah, exactly. Um, yeah, and it's it's it's very intense and terrific. I I enjoyed the spit out of it. Um. My son was very like he was a great person to sit next to because he was like jumping out of his seat and like clapping and, uh.
+[00:18:03] Adam: Right? Is it the plight of the Negro? No, then it's King Kong. Yeah, exactly. Um, yeah, and it's very intense and terrific. I enjoyed the spit out of it. My son was very like he was a great person to sit next to because he was like jumping out of his seat and like clapping and.
 
 [00:18:19] Norm: Can we do a little detour about the experience of watching the movie?
 
@@ -530,7 +530,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:18:25] Will: This is the first time you've been to a world premiere.
 
-[00:18:27] Norm: First time, and I got through just like not the way you got through? You got through through contact a friend, and I was there with the press people. Um. It was in San Francisco. The movie is set in San Francisco, just like the Rise of the Planet of the Apes, the James Franco one,
+[00:18:27] Norm: First time, and I got through just like not the way you got through? You got through through contact a friend, and I was there with the press people. It was in San Francisco. The movie is set in San Francisco, just like the Rise of the Planet of the Apes, the James Franco one,
 
 [00:18:40] Adam: and they shot some of it here and
 
@@ -588,7 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:19:18] Adam: No, it starts with Vertigo.
 
-[00:19:20] Will: Oh, right. Okay. So that's that's you know mostly North Bay.
+[00:19:20] Will: Oh, right. Okay. So that's you know mostly North Bay.
 
 [00:19:20] Adam: You gotta go all the way back.
 
@@ -608,19 +608,19 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:19:38] Adam: Yeah, they were all there
 
-[00:19:38] Norm: for for actors. They watch the movie possibly for the first time, unless they're heavily involved with the producing or the editing. In in the world premiere, so someone who like Judy Greer, who is she's an ape in the movie, but she's not a main character. She's a supporting character. Doesn't have lines really at all, um.
+[00:19:38] Norm: for actors. They watch the movie possibly for the first time, unless they're heavily involved with the producing or the editing. In the world premiere, so someone who like Judy Greer, who is she's an ape in the movie, but she's not a main character. She's a supporting character. Doesn't have lines really at all.
 
 [00:19:54] Will: And I mean, I assume a lot of times they're just working on the movie and they're working on a green screen or in a mocap suit, yeah. And then they go away and come back and they see themselves as apes,
 
-[00:19:54] Norm: yeah. So they get to watch it here, and it was at the Palace of Fine Arts, a lovely theater. It's one of the the buildings that was made for the World's Fair,
+[00:19:54] Norm: yeah. So they get to watch it here, and it was at the Palace of Fine Arts, a lovely theater. It's one of the buildings that was made for the World's Fair,
 
 [00:20:01] Will: yeah,
 
-[00:20:01] Norm: Uh, the first World's Fair here in San Francisco,
+[00:20:01] Norm: The first World's Fair here in San Francisco,
 
 [00:20:10] Adam: and the home of the old Exploratorium.
 
-[00:20:12] Norm: Yes, exactly. A lovely theater, uh, done in 3D. And when I got there, uh, first of all, I decided what to wear to a premiere because I got to come. It's a world premiere. I got to wear a suit.
+[00:20:12] Norm: Yes, exactly. A lovely theater done in 3D. And when I got there first of all, I decided what to wear to a premiere because I got to come. It's a world premiere. I got to wear a suit.
 
 [00:20:12] Adam: Yeah.
 
@@ -636,7 +636,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:20:33] Will: Cannibalistic human underground dwellers.
 
-[00:20:33] Norm: Yeah. Okay. I was a chud. Um.
+[00:20:33] Norm: Yeah. Okay. I was a chud.
 
 [00:20:37] Adam: Humanoid.
 
@@ -646,17 +646,17 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:20:41] Will: Were you the Were the other press people wearing suits?
 
-[00:20:43] Norm: Oh yes. When people oh they're wearing they're wearing whatever their L A whatever their on camera.
+[00:20:43] Norm: Oh yes. When people oh they're wearing whatever their L A whatever their on camera.
 
 [00:20:47] Adam: shirt and a blazer.
 
 [00:20:49] Will: That's good. That's, that's very casual, but up.
 
-[00:20:52] Norm: So in the theater, uh, you know, it's like a mid-sized theater. I would say maybe 800 people or so.
+[00:20:52] Norm: So in the theater it's like a mid-sized theater. I would say maybe 800 people or so.
 
 [00:20:52] Adam: Yeah.
 
-[00:20:52] Norm: Uh, 60% of it is reserved seating. Like, it's clear signs on the seats, and this is the the best seats in the house. Reserved
+[00:20:52] Norm: 60% Of it is reserved seating. Like, it's clear signs on the seats, and this is the best seats in the house. Reserved
 
 [00:21:06] Adam: center
 
@@ -670,13 +670,13 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:21:25] Norm: Exactly. Yeah, we're all in the same room. There were plenty of people there who won the radio shows, and they tell you to get there early. They park. Also, they had a full security detail there, telling people where to go, and a whole fleet of like black suburban SUVs, tinted windows in the back.
 
-[00:21:37] Adam: Yes, and I would I want to just tell you is yeah I'll let you continue, but I will tell you that as I walk like a cordon through something like this. One of my favorite things is the security people because they are absolutely a core MythBusters fan base, and the world over, guys who work security, guys and women who work security at places like this, are incredibly professional. They've seen everything, they've seen everyone, they are hard to impress, and they are, like I said, a absolute manifestation of professionalism. And still, I frequently see a little gleam in the eye when they see me and a little simpatico. So, as I was leaving last night, I just walked up to this door, you know, one of those Exploratorium doors. It's like 40 feet tall.
+[00:21:37] Adam: Yes, and I would I want to just tell you is yeah I'll let you continue, but I will tell you that as I walk like a cordon through something like this. One of my favorite things is the security people because they are absolutely a core MythBusters fan base, and the world over, guys who work security, guys and women who work security at places like this, are incredibly professional. They've seen everything, they've seen everyone, they are hard to impress, and they are, like I said, a absolute manifestation of professionalism. And still, I frequently see a little gleam in the eye when they see me and a little simpatico. So, as I was leaving last night, I just walked up to this door one of those Exploratorium doors. It's like 40 feet tall.
 
 [00:21:37] Norm: Yeah,
 
-[00:21:37] Adam: and I was like, " Is this how I get out?" And the guy goes, " For you, it is." And then he opened the door for me and let me out. Um, sorry, go ahead.
+[00:21:37] Adam: and I was like, " Is this how I get out?" And the guy goes, " For you, it is." And then he opened the door for me and let me out. Sorry, go ahead.
 
-[00:22:31] Norm: Walked in, and they don't, like. We get the normal people get to sit in the back three rows and the front three rows. I'm more than happy to sit in one of those rows. You want to sit, obviously, in the center in the back. Uh, the other premiere I've been to was in the same place for the Game of Thrones premiere. So what they do is let the normal people. So I was surrounded by some journalists. This like some father and daughter who won a radio show contest were sitting next to me. Yeah. Okay. Totally fine. And then the middle like six rows were they put the actors in the center of those and buffer them.
+[00:22:31] Norm: Walked in, and they don't, like. We get the normal people get to sit in the back three rows and the front three rows. I'm more than happy to sit in one of those rows. You want to sit, obviously, in the center in the back. The other premiere I've been to was in the same place for the Game of Thrones premiere. So what they do is let the normal people. So I was surrounded by some journalists. This like some father and daughter who won a radio show contest were sitting next to me. Yeah. Okay. Totally fine. And then the middle like six rows were they put the actors in the center of those and buffer them.
 
 [00:22:31] Adam: Yeah.
 
@@ -710,7 +710,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:23:18] Norm: the director Matt Reeves
 
-[00:23:18] Adam: Uh, he came out and talked about the making the film.
+[00:23:18] Adam: He came out and talked about the making the film.
 
 [00:23:48] Norm: Very gracious.
 
@@ -720,9 +720,9 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:23:52] Adam: I don't think so. Yeah.
 
-[00:23:53] Norm: Um, and and then all the the actors stood up and and waved and and took a bow and it was.
+[00:23:53] Norm: And then all the actors stood up and waved and took a bow and it was.
 
-[00:24:00] Adam: I will I will say for the record, I, this is the second time I've been within three feet of Andy Serkis and still did not have the guts to go up and say hello. I just I I really really I love that guy.
+[00:24:00] Adam: I will say for the record, I, this is the second time I've been within three feet of Andy Serkis and still did not have the guts to go up and say hello. I just I I really really I love that guy.
 
 [00:24:12] Will: You just stand behind me quietly, going precious,
 
@@ -734,11 +734,11 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:24:18] Will: [unclear: do?] That's not the cool way to do it, but you know he'd notice.
 
-[00:24:20] Adam: He was in John Landis's last movie, *Burke and Hare*, uh, and John gave me, uh, contact information for Andy so that I because I wanted to ask him if he was going to be at Comic Con. Did he want to come on stage and sing " I Will Survive" with me as a duet as Gollums because I can do the Gollum voice.
+[00:24:20] Adam: He was in John Landis's last movie, *Burke and Hare*and John gave me contact information for Andy so that I because I wanted to ask him if he was going to be at Comic Con. Did he want to come on stage and sing " I Will Survive" with me as a duet as Gollums because I can do the Gollum voice.
 
 [00:24:38] Will: That's amazing.
 
-[00:24:38] Adam: I never heard back from him. Um, I mean, look, he's a busy guy. He was directing * Lord of the Rings: The Hobbit*, right? He's the second unit director on the * Hobbit* films. Um, Keri Russell, who many people might remember from Felicity, is not only a phenomenal actress but just so pretty. I mean, and I know that's like one of her jobs is to be really, really pretty. She's really good at it.
+[00:24:38] Adam: I never heard back from him. I mean, look, he's a busy guy. He was directing * Lord of the Rings: The Hobbit*, right? He's the second unit director on the * Hobbit* films. Keri Russell, who many people might remember from Felicity, is not only a phenomenal actress but just so pretty. I mean, and I know that's like one of her jobs is to be really, really pretty. She's really good at it.
 
 [00:25:00] Will: She was so good in Mission Impossible Three,
 
@@ -750,7 +750,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:25:35] Will: Oh yeah, that is baseball, hockey.
 
-[00:25:37] Adam: That is that is his wheelhouse, man.
+[00:25:37] Adam: That is his wheelhouse, man.
 
 [00:25:37] Will: What are his? What? Which one is it, man?
 
@@ -762,7 +762,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:25:46] Adam: for the love of the game.
 
-[00:25:47] Will: Right there, there is every spring in my house. We sit down, we load up Bull Durham. We watch Bull Durham. It is a phenomenal movie.
+[00:25:47] Will: Right there is every spring in my house. We sit down, we load up Bull Durham. We watch Bull Durham. It is a phenomenal movie.
 
 [00:25:55] Adam: Totally, totally.
 
@@ -772,13 +772,13 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:26:00] Will: Even Field of Dreams is okay. For me it's not a movie about sports though.
 
-[00:26:04] Adam: No, um, and I, yeah, I love Tin Cup because I love Rene Russo too.
+[00:26:04] Adam: No and I, yeah, I love Tin Cup because I love Rene Russo too.
 
 [00:26:08] Will: Rene Russo is great.
 
 [00:26:09] Adam: She's fabulous. Anyway, Keri Russell is lovely.
 
-[00:26:10] Norm: Yes, and then a bunch, and then all the actors who are there, who, uh, who played the—
+[00:26:10] Norm: Yes, and then a bunch, and then all the actors who are there, who who played the—
 
 [00:26:15] Adam: Who played apes.
 
@@ -802,7 +802,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:26:43] Will: back three rows. Okay,
 
-[00:26:44] Norm: Um, and then the rest of the movie,
+[00:26:44] Norm: And then the rest of the movie,
 
 [00:26:47] Adam: you were just on.
 
@@ -824,7 +824,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:27:11] Will: that was pretty good,
 
-[00:27:11] Adam: yeah, yeah, pretty good. But so the fur was amazing. Um. They they they did a lot of, uh, they they played around a lot with bokeh with depth of field to make stuff really feel like you were looking at film of ape hands, and then the scene where you're looking at— sound design of the rough hands touching, which was a key element in the film, was terrific. Um, I thought that some of the animation of the apes swinging and landing.
+[00:27:11] Adam: yeah, yeah, pretty good. But so the fur was amazing. They did a lot of they played around a lot with bokeh with depth of field to make stuff really feel like you were looking at film of ape hands, and then the scene where you're looking at— sound design of the rough hands touching, which was a key element in the film, was terrific. I thought that some of the animation of the apes swinging and landing.
 
 [00:27:37] Norm: Didn't have weight?
 
@@ -832,15 +832,15 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:27:50] Will: Looks cartoony or
 
-[00:27:51] Adam: but. But that being said, the facial movement of the apes and the amount of communication, the eyes and the the. I mean, the sweat and the tears and the blood and everything. 100%. I totally was the same with you, and for most of the movie, just come along for the ride.
+[00:27:51] Adam: but. But that being said, the facial movement of the apes and the amount of communication, the eyes and the. I mean, the sweat and the tears and the blood and everything. 100%. I totally was the same with you, and for most of the movie, just come along for the ride.
 
-[00:28:07] Norm: Yeah, and and the stuff you know, you had to have a big set piece of apes fighting. You had to have that. That was much less thrilling than when Koba and Caesar when they fight the first fight they have, and Koba's on the ground.
+[00:28:07] Norm: Yeah, and the stuff you had to have a big set piece of apes fighting. You had to have that. That was much less thrilling than when Koba and Caesar when they fight the first fight they have, and Koba's on the ground.
 
 [00:28:07] Adam: Yeah, with the blood in his teeth.
 
 [00:28:23] Norm: Oh my goodness, that was amazing.
 
-[00:28:24] Adam: the best CG I've ever seen. Full stop, full stop, and everything in the frame is CG. By the way, um, one of our one of our builders on the on MythBusters, Joe, uh, worked on Iron Man one and two and a bunch of other Hollywood films, and, uh, he visited the set. All the exteriors were shot in Louisiana, and he visited the set, which was basically in this parking lot of the Ape Village.
+[00:28:24] Adam: the best CG I've ever seen. Full stop, and everything in the frame is CG. By the way one of our builders on the on MythBusters, Joe worked on Iron Man one and two and a bunch of other Hollywood films, and he visited the set. All the exteriors were shot in Louisiana, and he visited the set, which was basically in this parking lot of the Ape Village.
 
 [00:28:24] Norm: Oh, cool!
 
@@ -872,25 +872,25 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:29:33] Will: toward the human genocide.
 
-[00:29:34] Adam: But it's also you know what they've done is you could attempt you could have attempted. And sequels are totally guilty of this all the time. You could have attempted to cover too much material. It's actually quite impressive how small this whole movie takes place in the, in the span of a week.
+[00:29:34] Adam: But it's also you know what they've done is you could attempt you could have attempted. And sequels are totally guilty of this all the time. You could have attempted to cover too much material. It's actually quite impressive how small this whole movie takes place in the span of a week.
 
 [00:29:51] Norm: Yeah, it's a very small story.
 
-[00:29:52] Adam: It's a very small story, and yet so much is covered from a from an ex— expository standpoint that doesn't feel like someone's just downloading information into you. It feels like you're watching a genuine struggle, and you're empathizing with different characters at different times to understand what's going on. And it's it's really effective.
+[00:29:52] Adam: It's a very small story, and yet so much is covered from a from an ex— expository standpoint that doesn't feel like someone's just downloading information into you. It feels like you're watching a genuine struggle, and you're empathizing with different characters at different times to understand what's going on. And it's really effective.
 
 [00:30:11] Will: You never have one of those scenes where at the end you feel like the guy should just break the fourth wall, look at the camera, be like, " Well, that was a lot of exposition, wasn't it?"
 
-[00:30:18] Adam: Actually, no. And what they did is they they got rid of most of their world building in the first 35 50 seconds of just sound design and a shot of you know how the flu takes over the world.
+[00:30:18] Adam: Actually, no. And what they did is they got rid of most of their world building in the first 35 50 seconds of just sound design and a shot of you know how the flu takes over the world.
 
 [00:30:30] Norm: And you're hearing news direct connections to the end of the last movie, the end credits of the last movie, which was the planes going out and spreading the flu.
 
 [00:30:35] Adam: Yeah,
 
-[00:30:36] Norm: yeah, a very different movie from that. The the rise of the planet of the apes.
+[00:30:36] Norm: yeah, a very different movie from that. The rise of the planet of the apes.
 
 [00:30:36] Adam: Yeah,
 
-[00:30:36] Norm: the story that they wanted to tell. Um, Caesar. It's 10 years later.
+[00:30:36] Norm: the story that they wanted to tell. Caesar. It's 10 years later.
 
 [00:30:36] Adam: Yeah. Uh.
 
@@ -904,11 +904,11 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:31:13] Adam: Totally
 
-[00:31:13] Norm: right.  It's not like oh, this is silly. Apes are talking. Like they acknowledge, oh my god, it's crazy. Apes are talking, but then you fall right into it. I like when when we talked to Damon Lindelof when you interviewed him.
+[00:31:13] Norm: right. It's not like oh, this is silly. Apes are talking. Like they acknowledge, oh my god, it's crazy. Apes are talking, but then you fall right into it. I like when we talked to Damon Lindelof when you interviewed him.
 
 [00:31:13] Adam: Yeah.
 
-[00:31:13] Norm: You talked about how movies should can be summed up. The theme of movies should be summed up in one word. Like Star Trek, the theme of the Star Trek movies is friendship above all. And I thought for this movie, leadership, uh, was the theme
+[00:31:13] Norm: You talked about how movies should can be summed up. The theme of movies should be summed up in one word. Like Star Trek, the theme of the Star Trek movies is friendship above all. And I thought for this movie, leadership was the theme
 
 [00:31:13] Adam: Yeah.
 
@@ -916,7 +916,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:31:13] Adam: Yeah.
 
-[00:31:13] Norm: character, and the and I rewatched the trailer because the movie it's actually before the movie is out right now. Uh, the trailer is a little misleading.
+[00:31:13] Norm: character, and the and I rewatched the trailer because the movie it's actually before the movie is out right now. The trailer is a little misleading.
 
 [00:31:52] Adam: Oh, really?
 
@@ -934,7 +934,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:32:02] Norm: July 11.
 
-[00:32:04] Adam: So I will say that last night at the party, I found myself talking for a while to one of these lovely young men, uh, Gary Oldman's sons. And Gary Oldman's in the film; and he's wonderful, um, and his son is a fan of Tested.
+[00:32:04] Adam: So I will say that last night at the party, I found myself talking for a while to one of these lovely young men Gary Oldman's sons. And Gary Oldman's in the film; and he's wonderful and his son is a fan of Tested.
 
 [00:32:04] Norm: Oh, cool!
 
@@ -946,7 +946,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:32:39] Will: Well, maybe one day.
 
-[00:32:40] Norm: Maybe one day. Um.
+[00:32:40] Norm: Maybe one day.
 
 [00:32:41] Adam: I think that's a.
 
@@ -966,7 +966,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:32:58] Adam: I think so.
 
-[00:32:59] Will: I, I,
+[00:32:59] Will: I,
 
 [00:33:00] Norm: so
 
@@ -982,7 +982,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:33:16] Adam: Okay. That's for another time.
 
-[00:33:18] Will: Yeah, exactly. Um, and that'll do it for us this week. As always, if you want to like us, rate us, tell us we're terrible or awesome, you can do that on iTunes, YouTube, Twitter, Facebook, uh, Google Plus.
+[00:33:18] Will: Yeah, exactly. And that'll do it for us this week. As always, if you want to like us, rate us, tell us we're terrible or awesome, you can do that on iTunes, YouTube, Twitter, Facebook Google Plus.
 
 [00:33:30] Adam: Yes, you can.
 
@@ -994,7 +994,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:33:30] Adam: Pinterest, yes.
 
-[00:33:30] Will: Yeah, yeah. Um, we'll be back next week with another episode of Still Untitled. We'll see you guys later.
+[00:33:30] Will: Yeah, yeah. We'll be back next week with another episode of Still Untitled. We'll see you guys later.
 
 [00:33:41] Adam: Thanks, everybody. Bye,
 

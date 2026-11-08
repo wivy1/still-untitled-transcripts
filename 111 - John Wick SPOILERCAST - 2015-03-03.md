@@ -18,7 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:01:11] Will: We did that before.
 
-[00:01:12] Adam: I'm I'm enjoying my new favorite drink.
+[00:01:12] Adam: I'm enjoying my new favorite drink.
 
 [00:01:14] Will: Okay,
 
@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:01:20] Will: I like that with a little rum or bourbon in it.
 
-[00:01:21] Adam: And it's it's yes, right.
+[00:01:21] Adam: And it's yes, right.
 
 [00:01:24] Will: Yeah,
 
@@ -60,7 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:02:03] Norm: Yeah, I think he he hid his um his illness.
 
-[00:02:05] Will: That's something that he he should have vengeance for.
+[00:02:05] Will: That's something that he should have vengeance for.
 
 [00:02:08] Adam: Jean-Claude Van Damme am I right? Kylie Minogue.
 
@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:02:16] Will: Gross.
 
-[00:02:17] Adam: Yes, she got a little bit of that. She got she got a Belgian waffle.
+[00:02:17] Adam: Yes, she got a little bit of that. She got a Belgian waffle.
 
 [00:02:20] Will: She got the split. Oh wow!
 
@@ -140,7 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:03:27] Norm: But I think Jean-Claude Van Damme is due for a great revenge flick.
 
-[00:03:32] Adam: You're you're absolutely right.
+[00:03:32] Adam: You're absolutely right.
 
 [00:03:33] Norm: A modern revenge flick.
 
@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:03:54] Will: I'm in based on the name.
 
-[00:03:56] Adam: Yeah. Uh, and they talked about the fact that Liam Neeson does a couple of maybe one or two important movies every year. By important, I mean like dramatically interesting and you know probably for no money. And then he also does one or two of his you know old guy getting revenge on everybody, and he does it right now better than anyone alive. So we've got The Grey, and you've got the Taken movies, which are really the weakest of his.
+[00:03:56] Adam: Yeah. And they talked about the fact that Liam Neeson does a couple of maybe one or two important movies every year. By important, I mean like dramatically interesting and you know probably for no money. And then he also does one or two of his you know old guy getting revenge on everybody, and he does it right now better than anyone alive. So we've got The Grey, and you've got the Taken movies, which are really the weakest of his.
 
 [00:04:22] Norm: Taken one was great.
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:04:27] Will: I only watched it once.
 
-[00:04:27] Adam: The plot bugged the crap out of me. I want to see someone. I want to see reasons why they're smart instead of like a. I just I just determined exactly who it was. Yeah, I mean, it just seems sort of like randomly. Like,
+[00:04:27] Adam: The plot bugged the crap out of me. I want to see someone. I want to see reasons why they're smart instead of like a. I just determined exactly who it was. Yeah, I mean, it just seems sort of like randomly. Like,
 
 [00:04:39] Will: was that Craig Ferguson doing Liam Neeson?
 
@@ -218,17 +218,17 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:05:46] Will: He's kind of become like the old Jason Statham.
 
-[00:05:50] Adam: Statham, yeah, right, and nobody's doing this better than him right now. So as far as I'm concerned, Taken Three can be terrible. But Liam deserves his his his awesome success, and I'll watch I'll watch them all.
+[00:05:50] Adam: Statham, yeah, right, and nobody's doing this better than him right now. So as far as I'm concerned, Taken Three can be terrible. But Liam deserves his his his awesome success, and I'll watch them all.
 
 [00:06:03] Norm: So these are, there's a trend, and revenge flicks are not new because you you had the you know the the Bronson
 
 [00:06:09] Adam: Death Wish films,
 
-[00:06:10] Norm: yeah, exactly, all that stuff, you know, and and but there seems to be this trend now of the guy you know who used to be
+[00:06:10] Norm: yeah, exactly, all that stuff and but there seems to be this trend now of the guy you know who used to be
 
 [00:06:18] Will: right,
 
-[00:06:18] Norm: a serious actor, and wants to, and now they want to cast him in the the dude getting his revenge, who's expert at killing.
+[00:06:18] Norm: a serious actor, and wants to, and now they want to cast him in the dude getting his revenge, who's expert at killing.
 
 [00:06:27] Adam: This is this is how I this is my fantasy. If if I could like you know upload into the Matrix and choose my future, that would be it. I'd love to.
 
@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:06:53] Will: It could be murdering MacGruber or MacGyver.
 
-[00:06:56] Norm: It's like they're they're very. Unassuming, badasses.
+[00:06:56] Norm: It's like they're very. Unassuming, badasses.
 
 [00:07:01] Adam: All of this is by way of saying that the Man of Tai Chi is a terrible, terrible movie.
 
@@ -268,7 +268,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:07:17] Adam: Okay, right, right,
 
-[00:07:18] Will: right. Um, that movie. So we watched it on. On we rented it a few nights ago. I'm gonna. I ordered the Blu-ray as soon as we finished watching because I'm like, I'm gonna watch this three or four times easily. It is. It is the like the thing that people are doing now.
+[00:07:18] Will: right. That movie. So we watched it on. On we rented it a few nights ago. I'm gonna. I ordered the Blu-ray as soon as we finished watching because I'm like, I'm gonna watch this three or four times easily. It is. It is the like the thing that people are doing now.
 
 [00:07:31] Adam: Oh, spoiler cast.
 
@@ -280,7 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:07:44] Adam: Every bit about how it ends. It's like knowing. It's like reading the Raiders script and someone telling you the whole plot. Raiders is no less fun for knowing exactly.
 
-[00:07:52] Will: The plot is the least important part of the movie. Um, he. He so there's a thing that happened, and I kind of blame J.J. Abrams and and and Joss Whedon for this.
+[00:07:52] Will: The plot is the least important part of the movie. He. He so there's a thing that happened, and I kind of blame J.J. Abrams and Joss Whedon for this.
 
 [00:08:03] Adam: Okay.
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:08:10] Adam: yes.
 
-[00:08:10] Will: And I I'm trying. I've been looking for a while to try to figure out what the what the starting point for this was. I kind of want to think it was Mission Impossible three, somewhere around there. Um, but but the self-aware script for an action movie that that culminated with like the Avengers and Guardians of the Galaxy, where the whole thing is kind of a wink and a nod to the audience,
+[00:08:10] Will: And I I'm trying. I've been looking for a while to try to figure out what the starting point for this was. I kind of want to think it was Mission Impossible three, somewhere around there. But the self-aware script for an action movie that that culminated with like the Avengers and Guardians of the Galaxy, where the whole thing is kind of a wink and a nod to the audience,
 
 [00:08:28] Adam: right,
 
@@ -316,7 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:09:01] Norm: about it. He gets tied to a chair.
 
-[00:09:02] Adam: That's what I love about it. See, I love it when the movies is not like the oh now he's now he's against the real baddie. It's like he pretty much almost never stops throughout the movie.
+[00:09:02] Adam: That's what I love about it. See, I love it when the movies is not like the oh now he's against the real baddie. It's like he pretty much almost never stops throughout the movie.
 
 [00:09:11] Will: There's no challenge.
 
@@ -338,29 +338,29 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:10:04] Will: it's not gunfu,
 
-[00:10:05] Norm: no, but but it is. there's an elegance in the way a cold elegance, in the way it's executed.
+[00:10:05] Norm: no, but it is. there's an elegance in the way a cold elegance, in the way it's executed.
 
 [00:10:10] Adam: and it's an elegance that I haven't felt like I've seen before
 
 [00:10:13] Norm: because
 
-[00:10:13] Adam: of his like he never loses focus. It's almost like I love this word over the last couple of years, proprioception, right? Your your your ability to perceive what's going on around you, and if you watch old footage of Wayne Gretzky, the great one, playing hockey, you've never seen anyone with proprioception like that.
+[00:10:13] Adam: of his like he never loses focus. It's almost like I love this word over the last couple of years, proprioception, right? Your ability to perceive what's going on around you, and if you watch old footage of Wayne Gretzky, the great one, playing hockey, you've never seen anyone with proprioception like that.
 
 [00:10:31] Will: He always knows what's going on at every part part of the ice,
 
 [00:10:34] Adam: every player on the ice, and what their trajectories are. And it watching John Wick shoot through that movie, watching Keanu's character shoot through the movie, is like that. It's like everywhere he goes, he knows exactly where everyone is.
 
-[00:10:47] Will: And so, part of the thing that appealed to me is that because they know, because they know that we're familiar with this form, this is a form that is well established, and we we we have expectations. They they're toying with your expectations in ways that you aren't normally that that that wouldn't work if they didn't know you already know the form. So the chair scene is a good example of that, right? Like he's, he you know he's going to get caught, and he's he's going to have a bad time in Casino Royale when Bond get caught.
+[00:10:47] Will: And so, part of the thing that appealed to me is that because they know that we're familiar with this form, this is a form that is well established, and we have expectations. They they're toying with your expectations in ways that you aren't normally that that that wouldn't work if they didn't know you already know the form. So the chair scene is a good example of that, right? Like he's, he you know he's going to get caught, and he's going to have a bad time in Casino Royale when Bond get caught.
 
 [00:11:14] Adam: I got caught while you were scratching my balls.
 
 [00:11:15] Will: Right. Right. Exactly. Like it's a good turn, and that's the other the the mirror image of this. This is minor minorest of speed bumps, and and yeah,
 
-[00:11:24] Adam: with with literally the bad guy going, no, no, I'm quite confident he will be killed while I don't have to watch.
+[00:11:24] Adam: with literally the bad guy going, no, no, I'm quite confident he will be killed while I don't have to watch.
 
 [00:11:28] Will: Yeah. Right. I'm going to leave the room. Go have a coffee, whatever.
 
-[00:11:32] Norm: And then I think one of the finest ways that this you can appreciate this movie is the world building it does. In addition to you know he's the he's the badass hit guy, it's Where the world they don't tell you what you're entering.
+[00:11:32] Norm: And then I think one of the finest ways that this you can appreciate this movie is the world building it does. In addition to you know he's the badass hit guy, it's Where the world they don't tell you what you're entering.
 
 [00:11:45] Adam: What the city is?
 
@@ -384,7 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:12:04] Will: Right. Okay.
 
-[00:12:05] Norm: So the the hotel that you go to.
+[00:12:05] Norm: So the hotel that you go to.
 
 [00:12:07] Adam: Do you smell pot?
 
@@ -396,7 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:12:21] Adam: Nope. That's hilarious.
 
-[00:12:24] Will: Yeah, you have a great neighborhood here. You know, no poop on the sidewalk today, so it was a moral victory.
+[00:12:24] Will: Yeah, you have a great neighborhood here. No poop on the sidewalk today, so it was a moral victory.
 
 [00:12:30] Adam: So that's a bonus. Yeah, it's a bonus.
 
@@ -410,11 +410,11 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:12:45] Adam: It Is very vampire. The movie feels like a vampire flick in that regard.
 
-[00:12:47] Norm: But it's you know it's honor and among thieves, and they have characters in there. You know Lance Reddick who does the bellman or the the concierge, the Lester from The Wire. Lester, yeah, yeah, just as an old hitman.
+[00:12:47] Norm: But it's you know it's honor and among thieves, and they have characters in there. You know Lance Reddick who does the bellman or the concierge, the Lester from The Wire. Lester, yeah, yeah, just as an old hitman.
 
 [00:13:01] Will: Yeah, was he the guy that cut that held the girl for him? No,
 
-[00:13:03] Norm: yes, he's the guy who held the girl. Um, and then she gets killed. The pillow,
+[00:13:03] Norm: yes, he's the guy who held the girl. And then she gets killed. The pillow,
 
 [00:13:08] Will: right?
 
@@ -428,7 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:13:12] Adam: um,
 
-[00:13:13] Norm: and and when they go, actually, you know, through it's a very tropey thing. Go through the kitchen, you know, down the elevator into the the nightclub. Uh, that stuff
+[00:13:13] Norm: and when they go, actually through it's a very tropey thing. Go through the kitchen down the elevator into the nightclub. That stuff
 
 [00:13:23] Adam: where the Russian gangsters all hang out.
 
@@ -438,7 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:13:25] Will: Willem Dafoe was phenomenal.
 
-[00:13:27] Adam: Willem Dafoe was fantastic. Um, I I I kept on saying what I loved about it was while it while it took you through all these tropes, it didn't waste any of your time trying to be more clever than it was.
+[00:13:27] Adam: Willem Dafoe was fantastic. I kept on saying what I loved about it was while it took you through all these tropes, it didn't waste any of your time trying to be more clever than it was.
 
 [00:13:41] Will: No.
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:13:47] Adam: which was Charlize Theron's first big movie. And Two Days in the Valley, which is a fine movie, felt way too clever by half, trying to get to that Pulp Fiction territory.
 
-[00:13:57] Will: They were they were it was all winks and nods,
+[00:13:57] Will: They were it was all winks and nods,
 
 [00:13:59] Adam: right? And John Wick, which is sort of gesturally, one entire wink and a nod at the same time, was just like, here's it's fight choreographers going, here's what we like about these scenes, and we're just going to take one and run it for like 15 minutes for your enjoyment.
 
@@ -464,7 +464,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:14:31] Will: I mean, I didn't reassemble it in my mouth. Obviously,
 
-[00:14:33] Norm: that's not to say that I didn't think it can be improved. We can gush. I will say that. I did not, I did not like the captioning for the.
+[00:14:33] Norm: that's not to say that I didn't think it can be improved. We can gush. I will say that. I did not like the captioning for the.
 
 [00:14:41] Adam: That's my biggest problem.
 
@@ -474,13 +474,13 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:14:44] Will: Yes, it was so hard to read.
 
-[00:14:46] Adam: They did these subtitles that felt they they graphically wanted to be interesting with their subtitles, and what they ended up with felt like, well, my kid can use CorelDRAW. It really just felt super cheapy and overworky.
+[00:14:46] Adam: They did these subtitles that felt they graphically wanted to be interesting with their subtitles, and what they ended up with felt like, well, my kid can use CorelDRAW. It really just felt super cheapy and overworky.
 
 [00:14:58] Will: Extruded, yeah,
 
 [00:15:00] Norm: and like the way you like Boogeyman was like bigger and italicized. I didn't like that at all.
 
-[00:15:04] Adam: No, I didn't like that at all. I mean, I want to keep on that for a second because because subtitles are something you should never mess with, as far as I'm concerned, unless Night Watch and Day Watch, the Russian films, did magnificent job by slightly altering. So when the vampire, there's a point at which the vampires in Night Watch can call to people that they have, you know, mesmerized, and the subtitles as they call to them disappear in smoke each time they, and it's one of these little subtle things that's because they're going standard subtitle, you know, font and and kerning and all that. When it does that, you're kind of like, oh, oh, that's cool.
+[00:15:04] Adam: No, I didn't like that at all. I mean, I want to keep on that for a second because subtitles are something you should never mess with, as far as I'm concerned, unless Night Watch and Day Watch, the Russian films, did magnificent job by slightly altering. So when the vampire, there's a point at which the vampires in Night Watch can call to people that they have mesmerized, and the subtitles as they call to them disappear in smoke each time they, and it's one of these little subtle things that's because they're going standard subtitle font and kerning and all that. When it does that, you're kind of like, oh, oh, that's cool.
 
 [00:15:45] Will: Something different. This is this means something different,
 
@@ -500,7 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:16:04] Adam: Insurance. That actor, I can't remember his name. He's. I love him. Love him.
 
-[00:16:08] Norm: It's funny because he looks just like the dude from Good Will Hunting. The long haired. Um, the How You Like Them Apples guy.
+[00:16:08] Norm: It's funny because he looks just like the dude from Good Will Hunting. The long haired. The How You Like Them Apples guy.
 
 [00:16:15] Adam: Oh, right.
 
@@ -534,7 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:18:02] Adam: is that who that is?
 
-[00:18:03] Norm: He's from a—he's from a Game of Thrones.
+[00:18:03] Norm: He's from a Game of Thrones.
 
 [00:18:05] Adam: Oh, right,
 
@@ -566,9 +566,9 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:19:17] Adam: That's awesome.
 
-[00:19:17] Will: It was like you knew you you expect that guy. You expect John Leguizamo to die a horrible death, right? And they toy with the expectation.
+[00:19:17] Will: It was like you knew you expect that guy. You expect John Leguizamo to die a horrible death, right? And they toy with the expectation.
 
-[00:19:26] Adam: So they're toying with the expectations, and it's efficient filmmaking, right? You know that, like, you don't learn that Wick is a hitman. You knew Wick's a hitman if you saw a trailer, but to come upon this movie without knowing that would be such a Deep pleasure.
+[00:19:26] Adam: So they're toying with the expectations, and it's efficient filmmaking, right? You know that you don't learn that Wick is a hitman. You knew Wick's a hitman if you saw a trailer, but to come upon this movie without knowing that would be such a Deep pleasure.
 
 [00:19:40] Will: So I came into it completely cold. I had no idea what the film was about.
 
@@ -582,7 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:20:04] Adam: I didn't realize
 
-[00:20:04] Will: they the kid misidentified the car. Um. So he he um or maybe the maybe they got the wrong car for the movie. I don't know which one, um. But yeah, the kid, the the when he speaks Russian back to the kid, I was like, oh wait, something else is happening here. Yeah. Um, and then you know, down down the road we go.
+[00:20:04] Will: they the kid misidentified the car. So he or maybe the maybe they got the wrong car for the movie. I don't know which one. But yeah, the kid, the when he speaks Russian back to the kid, I was like, oh wait, something else is happening here. Yeah. And then down down the road we go.
 
 [00:20:22] Adam: So delicious. I mean, it just all of that. My really really good friend of mine submits that one of the most efficient bits of storytelling in movie history is when John Cusack's character from Grosse Pointe Blank goes back to Grosse Pointe, Michigan. Goes to the cemetery, visits his dad's grave, pulls out a bottle of scotch, unscrews the top, and pours it on the grave.
 
@@ -604,11 +604,11 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:21:16] Will: Oh yeah!
 
-[00:21:17] Adam: It's it is it is. I will say, I suspected. Here is a big spoiler. I suspected that Willie that Willem Dafoe was on his side when the girl came to the hotel room.
+[00:21:17] Adam: It's it is. I will say, I suspected. Here is a big spoiler. I suspected that Willie that Willem Dafoe was on his side when the girl came to the hotel room.
 
 [00:21:27] Will: Yeah,
 
-[00:21:27] Adam: the the the I've got you in my sights, but I am going to shoot your pillow because I want the kill instead of her.
+[00:21:27] Adam: the I've got you in my sights, but I am going to shoot your pillow because I want the kill instead of her.
 
 [00:21:33] Will: No, no, no. I mean
 
@@ -626,7 +626,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:21:55] Adam: Streets of Fire on yeah to live and die in L.A. on down.
 
-[00:21:57] Will: Yeah, and and there he shows up as the as the as the compatriot. Yeah,
+[00:21:57] Will: Yeah, and there he shows up as the compatriot. Yeah,
 
 [00:22:03] Norm: honor honor among assassins.
 
@@ -634,37 +634,37 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:22:17] Will: You read it. You saw it at home, not in theaters.
 
-[00:22:18] Adam: Yeah, we saw it at home. Um, but the moment that we had to rewind and go back is after he's gone through the bathhouse and now he's in like one of the bar areas and he shoots a guy, shoots another guy, and goes to shoot a third guy and he shoots him in the chest, but now he wants to hit him in the head, but his gun's out, and so he. Carefully unloads, pops another one, cocks the gun, and then shoots the guy in the face.
+[00:22:18] Adam: Yeah, we saw it at home. But the moment that we had to rewind and go back is after he's gone through the bathhouse and now he's in like one of the bar areas and he shoots a guy, shoots another guy, and goes to shoot a third guy and he shoots him in the chest, but now he wants to hit him in the head, but his gun's out, and so he. Carefully unloads, pops another one, cocks the gun, and then shoots the guy in the face.
 
 [00:22:39] Norm: Oh yeah, the reload pause.
 
 [00:22:41] Adam: The reload pause. But maybe the best one I've ever seen.
 
-[00:22:43] Will: At the same, at the same time, there's a moment when he's going into the club to murder a bunch of people.
+[00:22:43] Will: At the same time, there's a moment when he's going into the club to murder a bunch of people.
 
 [00:22:48] Adam: Yeah.
 
-[00:22:48] Will: And he talks to the doorman, who's clearly somebody he has a previously existing relationship with. He's like, " Why don't you check out for tonight? I'm not going to murder you. You're cool." And then goes on and kills everybody else. So, like, he they there's an essential humanity that Keanu manages to keep in a role that means that he remains likable even as he's doing these horrible. things.
+[00:22:48] Will: And he talks to the doorman, who's clearly somebody he has a previously existing relationship with. He's like, " Why don't you check out for tonight? I'm not going to murder you. You're cool." And then goes on and kills everybody else. So he they there's an essential humanity that Keanu manages to keep in a role that means that he remains likable even as he's doing these horrible. things.
 
 [00:23:07] Norm: That is the very save the cat moment.
 
-[00:23:09] Adam: And you're right. You're very. You're absolutely right. That's the save the save the cat moment. Is let the giant doorman go. Yeah.
+[00:23:09] Adam: And you're right. You're very. You're absolutely right. That's the save the cat moment. Is let the giant doorman go. Yeah.
 
 [00:23:14] Norm: Yes.
 
-[00:23:14] Adam: I can't recommend this movie enough. I I appreciate that we were talking about it with Jeremy here the other day, working on a secret project with Jeremy.
+[00:23:14] Adam: I can't recommend this movie enough. I appreciate that we were talking about it with Jeremy here the other day, working on a secret project with Jeremy.
 
 [00:23:25] Will: Jeremy Williams of This Is Only a Test.
 
-[00:23:26] Adam: And he he he was surprised that we all loved it as much as we did.
+[00:23:26] Adam: And he was surprised that we all loved it as much as we did.
 
-[00:23:31] Will: He he is. He has delicate sensibilities sometimes about violence too.
+[00:23:31] Will: He is. He has delicate sensibilities sometimes about violence too.
 
 [00:23:35] Adam: Ah, interesting.
 
 [00:23:36] Norm: I don't. I think you know the way we had the conversation was that we can go into a movie knowing what to expect. And his argument was, you know, if you're going into a movie, he wants not only a fun movie but a good in the you know the.
 
-[00:23:50] Adam: I totally agree, and I don't disagree with that. But I think John Wick supplies this other this other strata of of of enjoyment that is it's bubble gum. I mean, this is really like
+[00:23:50] Adam: I totally agree, and I don't disagree with that. But I think John Wick supplies this other strata of enjoyment that is it's bubble gum. I mean, this is really like
 
 [00:24:02] Will: it is a popcorn movie.
 
@@ -672,13 +672,13 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:24:07] Will: That shows because like a lot of the blood was clearly CG, and
 
-[00:24:11] Adam: I'm happy with CG blood. I'm totally ready. Like you know, Martin Scorsese said it completely changed his process. I don't. I don't notice it, and I don't like. I don't notice it unless I'm trying to be conscious of it.
+[00:24:11] Adam: I'm happy with CG blood. I'm totally ready. Like Martin Scorsese said it completely changed his process. I don't. I don't notice it, and I don't like. I don't notice it unless I'm trying to be conscious of it.
 
-[00:24:22] Will: First season of Walking Dead, you I notice because it's it's it's a little it's pretty rough. This I thought was in places pretty rough, and but some places was really good.
+[00:24:22] Will: First season of Walking Dead, you I notice because it's a little it's pretty rough. This I thought was in places pretty rough, and but some places was really good.
 
 [00:24:31] Adam: Yeah.
 
-[00:24:31] Will: Um, but it's it's one of the it's like it's like ragdoll animation in the early 2000s. I always notice.
+[00:24:31] Will: But it's one of the it's like ragdoll animation in the early 2000s. I always notice.
 
 [00:24:36] Adam: Yes.
 
@@ -686,7 +686,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:24:42] Adam: Oh, bookmark! I've got some. Once this podcast is over, I have something to tell you about one of our episodes this year.
 
-[00:24:48] Will: Oh, that's just mean. I have to cut that out. I'm sorry, guys. Um, the uh,
+[00:24:48] Will: Oh, that's just mean. I have to cut that out. I'm sorry, guys. The
 
 [00:24:54] Adam: wait, wait, no, I'll tell you. Okay,
 
@@ -704,11 +704,11 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:25:09] Adam: Oh, really?
 
-[00:25:09] Norm: Sean Penn's coming out with one, directed by the guy who did Taken. It's called The Gunman. Um, it. I think you should prime yourself, Adam. Think about how you want to do a badass.
+[00:25:09] Norm: Sean Penn's coming out with one, directed by the guy who did Taken. It's called The Gunman. It. I think you should prime yourself, Adam. Think about how you want to do a badass.
 
 [00:25:21] Adam: I'm totally ready.
 
-[00:25:21] Norm: And and your what's what's your save the cat moment? What's going to be your very special skill?
+[00:25:21] Norm: And your what's what's your save the cat moment? What's going to be your very special skill?
 
 [00:25:26] Adam: Oh, I think I'll be pretty good at being like. I think I have a. I think I could be the likable guy who who wreaks havoc.
 
@@ -716,7 +716,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:25:33] Adam: I think the audience would stay with me.
 
-[00:25:34] Will: Yeah, I. I really like this movie a lot. I want to know more about how it and and also you. I can't say enough about Keanu because his you you see the thing that made Keanu great for the Matrix in the efficiency of movement and and just the deliberate the deliberate every aspect of this performance is deliberate on his part. I believe.
+[00:25:34] Will: Yeah, I. I really like this movie a lot. I want to know more about how it and also you. I can't say enough about Keanu because his you see the thing that made Keanu great for the Matrix in the efficiency of movement and just the deliberate every aspect of this performance is deliberate on his part. I believe.
 
 [00:25:54] Adam: And let's also bring this up that Keanu is both very open about his limitations as an actor, and from people I know that know him, one of the nicest guys alive. He had a stunt crew of I think 17 to 20 guys on the three Matrix films, and they were with him through almost all of that. And he became really close with them, up to and including giving them Ducatis one year for Christmas, like each of them a Ducati motorcycle, and then also cutting them into his profit sharing on the second two Matrix films to the point that I believe. Each of them will make well over $1 million by the end of the matrixes delivering checks for residuals and broadcast. So he clearly finds something really important in working with these guys, and it shows on film that like they're not only terrific fight choreographers but terrific directors. It's just wonderful.
 
@@ -746,7 +746,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:27:25] Adam: we didn't even talk about the cop showing up.
 
-[00:27:28] Norm: Yes, this is the the send. Who are you going to send? Send everybody.
+[00:27:28] Norm: Yes, this is the send. Who are you going to send? Send everybody.
 
 [00:27:31] Will: Oh, oh, right. This is after the okay.
 
@@ -764,7 +764,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:28:02] Adam: the last guy's killed, and he goes to the door, and you see before he opens the door that there's flashing lights of a cop car. So clearly, there's been a noise complaint, and he opens the door, and this is one of my favorite bits in the movie.
 
-[00:28:14] Will: It was it was good because at this point, this is another this is another save the cat moment, right? Kind of, but not really.
+[00:28:14] Will: It was good because at this point, this is another save the cat moment, right? Kind of, but not really.
 
 [00:28:19] Adam: Well, it's just where you realize that the universe has a the universe you're in has a history you don't know about, and you're just gonna have to follow. You're just gonna have to piece it together for yourself. What happens is, is the cop who opens he opens the door and there's a cop there and the cop is like some blonde guy, and he's like,
 
@@ -782,7 +782,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:28:46] Adam: Right.
 
-[00:28:46] Will: And he says, yeah. He says, well, you know, doesn't make an excuse.
+[00:28:46] Will: And he says, yeah. He says, well doesn't make an excuse.
 
 [00:28:51] Adam: Right.
 
@@ -798,7 +798,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:29:09] Will: the Snake Plissken joke.
 
-[00:29:09] Adam: Yeah. Yeah. Right. And you know, at that point, you're like, oh, I don't know anything about this world, and I'm kind of intrigued.
+[00:29:09] Adam: Yeah. Yeah. Right. And at that point, you're like, oh, I don't know anything about this world, and I'm kind of intrigued.
 
 [00:29:17] Will: Oh yeah. You well, you want to know more.
 
@@ -808,7 +808,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:29:21] Adam: Yes.
 
-[00:29:21] Will: Um. Oh hell, there was something else I wanted to talk about.
+[00:29:21] Will: Oh hell, there was something else I wanted to talk about.
 
 [00:29:25] Norm: Gold coins.
 

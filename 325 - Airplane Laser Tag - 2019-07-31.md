@@ -48,7 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:03:45] Unknown speaker (Jeremy or Zach): Gift that keeps on giving.
 
-[00:03:47] Adam: But it was again, it's super inspiring to be working with a group that is. That is having genuine results in the world. Like you know, it's hard to find. It's hard to find solace in this current time, and it felt like being somewhere where I was part of the solution. So that was awesome. Yesterday, I spent the day at JPL.
+[00:03:47] Adam: But it was again, it's super inspiring to be working with a group that is. That is having genuine results in the world. Like it's hard to find. It's hard to find solace in this current time, and it felt like being somewhere where I was part of the solution. So that was awesome. Yesterday, I spent the day at JPL.
 
 [00:04:08] Zach: Ah, so much fun!
 
@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:04:22] Norm: Oh.
 
-[00:04:24] Adam: And so we're in the clean room at JPL. They've got the descent stage. They've got the the sky crane. They've got the main rover, and it's all folded up and it's upside. I literally was watching guys in bunny suits like using a torque wrench to carefully tighten bolts on the. It's so magical. Like these guys are going to send this thing to another world where it's going to use AI to figure out where the hell it is. And we got the deep lowdown from my friend Adam Steltzner about how the how the drills, you know, all yeah, it was almost overwhelmingly thrilling. We got to see the Mars Yard.
+[00:04:24] Adam: And so we're in the clean room at JPL. They've got the descent stage. They've got the sky crane. They've got the main rover, and it's all folded up and it's upside. I literally was watching guys in bunny suits like using a torque wrench to carefully tighten bolts on the. It's so magical. Like these guys are going to send this thing to another world where it's going to use AI to figure out where the hell it is. And we got the deep lowdown from my friend Adam Steltzner about how the drills all yeah, it was almost overwhelmingly thrilling. We got to see the Mars Yard.
 
 [00:04:56] Jeremy: Were you allowed in the clean room?
 
@@ -68,7 +68,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:04:59] Norm: Is there a viewing area?
 
-[00:05:00] Adam: Yeah. So yeah, there's a there's a there's a walkway, catwalk. That's what it's called. And so I got to stand up there, and I stood up there long enough that people in bunny suits noticed me, and some of them were taking pictures of me in the catwalk.
+[00:05:00] Adam: Yeah. So yeah, there's a walkway, catwalk. That's what it's called. And so I got to stand up there, and I stood up there long enough that people in bunny suits noticed me, and some of them were taking pictures of me in the catwalk.
 
 [00:05:00] Unknown speaker: That's so nice.
 
@@ -76,17 +76,17 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:05:00] Unknown speaker: right?
 
-[00:05:19] Norm: So they're they're doing the sky crane.
+[00:05:19] Norm: So they're doing the sky crane.
 
 [00:05:19] Adam: They are.
 
 [00:05:19] Norm: And oh,
 
-[00:05:22] Adam: I I believe don't quote me on this. I took a lot of information in yesterday, and so some of it might come out wrong.
+[00:05:22] Adam: I believe don't quote me on this. I took a lot of information in yesterday, and so some of it might come out wrong.
 
 [00:05:22] Unknown speaker: Yeah.
 
-[00:05:22] Adam: Um, but yes, they are doing the sky crane plus the retro rockets. Uh, plus there's some beautiful strain relief within the wheels of the rover. Uh, plus uh, you know, things that they learned on previous rovers, like the difference between rock that's been pummeled by water and rock that's been pummeled by air, have radically different. Obviously, they have radically different shapes when you look at them under a microscope. They just, I think, for the first couple of rovers, they were unprepared for how damaging they would be to the wheels.
+[00:05:22] Adam: But yes, they are doing the sky crane plus the retro rockets. Plus there's some beautiful strain relief within the wheels of the rover. Plus things that they learned on previous rovers, like the difference between rock that's been pummeled by water and rock that's been pummeled by air, have radically different. Obviously, they have radically different shapes when you look at them under a microscope. They just, I think, for the first couple of rovers, they were unprepared for how damaging they would be to the wheels.
 
 [00:06:00] Norm: I felt like Curiosity was just yesterday when that launched, and now it's been there for so long. And we talk about the wheels, like photos of Curiosity's wheels, all those big holes in it. Yeah,
 
@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:06:00] Norm: Every iteration, they learn so much more.
 
-[00:06:12] Adam: When you, when you, when you are at JPL and you realize, it's like they said, they're as as full up with people as they've been in a long time. It's like 6,500 some odd engineers there. Um, and you think that's it? Like, given what these guys have done, how many amazing things that they've done, and sent things to other worlds and to the outer solar system, it's totally amazing.
+[00:06:12] Adam: When you are at JPL and you realize, it's like they said, they're as full up with people as they've been in a long time. It's like 6,500 some odd engineers there. And you think that's it? Like, given what these guys have done, how many amazing things that they've done, and sent things to other worlds and to the outer solar system, it's totally amazing.
 
 [00:06:35] Zach: And their success rate is just amazing.
 
@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:06:50] Jeremy: It's amazing
 
-[00:06:58] Adam: that that filmmaker was walking around. He was making a movie about what they're doing now. We ended up having a really lovely discussion, which I think you guys would would have lots to say about about how organizations, when they form, they always want to be able to do projects in a single pass. But there is a level of complexity past which you have to accommodate for more than one pass at this. That, like, no matter how much pre-planning they do, there's always going to be things they discover in flight testing that they could never have prognosticated in the early stages. And you know, the the the challenge for every large organization like JPL is how to accommodate those late stage changes. I talked to them about what Andy Stanton told me that I quoted him in my book of that Pixar. Like Andy says, you know, the thing here. So he told me that the the idea that the Scream Was the currency of the world in Monsters Inc. Right? The central ethos of the film was way late in the process of making the movie, and once they came up with it, they realized it was so important they had to change all of this parts of the movie to accommodate that. But it was important enough that they did. And Andy's like, " Look, you you go to investors and you get a couple hundred million dollars and you tell them you're going to dig up a T Rex, and then after four years of a five year dig, it turns out you got a Stegosaurus. Do you have the balls to go back to your investors and say, 'You know what? We got we got a Stegosaurus instead of a T Rex'? " And Pixar has institutionalized that that model of being able to do that late stage understanding,
+[00:06:58] Adam: that that filmmaker was walking around. He was making a movie about what they're doing now. We ended up having a really lovely discussion, which I think you guys would would have lots to say about about how organizations, when they form, they always want to be able to do projects in a single pass. But there is a level of complexity past which you have to accommodate for more than one pass at this. That no matter how much pre-planning they do, there's always going to be things they discover in flight testing that they could never have prognosticated in the early stages. And you know, the challenge for every large organization like JPL is how to accommodate those late stage changes. I talked to them about what Andy Stanton told me that I quoted him in my book of that Pixar. Like Andy says, you know, the thing here. So he told me that the idea that the Scream Was the currency of the world in Monsters Inc. Right? The central ethos of the film was way late in the process of making the movie, and once they came up with it, they realized it was so important they had to change all of this parts of the movie to accommodate that. But it was important enough that they did. And Andy's like, " Look, you you go to investors and you get a couple hundred million dollars and you tell them you're going to dig up a T Rex, and then after four years of a five year dig, it turns out you got a Stegosaurus. Do you have the balls to go back to your investors and say, 'You know what? We got we got a Stegosaurus instead of a T Rex'? " And Pixar has institutionalized that that model of being able to do that late stage understanding,
 
 [00:08:34] Norm: which is tough. I mean, that's exactly a workflow that is you commit to things and you have to have months in advance because you you can't go down a path and change. But they they can
 
@@ -130,7 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:09:01] Norm: So let's set this up. The the episode " Dogfight Derby" on Savage Builds, the seventh episode, which you can watch now on YouTube TV, Philo, Discovery Go. Set up. It's an idea that you had discussed with Peter Jackson last time you you were there.
 
-[00:09:17] Adam: The last time I was down in in New Zealand, Peter took me out to the Hood Aerodrome and let me fly in a couple of his planes. Took me up for flights. Gary and Bevin, his two lead pilots, were just lovely human beings. And I, I mean, it's intoxicatingly magical. You got to fly.
+[00:09:17] Adam: The last time I was down in New Zealand, Peter took me out to the Hood Aerodrome and let me fly in a couple of his planes. Took me up for flights. Gary and Bevin, his two lead pilots, were just lovely human beings. And I, I mean, it's intoxicatingly magical. You got to fly.
 
 [00:09:33] Norm: I got to go up, yeah, and especially the landscape, right
 
@@ -138,7 +138,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:09:36] Norm: Yeah.
 
-[00:09:36] Adam: And you know, Peter's super. One of the things about him that's so amazing is, obviously, he makes these incredible movies in order to give people transformative experiences, but also as a person. He wants to do that for his friends too, so he's like, when I'm up in the plane, he's driving Norm and Joey over in the in the viewing van, the modified.
+[00:09:36] Adam: And Peter's super. One of the things about him that's so amazing is, obviously, he makes these incredible movies in order to give people transformative experiences, but also as a person. He wants to do that for his friends too, so he's like, when I'm up in the plane, he's driving Norm and Joey over in the viewing van, the modified.
 
 [00:10:01] Norm: He's driving the van.
 
@@ -156,15 +156,15 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:10:25] Adam: wasn't it?
 
-[00:10:26] Norm: Yeah. And and he got excited because once you were in the air, he had a surprise.
+[00:10:26] Norm: Yeah. And he got excited because once you were in the air, he had a surprise.
 
-[00:10:29] Adam: Yes. And so on that first flight I did, he sent a Fokker DR1 after me, and I have this unbelievable photo of it coming in in the distance. And I said to him at the end of that day, you know, be really nice to have a real dogfight. What if we put laser tag on this? Because I know that Peter and his family play laser tag on their property, and I thought that's a great pastime. He's got a big old property. There's lots of places to hide and super awesome stuff. Let's do this in planes. And he was like, a nanosecond. He was like, " Yes, please, let's totally do this." So, yeah, Discovery ended up. I had to. I had to actually go to Discovery and beg for a bunch of dough to go to New Zealand.
+[00:10:29] Adam: Yes. And so on that first flight I did, he sent a Fokker DR1 after me, and I have this unbelievable photo of it coming in the distance. And I said to him at the end of that day be really nice to have a real dogfight. What if we put laser tag on this? Because I know that Peter and his family play laser tag on their property, and I thought that's a great pastime. He's got a big old property. There's lots of places to hide and super awesome stuff. Let's do this in planes. And he was like, a nanosecond. He was like, " Yes, please, let's totally do this." So, yeah, Discovery ended up. I had to. I had to actually go to Discovery and beg for a bunch of dough to go to New Zealand.
 
 [00:11:08] Jeremy: As I recall, this episode was not even greenlit until after other episodes in the series had been shot.
 
 [00:11:14] Adam: Indeed, indeed, and we had a backup. We had a backup for the money we had left in the bank. But I went to Discovery, went to the head of Science Channel, and I said, " Look, this one's really important to me. This is a once-in-a-lifetime thing, and we're literally building a time machine. That's what we're building." And Discovery ponyed up the dough, and we went down there, and and yeah, so then we went down. You guys did a whole bunch of previous testing before showing up, including well, I mean, the biggest problem we we isolated, you guys isolated, was the RF interference from these giant ancient engines.
 
-[00:11:48] Zach: Well, we we heard about that. I mean, like sort of meeting one, you know, after we got kind of greenlit at the last second of like, okay, we're going to do this, and we have three weeks to do it. You know, the first first talk with the guys in New Zealand. You know, we kind of describe what we're thinking about, and they're like, " Oh, well, you can't use radios, you can't use most electronics, can't do anything around these engines because everything that we've tried has gotten interfered with." And we're like, " Oh,
+[00:11:48] Zach: Well, we heard about that. I mean, like sort of meeting one after we got kind of greenlit at the last second of like, okay, we're going to do this, and we have three weeks to do it. You know, the first first talk with the guys in New Zealand. We kind of describe what we're thinking about, and they're like, " Oh, well, you can't use radios, you can't use most electronics, can't do anything around these engines because everything that we've tried has gotten interfered with." And we're like, " Oh,
 
 [00:12:10] Adam: yeah, right." So these engines are basically the whole engine turns on some of these planes, and they they so they can't actually talk to each other between planes using standard aircraft radios.
 
@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:12:51] Adam: We were all really nervous.
 
-[00:12:52] Norm: So in previous episodes, you know, when you approach a build, you have an idea for an episode, like you know, for example, meteorite sword. You basically have the idea of how you're going to do it in your head, going into it. Right? It's something that you know can can all the variables are known.
+[00:12:52] Norm: So in previous episodes, you know, when you approach a build, you have an idea for an episode, like for example, meteorite sword. You basically have the idea of how you're going to do it in your head, going into it. Right? It's something that you know can can all the variables are known.
 
 [00:13:08] Adam: not only that you actually have the idea of the things that can go wrong and the things that can't go wrong.
 
@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:13:30] Zach: The flowchart, right?
 
-[00:13:30] Norm: There's a flowchart of of possibilities that all those paths can tell a good story.
+[00:13:30] Norm: There's a flowchart of possibilities that all those paths can tell a good story.
 
 [00:13:37] Adam: Right. But in and 13 years of MythBusters has taught me to smell out the things that will not let you have an episode if it doesn't go right. And if for some reason our electronics are 100% not working when we get to New Zealand, that's there's no other option. What are we going to shoot dart guns at each other?
 
@@ -216,7 +216,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:14:40] Unknown speaker: Yeah,
 
-[00:14:40] Jeremy: yeah. And the weight balance is very, very, you know, accurate.
+[00:14:40] Jeremy: yeah. And the weight balance is very, very accurate.
 
 [00:14:40] Adam: Yeah,
 
@@ -224,7 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:14:47] Zach: All of those things.
 
-[00:14:47] Adam: Well, and there is no there is no interior walls where wiring runs through. There is just the canvas outer shell, and when you are in there, you can easily like affect an aileron by bending your knee in the wrong way.
+[00:14:47] Adam: Well, and there is no interior walls where wiring runs through. There is just the canvas outer shell, and when you are in there, you can easily like affect an aileron by bending your knee in the wrong way.
 
 [00:14:59] Zach: Oh, absolutely. I mean, everything is exposed.
 
@@ -296,11 +296,11 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:19:18] Jeremy: Gotcha.
 
-[00:19:19] Zach: But you you were saying how you know that the John came back as you know super giddy. I remember the first time you came back and the other pilots came back the first time of actually being able to to play the the game with laser tag. You, I mean, the pilots they started out so stoic and so just like you know, kind of standing back, sort of I think a little unsure about what us goofballs were doing to their airplanes.
+[00:19:19] Zach: But you were saying how you know that the John came back as you know super giddy. I remember the first time you came back and the other pilots came back the first time of actually being able to play the game with laser tag. You, I mean, the pilots they started out so stoic and so just like kind of standing back, sort of I think a little unsure about what us goofballs were doing to their airplanes.
 
 [00:19:39] Adam: Yes, totally,
 
-[00:19:39] Zach: and and and rightfully so. But then once we actually like got it all hooked up and they got to do it, they were just like little kids in a candy shop. I mean, and everybody was. I remember that first flight. It was it was late in the day. It was just literally like a test. It the first time, and it was you know golden hour.
+[00:19:39] Zach: and rightfully so. But then once we actually like got it all hooked up and they got to do it, they were just like little kids in a candy shop. I mean, and everybody was. I remember that first flight. It was late in the day. It was just literally like a test. It the first time, and it was you know golden hour.
 
 [00:19:39] Adam: Oh my god!
 
@@ -314,27 +314,27 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:20:33] Zach: Ah, New Zealand.
 
-[00:20:33] Adam: The I know. Wow. And the pilots, Gary and Bevin, were both telling me because both of them fly all sorts of vintage aircraft. I mean, Bevin was sitting on the coffee table in the mess room was a picture of Bevin flying a P-51 Mustang, right? Like waving to the camera. They read a lot about the pilots' personal accounts of flying these planes. They feel a real simpatico, a historical simpatico with their with their forebears, and they came down from the dogfight. All three, each dogfight we did, solidified for them more. They're like, we're starting to really, really get what we were reading that we never understood on this visceral level before.
+[00:20:33] Adam: The I know. Wow. And the pilots, Gary and Bevin, were both telling me because both of them fly all sorts of vintage aircraft. I mean, Bevin was sitting on the coffee table in the mess room was a picture of Bevin flying a P-51 Mustang, right? Like waving to the camera. They read a lot about the pilots' personal accounts of flying these planes. They feel a real simpatico, a historical simpatico with their forebears, and they came down from the dogfight. All three, each dogfight we did, solidified for them more. They're like, we're starting to really, really get what we were reading that we never understood on this visceral level before.
 
 [00:20:33] Zach: Wow.
 
-[00:20:33] Adam: And by the last flight, Gary, my pilot, was so confident of my ability to stay in. Because my my gunner's position, there's no seat there really. I have a cable from my waist to the ground, and I'm standing on a serrated wooden board. And so he was treating me with kid gloves for the first flight. By the third flight, I'm like holding on for dear life as he's pulling negative G's that could toss me out of the plane. My mom just texted me that that was a really scary episode for her to watch.
+[00:20:33] Adam: And by the last flight, Gary, my pilot, was so confident of my ability to stay in. Because my gunner's position, there's no seat there really. I have a cable from my waist to the ground, and I'm standing on a serrated wooden board. And so he was treating me with kid gloves for the first flight. By the third flight, I'm like holding on for dear life as he's pulling negative G's that could toss me out of the plane. My mom just texted me that that was a really scary episode for her to watch.
 
-[00:21:38] Zach: Yeah, no, it was it was amazing just to see the just the whole process was just so good.
+[00:21:38] Zach: Yeah, no, it was amazing just to see the just the whole process was just so good.
 
-[00:21:44] Adam: But so the system is is so impressive because we had we had we had these 30 sensors distributed across two planes with four separate guns, right? Two mounted or three separate guns.
+[00:21:44] Adam: But so the system is so impressive because we had these 30 sensors distributed across two planes with four separate guns, right? Two mounted or three separate guns.
 
 [00:21:58] Zach: Three, three guns.
 
-[00:21:59] Adam: One on each of the planes facing forward for the pilot's gun position, and a third one for me on my on my Vickers. Was that on a Vickers?
+[00:21:59] Adam: One on each of the planes facing forward for the pilot's gun position, and a third one for me on my Vickers. Was that on a Vickers?
 
-[00:22:06] Zach: Uh, you know, re eight.
+[00:22:06] Zach: Re eight.
 
 [00:22:07] Adam: No, right. I know, but
 
 [00:22:08] Zach: oh, oh, the gun itself.
 
-[00:22:09] Adam: The gun itself. I can't remember. Sorry, everybody. Uh,
+[00:22:09] Adam: The gun itself. I can't remember. Sorry, everybody.
 
 [00:22:13] Norm: but the modified gun with the glass gas blowback.
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:22:27] Norm: right non lethal hit
 
-[00:22:28] Zach: yeah we had non lethal and lethal and separate between pilot pilot and gunner and then you had a special one on your plane to detect whether you hit the tail
+[00:22:28] Zach: yeah we had non lethal and separate between pilot pilot and gunner and then you had a special one on your plane to detect whether you hit the tail
 
 [00:22:36] Adam: yes because it's very plausible in my gunner's position to shoot off the tail of my own plane
 
@@ -352,7 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:22:36] Adam: especially since one of the Fokkers go to moves is to park underneath my tail so I infuriing infuriatingly can see him right there I can probably like toss a bottle of ale at his head but I can't hit him with my gun
 
-[00:22:54] Zach: yeah yeah so yeah so we had to come up with a system that was totally flexible and and it just kind of had to work with all of these different setups and we didn't have a clue what was going to kind of what the final configuration was until we got there
+[00:22:54] Zach: yeah yeah so yeah so we had to come up with a system that was totally flexible and it just kind of had to work with all of these different setups and we didn't have a clue what was going to kind of what the final configuration was until we got there
 
 [00:23:07] Adam: there was just this moment where we closed the doors of the aerodrome in order to focus because you had you guys had built this lovely redundant system with four lasers
 
@@ -364,21 +364,21 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:23:22] Adam: And we couldn't we like couldn't see
 
-[00:23:27] Zach: well so yeah so so so day one you know so I show up like early in the morning I'm I fly in and then drive up to to the aerodrome and I I just I didn't have it in my brain that like oh the first thing that we need to do is focus these lasers and that it would be daytime like the whole time change just didn't click as far as you know I'm like oh yeah I'll get there we'll we'll line them all up I'll be great was bright daylight out and the problem with infrared is the sun is a great source of infrared washes out everything I mean I have an infrared camera that I use to see the actual dots and you know these things you know you have
+[00:23:27] Zach: well so yeah so so so day one you know so I show up like early in the morning I'm I fly in and then drive up to the aerodrome and I I just I didn't have it in my brain that like oh the first thing that we need to do is focus these lasers and that it would be daytime like the whole time change just didn't click as far as you know I'm like oh yeah I'll get there we'll we'll line them all up I'll be great was bright daylight out and the problem with infrared is the sun is a great source of infrared washes out everything I mean I have an infrared camera that I use to see the actual dots and you know these things you know you have
 
 [00:23:57] Adam: even that was non trivial even in the darkness of our air of the hangar
 
-[00:24:01] Zach: yeah well I mean there's still a ton of light in there even when it is you know closed up and whatnot so we're looking for shadows and we're looking for like places where it's like oh there's a little less sunlight and you can kind of make it out and and the first test that we did actually wasn't aligned at all and it was kind of just like close. Enough to go. Yeah, I think that'll work. It's worth the keep going.
+[00:24:01] Zach: yeah well I mean there's still a ton of light in there even when it is you know closed up and whatnot so we're looking for shadows and we're looking for like places where it's like oh there's a little less sunlight and you can kind of make it out and the first test that we did actually wasn't aligned at all and it was kind of just like close. Enough to go. Yeah, I think that'll work. It's worth the keep going.
 
-[00:24:18] Norm: Did you have that 150 yards to to line?
+[00:24:18] Norm: Did you have that 150 yards to line?
 
 [00:24:18] Adam: We did. We did across the long diagonal of the hangar.
 
-[00:24:23] Zach: We did exactly. We got we got them mostly lined up enough to again prove it to ourselves that like okay, this is you know a path forward. We're not like completely dead in the water.
+[00:24:23] Zach: We did exactly. We got them mostly lined up enough to again prove it to ourselves that like okay, this is you know a path forward. We're not like completely dead in the water.
 
 [00:24:32] Adam: And that got our sequence of testing. But you guys came back. You guys stayed that evening once it got dark and did the final focus.
 
-[00:24:38] Zach: Exactly. So yeah, we had a board that we put out, you know, way out on the on the runway so that we actually got the full distance and then got them all aligned. And and you know the the idea is we wanted a spot that was large enough to kind of make up for the fact that there's individual sensors on the airplane because we can't cover the you know entire airplane with sensors. And but you know in in reality, if you shoot a bullet, if you happen to be anywhere near the person, that isn't it's gonna probably do some damage. So so there's kind of this balance of like, okay, what's realistic as far as sort of a spot size versus the you know position of the sensors and all of that kind of has to feed in together,
+[00:24:38] Zach: Exactly. So yeah, we had a board that we put out way out on the runway so that we actually got the full distance and then got them all aligned. And you know the idea is we wanted a spot that was large enough to kind of make up for the fact that there's individual sensors on the airplane because we can't cover the you know entire airplane with sensors. And but you know in reality, if you shoot a bullet, if you happen to be anywhere near the person, that isn't it's gonna probably do some damage. So so there's kind of this balance of like, okay, what's realistic as far as sort of a spot size versus the you know position of the sensors and all of that kind of has to feed in together,
 
 [00:25:14] Adam: and we were able to do a sensor array where no tripping one sensor never triggered its neighbor, which was again mind blowing to me.
 
@@ -390,19 +390,19 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:25:58] Adam: And this is a custom board you built.
 
-[00:26:00] Zach: Custom board, yeah. Everything about this is is custom. I mean, they're off the shelf individual parts, but they're all put together. So yeah, so this gives you you know a complete hemisphere of view. So you know if you put one on one side of the plane, one you know, and actually this is where kind of there was a Again, a learning thing for me when I went down to the test airplane in Texas. I hadn't really thought through of all the different angles that you know the plane could be hit at until I was standing in front of the airplane. Because originally, when we first talked, it was like, " Yeah, we'll make like four or five sensors and put them on the airplane, and that should be fine." Yeah. And then when I got down there, it was like, " Oh, wait a minute! The wings and the pilot and all of you know the tail and all these things block all these different angles. We need a lot more sensors." So it was a it was kind of a number of steps to kind of get to that point.
+[00:26:00] Zach: Custom board, yeah. Everything about this is is custom. I mean, they're off the shelf individual parts, but they're all put together. So yeah, so this gives you know a complete hemisphere of view. So you know if you put one on one side of the plane, one and actually this is where kind of there was a Again, a learning thing for me when I went down to the test airplane in Texas. I hadn't really thought through of all the different angles that you know the plane could be hit at until I was standing in front of the airplane. Because originally, when we first talked, it was like, " Yeah, we'll make like four or five sensors and put them on the airplane, and that should be fine." Yeah. And then when I got down there, it was like, " Oh, wait a minute! The wings and the pilot and all of you know the tail and all these things block all these different angles. We need a lot more sensors." So it was a it was kind of a number of steps to kind of get to that point.
 
 [00:26:47] Adam: And every sensor had to be well. Number, what you also included opto isolation within the circuit itself.
 
-[00:26:54] Zach: Well, because of all the interference, I mean that that was one of the big things. That was my huge worry from from the kind of warning of the first meeting of, " Oh yeah, nothing electronic works around these things," and it's like, " Oh man, we've got to actually make something that works." So I threw every like trick in that I knew to isolate and protect the electronics because you know this is an analog circuit. You're actually Sending light beams and you're modulating them at frequencies and there's you know a bandpass filter that you know make sure that you only see those filt you know that that filtered frequency so it's actually a tuned circuit and it's really easy to have a tuned circuit do bad things it's not like a you know digital circuit that you can kind of just say okay only look for this this is actually there's a lot of analog components in here so you know it makes it more susceptible to RF interference so you know everything from like having its own power supply so every sensor has a nine volt battery in there and we want them big nine volt batteries so they last forever so we don't have to worry about batteries dying you know this is a four layer board so that it's you know it's it's got some shielding kind of built in there you know lots of power supply filtering I mean there's just I mean there's a ton of different layers of you know sort of protection and then opto isolation because we have these long cables which act as antennas
+[00:26:54] Zach: Well, because of all the interference, I mean that that was one of the big things. That was my huge worry from the kind of warning of the first meeting of, " Oh yeah, nothing electronic works around these things," and it's like, " Oh man, we've got to actually make something that works." So I threw every like trick in that I knew to isolate and protect the electronics because you know this is an analog circuit. You're actually Sending light beams and you're modulating them at frequencies and there's you know a bandpass filter that you know make sure that you only see those filt you know that that filtered frequency so it's actually a tuned circuit and it's really easy to have a tuned circuit do bad things it's not like a you know digital circuit that you can kind of just say okay only look for this is actually there's a lot of analog components in here so you know it makes it more susceptible to RF interference so you know everything from like having its own power supply so every sensor has a nine volt battery in there and we want them big nine volt batteries so they last forever so we don't have to worry about batteries dying you know this is a four layer board so that it's you know it's got some shielding kind of built in there lots of power supply filtering I mean there's just I mean there's a ton of different layers of sort of protection and then opto isolation because we have these long cables which act as antennas
 
-[00:28:09] Adam: right every single sensor had to be hardwired. To the central box through the plane, and there was this one of my favorite developments over the course of the of the time we were there was that when we first showed up, they were of course very circumspect about allowing us near and inside and around the planes.
+[00:28:09] Adam: right every single sensor had to be hardwired. To the central box through the plane, and there was this one of my favorite developments over the course of the time we were there was that when we first showed up, they were of course very circumspect about allowing us near and inside and around the planes.
 
 [00:28:09] Zach: Yeah.
 
 [00:28:09] Adam: And then as they got to understand, and this is an incredibly wonderful, versatile team that loves these machines. Once they got used to and understood our process, we became far more sympatico and easy. And by the end, they were like, " Yeah, just route it anyway. You know what the important parts are."
 
-[00:28:43] Zach: Well, and it was amazing to work with them because it's I've never worked in a in a team that where everybody is so capable and competent. Um, you know, we're looking at these airplanes and we're trying to figure out places to put stuff. And you know, there's little holes where like stitching is, and you can kind of feed wires through. But then there's like places like oh, on the bottom of the airplane, there's just there's just nothing. There's this like metal panel, but it's smooth and flat. We like we can't
+[00:28:43] Zach: Well, and it was amazing to work with them because it's I've never worked in a team that where everybody is so capable and competent. We're looking at these airplanes and we're trying to figure out places to put stuff. And there's little holes where like stitching is, and you can kind of feed wires through. But then there's like places like oh, on the bottom of the airplane, there's just nothing. There's this like metal panel, but it's smooth and flat. We can't
 
 [00:29:04] Norm: no zip tie.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:29:23] Adam: Just, I am. I am a fast maker of things. I am. Speed is one of my priorities, and when I meet someone who's faster than me, I am always kind of surprised. And Dave was twice as fast as I would ever be at the things he was doing. It's incredible.
 
-[00:29:38] Zach: And it and it didn't look fast.
+[00:29:38] Zach: And it didn't look fast.
 
 [00:29:38] Adam: No,
 
@@ -422,13 +422,13 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:29:52] Norm: And that's a shop where they can build entire plane from scratch if they need to.
 
-[00:29:55] Adam: Yeah. This is this is the so this isn't the airplane factory where they build these planes. This is where they maintain them. So they yes they can build one from scratch if they if they need to.
+[00:29:55] Adam: Yeah. This is the so this isn't the airplane factory where they build these planes. This is where they maintain them. So they yes they can build one from scratch if they need to.
 
 [00:30:04] Zach: Yeah. So working with that team made it. I mean, just an amazing experience.
 
-[00:30:07] Adam: And I think we all. I mean, that they would say the same thing, right? Like. They got to understand our work ethic and our our drive, and it was it became this lovely family by the end.
+[00:30:07] Adam: And I think we all. I mean, that they would say the same thing, right? Like. They got to understand our work ethic and our drive, and it was it became this lovely family by the end.
 
-[00:30:20] Zach: It really really was. I mean, I felt so close to everybody there. I mean, even those like the local, um, you know, the the local staff, as far as the production was concerned, like we were so well taken care of, and like oh, so so good. I mean, all of it was
+[00:30:20] Zach: It really really was. I mean, I felt so close to everybody there. I mean, even those like the local staff, as far as the production was concerned, like we were so well taken care of, and like oh, so so good. I mean, all of it was
 
 [00:30:33] Norm: sounds like New Zealand.
 
@@ -436,7 +436,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:30:41] Zach: I don't know if I want to go back because it's going to pale in comparison to that trip.
 
-[00:30:44] Adam: Well, the next so the next thing that I want to do with you guys is low is more in the United States, and I I don't know if Savage Builds will be picked up for a second season. If it is, this is the first episode I'm pitching them, uh, because it's a it's basically it would be, and this is the only hint I'm giving. It would be replicating a machine that was built, uh, extensively in the '30s and the '40s. That is super unstable, and we'd be making a new version, a stable version of said machine.
+[00:30:44] Adam: Well, the next so the next thing that I want to do with you guys is low is more in the United States, and I I don't know if Savage Builds will be picked up for a second season. If it is, this is the first episode I'm pitching them because it's a it's basically it would be, and this is the only hint I'm giving. It would be replicating a machine that was built extensively in the '30s and the '40s. That is super unstable, and we'd be making a new version, a stable version of said machine.
 
 [00:31:13] Zach: Hopefully stable
 
@@ -446,11 +446,11 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:31:20] Norm: And Jeremy, you were in the states getting the messages, hoping the boards that you had worked on.
 
-[00:31:25] Jeremy: Oh my gosh, I was on pins and needles. Yeah, because I was responsible for the other components, like the master, the the the hub in the center, and the the interface for the for the pilots. [unclear cutoff: I—]
+[00:31:25] Jeremy: Oh my gosh, I was on pins and needles. Yeah, because I was responsible for the other components, like the master, the hub in the center, and the interface for the pilots. [unclear cutoff: I—]
 
 [00:31:35] Zach: And you did the game software
 
-[00:31:36] Jeremy: and yeah, the code. And so I was just you know because I was like, what time is it in New Zealand? And then wait and wait and wait, and then the whole day would go by because it turns out you guys didn't shoot until kind of later in the day.
+[00:31:36] Jeremy: and yeah, the code. And so I was just you know because I was like, what time is it in New Zealand? And then wait and then the whole day would go by because it turns out you guys didn't shoot until kind of later in the day.
 
 [00:31:46] Adam: Yeah, often.
 
@@ -468,9 +468,9 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:32:14] Zach: Yeah,
 
-[00:32:14] Adam: so much fun. I really, the whole the whole point of doing Savage builds was that it was a we show, not a me show. That it was about the collaborators I got to play with every time, and with you guys, and with Peter Jackson and Tory Belleci and Jeff Pringle from the Meteorite Sword, Gary Oldman, Simone and Laura. In every way, every collaboration brought a kind of a wonderful, unique facet. Revealed a wonderful facet about working together with people who you don't normally work with, and that to me is like the story I just want to keep on telling.
+[00:32:14] Adam: so much fun. I really, the whole point of doing Savage builds was that it was a we show, not a me show. That it was about the collaborators I got to play with every time, and with you guys, and with Peter Jackson and Tory Belleci and Jeff Pringle from the Meteorite Sword, Gary Oldman, Simone and Laura. In every way, every collaboration brought a kind of a wonderful, unique facet. Revealed a wonderful facet about working together with people who you don't normally work with, and that to me is like the story I just want to keep on telling.
 
-[00:32:50] Zach: That really was magic. I mean, it it really was.
+[00:32:50] Zach: That really was magic. I mean, it really was.
 
 [00:32:53] Norm: We have a little bit of an epilogue too, because we put out a video on Tested this week.
 
@@ -478,11 +478,11 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:32:53] Norm: something that happened. Yeah. So as you were chatting with Peter about his collection of planes and the restoration of planes, he told you.
 
-[00:33:03] Adam: Well, he had a barn find of a plane that he had bought that had been sitting in the rafters of some British barn for. Decades and decades and decades, and he bought it. And one of the first things they do in a restoration is they peel off the canvas, which is never in a state that's flight.
+[00:33:03] Adam: Well, he had a barn find of a plane that he had bought that had been sitting in the rafters of some British barn for. Decades and he bought it. And one of the first things they do in a restoration is they peel off the canvas, which is never in a state that's flight.
 
 [00:33:03] Zach: It just rots.
 
-[00:33:03] Adam: Yeah, so they're peeling the canvas off, and inside the the leading edge of one of the wings, they find this rolled up drawing of a British officer. And Peter asked if I could crowdsource using my platform a solution to who that pilot might have been, and we put it up on YouTube and Twitter. And what was it? Less than 30 minutes.
+[00:33:03] Adam: Yeah, so they're peeling the canvas off, and inside the leading edge of one of the wings, they find this rolled up drawing of a British officer. And Peter asked if I could crowdsource using my platform a solution to who that pilot might have been, and we put it up on YouTube and Twitter. And what was it? Less than 30 minutes.
 
 [00:33:39] Norm: Yeah, and within the first hour.
 
@@ -494,7 +494,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:33:41] Norm: Was a
 
-[00:33:50] Adam: Well, someone did a Photoshop of the drawing and of the famous photo of him, and they match perfectly. They, they, they one to one. The insignia, the outfit, the pose, the hair, everything is one to one.
+[00:33:50] Adam: Well, someone did a Photoshop of the drawing and of the famous photo of him, and they match perfectly. They one to one. The insignia, the outfit, the pose, the hair, everything is one to one.
 
 [00:34:02] Zach: Wow.
 
@@ -510,11 +510,11 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:34:47] Jeremy: It sounds like even to the pilots that you worked with, that was true.
 
-[00:34:50] Adam: Indeed, indeed, and I will tell you that the re eight with a gunner is very dangerous. They called them flying coffins, but I'm here to say that with a good pilot, a good pilot gunner relationship, they were formidable enemies.
+[00:34:50] Adam: Indeed, indeed, and I will tell you that the re eight with a gunner is very dangerous. They called them flying coffins, but I'm here to say that with a good pilot gunner relationship, they were formidable enemies.
 
 [00:35:04] Zach: Now, now, Peter did say at the end. I remember, I he said, well. Rarely would you have only one Fokker in the sky. There'd normally be six of them, and you'd have been toast in like two seconds. But if there was only there happened to be only one, you probably would do okay.
 
-[00:35:20] Adam: And that's that's also very part of Peter's storytelling. Is you come down out of the sky and you show I showed Peter pictures, and he's like scrolling through the pictures on my phone. He's like, " Oh yeah, you're dead. You're dead. You're dead. You're dead. Oh yeah, that one. You're definitely dead.
+[00:35:20] Adam: And that's also very part of Peter's storytelling. Is you come down out of the sky and you show I showed Peter pictures, and he's like scrolling through the pictures on my phone. He's like, " Oh yeah, you're dead. You're dead. You're dead. You're dead. Oh yeah, that one. You're definitely dead.
 
 [00:35:34] Zach: Because if you can see them,
 
@@ -524,13 +524,13 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:35:49] Adam: and some oxygen, and so I got to actually see muzzle flash from my opponents and hear the sound as I was generating.
 
-[00:35:56] Zach: Oh, and and you even feel a little bit of that air pushback. I mean, you know, like
+[00:35:56] Zach: Oh, and you even feel a little bit of that air pushback. I mean like
 
 [00:36:00] Adam: from my own gun,
 
 [00:36:00] Zach: from your own gun, absolutely,
 
-[00:36:02] Adam: totally. So again, it upped the realism. Um, and I'm really, really pleased with the episode. Like it. It shows our experience. It’s the story is there.
+[00:36:02] Adam: totally. So again, it upped the realism. And I'm really, really pleased with the episode. Like it. It shows our experience. It’s the story is there.
 
 [00:36:10] Zach: It doesn't show me just giddy in the corner laughing every time I'm seeing this, just going like, " This is the most amazing thing ever." But, but yes, absolutely.
 
@@ -544,11 +544,11 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:36:41] Adam: Thank you so. Oh wait, you got to show the hit flash.
 
-[00:36:43] Zach: Oh yes. So I only I didn't take much from the from the shoot, but I thought this would just go in the trash, so I brought this back. Yeah, this was the
+[00:36:43] Zach: Oh yes. So I only I didn't take much from the shoot, but I thought this would just go in the trash, so I brought this back. Yeah, this was the
 
 [00:36:50] Adam: that was our test rig.
 
-[00:36:51] Zach: This is our test rig. So just to show, because it was actually hard to know from a distance that you've hit something, so we needed something physical to actually happen. So yeah, so this was a little servo that we threw on one of their their little jeep vehicles that when it hit, it popped up in kind of a fun way.
+[00:36:51] Zach: This is our test rig. So just to show, because it was actually hard to know from a distance that you've hit something, so we needed something physical to actually happen. So yeah, so this was a little servo that we threw on one of their little jeep vehicles that when it hit, it popped up in kind of a fun way.
 
 [00:37:04] Adam: And so the jeep vehicle was driving laterally across my field while I was trying to shoot at it and trying to also come up with a sight picture. So that our guns were properly aimed, and it was hilarious seeing that little doink come up,
 
@@ -578,7 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:37:25] Unknown speaker (Norm or Zach): absolutely.
 
-[00:37:25] Norm: I will tease one thing on the site this week. We have a video of an unboxing. I think we teased on Instagram of of three big boxes that you were very very excited for.
+[00:37:25] Norm: I will tease one thing on the site this week. We have a video of an unboxing. I think we teased on Instagram of three big boxes that you were very very excited for.
 
 [00:37:36] Adam: I guess I'm out of it's out of the camera frame, isn't it?
 

@@ -38,9 +38,9 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:00:44] Norm: what was the what made you want to move to San Francisco?
 
-[00:00:47] Jen: Well, I had a really great opportunity to work with this gentleman here on a number of different projects, and yeah, the timing was just right. And I've been coming out for you know projects over the past several years, and this seemed like a good time to finally. Commit and and be in San Francisco. So
+[00:00:47] Jen: Well, I had a really great opportunity to work with this gentleman here on a number of different projects, and yeah, the timing was just right. And I've been coming out for you know projects over the past several years, and this seemed like a good time to finally. Commit and be in San Francisco. So
 
-[00:01:05] Adam: so we're here really early because we're in production and today is a a final build day before we head to a undisclosed location tomorrow to engage in some shenanigans.
+[00:01:05] Adam: so we're here really early because we're in production and today is a final build day before we head to a undisclosed location tomorrow to engage in some shenanigans.
 
 [00:01:18] Norm: That sounds like your life for the past 15 years. Final build days upon final build days before shenanigans.
 
@@ -62,11 +62,11 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:02:12] Adam: about the process. I mean, just so like all of this, all of these things we can't talk about. Yeah,
 
-[00:02:15] Norm: but the the book, I guess you can talk a little bit more about because you know the title's out there, the cover's out there, people can pre order it. But that process of going through and publishing a book
+[00:02:15] Norm: but the book, I guess you can talk a little bit more about because you know the title's out there, the cover's out there, people can pre order it. But that process of going through and publishing a book
 
 [00:02:25] Adam: oh my god,
 
-[00:02:26] Norm: what is what is that like? Like,
+[00:02:26] Norm: what is that like? Like,
 
 [00:02:26] Adam: I think
 
@@ -76,9 +76,9 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:02:30] Norm: Okay,
 
-[00:02:30] Adam: I'm still way too far, way too deep into the middle of it right now. Um, Jen, I'm curious if there's anything about moving to San Francisco that's that you've discovered about San Francisco that you hadn't in previous just visits.
+[00:02:30] Adam: I'm still way too far, way too deep into the middle of it right now. Jen, I'm curious if there's anything about moving to San Francisco that's that you've discovered about San Francisco that you hadn't in previous just visits.
 
-[00:02:52] Jen: Um, that's a hard question. I’ve been coming here for a long time, so I have extended family in the Bay Area, and yeah, I sort of fell in love with the city probably about 15 years ago. I looked at schools out here, and I ended up in Baltimore, but I've always San Francisco has always had a special place in my heart. It's Different, knowing that I'm living here now, like the perspective of being someplace when you're on vacation is totally different. You're out in a project, but now it's like, oh, this is this is my town, this is my neighborhood now. So I'm I'm getting to see it through you know through new eyes and just discover places that I hadn't seen before. And even honestly, just coming into the cave, I was looking around this morning and I was like, wow, is any of this stuff new, or have I just not noticed it before? There's like so much stuff that to be to be discovered.
+[00:02:52] Jen: That's a hard question. I’ve been coming here for a long time, so I have extended family in the Bay Area, and yeah, I sort of fell in love with the city probably about 15 years ago. I looked at schools out here, and I ended up in Baltimore, but I've always San Francisco has always had a special place in my heart. It's Different, knowing that I'm living here now, like the perspective of being someplace when you're on vacation is totally different. You're out in a project, but now it's like, oh, this is my town, this is my neighborhood now. So I'm I'm getting to see it through you know through new eyes and just discover places that I hadn't seen before. And even honestly, just coming into the cave, I was looking around this morning and I was like, wow, is any of this stuff new, or have I just not noticed it before? There's like so much stuff that to be discovered.
 
 [00:03:35] Adam: I wonder if there are filters we put over our experience depending upon how lasting that experience is perceived to to be for us when we're when we're taking something in. I just I wonder like I remember walking out of a hotel in 1988 on Gough and Lombard.
 
@@ -94,15 +94,15 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:04:47] Adam: It's a prop replica.
 
-[00:04:48] Jen: Yeah, from my visit to San Francisco, like you know, almost 15 years ago.
+[00:04:48] Jen: Yeah, from my visit to San Francisco, like almost 15 years ago.
 
 [00:04:53] Adam: That's fantastic.
 
-[00:04:54] Norm: I think I do envy tourists. I envy that ephemeral nature of like their visit and the perspective they see. I know when a lot of people travel, they want to live like a local, but it never is the case, right? Like I, I. I read the the online blogs and like how to live not the touristy part of town, get an Airbnb, but still it's still the facsimile of the experience, because my eyes are still kind of wide open and I'm still I'm pursuing the experience a little differently than I would be.
+[00:04:54] Norm: I think I do envy tourists. I envy that ephemeral nature of like their visit and the perspective they see. I know when a lot of people travel, they want to live like a local, but it never is the case, right? Like I, I. I read the online blogs and like how to live not the touristy part of town, get an Airbnb, but still it's still the facsimile of the experience, because my eyes are still kind of wide open and I'm still I'm pursuing the experience a little differently than I would be.
 
 [00:05:23] Adam: Well, and there's also so much of San Francisco to take in. If you're going to stay in an Airbnb in the Mission, that's one experience. Glen Park is another. Pacific Heights is another. Laurel Village. I mean, all of these different places would give you completely different impressions of the city. I talked to a Kiwi in New Zealand a few months ago who had visited San Francisco, and they had walked the length of Polk Street because the hotel they got online was on Polk, and they walked up and down Polk Street, and they were like, " San Francisco is the ugliest city I've ever seen."
 
-[00:05:53] Norm: There, there are parts.
+[00:05:53] Norm: There are parts.
 
 [00:05:56] Adam: You chose a particularly rough street.
 
@@ -110,11 +110,11 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:06:09] Adam: That's actually the point is you should you take your relatives there because Alcatraz is no joke. Legit, amazing experience.
 
-[00:06:15] Jen: I still haven't been. I've been to some of the the less touristy places because I have family around here, but I haven't been to Alcatraz.
+[00:06:15] Jen: I still haven't been. I've been to some of the less touristy places because I have family around here, but I haven't been to Alcatraz.
 
 [00:06:21] Norm: My point is now that you're here, don't take it for granted because so many locals do.
 
-[00:06:26] Adam: When I when I lived in New York, I used to go to the Empire State Building about once every year.
+[00:06:26] Adam: When I lived in New York, I used to go to the Empire State Building about once every year.
 
 [00:06:29] Jen: Really?
 
@@ -140,7 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:07:49] Norm: Yeah, and that's the thing.
 
-[00:07:51] Adam: The stairs that he's—that's that's the Mission Dolores.
+[00:07:51] Adam: The stairs that he's—that's the Mission Dolores.
 
 [00:07:54] Jen: Oh wow, that puts a totally new perspective on that movie. I'll have to go back and watch it again.
 
@@ -188,7 +188,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:09:22] Norm: Volta, yes, and it's a touring show. And actually, one of the listeners of the podcast, of our other podcast, reached out. It was as a technician on the show, and was able to take us backstage. And we there's a tested piece coming out about it soon. But what I learned so much about this production. I know when Adam, when you talked about you going on tour, tours in general, arena tours, stage shows are kind of quantified. One way to quantify them is the number of trucks.
 
-[00:09:51] Adam: Yep, that's that's what most people who deal with tour stuff want to know: how many trucks, and they they they know most of what they need to know based on that metric.
+[00:09:51] Adam: Yep, that's what most people who deal with tour stuff want to know: how many trucks, and they know most of what they need to know based on that metric.
 
 [00:09:59] Norm: I had no idea, but I tried to guess how many trucks the show was, and then I found out, but Guess how many trucks?
 
@@ -222,7 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:10:42] Adam: How long is their load in?
 
-[00:10:44] Norm: Uh, two uh two weeks. No, no, they build up. They can pack it up in two days.
+[00:10:44] Norm: Two two weeks. No, no, they build up. They can pack it up in two days.
 
 [00:10:44] Jen: What?
 
@@ -240,9 +240,9 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:11:06] Norm: gets deployed because in San Francisco, where it plays, is in basically the the. We don't have a fairgrounds in in the city proper, so it's the parking lot of our local baseball stadium.
 
-[00:11:20] Adam: Oh yeah, yeah. That's where that's where they always play.
+[00:11:20] Adam: Oh yeah, yeah. That's where they always play.
 
-[00:11:22] Norm: Yes, so you know it's it's relatively large space, but typically when they travel around North America, it would be like San Mateo Fairgrounds or some like big open fairgrounds area. But there are no facilities. They bring their stage.
+[00:11:22] Norm: Yes, so you know it's relatively large space, but typically when they travel around North America, it would be like San Mateo Fairgrounds or some like big open fairgrounds area. But there are no facilities. They bring their stage.
 
 [00:11:22] Adam: Right.
 
@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:12:10] Norm: mind-boggling.
 
-[00:12:11] Adam: The the logistics involved in that are they beggar my imagination.
+[00:12:11] Adam: The logistics involved in that are they beggar my imagination.
 
 [00:12:11] Jen: Yeah,
 
@@ -280,11 +280,11 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:12:35] Jen: Oh,
 
-[00:12:35] Norm: right. The the the the containers don't leave because they they they all stay there, and they're all numbered and becomes reference. So one of the things we learned is they build out like there's the big tent, and they build out a technical tent, which is their workshop. It becomes like their makerspace, and that is all out of one truck, the number 54. And every tour, because they have like you know three or four of these touring shows that go around the world. The 54 truck is always the workshop in every single city.
+[00:12:35] Norm: right. The containers don't leave because they all stay there, and they're all numbered and becomes reference. So one of the things we learned is they build out like there's the big tent, and they build out a technical tent, which is their workshop. It becomes like their makerspace, and that is all out of one truck, the number 54. And every tour, because they have like you know three or four of these touring shows that go around the world. The 54 truck is always the workshop in every single city.
 
 [00:12:35] Adam: Is that superstition or just?
 
-[00:12:35] Norm: It's just the way. I think it's the way they account for it. So when when whatever logistics person they refer to, like where is our 54? Where's the 54 in Japan right now? Oh, it's you know on this boat or on this airplane coming in, and it's so that the institutional knowledge they have for deploying these things can be retained.
+[00:12:35] Norm: It's just the way. I think it's the way they account for it. So when whatever logistics person they refer to, like where is our 54? Where's the 54 in Japan right now? Oh, it's you know on this boat or on this airplane coming in, and it's so that the institutional knowledge they have for deploying these things can be retained.
 
 [00:13:28] Adam: I mean, on our measly little two truck tour that Jamie and I did, and then later Michael Stevens and I did, you could run into all sorts of weird problems. At one point, I got locked in the bus because the bus's pneumatic system broke and the door wouldn't open. I had to climb out this little driver's window. Another time, we had snow in Eastern Washington. Our trucks didn't get in till five p.m. and we still managed to make our eight p.m. show because the crew is amazing. But that's two trucks.
 
@@ -296,13 +296,13 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:14:08] Adam: That that all of their energy in logistics is based on knowing precisely what the weather is and what it's likely to be. Huh. And I hadn't considered that, but I'll bet that Cirque du Soleil. I bet that with 74 trucks, you got to have a very granular understanding of the roads everywhere you go and the potential conditions.
 
-[00:14:26] Norm: Well, and when you're erecting a giant tent for 2,000 people, the four masts that's on one is for weather. Like they can detect they they know
+[00:14:26] Norm: Well, and when you're erecting a giant tent for 2,000 people, the four masts that's on one is for weather. Like they can detect they know
 
 [00:14:26] Adam: oh wow
 
-[00:14:26] Norm: yeah so they they that will be pulled to attract lightning if there's a storm. They know the tolerances for the the tent right, and they'll you know cancel shows if need be. You know, we had a big storm I think two weeks ago in San Francisco, and I think you know that is taken into consideration.
+[00:14:26] Norm: yeah so they that will be pulled to attract lightning if there's a storm. They know the tolerances for the tent right, and they'll you know cancel shows if need be. We had a big storm I think two weeks ago in San Francisco, and I think you know that is taken into consideration.
 
-[00:14:54] Adam: The the the amount of technical wizardry involved in any Cirque du Soleil show is mind blowing, let alone a touring one.
+[00:14:54] Adam: The amount of technical wizardry involved in any Cirque du Soleil show is mind blowing, let alone a touring one.
 
 [00:15:04] Norm: Well, that's I think that's the thing that surprised me the most because I really only. Knew about the show from, and most people in America probably know about the show from it's the residencies in Vegas,
 
@@ -310,17 +310,17 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:15:04] Norm: right. And there's definitely an assumption of what Cirque du Soleil is. Oh, it's a thing you do in Vegas. It's the the fancy, very French Canadian show thing, and and yeah, it is that. But it's also like the biggest production company in the world.
 
-[00:15:26] Adam: I I I saw back in the '90s, my then wife and I went and saw them fairly frequently. I think we saw them four or five times at that same location down by the down by the old ball, down by the new ballpark. Um, and I always found the shows transformative. I mean, I was always in tears by the end of the first act. For some reason, I think I always thought the first acts were more moving than the second acts. Maybe it's just because the visual spectacle was so surprising. So many things you don't expect to like. How is that possible?
+[00:15:26] Adam: I saw back in the '90s, my then wife and I went and saw them fairly frequently. I think we saw them four or five times at that same location down by the old ball, down by the new ballpark. And I always found the shows transformative. I mean, I was always in tears by the end of the first act. For some reason, I think I always thought the first acts were more moving than the second acts. Maybe it's just because the visual spectacle was so surprising. So many things you don't expect to like. How is that possible?
 
 [00:15:58] Norm: Right, right.
 
 [00:15:58] Adam: Or I'm really glad these gymnasts have work.
 
-[00:16:01] Norm: Yeah, and and the the way the shows are constructed, just being able to finally watch one because you have these. You know, I've seen it in movies. You see, like, like, oh, there's the one with the water. It's almost like a magic show in that there’s a repertoire of acts.
+[00:16:01] Norm: Yeah, and the way the shows are constructed, just being able to finally watch one because you have these. I've seen it in movies. You see oh, there's the one with the water. It's almost like a magic show in that there’s a repertoire of acts.
 
 [00:16:15] Adam: Oh, very much,
 
-[00:16:16] Norm: right? And you think there's a when they construct the show because they construct them every couple years. They look at well, what are the acts that can fit in this show and who is available? Because you're not going to like when you say you want the world class, you know, straps person or rings person or whatever it is. Like, there's only so many. One, if they're available, and then how do you incorporate what they do into something that is cohesive as a theme and has somewhat of a narrative? Because they all have like a like a narrative that goes through them, and then design something visually striking.
+[00:16:16] Norm: right? And you think there's a when they construct the show because they construct them every couple years. They look at well, what are the acts that can fit in this show and who is available? Because you're not going to like when you say you want the world class straps person or rings person or whatever it is. Like, there's only so many. One, if they're available, and then how do you incorporate what they do into something that is cohesive as a theme and has somewhat of a narrative? Because they all have like a narrative that goes through them, and then design something visually striking.
 
 [00:16:49] Adam: So, speaking of this, I would like to. So, Jen is working on this new production in a specific capacity, and part of our cohort is Jon Marcu, who's one of the lead builders on MythBusters Junior. Jon Marcu has worked on all of the American Beastmaster and American Ninja Warrior.
 
@@ -342,13 +342,13 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:18:15] Adam: And when you develop a game show like Ninja Warrior, you want to be able to put it up in other countries. Apparently, they're now not waiting; they're just setting it up in one place and bringing in other countries of competitors and filming all at once.
 
-[00:19:02] Norm: Oh, so it's not even the localization just for the. Presentation, the the hosting, even the competitors are different.
+[00:19:02] Norm: Oh, so it's not even the localization just for the. Presentation, the hosting, even the competitors are different.
 
 [00:19:08] Adam: I'm not sure exactly about that.
 
 [00:19:08] Norm: I would believe,
 
-[00:19:08] Adam: but they're but they're franchising from a single location in a single place.
+[00:19:08] Adam: but they're franchising from a single location in a single place.
 
 [00:19:15] Jen: It's like weird concept.
 
@@ -362,9 +362,9 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:19:29] Jen: What
 
-[00:19:29] Norm: it's like they they have the exact same show, except now it's done with Russian actors because the comedy still works, but it's localized that way. They just redo it.
+[00:19:29] Norm: it's like they have the exact same show, except now it's done with Russian actors because the comedy still works, but it's localized that way. They just redo it.
 
-[00:19:43] Adam: A lot of sitcoms, a lot of sitcoms are done this way.
+[00:19:43] Adam: A lot of sitcoms are done this way.
 
 [00:19:45] Jen: So same script and everything. They just act it with different people in another language.
 
@@ -384,7 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:20:04] Adam: It does, but it it does, but I mean, the American Office ended up working because it found its own voice.
 
-[00:20:10] Norm: Right, the the Jim Halpert, right, the character. I think you know the guy was hired because he look he could do the expressions that Martin Freeman could do looking at the camera. You know, they did his hair exactly the same, but then it really became, you know, John Krasinski came came into his own, right? And that's why Americans love the American version.
+[00:20:10] Norm: Right, the Jim Halpert, right, the character. I think you know the guy was hired because he look he could do the expressions that Martin Freeman could do looking at the camera. They did his hair exactly the same, but then it really became John Krasinski came came into his own, right? And that's why Americans love the American version.
 
 [00:20:10] Adam: Yeah,
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:21:37] Adam: [unclear: decades / Let’s bring in the sprinkled costumes from the fairy sequence]
 
-[00:21:38] Norm: ago! Had exactly had the the feathers or these these sparkly bits, and they can open up a binder and pull out from a drawer the sample fabric, and that would be quite a place to visit.
+[00:21:38] Norm: ago! Had exactly had the feathers or these these sparkly bits, and they can open up a binder and pull out from a drawer the sample fabric, and that would be quite a place to visit.
 
 [00:21:48] Adam: Amazing!
 
@@ -416,33 +416,33 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:21:49] Jen: everything about it sounds fascinating.
 
-[00:23:05] Adam: You you are in the neighborhood, as it were. Jen, are you? Have you partaken of any local cuisine?
+[00:23:05] Adam: You are in the neighborhood, as it were. Jen, are you? Have you partaken of any local cuisine?
 
 [00:23:11] Jen: I've eaten a lot of burritos.
 
-[00:23:14] Adam: Have you been spreading the burrito love about to get to get to? Everyone has to have a favorite burrito. It's kind of required here.
+[00:23:14] Adam: Have you been spreading the burrito love about to get to? Everyone has to have a favorite burrito. It's kind of required here.
 
-[00:23:20] Jen: Um, you know, I've just been going to the place that's that's really close by, that's like walking distance from my house. Um, because we're in production, it's
+[00:23:20] Jen: I've just been going to the place that's really close by, that's like walking distance from my house. Because we're in production, it's
 
 [00:23:20] Adam: Yeah.
 
-[00:23:20] Jen: time is very limited, so I get I get what's convenient. But uh, yeah, I mean, I'm open to recommendations for what what I should check out.
+[00:23:20] Jen: time is very limited, so I get what's convenient. But uh, yeah, I mean, I'm open to recommendations for what I should check out.
 
 [00:23:35] Norm: We will give you recommendations.
 
-[00:23:36] Adam: Yeah, I I love the salsa at Papalote on 24th and Valencia, and their grilled quesadilla is a phenomenal a phenomenal meal.
+[00:23:36] Adam: Yeah, I I love the salsa at Papalote on 24th and Valencia, and their grilled quesadilla is a phenomenal meal.
 
 [00:23:47] Norm: El Farolito,
 
-[00:23:48] Adam: El Farolito, the burritos and the green salsa, the the the tomatillo salsa verde at El Farolito is my is just the best.
+[00:23:48] Adam: El Farolito, the burritos and the green salsa, the tomatillo salsa verde at El Farolito is my is just the best.
 
-[00:23:56] Jen: I'll I'll check that out. I did get dim sum last weekend off of. I'm trying to think. It's like 24th Street, and I've wandered around Valencia a little bit. Um, there, yeah, there's So much good food here.
+[00:23:56] Jen: I'll I'll check that out. I did get dim sum last weekend off of. I'm trying to think. It's like 24th Street, and I've wandered around Valencia a little bit. There, yeah, there's So much good food here.
 
 [00:24:08] Adam: Ooh, ooh, Shizen vegan sushi on 14th and Valencia. S H I Z E N.
 
 [00:24:08] Jen: I've heard about this.
 
-[00:24:08] Adam: It will, it will, I just, it will rock your world.
+[00:24:08] Adam: It will, I just, it will rock your world.
 
 [00:24:08] Jen: Really?
 
@@ -450,7 +450,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:24:08] Norm: Yeah.
 
-[00:24:08] Adam: However, however, if I served this to you and I did not tell you, after like 10 minutes, you go, " What is this?" Because it'd be like, " This is delicious sushi," and yet everything, it's just, it, it tells you that what sushi is about is not about the fish; it's about the texture in each bite and the, the, the, the flavor profile of the umami and the sweet and sour and the acid in each bite. And Shizen is world class sushi that just happens to not have fish.
+[00:24:08] Adam: However, however, if I served this to you and I did not tell you, after like 10 minutes, you go, " What is this?" Because it'd be like, " This is delicious sushi," and yet everything, it's just, it tells you that what sushi is about is not about the fish; it's about the texture in each bite and the flavor profile of the umami and the sweet and sour and the acid in each bite. And Shizen is world class sushi that just happens to not have fish.
 
 [00:24:52] Jen: Hmm. Yeah, I definitely want to look into that. People have been telling me about it, but I haven't had an opportunity to be like, " Oh, let me go get vegan sushi."
 
@@ -460,7 +460,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:25:04] Adam: there's a way about eating vegetarian food that you can stuff yourself till I can't eat anymore, and you don't hate yourself,
 
-[00:25:09] Norm: and you know you know you've had your greens and your fiber for the day, so you'll be happy eight hours later. I can't, I I cannot abide.
+[00:25:09] Norm: and you know you've had your greens and your fiber for the day, so you'll be happy eight hours later. I can't, I I cannot abide.
 
 [00:25:19] Adam: You got to try.
 
@@ -470,47 +470,47 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:25:20] Norm: Yeah,
 
-[00:25:20] Adam: I I I bought Mission Chinese for the crew yesterday.
+[00:25:20] Adam: I bought Mission Chinese for the crew yesterday.
 
 [00:25:26] Norm: Oh yeah, yeah. So you've had Mission Chinese now.
 
-[00:25:29] Jen: Well, yeah, I have. I I didn't know that's what it was, but it was delicious.
+[00:25:29] Jen: Well, yeah, I have. I didn't know that's what it was, but it was delicious.
 
 [00:25:29] Norm: Yes,
 
 [00:25:32] Adam: it's like super spicy. A couple people in the crew were having a little trouble with the spice that makes your face numb.
 
-[00:25:38] Norm: Yeah, yeah. They're chicken wings. It's a it's a numbing. It's a Szechuan pepper. I want to say that is so good. Yeah, I want to sprinkle you sprinkle that on popcorn if you can buy that.
+[00:25:38] Norm: Yeah, yeah. They're chicken wings. It's a numbing. It's a Szechuan pepper. I want to say that is so good. Yeah, I want to sprinkle you sprinkle that on popcorn if you can buy that.
 
 [00:25:38] Adam: Really?
 
 [00:25:38] Norm: Yeah, that's really good.
 
-[00:25:48] Adam: Oh, that's fabulous. Um, uh, Jen, have you been watching any any? Have you been abiding any media lately? I know we've been working really hard, but
+[00:25:48] Adam: Oh, that's fabulous. Jen, have you been watching any any? Have you been abiding any media lately? I know we've been working really hard, but
 
-[00:25:56] Jen: um, I just started reading uh the the Kindle version of um the right stuff, which I was talking about the other day. Um, I hadn't had. I hadn't had a chance to read it. A friend got it for me for Christmas, and it is like I can't put it down. It's riveting. Have you ever? Have you ever
+[00:25:56] Jen: I just started reading the Kindle version of the right stuff, which I was talking about the other day. I hadn't had. I hadn't had a chance to read it. A friend got it for me for Christmas, and it is like I can't put it down. It's riveting. Have you ever? Have you ever
 
 [00:26:13] Unknown speaker (Norm or Jen): read it?
 
 [00:26:13] Adam: I haven't read it. I'm ashamed to say I have not read it.
 
-[00:26:15] Jen: It's uh, it's Tom Wolfe.
+[00:26:15] Jen: It's Tom Wolfe.
 
 [00:26:17] Adam: Tom Wolfe,
 
-[00:26:17] Jen: yeah. Who uh, he's he's writing about what like what is the right stuff? What uh, what does it take to be an astronaut? Like, what do you have? What type of personality? Um, and so it starts off talking about because a lot of them were fighter pilots, so it starts off talking about um the this really intense uh rigorous training that you have to go through as a fighter pilot and just how dangerous it is. And so he's talking about how they start off with a crew of like 20 people, this particular regiment, and just in training, they're not even in combat. Just in training, it is so dangerous. Like, if you make one little mistake, one little thing happens, and the crew whittles down to about eight people, and they keep going to funerals over and over again. And it's just like it's you're immediately invested, and it's like thrilling. And I haven't even gotten to the part about the astronauts yet, but I highly, I highly recommend it.
+[00:26:17] Jen: yeah. Who he's writing about what like what is the right stuff? What does it take to be an astronaut? Like, what do you have? What type of personality? And so it starts off talking about because a lot of them were fighter pilots, so it starts off talking about the this really intense rigorous training that you have to go through as a fighter pilot and just how dangerous it is. And so he's talking about how they start off with a crew of like 20 people, this particular regiment, and just in training, they're not even in combat. Just in training, it is so dangerous. Like, if you make one little mistake, one little thing happens, and the crew whittles down to about eight people, and they keep going to funerals over and over again. And it's just like it's you're immediately invested, and it's like thrilling. And I haven't even gotten to the part about the astronauts yet, but I highly recommend it.
 
 [00:26:57] Adam: Wow.
 
 [00:27:06] Norm: So
 
-[00:27:07] Adam: Chuck Yeager was on Twitter yesterday, trashing Richard Feynman. Not trashing, kind of throwing shade on on Richard Feynman.
+[00:27:07] Adam: Chuck Yeager was on Twitter yesterday, trashing Richard Feynman. Not trashing, kind of throwing shade on Richard Feynman.
 
 [00:27:14] Norm: It's weird to see that tension. It's weird to see people who you idolize or read about growing up on mediums like Twitter actively.
 
 [00:27:24] Adam: That's far out.
 
-[00:27:25] Norm: Like Tom Brokaw on Twitter, kind of weird. Yeah, and using the parlance. Yeah, but as a recommendation, obviously, right stuff the biopic. You know, the the adaptation, the film adaptation, I guess,
+[00:27:25] Norm: Like Tom Brokaw on Twitter, kind of weird. Yeah, and using the parlance. Yeah, but as a recommendation, obviously, right stuff the biopic. You know, the adaptation, the film adaptation, I guess,
 
 [00:27:38] Adam: by Taylor Hackford, which is an amazing,
 
@@ -522,7 +522,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:27:50] Adam: trained alongside
 
-[00:27:52] Norm: who didn't didn't get to train alongside, but it was who went through the the same. I guess they're all fighter pilot, or if not fighter pilots, but all pilots as well in the war. But there was experiments to see whether they could go. They went through the same testing.
+[00:27:52] Norm: who didn't didn't get to train alongside, but it was who went through the same. I guess they're all fighter pilot, or if not fighter pilots, but all pilots as well in the war. But there was experiments to see whether they could go. They went through the same testing.
 
 [00:28:04] Adam: Am I right that they were pulled from the program because NASA didn't like the optics of women?
 
@@ -530,13 +530,13 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:28:07] Adam: Yeah.
 
-[00:28:07] Norm: Yes, and it went to it went to Congress, and they testified, and the the very men in in the Mercury program testified against them,
+[00:28:07] Norm: Yes, and it went to Congress, and they testified, and the very men in the Mercury program testified against them,
 
 [00:28:07] Jen: Really?
 
 [00:28:20] Adam: and so this is when you read Nicholas de Monchaux’s book Space Suit about the development of the space suit, he talks about Wolfe helping to create a mythos of the perfect physical specimen.
 
-[00:28:31] Jen: Yeah, it's it's very the book is very I mean, so far it's it has a very patriarchal perspective, and you know, yeah, you have to take it for what it's worth, but it is it is really excellent read.
+[00:28:31] Jen: Yeah, it's very the book is very I mean, so far it's it has a very patriarchal perspective, and yeah, you have to take it for what it's worth, but it is really excellent read.
 
 [00:28:45] Adam: I read a lovely review of First Man the other day, talking about that it's a shame First Man didn't get any Oscar love
 
@@ -590,11 +590,11 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:30:23] Jen: yeah, I haven't seen First Man. I for the same reasons you're talking about, I really enjoyed Interstellar because it's a it's a movie about the human condition, and just happens to have this backdrop of of space travel. But it's it it's not it's a space movie, but it's not just a movie about space.
 
-[00:30:38] Adam: Yeah, I agree. I I it's actually I I have huge issues with Interstellar.
+[00:30:38] Adam: Yeah, I agree. I it's actually I I have huge issues with Interstellar.
 
 [00:30:43] Jen: Oh, really?
 
-[00:30:44] Adam: Yeah, in execution, but it's the central plot idea, which is that love could somehow have a quantum dimension. I love that idea. That that's that's thrilling to me. I have no problem buying that.
+[00:30:44] Adam: Yeah, in execution, but it's the central plot idea, which is that love could somehow have a quantum dimension. I love that idea. That that's thrilling to me. I have no problem buying that.
 
 [00:30:57] Norm: That's science fiction, right? Yeah, that's like that's it's good storytelling.
 
@@ -602,7 +602,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:31:08] Norm: Okay,
 
-[00:31:08] Adam: it's gigantic. It's been touted in the review and the the trailer I saw is maybe the biggest Chinese produced sci fi epic yet. It looks stunning, but it turns out that they filmed a film of the Three Body Problem that they never released.
+[00:31:08] Adam: it's gigantic. It's been touted in the review and the trailer I saw is maybe the biggest Chinese produced sci fi epic yet. It looks stunning, but it turns out that they filmed a film of the Three Body Problem that they never released.
 
 [00:31:24] Norm: Yeah, I've.
 
@@ -630,7 +630,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:31:57] Norm: Very heady heady concepts.
 
-[00:32:00] Adam: Um, I mean, that's the short story is the perfect nugget to adapt into a feature film. But, but, but, um, back to Interstellar. I agree. I love the idea of these films that have that have more reach than just wasn't this one thing we're covering really amazing.
+[00:32:00] Adam: I mean, that's the short story is the perfect nugget to adapt into a feature film. But back to Interstellar. I agree. I love the idea of these films that have more reach than just wasn't this one thing we're covering really amazing.
 
 [00:32:17] Norm: Yeah. Other awards movies. One thing I did get to see, Destroyer, which is Nicole Kidman,
 
@@ -662,7 +662,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:32:53] Adam: I can't take that shit.
 
-[00:32:54] Norm: Yeah. But. Uh, the she's in prosthetic makeup, and she act, and it, it she becomes this whole character does not look like Nicole Kidman.
+[00:32:54] Norm: Yeah. But. The she's in prosthetic makeup, and she act, and it she becomes this whole character does not look like Nicole Kidman.
 
 [00:33:03] Adam: Wow,
 
@@ -672,7 +672,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:33:06] Norm: Yeah.
 
-[00:33:07] Adam: Um. Uh. Uh. I watched the Roger Stone film.
+[00:33:07] Adam: I watched the Roger Stone film.
 
 [00:33:11] Norm: Oh, timely. Yeah.
 
@@ -680,7 +680,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:33:13] Norm: Netflix. Netflix. Yeah.
 
-[00:33:15] Adam: Um. It's there.
+[00:33:15] Adam: It's there.
 
 [00:33:21] Norm: There's there's a resolution. I guess.
 
@@ -688,11 +688,11 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:33:24] Norm: Real time.
 
-[00:33:25] Adam: Right. Yeah. Exactly. Um. Yeah. He's a he's a almost a comic villain.
+[00:33:25] Adam: Right. Yeah. Exactly. Um. Yeah. He's a almost a comic villain.
 
 [00:33:30] Norm: Yeah.
 
-[00:33:30] Adam: I mean, it's kind of an amazing character. Uh. There's nothing to admire. I mean, sorry for me for my money. There's nothing to admire about his output. Uh. He he is the inventor of the super PAC. He is the first person to use negative advertising in a campaign. I mean, even if he's lying about that, the fact that you'd consider that a lie worth telling.
+[00:33:30] Adam: I mean, it's kind of an amazing character. There's nothing to admire. I mean, sorry for me for my money. There's nothing to admire about his output. He is the inventor of the super PAC. He is the first person to use negative advertising in a campaign. I mean, even if he's lying about that, the fact that you'd consider that a lie worth telling.
 
 [00:33:53] Norm: Isn't isn't that it? Would it be good pairing with the candidate?
 
@@ -708,7 +708,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:34:06] Unknown speaker (Norm or Jen): Okay.
 
-[00:34:06] Adam: The front runner is phenomenal political. The so actually the the the front runner definitely is of a piece of the Robert Redford film, The Candidate, written by Jeremy Lawler Larner. Um, uh, terrific, both terrific films about American politics. Uh, The Candidate is fictional, starring Robert Redford. The front runner with Hugh Jackman is. I don't know if you've seen it.
+[00:34:06] Adam: The front runner is phenomenal political. The so actually the front runner definitely is of a piece of the Robert Redford film, The Candidate, written by Jeremy Lawler Larner. Terrific, both terrific films about American politics. The Candidate is fictional, starring Robert Redford. The front runner with Hugh Jackman is. I don't know if you've seen it.
 
 [00:34:06] Jen: No.
 
@@ -724,9 +724,9 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:34:45] Adam: I'm not going to get to them. I'm not going to get to them until we do another unauthorized commentary. That's probably the next.
 
-[00:34:50] Norm: It's just more fun thinking about them, putting them on on paper.
+[00:34:50] Norm: It's just more fun thinking about them, putting them on paper.
 
-[00:34:54] Adam: It's also like we we like parsing weird film festivals. Like John Hodgman pointed out that there's an entire film genre of let's mess with Bill Pullman's mind.
+[00:34:54] Adam: It's also like we like parsing weird film festivals. Like John Hodgman pointed out that there's an entire film genre of let's mess with Bill Pullman's mind.
 
 [00:35:04] Norm: Yes.
 
@@ -736,13 +736,13 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:35:12] Adam: Yeah, this is whole whole class of films. Let's mess with Bill Pullman's mind.
 
-[00:35:18] Norm: I would even call * Casper* in that in that category as well, or * Independence Day* because they literally yeah messes his mind there.
+[00:35:18] Norm: I would even call * Casper* in that category as well, or * Independence Day* because they literally yeah messes his mind there.
 
 [00:35:18] Adam: Exactly.
 
 [00:35:18] Norm: Very good. Awesome.
 
-[00:35:30] Adam: I think I think that's a reasonable place to stop.
+[00:35:30] Adam: I think that's a reasonable place to stop.
 
 [00:35:32] Norm: Yes,
 
@@ -752,13 +752,13 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:35:34] Adam: and get to work.
 
-[00:35:35] Norm: Same here. Thank you guys. Thank you, Jen, so much for for coming in this early and welcome to San Francisco.
+[00:35:35] Norm: Same here. Thank you guys. Thank you, Jen, so much for coming in this early and welcome to San Francisco.
 
 [00:35:41] Adam: Yes, welcome.
 
 [00:35:42] Norm: Hope to have you in the podcast in the future.
 
-[00:35:44] Adam: We'd love to see some of your local cuisine recommendations in the comments for for Jen to enjoy.
+[00:35:44] Adam: We'd love to see some of your local cuisine recommendations in the comments for Jen to enjoy.
 
 [00:35:50] Norm: Yeah, and tell us about if you live. Doesn't matter if you live in San Francisco or not. I want to hear about the films about your cities that you love because
 

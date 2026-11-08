@@ -36,11 +36,11 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:00:30] Adam: I think that's great.
 
-[00:00:31] Will: I mean, it's just to be clear, we most of this. You you have some inside information.
+[00:00:31] Will: I mean, it's just to be clear, we most of this. You have some inside information.
 
 [00:00:36] Adam: Yeah.
 
-[00:00:36] Will: But most of it, most of what we talked about was just as an appreciation of of the film and the work that went into making the film and kind of reflecting on what that what what's changed over the 10 13 years since that film since that movie came out.
+[00:00:36] Will: But most of it, most of what we talked about was just as an appreciation of the film and the work that went into making the film and kind of reflecting on what that what what's changed over the 10 13 years since that film since that movie came out.
 
 [00:00:50] Adam: And I worked on it for more than a year. And I had a you know a it was a really wonderful project to work on. So it was great to see it again. I have a higher opinion of the movie now than I did when it first came out.
 
@@ -48,13 +48,13 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:01:11] Adam: Yeah,
 
-[00:01:11] Will: Would that, would that work, it's amazing how many people work on a film that's that scale.
+[00:01:11] Will: Would that work, it's amazing how many people work on a film that's that scale.
 
 [00:01:16] Adam: that you don't even see. In fact, actually, the credits list is probably about half of the actual number of people that worked on the film.
 
-[00:01:23] Will: Because there are people that are that are just
+[00:01:23] Will: Because there are people that are just
 
-[00:01:25] Adam: they they actually have a limited amount of time to run the credits at ILM when they were finishing up Star Wars. I know the model shop was about 200 people strong,
+[00:01:25] Adam: they actually have a limited amount of time to run the credits at ILM when they were finishing up Star Wars. I know the model shop was about 200 people strong,
 
 [00:01:34] Will: Wow.
 
@@ -70,7 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:02:07] Will: The prints cost the extra.
 
-[00:02:09] Adam: I'm not a film producer, so I, you know, I can't. Funny.
+[00:02:09] Adam: I'm not a film producer, so I I can't. Funny.
 
 [00:02:12] Norm: Didn't Kevin Smith do a thing with Clerks 2? Like, like you get your name in it, and then he listed just like 1,000.
 
@@ -84,7 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:02:23] Adam: Yeah.
 
-[00:02:23] Will: Um. So today, hey guys, we got something special to announce. This is a spoiler cast.
+[00:02:23] Will: So today, hey guys, we got something special to announce. This is a spoiler cast.
 
 [00:02:30] Adam: Ah, spoiler cast!
 
@@ -106,17 +106,17 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:02:42] Adam: Gravity.
 
-[00:02:43] Norm: Gravity. I don't know. Good thing, good thing we all saw it.
+[00:02:43] Norm: Gravity. I don't know. Good thing we all saw it.
 
 [00:02:46] Will: Yeah, finally. I snuck out of work early one day to go see it in IMAX before it went away,
 
-[00:02:51] Adam: and I saw your your text to me. He just wrote, " That is one hell of a movie. It's exhausting."
+[00:02:51] Adam: and I saw your text to me. He just wrote, " That is one hell of a movie. It's exhausting."
 
 [00:02:58] Will: So, okay, it is. It is a hard science fiction movie on a scale you don't normally see hard science fiction movies made at.
 
 [00:03:06] Adam: Yep.
 
-[00:03:06] Will: Um. You know the the last. Thing that I saw that was of a similar kind of tone was probably Moon,
+[00:03:06] Will: You know the last. Thing that I saw that was of a similar kind of tone was probably Moon,
 
 [00:03:14] Adam: right?
 
@@ -124,7 +124,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:03:17] Adam: Yeah,
 
-[00:03:17] Will: kind of sets the same kind of hits, but it is a an absolute ride. It starts with this incredibly long, super tense. Like the shot was so long that I, I mean, I knew it was coming, so I had read the whatever the Entertainment Weekly preview, whatever. But you, you're not used to a shot that long. It's like the scene at the end of um, what was the the movie about with Nicole Kidman where she plays the homicidal weather weather girl?
+[00:03:17] Will: kind of sets the same kind of hits, but it is a an absolute ride. It starts with this incredibly long, super tense. Like the shot was so long that I, I mean, I knew it was coming, so I had read the whatever the Entertainment Weekly preview, whatever. But you, you're not used to a shot that long. It's like the scene at the end of what was the movie about with Nicole Kidman where she plays the homicidal weather weather girl?
 
 [00:03:45] Adam: Oh,
 
@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:03:47] Adam: to die for.
 
-[00:03:48] Will: To die for. Um, the the end
+[00:03:48] Will: To die for. The end
 
 [00:03:50] Adam: Gus Van Sant
 
@@ -152,7 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:04:10] Norm: but previously practical.
 
-[00:04:12] Adam: Yes, entire well, he is no, he has no fear of the technology. So, in * Children of Men*, there's a couple of protracted sequences. The most famous one is when Clive Owen and Julianne Moore are trying to escape, and this band of, you know, tree dwellers trying to rob them.
+[00:04:12] Adam: Yes, entire well, he is no, he has no fear of the technology. So, in * Children of Men*, there's a couple of protracted sequences. The most famous one is when Clive Owen and Julianne Moore are trying to escape, and this band of tree dwellers trying to rob them.
 
 [00:04:31] Will: Marauders
 
@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:04:40] Adam: in the car, out of the car, and this is an assemblage of, I think, three or four different shots with an incredibly specific camera, car, vehicle with a driver both front and back, so that the car could reverse, and there was somebody steering the car.
 
-[00:04:55] Will: So it's like it's like a fire truck,
+[00:04:55] Will: So it's like a fire truck,
 
 [00:04:56] Adam: yeah. Even
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:07:29] Adam: I guess you have to make that choice.
 
-[00:07:30] Will: But but I mean, it's the thing that annoyed me about Avatar as well.
+[00:07:30] Will: But I mean, it's the thing that annoyed me about Avatar as well.
 
 [00:07:34] Adam: I could only conclude.
 
@@ -238,25 +238,25 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:07:36] Adam: I could only conclude, perhaps, that the director might have looked at it both ways, thinking the same thing, and tried it, and realized that one worked better than the other.
 
-[00:07:43] Will: Well, and ultimately, you know, that movie is going to see airplay on small screens, and and the vast majority of people who are going to see it are going to see it in 2D, and depth of field works in 2D extraordinarily well.
+[00:07:43] Will: Well, and ultimately, you know, that movie is going to see airplay on small screens, and the vast majority of people who are going to see it are going to see it in 2D, and depth of field works in 2D extraordinarily well.
 
 [00:07:55] Adam: But I mean, so let's talk about that opening shot. It's 18 minutes long. It starts out looking at the Earth. Yes. And then from a great distance, what feels like about a half a kilometer, you're looking at the international. You're looking at a space shuttle.
 
-[00:08:06] Will: You see the space shuttle in the, in the Hubble.
+[00:08:06] Will: You see the space shuttle in the Hubble.
 
 [00:08:07] Norm: You see something smooth move very slowly across the screen on the right. And you wonder what that is, and if you're first of all, you're just basking in Earth. Right.
 
 [00:08:15] Will: This is a gorgeous, gorgeous shot.
 
-[00:08:16] Norm: And like the the poster behind me, it says " Overview."
+[00:08:16] Norm: And like the poster behind me, it says " Overview."
 
 [00:08:19] Adam: Yes.
 
-[00:08:19] Norm: That is the the the name the effect that astronauts have given when they look at Earth from space.
+[00:08:19] Norm: That is the name the effect that astronauts have given when they look at Earth from space.
 
 [00:08:25] Adam: Right.
 
-[00:08:25] Norm: You get this awareness of it's it's very difficult to describe unless you've been in space. The awareness of how small the planet really is and how all encompassing. And exactly.
+[00:08:25] Norm: You get this awareness of it's very difficult to describe unless you've been in space. The awareness of how small the planet really is and how all encompassing. And exactly.
 
 [00:08:35] Adam: Do you know? Speaking of this, there's a wonderful, wonderful Buckminster Fuller when he would give talks would I must have I might have said this before, but okay, I'll say it again.
 
@@ -268,7 +268,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:09:20] Adam: Yes. So it starts out, and you're watching, you're hearing the chatter between NASA, NASA and the astronauts, George Clooney, Sandra Bullock, and an Indian astronaut whose name I can't remember.
 
-[00:09:31] Will: I I.
+[00:09:31] Will: I.
 
 [00:09:32] Adam: you never actually see him until he's dead.
 
@@ -278,15 +278,15 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:09:38] Norm: You see a photo of him with his family.
 
-[00:09:40] Adam: That's right. That's right. Um, and you sort of zoom in on, and you get the character layouts, um, which is that George Clooney is the the old man. He knows his deal out here. Sandra Bullock is the new buck, who's just getting used to holding down her lunch in zero G on a spacewalk. She's trying to fix some computer panel on the Hubble that she's designed, which is presumably the reason she's up there.
+[00:09:40] Adam: That's right. That's right. And you sort of zoom in on, and you get the character layouts which is that George Clooney is the old man. He knows his deal out here. Sandra Bullock is the new buck, who's just getting used to holding down her lunch in zero G on a spacewalk. She's trying to fix some computer panel on the Hubble that she's designed, which is presumably the reason she's up there.
 
 [00:10:02] Norm: The exposition is very efficient.
 
 [00:10:04] Adam: It is very efficient.
 
-[00:10:05] Norm: Their roles and and their how much experience they have.
+[00:10:05] Norm: Their roles and their how much experience they have.
 
-[00:10:07] Will: So so this is where it's important to note because for something that is so meticulously rendered as real. There was a fair amount of criticism from from storied people about the science of the movie.
+[00:10:07] Will: So so this is where it's important to note because for something that is so meticulously rendered as real. There was a fair amount of criticism from storied people about the science of the movie.
 
 [00:10:20] Adam: Okay, well,
 
@@ -296,27 +296,27 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:10:22] Adam: Yeah, we should go into that a little bit because there are places in which, to me, it is picking nits off of the most lovely framework. I mean, I I grant that there are some problems with the film. I think the script is at times gets a little obvious, but I absolutely will give it up for it. But yeah, well, we should talk. about those.
 
-[00:10:42] Will: So the jetpack was the first is the first thing because because Clooney was flying around like he was the rocketeer,
+[00:10:42] Will: So the jetpack was the first is the first thing because Clooney was flying around like he was the rocketeer,
 
 [00:10:49] Adam: right?
 
-[00:10:49] Will: You know, with with in a way that doesn't work in microgravity.
+[00:10:49] Will: With in a way that doesn't work in microgravity.
 
 [00:10:53] Adam: Oh, it really.
 
-[00:10:53] Will: He was he was doing like radial motions. It would be pretty difficult.
+[00:10:53] Will: He was doing like radial motions. It would be pretty difficult.
 
-[00:10:57] Norm: So what they did was um um they interviewed several including Phil Plait was interviewed and other astronauts, astronauts who’ve used the jetpack because NASA really does have a jetpack.
+[00:10:57] Norm: So what they did was they interviewed several including Phil Plait was interviewed and other astronauts, astronauts who’ve used the jetpack because NASA really does have a jetpack.
 
 [00:11:06] Adam: Yeah, yeah, their MMUs absolutely do have.
 
-[00:11:09] Norm: But the the amount of time you could use it and the maneuverability for that. Was it was exaggerated.
+[00:11:09] Norm: But the amount of time you could use it and the maneuverability for that. Was it was exaggerated.
 
 [00:11:14] Adam: They did go on to say that he was operating a new prototype.
 
 [00:11:18] Norm: Prototype, Exactly. Right.
 
-[00:11:18] Adam: They also they also if you if you follow the film's logic, because the Chinese space station was completed, that we're probably around 2020.
+[00:11:18] Adam: They also if you follow the film's logic, because the Chinese space station was completed, that we're probably around 2020.
 
 [00:11:28] Will: Yeah.
 
@@ -344,15 +344,15 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:12:08] Norm: And what this movie does is get people interested in space.
 
-[00:12:11] Adam: But I mean it. I'm a little bothered by the fact that Tyson was so quick to tweet that there were problems with things like her hair not being weightless and stuff like that. Is because literally he is such a a god of academe when it comes to that sort of the popular culture science collision that I really feel like there are people who might go, " Oh, well, I saw a tweet that Neil deGrasse Tyson said the science isn't very good, so I'm not going to watch that movie." That is like miss everyone's missing the point.
+[00:12:11] Adam: But I mean it. I'm a little bothered by the fact that Tyson was so quick to tweet that there were problems with things like her hair not being weightless and stuff like that. Is because literally he is such a god of academe when it comes to that sort of the popular culture science collision that I really feel like there are people who might go, " Oh, well, I saw a tweet that Neil deGrasse Tyson said the science isn't very good, so I'm not going to watch that movie." That is like miss everyone's missing the point.
 
 [00:12:39] Will: Yeah, and
 
-[00:12:40] Norm: he had to go on the radio and and and back up
+[00:12:40] Norm: he had to go on the radio and back up
 
 [00:12:42] Adam: and mea culpa and say, " Okay, you know, it’s a tempest in a teapot here."
 
-[00:12:47] Will: It's it's not like we were watching the core and and and you know,
+[00:12:47] Will: It's not like we were watching the core and you know,
 
 [00:12:51] Adam: yeah, exactly,
 
@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:13:12] Norm: Yeah,
 
-[00:13:12] Will: Hilary Swank, yeah, right off a Million Dollar Baby, I think, or or no, Boys Don’t Cry.
+[00:13:12] Will: Hilary Swank, yeah, right off a Million Dollar Baby, I think, or no, Boys Don’t Cry.
 
 [00:13:17] Adam: Sorry, what were you going to say?
 
@@ -396,7 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:13:53] Norm: So the movie starts,
 
-[00:13:54] Adam: but but but sorry, just to go back, this this opening shot starts out at this great distance. It's really giving you the audience this kind of astronaut's eye view of how intensely beautiful the planet is from there, because the lingering shots of Earth throughout this movie are astonishing.
+[00:13:54] Adam: but sorry, just to go back, this opening shot starts out at this great distance. It's really giving you the audience this kind of astronaut's eye view of how intensely beautiful the planet is from there, because the lingering shots of Earth throughout this movie are astonishing.
 
 [00:14:10] Will: I could watch just the background
 
@@ -410,7 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:14:27] Adam: That's a whole 24 hours.
 
-[00:14:31] Norm: So those shots of Earth, beautiful, still pale, to photos, even like Hasselblad photos of Earth, like and and footage the astronauts have shot, because the reality is that. much more.
+[00:14:31] Norm: So those shots of Earth, beautiful, still pale, to photos, even like Hasselblad photos of Earth, like and footage the astronauts have shot, because the reality is that. much more.
 
 [00:14:45] Adam: Oh yeah, I can. But the other thing they did throughout Gravity was they took you through a whole bunch of day and night cycles, which I guess are about 90 minutes each,
 
@@ -420,21 +420,21 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:15:26] Norm: Yeah.
 
-[00:15:26] Adam: I, I was watching it. I knew that that shot existed. I knew that you ended up inside her visor, and I was watching it. I was still like, How did they do that?
+[00:15:26] Adam: I was watching it. I knew that that shot existed. I knew that you ended up inside her visor, and I was watching it. I was still like, How did they do that?
 
-[00:15:34] Will: I didn't. You didn't notice the transition. All you know is all of a sudden you can see you can see the stuff on her visor, and and because that shot is so long, but you a it helped the 3D a lot. It helped ease you into the 3D.
+[00:15:34] Will: I didn't. You didn't notice the transition. All you know is all of a sudden you can see the stuff on her visor, and because that shot is so long, but you a it helped the 3D a lot. It helped ease you into the 3D.
 
 [00:15:48] Adam: Really.
 
-[00:15:48] Will: Um. But B, the tension of having a shot that goes on that long in the viewer's head, you don't even notice it. But you just you're just like it's got something. This is it's. I can't. I want this to change. Yeah. This is a movie. It should change right now. I should see something. We. I mean, we watched MTV for 30 years, and the quick cuts. We're just used to them. It's the way things go.
+[00:15:48] Will: But B, the tension of having a shot that goes on that long in the viewer's head, you don't even notice it. But you just you're just like it's got something. This is it's. I can't. I want this to change. Yeah. This is a movie. It should change right now. I should see something. We. I mean, we watched MTV for 30 years, and the quick cuts. We're just used to them. It's the way things go.
 
 [00:16:07] Norm: What cuts do is what a cut can do is to change perspective, jump forward in time,
 
 [00:16:13] Will: right?
 
-[00:16:13] Norm: And what this does, being near real time and having protracted shots. Is give you the gravity of of their peril,
+[00:16:13] Norm: And what this does, being near real time and having protracted shots. Is give you the gravity of their peril,
 
-[00:16:20] Adam: and it also makes it the the the the degree to which the film is in real time aids the action so much because you know you're going to suffer through the whole trip. You know, you it almost increases the claustrophobia while you're looking at her O2.
+[00:16:20] Adam: and it also makes it the degree to which the film is in real time aids the action so much because you know you're going to suffer through the whole trip. You it almost increases the claustrophobia while you're looking at her O2.
 
 [00:16:37] Norm: You're holding your breath every time she calls out from 8% to 5%. You're oh, maybe I should be conserving my breath.
 
@@ -454,11 +454,11 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:16:51] Adam: and you're hearing it. It's just like this whole extra level of tension.
 
-[00:16:56] Will: It's it's it's super intense. And then the close ups of the of her face as she's sitting there, you watch the panic come on her face. You she spins out of the. Yeah. You actually get a pretty good sense of how terrifying it would be to not have any control at all over your momentum and your motion.
+[00:16:56] Will: It's super intense. And then the close ups of the of her face as she's sitting there, you watch the panic come on her face. You she spins out of the. Yeah. You actually get a pretty good sense of how terrifying it would be to not have any control at all over your momentum and your motion.
 
 [00:17:12] Adam: Yeah.
 
-[00:17:12] Will: Um. And and you you're with her as she comes as she brings it back under control. She as Clooney talks her down.
+[00:17:12] Will: And you you're with her as she comes as she brings it back under control. She as Clooney talks her down.
 
 [00:17:18] Adam: Yes. And now the other thing about it that's totally amazing is that pretty much that entire sequence, that whole 18 minute opening sequence, totally CG.
 
@@ -486,23 +486,23 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:17:46] Will: Wow.
 
-[00:17:46] Adam: It is. It sort of beggars belief what he was able to do with CG. That's just it's it's something other than we've seen before.
+[00:17:46] Adam: It is. It sort of beggars belief what he was able to do with CG. That's just it's something other than we've seen before.
 
 [00:17:55] Norm: And the type of motion controllers they need to build to shoot the actors' faces.
 
-[00:17:59] Adam: Yeah, well, so that is actually to me one of the most interesting technical things that they did. You know, they they knew they knew given the subject matter of the film, it was very hard to get it made. It took a long time. A lot of studios turned it down. I believe that the casting of Clooney and Bullock really helped, but still, they had $80 million to make a movie with, you know, easily a hundred and over $150 million worth of production value that they had to get out of it. So, Cuarón and his and his team, they actually pre-visualized the entire movie from start to finish.
+[00:17:59] Adam: Yeah, well, so that is actually to me one of the most interesting technical things that they did. You know, they knew given the subject matter of the film, it was very hard to get it made. It took a long time. A lot of studios turned it down. I believe that the casting of Clooney and Bullock really helped, but still, they had $80 million to make a movie with easily a hundred and over $150 million worth of production value that they had to get out of it. So, Cuarón and his team, they actually pre-visualized the entire movie from start to finish.
 
 [00:18:32] Will: Well, I mean, they'd have to.
 
 [00:18:33] Adam: Yeah, but every single shot, every single beat, every single line, they pre-visualized to a degree that they effectively shot and edited the movie before they even started principal photography.
 
-[00:18:46] Will: So the amazing thing to me about that movie, though, it's an effects movie, but I think you could probably make a two two person play, you know, do it on stage with two people and lighting and projectors and some, you know,
+[00:18:46] Will: So the amazing thing to me about that movie, though, it's an effects movie, but I think you could probably make a two two person play do it on stage with two people and lighting and projectors and some
 
 [00:18:58] Adam: That would be amazing.
 
-[00:18:46] Will: like like there's no the
+[00:18:46] Will: like there's no the
 
-[00:19:01] Adam: the the effects aren't front and center. The drama is.
+[00:19:01] Adam: the effects aren't front and center. The drama is.
 
 [00:19:03] Will: no,
 
@@ -522,7 +522,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:19:33] Unknown speaker: I don't know about that.
 
-[00:19:29] Adam: But the rig that they put the actors in to shoot their faces was totally amazing because everything about the film is where they are in space, and I don't mean just space, space. I mean what is the visual logic of the film, and where are people in relation to each other, and their levels of safety and danger. And that's something that good directors are really excellent at, like Spielberg, and there are directors like Michael Bay who really don't give a shit about where you are in space. It's just cut, cut, cut, cut, cut, and your mind kind of assembles its own space. So because that was so important in this, and because Cuarón likes the the extended shots. He knew that the if they if they filmed the actors' faces to put them in the spacesuits, the light on them had to be very specific. You know, Earth is over here, and the sun's over here, and reflection and bounce. So they built this film, this this light box inspired by a Peter Gabriel show that they went to, where they saw these two foot LED panels that were addressable, so you could put put video on them or any color temperature of light you wanted out of them. And they built a nine by nine by I think like 12 foot box lined with these panels. So one, they could put any color temperature they wanted on the actor's face. Two, they could actually put bands of of the color, so you could light half their face, or you could actually move the band, so it looked like the actors spinning when they're not. And then inside that box, a robotic camera, which does the camera moves around these actors' faces, match moved to the already rendered CG astronauts in the shots. It gets better. Because the panels were fully addressable, if Sandra Bullock is looking at Earth over here, the space station here, and Clooney's here, in addition to the lights, they can actually put those in the box so she has eye lines to look at.
+[00:19:29] Adam: But the rig that they put the actors in to shoot their faces was totally amazing because everything about the film is where they are in space, and I don't mean just space, space. I mean what is the visual logic of the film, and where are people in relation to each other, and their levels of safety and danger. And that's something that good directors are really excellent at, like Spielberg, and there are directors like Michael Bay who really don't give a shit about where you are in space. It's just cut, cut, cut, cut, cut, and your mind kind of assembles its own space. So because that was so important in this, and because Cuarón likes the extended shots. He knew that the if they filmed the actors' faces to put them in the spacesuits, the light on them had to be very specific. Earth is over here, and the sun's over here, and reflection and bounce. So they built this film, this light box inspired by a Peter Gabriel show that they went to, where they saw these two foot LED panels that were addressable, so you could put put video on them or any color temperature of light you wanted out of them. And they built a nine by I think like 12 foot box lined with these panels. So one, they could put any color temperature they wanted on the actor's face. Two, they could actually put bands of the color, so you could light half their face, or you could actually move the band, so it looked like the actors spinning when they're not. And then inside that box, a robotic camera, which does the camera moves around these actors' faces, match moved to the already rendered CG astronauts in the shots. It gets better. Because the panels were fully addressable, if Sandra Bullock is looking at Earth over here, the space station here, and Clooney's here, in addition to the lights, they can actually put those in the box so she has eye lines to look at.
 
 [00:21:17] Will: Wow!
 
@@ -536,7 +536,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:21:29] Adam: Yeah, super uncomfortable, and because the thing had already been pre-visualized massively, the actors didn't have a lot of freedom in terms of extending their lines or ad-libbing or adding any text whatsoever. Cuarón was very specific. Okay, here you get to do this. You can improvise here in the middle a little bit, but you've got to hit the whole thing in 18 seconds. I mean, really, really tight.
 
-[00:21:51] Will: This is amazing because sometimes you see you you learn about new technology that's invented to shoot a film, whether it's the the the armature dinosaur puppets for Jurassic Park or the motion control camera in Star Wars, and you see, okay, this is this is going to be everywhere in two years. This is something we're not going to see again, because there is not like this is a it's it's custom built for this.
+[00:21:51] Will: This is amazing because sometimes you see you learn about new technology that's invented to shoot a film, whether it's the armature dinosaur puppets for Jurassic Park or the motion control camera in Star Wars, and you see, okay, this is going to be everywhere in two years. This is something we're not going to see again, because there is not like this is a it's custom built for this.
 
 [00:22:11] Adam: It is custom built for this,
 
@@ -546,7 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:22:14] Norm: A giant, giant dude-in-a-robot-suit movie,
 
-[00:22:16] Adam: right? Right, right. The the but I also think that I mean, given how little ability to stretch out the actors had, it is a testament to the fact that both Clooney and Bullock are the highest caliber actors. That it doesn't feel like they're pushed into a tight boundary.
+[00:22:16] Adam: right? Right, right. The but I also think that I mean, given how little ability to stretch out the actors had, it is a testament to the fact that both Clooney and Bullock are the highest caliber actors. That it doesn't feel like they're pushed into a tight boundary.
 
 [00:22:34] Will: I never would have known that they weren't making eye contact when they were making eye contact. in that movie.
 
@@ -562,21 +562,21 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:23:34] Will: Taking the pieces apart, putting them back together in a different way.
 
-[00:23:36] Adam: I cannot wait to get the Cinefex about this movie. I'm going to read it twice. I was—I just want to say one other thing is that apparently Sandra Bullock, who, if you know her, apparently says, " Call me Sandy," and is every bit as nice and sweet as you could imagine. I know a couple people who know her. Was a machine and would sit in that chair in the box for nine hours at a stretch to get her to get her stuff in. I mean, you only ever see two people on two people in this movie. It is her and Clooney, and Clooney's gone halfway through the movie. This whole movie is her in every single shot, and she just kills it. I
+[00:23:36] Adam: I cannot wait to get the Cinefex about this movie. I'm going to read it twice. I was—I just want to say one other thing is that apparently Sandra Bullock, who, if you know her, apparently says, " Call me Sandy," and is every bit as nice and sweet as you could imagine. I know a couple people who know her. Was a machine and would sit in that chair in the box for nine hours at a stretch to get her stuff in. I mean, you only ever see two people on two people in this movie. It is her and Clooney, and Clooney's gone halfway through the movie. This whole movie is her in every single shot, and she just kills it. I
 
 [00:24:16] Will: yeah
 
 [00:24:16] Adam: yeah
 
-[00:24:16] Will: it's it's it's um
+[00:24:16] Will: it's
 
 [00:24:19] Norm: it's cheaper. I mean, for an $80 million movie, to get her as a great actress to do that than to do effect shots over and over again.
 
-[00:24:26] Adam: Yeah yeah it, it, it's totally astonishing. I’ll also say something else I really liked about her casting was um you know there are some other nitpicks that some people had
+[00:24:26] Adam: Yeah yeah it, it's totally astonishing. I’ll also say something else I really liked about her casting was you know there are some other nitpicks that some people had
 
 [00:24:34] Will: like she wasn't wearing a diaper man
 
-[00:24:36] Adam: she wasn't wearing a diaper. Hadfield said you know I don't look nearly that good when I get out of a spacesuit and I I totally get that he didn't say that it bothered him very much but you know even though she gets out and she's in shorts and a tank top um I won't say that she's not a beautiful woman because she totally is but they didn't make it a T and A shot
+[00:24:36] Adam: she wasn't wearing a diaper. Hadfield said you know I don't look nearly that good when I get out of a spacesuit and I I totally get that he didn't say that it bothered him very much but you know even though she gets out and she's in shorts and a tank top I won't say that she's not a beautiful woman because she totally is but they didn't make it a T and A shot
 
 [00:24:56] Will: oh it was a T and A it was an IMAX 80-foot-tall
 
@@ -614,11 +614,11 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:25:52] Adam: So, go ahead.
 
-[00:25:52] Will: oh no, I was just gonna say I thought, you know, I felt like at some point when when when they when she took off the spacesuit in the space station ISS,
+[00:25:52] Will: oh no, I was just gonna say I thought I felt like at some point when they when she took off the spacesuit in the space station ISS,
 
 [00:26:01] Adam: yeah,
 
-[00:26:01] Will: and you're like, oh Jesus, really? Um, I just felt like at some point somebody had to have a conversation. And yeah, we'll we'll yeah we'll do a Sigourney Weaver taking her out of the spacesuit scene. It'll be good. It'll be real sexy. And the Hollywood producer guy was like, " Oh, okay. Well, in that case, here's another $20 million."
+[00:26:01] Will: and you're like, oh Jesus, really? I just felt like at some point somebody had to have a conversation. And yeah, we'll we'll yeah we'll do a Sigourney Weaver taking her out of the spacesuit scene. It'll be good. It'll be real sexy. And the Hollywood producer guy was like, " Oh, okay. Well, in that case, here's another $20 million."
 
 [00:26:15] Adam: Right, and I will actually. That's a great example of the difference. I mean, the whole thing of Sigourney Weaver in her underpants at the end of Alien is—that's absolutely titillating and terrifying, and exemplifies her vulnerability.
 
@@ -638,11 +638,11 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:27:01] Adam: there,
 
-[00:27:01] Norm: and you have the strategic placement of the tubes for the the umbilical cord.
+[00:27:01] Norm: and you have the strategic placement of the tubes for the umbilical cord.
 
 [00:27:05] Adam: Yep, yep.
 
-[00:27:06] Will: And it's the it's the Star Child, right?
+[00:27:06] Will: And it's the Star Child, right?
 
 [00:27:07] Adam: Right. Yeah. Yeah. I saw a totally 2001 kind of reference. They did so. If you watch that scene, you can see that her thighs are tensed,
 
@@ -670,7 +670,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:28:38] Will: I assume that any time she was interacting with the walls was probably practical.
 
-[00:28:41] Adam: I think so, but I've also seen some behind-the-scenes shots that made me think otherwise. Like I've seen behind-the-scenes shots of her and Clooney when they're together in in the Soyuz, where where where he appears,
+[00:28:41] Adam: I think so, but I've also seen some behind-the-scenes shots that made me think otherwise. Like I've seen behind-the-scenes shots of her and Clooney when they're together in the Soyuz, where he appears,
 
 [00:28:52] Norm: one front panel,
 
@@ -678,9 +678,9 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:29:08] Will: Wow.
 
-[00:29:08] Adam: I don't know. I mean, I you know, it's open to. I'm waiting to read more about it to find out those specific details.
+[00:29:08] Adam: I don't know. I mean, I it's open to. I'm waiting to read more about it to find out those specific details.
 
-[00:29:13] Will: I I well, we'll get to Clooney in the in the Soyuz in a little bit. I loved my favorite part about the ISS sequence was as she's floating down looking for the radio. I guess she's looking for the radio. When she's doing the traversal of the whole module, she's getting ready to go to the Soyuz. You see Chekhov’s fire. So there's a little ball of fire. It's poofing off. It's the tiniest little thing, and and that you know you know you know that's going to come back and bite her.
+[00:29:13] Will: I well, we'll get to Clooney in the Soyuz in a little bit. I loved my favorite part about the ISS sequence was as she's floating down looking for the radio. I guess she's looking for the radio. When she's doing the traversal of the whole module, she's getting ready to go to the Soyuz. You see Chekhov’s fire. So there's a little ball of fire. It's poofing off. It's the tiniest little thing, and that you know that's going to come back and bite her.
 
 [00:29:41] Adam: It's beautifully Done too because it terrifies you. She doesn't see it.
 
@@ -692,11 +692,11 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:29:46] Adam: I’m no expert, but that equals bad.
 
-[00:29:52] Will: Yeah, that's that's not a good thing. And and I had the same the same clench, you know.
+[00:29:52] Will: Yeah, that's not a good thing. And I had the same clench.
 
 [00:29:57] Adam: Yeah.
 
-[00:29:57] Will: So you you but I didn't expect it to turn so quickly.
+[00:29:57] Will: So you but I didn't expect it to turn so quickly.
 
 [00:30:03] Adam: So badly.
 
@@ -718,7 +718,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:30:20] Will: I don't think, and I don't think they're gonna. I don't think you can send up. Hey, we need a. We here's the shot list for the ISS. We've done that before. It's. I don't think they'd let us set anything on fire.
 
-[00:30:29] Adam: I don't think so, but her movement through it, her, you know, we have some experience of Hadfield giving us those beautiful shots of him moving through the space station.
+[00:30:29] Adam: I don't think so, but her movement through it, her we have some experience of Hadfield giving us those beautiful shots of him moving through the space station.
 
 [00:30:40] Will: Oh, it's amazing,
 
@@ -732,13 +732,13 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:31:01] Adam: Yeah.
 
-[00:31:01] Will: Um, it it felt as small as I would have to imagine the real deal. feels.
+[00:31:01] Will: It felt as small as I would have to imagine the real deal. feels.
 
 [00:31:06] Adam: But you can with so many parts and pieces that you can't actually get lost.
 
 [00:31:10] Will: Oh yeah,
 
-[00:31:10] Adam: like there's there's it's it's longer than you think.
+[00:31:10] Adam: like there's there's it's longer than you think.
 
 [00:31:13] Will: Every module has arrows that point you toward the you know let you give you orientation because also your orientation is constantly out of whack because who knows
 
@@ -746,19 +746,19 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:31:20] Will: There's no up and down, yeah.
 
-[00:31:22] Adam: Yeah. Um, I really liked the. How they never in the abyss as they're moving from outside to inside. There's lots of just like here I am at the door and now I'm inside taking off my suit. They never did that in gravity. It was always I am going to unwind the thing that opens the hatch and I might burst out on me and now I climb into safety. I mean, all of that stuff was done and made it so excruciating.
+[00:31:22] Adam: Yeah. I really liked the. How they never in the abyss as they're moving from outside to inside. There's lots of just like here I am at the door and now I'm inside taking off my suit. They never did that in gravity. It was always I am going to unwind the thing that opens the hatch and I might burst out on me and now I climb into safety. I mean, all of that stuff was done and made it so excruciating.
 
 [00:31:46] Norm: And Wait for the pressurization in the air. yeah.
 
 [00:31:48] Will: The bursting out they did I think one too many times. The flap on the hatch.
 
-[00:31:53] Adam: The, I, I loved the last one, although the the motion, the kinematics on that motion felt just a little ragdolly,
+[00:31:53] Adam: The, I, I loved the last one, although the motion, the kinematics on that motion felt just a little ragdolly,
 
 [00:31:59] Will: a little bouncy
 
 [00:32:00] Adam: on that last one.
 
-[00:32:01] Will: Yeah, on the on the Chinese station.
+[00:32:01] Will: Yeah, on the Chinese station.
 
 [00:32:03] Adam: On the Chinese station, although, and I'm jumping around, I know. I loved the fire extinguisher,
 
@@ -782,13 +782,13 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:32:29] Adam: she'd go 180, right,
 
-[00:32:29] Norm: and count 45, 90, 180, and then and then launch.
+[00:32:29] Norm: and count 45, 90, 180, and then launch.
 
-[00:32:34] Will: Yeah. So, so, and and that stuff also falls in the if you think about it too much, you are not going to have fun. Um,
+[00:32:34] Will: Yeah. So, so, and that stuff also falls in the if you think about it too much, you are not going to have fun.
 
 [00:32:40] Adam: And you don't need to think about it too much. The physics of using a jet to control yourself—if you had something that had that much power—you would have the same problems that they showed her having.
 
-[00:32:52] Will: Um, I, I doubt I. If you are going to question something in that movie, the thing to question is how much grip can you get in those crazy tight, incredibly uncomfortable gloves after you've already been working for five or six hours?
+[00:32:52] Will: I doubt I. If you are going to question something in that movie, the thing to question is how much grip can you get in those crazy tight, incredibly uncomfortable gloves after you've already been working for five or six hours?
 
 [00:33:04] Adam: That's true.
 
@@ -804,7 +804,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:33:12] Norm: never let go.
 
-[00:33:14] Adam: His his knowledge that it's time to let go and his delivery of that really, you know, there’s a thing that about movie stars at at that caliber, and I guess he is, you know, the top one. Um, they just know when to not do, you know, just to it's too much, and not to overact, not to oversell, but just to let the moment take it.
+[00:33:14] Adam: His his knowledge that it's time to let go and his delivery of that really there’s a thing that about movie stars at at that caliber, and I guess he is, you know, the top one. They just know when to not do, you know, just to it's too much, and not to overact, not to oversell, but just to let the moment take it.
 
 [00:33:37] Will: The difference between that and Cliffhanger. No!
 
@@ -812,7 +812,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:33:42] Will: buckle took 12 minutes to break.
 
-[00:33:44] Adam: Um, I, I, I also really loved the animation of the Soyuz parachute and all the cords.
+[00:33:44] Adam: I also really loved the animation of the Soyuz parachute and all the cords.
 
 [00:33:52] Will: I thought that was really well done.
 
@@ -828,7 +828,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:34:12] Adam: all of that stuff is super intense with the clock ticking.
 
-[00:34:15] Will: Yes, so, so the clock ticking, the the the the suit sounds when she was running low on oxygen. All that stuff was done really well. I, I still feel like they undersold the danger of space. And I know that sounds weird, but you think about think about the aborted spacewalk with Luca Parment. Um, oh hell, um, Luca Parmitana. Ah, he had a water leak. The water was crawling up the back of his bald head.
+[00:34:15] Will: Yes, so, so the clock ticking, the suit sounds when she was running low on oxygen. All that stuff was done really well. I still feel like they undersold the danger of space. And I know that sounds weird, but you think about the aborted spacewalk with Luca Parment. Oh hell Luca Parmitana. Ah, he had a water leak. The water was crawling up the back of his bald head.
 
 [00:34:44] Adam: Yes,
 
@@ -842,7 +842,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:35:07] Will: Yeah.
 
-[00:35:07] Adam: Um, he had vigorously put antifog. By the way, as an aside, there's a trailer out for Hadfield's book that is really, really
+[00:35:07] Adam: He had vigorously put antifog. By the way, as an aside, there's a trailer out for Hadfield's book that is really, really
 
 [00:35:15] Norm: funny and sweet.
 
@@ -872,7 +872,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:36:27] Adam: It is the exact shape, like a Bugs Bunny right through the fence outline, and it is that shot is. It's terrifying when you think about how scary that stuff can be,
 
-[00:36:38] Will: and it sets the yeah, it's it's danger at at beyond a human scale,
+[00:36:38] Will: and it sets the yeah, it's danger at at beyond a human scale,
 
 [00:36:42] Adam: beyond any scale. Right. So these these objects are flying 10 times faster
 
@@ -886,17 +886,17 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:36:53] Norm: yeah, about the
 
-[00:36:53] Adam: cascade effect and how fast they would travel if they're already orbiting in the same direction, et cetera, et cetera.
+[00:36:53] Adam: cascade effect and how fast they would travel if they're already orbiting in the same direction, et cetera.
 
 [00:36:57] Norm: So, design of ISS and spacecraft tries to take into account for that in the real world,
 
 [00:37:03] Adam: right?
 
-[00:37:03] Norm: And they, they, NASA has shown like what happens when something traveling at that speed hits the side of ISS. It's just a big dent; doesn't go through, but you do see lots of dents.
+[00:37:03] Norm: And they, NASA has shown like what happens when something traveling at that speed hits the side of ISS. It's just a big dent; doesn't go through, but you do see lots of dents.
 
-[00:37:13] Adam: Right. You see lots of dents. There's a reason for that cloth covering helps to actually slow down the objects. Just imagine. It is a terrifying bit that reveal of his of his damaged face.
+[00:37:13] Adam: Right. You see lots of dents. There's a reason for that cloth covering helps to actually slow down the objects. Just imagine. It is a terrifying bit that reveal of his damaged face.
 
-[00:37:24] Norm: Well, and also the the other astronauts inside the space shuttle
+[00:37:24] Norm: Well, and also the other astronauts inside the space shuttle
 
 [00:37:27] Will: that was also pretty scary.
 
@@ -930,7 +930,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:37:59] Will: no. Clooney was an oxygen deprivation hallucination. No,
 
-[00:38:03] Norm: she, she, she came back to Earth and is reborn.
+[00:38:03] Norm: she came back to Earth and is reborn.
 
 [00:38:05] Will: everything else?
 
@@ -950,21 +950,21 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:38:51] Will: Right, never. It is literally the first thing they tell you every time you get in the water when you're taking your lessons.
 
-[00:38:55] Adam: Yep. Yeah. And and
+[00:38:55] Adam: Yep. Yeah. And
 
-[00:38:57] Norm: but her picking herself up, I understand that she's strong and that she. But like we've seen astronauts getting rescued and like they they can't. There's they have no way.
+[00:38:57] Norm: but her picking herself up, I understand that she's strong and that she. But like we've seen astronauts getting rescued and like they can't. There's they have no way.
 
-[00:39:09] Adam: That is not a hard and fast rule. That is not a hard and fast rule. There have been astronauts who, and I can't remember. I think it was I think Ed Lu, who spent six months on the ISS. I had dinner with him and Phil Plait a few years ago, and if I remember correctly, Ed was telling me, trying to see if I remember the story correctly, that on his mission it was really important that he walk out of the shuttle and he. It took, he said, it took everything he had, but he was able to. Your your muscles are not used to gravity. It is a really, really debilitating experience to come back to Earth’s gravity.
+[00:39:09] Adam: That is not a hard and fast rule. That is not a hard and fast rule. There have been astronauts who, and I can't remember. I think it was I think Ed Lu, who spent six months on the ISS. I had dinner with him and Phil Plait a few years ago, and if I remember correctly, Ed was telling me, trying to see if I remember the story correctly, that on his mission it was really important that he walk out of the shuttle and he. It took, he said, it took everything he had, but he was able to. Your muscles are not used to gravity. It is a really, really debilitating experience to come back to Earth’s gravity.
 
 [00:39:44] Will: But it's also a function of the time you spent up there. And if they were on a shuttle mission, they would have been up for two or three weeks
 
-[00:39:49] Adam: at the most, presumably. Yeah. I didn't have a problem with that. I I know that some astronauts have been able to walk their way out of a shuttle. mission.
+[00:39:49] Adam: at the most, presumably. Yeah. I didn't have a problem with that. I know that some astronauts have been able to walk their way out of a shuttle. mission.
 
 [00:39:57] Norm: Maybe I think maybe it was more heavy-handed. The heavy handed, like she is doing the literal climbing out of the water.
 
 [00:40:02] Adam: Yes.
 
-[00:40:02] Norm: And and then becoming a man.
+[00:40:02] Norm: And then becoming a man.
 
 [00:40:04] Adam: That that is a place where look, I will agree that the script felt obvious, but I also loved that they didn't give you her seeing people. That they kept it personal about her, and she's alone, and in a way, they let you understand spatially how close she was to Earth.
 
@@ -972,7 +972,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:40:24] Norm: No, she didn't die.
 
-[00:40:24] Will: She turns off the gas. The gauges go into the red. She hallucinates Clooney. Fire, then water. Common, you know, pre-death images.
+[00:40:24] Will: She turns off the gas. The gauges go into the red. She hallucinates Clooney. Fire, then water. Common pre-death images.
 
 [00:40:36] Norm: I also like Ed Ed Harris was the
 
@@ -986,17 +986,17 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:40:55] Adam: I totally realize that that is a very reasonable assumption to make, but I reject it because I'm happy with thinking that she survived.
 
-[00:41:03] Will: I I just I you landing the capsules are hard.
+[00:41:03] Will: I just I you landing the capsules are hard.
 
 [00:41:07] Adam: Yeah,
 
 [00:41:07] Will: a lot of stuff was broken. She didn't follow the normal procedure.
 
-[00:41:11] Adam: She's guessing, et cetera, et cetera.
+[00:41:11] Adam: She's guessing, et cetera.
 
-[00:41:12] Will: You're riding at the edge of a paper on the outside of a of a of a beach ball.
+[00:41:12] Will: You're riding at the edge of a paper on the outside of a beach ball.
 
-[00:41:16] Norm: I think if that's if that's the thing that the director was going for, it would be a disservice to her character.
+[00:41:16] Norm: I think if that's the thing that the director was going for, it would be a disservice to her character.
 
 [00:41:23] Will: I don't think that's the case.
 
@@ -1030,7 +1030,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:42:34] Adam: Yeah.
 
-[00:42:35] Norm: You were fooled by the Clooney, the Clooney comeback.
+[00:42:35] Norm: You were fooled by the Clooney comeback.
 
 [00:42:38] Adam: Yeah. I well, no, I was watching it going. I was watching it going. This can't be real. This can't be real.
 
@@ -1044,9 +1044,9 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:42:51] Will: I'm going to ride this all the way down.
 
-[00:42:53] Adam: Okay, cool. Yeah, I I knew that this was like I was like if if they get to the end of the movie and they haven't addressed this, I'll be pissed. Right.
+[00:42:53] Adam: Okay, cool. Yeah, I I knew that this was like I was like if they get to the end of the movie and they haven't addressed this, I'll be pissed. Right.
 
-[00:43:02] Norm: They give away, and there are lots of little clues, like when he pulls out the the vodka. Yeah. It's like yes, conveniently right there in the sippy cup. Like
+[00:43:02] Norm: They give away, and there are lots of little clues, like when he pulls out the vodka. Yeah. It's like yes, conveniently right there in the sippy cup. Like
 
 [00:43:09] Will: hold on,
 
@@ -1084,19 +1084,19 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:43:40] Will: left IMAX for Ender's Game this weekend.
 
-[00:43:43] Norm: and it was it was number two,
+[00:43:43] Norm: and it was number two,
 
 [00:43:45] Adam: Which I’ve heard is not bad.
 
-[00:43:46] Norm: For for Bad Grandpa made number one. It was the first movie to topple it. That's yeah. Do you think the success of this movie has? We'll see a rise of space movies in the next coming year.
+[00:43:46] Norm: For Bad Grandpa made number one. It was the first movie to topple it. That's yeah. Do you think the success of this movie has? We'll see a rise of space movies in the next coming year.
 
 [00:44:01] Adam: Um, Well, I know for one thing that Alfonso Cuarón will get to do whatever he wants on the next movie.
 
 [00:44:08] Will: That's great,
 
-[00:44:08] Adam: and I think that's fantastic. Well, I mean, look, that may not be. You know, the studios. This film was a hard sell, and you can see why it was a hard sell. And the fact that he succeeded in making a hit movie out of it, you know, it might not engineer a sea change about how the studios. Look at his next project because you know Hollywood is littered with directors who had a monster $1 billion franchise and couldn't get their next passion project made. But he has such an incredible track record now Uh, that I'm really looking forward to seeing what he's interested in doing. next.
+[00:44:08] Adam: and I think that's fantastic. Well, I mean, look, that may not be. You know, the studios. This film was a hard sell, and you can see why it was a hard sell. And the fact that he succeeded in making a hit movie out of it, you know, it might not engineer a sea change about how the studios. Look at his next project because you know Hollywood is littered with directors who had a monster $1 billion franchise and couldn't get their next passion project made. But he has such an incredible track record now that I'm really looking forward to seeing what he's interested in doing. next.
 
-[00:44:42] Norm: And I can really see in movie in studio pitch rooms, like, using Gravity as an anchor point to pitch a movie. It's like Gravity, but
+[00:44:42] Norm: And I can really see in movie in studio pitch rooms using Gravity as an anchor point to pitch a movie. It's like Gravity, but
 
 [00:44:50] Adam: yeah,
 
@@ -1116,7 +1116,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:45:05] Will: Yeah,
 
-[00:45:05] Adam: but it's the the tentative title was Spaceballs Three: The Search for Spaceballs Two.
+[00:45:05] Adam: but it's the tentative title was Spaceballs Three: The Search for Spaceballs Two.
 
 [00:45:12] Will: That's perfect. That's exactly right.
 
@@ -1128,17 +1128,17 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:45:16] Will: Yeah. It's a really good movie, guys.
 
-[00:45:20] Adam: I think that about wraps it up. It is a stunning movie. It is really, really wonderful. If you really, if you get a chance, and I'll bet it'll come back to IMAX. Um, it really needs to be seen in IMAX in 3D. That is the proper way to see this film. The Blu-ray, I'm sure, will be incredible. Uh, but if you have a 3D television, please watch it in that. But the immersive, it is intended to be immersive, and like Pacific Rim, which I saw both in normal,
+[00:45:20] Adam: I think that about wraps it up. It is a stunning movie. It is really, really wonderful. If you really, if you get a chance, and I'll bet it'll come back to IMAX. It really needs to be seen in IMAX in 3D. That is the proper way to see this film. The Blu-ray, I'm sure, will be incredible. But if you have a 3D television, please watch it in that. But the immersive, it is intended to be immersive, and like Pacific Rim, which I saw both in normal,
 
 [00:45:50] Will: yeah,
 
-[00:45:50] Adam: 70 millimeter, whatever, and IMAX 3D, it it suffers mightily from watching it on a smaller screen.
+[00:45:50] Adam: 70 millimeter, whatever, and IMAX 3D, it suffers mightily from watching it on a smaller screen.
 
-[00:45:58] Will: But Pacific Rim especially was the robots look like cartoons on the on on my on my 58 inch TV at home.
+[00:45:58] Will: But Pacific Rim especially was the robots look like cartoons on the on my 58 inch TV at home.
 
 [00:46:04] Adam: Right, right, right.
 
-[00:46:04] Will: Um, the the the scale of this movie is is astounding on on IMAX, and I also have to say, props to IMAX people, at least in our local theater, they have switched from those crappy tan glasses that were the big ridiculous ones that came out with Superman Returns. And the new ones are infinitely better for people who wear glasses.
+[00:46:04] Will: The scale of this movie is is astounding on IMAX, and I also have to say, props to IMAX people, at least in our local theater, they have switched from those crappy tan glasses that were the big ridiculous ones that came out with Superman Returns. And the new ones are infinitely better for people who wear glasses.
 
 [00:46:22] Adam: Infinitely better for people who wear glasses. Nice wide field of view, super light. Don't you don't spend your whole time kind of
 
@@ -1154,13 +1154,13 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:46:42] Adam: Ooh!
 
-[00:46:43] Will: Oh, nice. Always well done. You have you you have you taught me the secret of IMAX 3D movies.
+[00:46:43] Will: Oh, nice. Always well done. You have you taught me the secret of IMAX 3D movies.
 
 [00:46:48] Adam: Sitting in the back,
 
 [00:46:49] Will: sitting in the back, in the middle.
 
-[00:46:51] Adam: I, you know, so here is the thing: this is I am normally a control freak, and Norm said I'll get the tickets, and I was like, I am not going to ask where we're sitting. I know that Norm has this shit wired, and and we got there, and you were like, we're second from the back, and I thought, wow, I am going to trust Norm entirely. He knows what's what, and he's looked it up, and it was great. It was really great. I found yes, I have found some IMAX movies like overwhelming, looking like this, and from the back, you are getting. You're getting the whole screen in your vision.
+[00:46:51] Adam: I so here is the thing: this is I am normally a control freak, and Norm said I'll get the tickets, and I was like, I am not going to ask where we're sitting. I know that Norm has this shit wired, and we got there, and you were like, we're second from the back, and I thought, wow, I am going to trust Norm entirely. He knows what's what, and he's looked it up, and it was great. It was really great. I found yes, I have found some IMAX movies like overwhelming, looking like this, and from the back, you are getting. You're getting the whole screen in your vision.
 
 [00:47:19] Will: If you're too far to either side, then the polarizations get hinky.
 

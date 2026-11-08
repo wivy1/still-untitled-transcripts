@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:01:16] Adam: San Francisco Sketchfest, a yearly. Is it a month long?
 
-[00:01:30] Janet Varney: I mean, ish. Ish. It's it's it's three weekends and then a bunch of days in between.
+[00:01:30] Janet Varney: I mean, ish. Ish. It's three weekends and then a bunch of days in between.
 
 [00:01:35] Adam: And then there's stuff in the summer.
 
@@ -36,19 +36,19 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:02:08] Janet Varney: Yeah, yeah. We've. I mean, we started with just sketch because that was what we were doing at the time as performers, and there weren't really that many places to perform sketch in San Francisco 16 years ago. And so we ended up partnering with five other groups that we had met in the year that we had been performing sketch, and said, " Would you guys be open to us renting a theater? We could share the cost, but we could split the profits, and then we none of us would have to do like a month long show, which is not, you know, we're not. It's not the Fantastics. You're not like we really. I think we're going to start getting really solid in week two. It's like you do your sketch set five times in a row over two weeks, and you're like, I hate this. I hate all of this. So you sort of want. We wanted to do fewer performances and then give the opportunity. To the groups that we had met to share audiences because they were all really different and there wasn't a whole lot of crossover. In you know, Kasper Hauser had its hardcore Kasper Hauserins, but because there wasn't this sort of like UCB environment, yeah, there just wasn't a place where people were like, I like all sketch or I like to check out, you know, and see what I like. It was just sort of like you found your audience and then good luck to you. Yeah. So it was it was kind of a chance to do that, and then it went so well that we started branching out. And then over the years, we've we've really found ways to just jam in stuff that I'm not even sure is comedy anymore. Like I start having ideas of doing tributes for people that I can't even name a comedy they've done, but I'm like, I'm sure we could make it work. They're probably funny in person.
 
-[00:03:41] Will: Well, and and my wife yesterday, yesterday the day before went to the most comedy event I think you have, which was the West Wing Weekly, which they did live here. I think for the first time.
+[00:03:41] Will: Well, and my wife yesterday, yesterday the day before went to the most comedy event I think you have, which was the West Wing Weekly, which they did live here. I think for the first time.
 
 [00:03:50] Janet Varney: It was the first time, yeah.
 
-[00:03:51] Will: And she just came out. She was just. So excited she was beside, and it was it was a tough ticket to pull. So
+[00:03:51] Will: And she just came out. She was just. So excited she was beside, and it was a tough ticket to pull. So
 
 [00:03:56] Janet Varney: yeah, yeah, well done.
 
 [00:03:57] Will: She was very excited.
 
-[00:03:58] Janet Varney: It was a great show. Yeah, they're really Josh is so funny, and that's I mean he's like I hate just I mean he's the coyote trickster of Hollywood, so he really is the kind of prankster. Like, but when I came in when I started doing the Thrilling Adventure Hour, which he is also a part, someone pulled me aside and gently warned me, like he hasn't been doing this lately, but sometimes he just does this thing where he takes all of your script pages and shuffles them around, and you don't know it until you're on stage. And that's for those of you who don't know, yeah, Thrilling Adventure Hour is predicated on we only read from a script. There's very little, if any, improvising. Other than if someone flubs something, yeah, which then maybe you you sort of open the door slightly, but nobody just like goes off book and starts razzing around as a so that put the fear of God in me. I was like,
+[00:03:58] Janet Varney: It was a great show. Yeah, they're really Josh is so funny, and that's I mean he's like I hate just I mean he's the coyote trickster of Hollywood, so he really is the kind of prankster. Like, but when I came in when I started doing the Thrilling Adventure Hour, which he is also a part, someone pulled me aside and gently warned me, like he hasn't been doing this lately, but sometimes he just does this thing where he takes all of your script pages and shuffles them around, and you don't know it until you're on stage. And that's for those of you who don't know, yeah, Thrilling Adventure Hour is predicated on we only read from a script. There's very little, if any, improvising. Other than if someone flubs something, yeah, which then maybe you sort of open the door slightly, but nobody just like goes off book and starts razzing around as a so that put the fear of God in me. I was like,
 
-[00:04:51] Adam: and I mean those. Yeah, the the he's he. I've met him backstage at Thrilling Adventure, and I mean that backstage I find incredibly intimidating.
+[00:04:51] Adam: and I mean those. Yeah, the he's he. I've met him backstage at Thrilling Adventure, and I mean that backstage I find incredibly intimidating.
 
 [00:04:59] Janet Varney: Oh, do you?
 
@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:04:59] Janet Varney: It's definitely fun.
 
-[00:04:59] Adam: I mean, you know, I know that being funny is everyone's living back there.
+[00:04:59] Adam: I mean I know that being funny is everyone's living back there.
 
 [00:05:07] Janet Varney: Well, I guess that's true.
 
@@ -64,11 +64,11 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:05:10] Janet Varney: There’s a lot of actors in there too, which I know that's how you make your living.
 
-[00:05:14] Adam: I'm a pretender. I'm a spy in the House of Love, no matter what. But you know, one of the things that when people think about a career in comedy, they think of stand-up. They think of the way Chris Hardwick or Craig Ferguson came up. But Paul F. Tompkins and other a small group of comedians like Zach Galifianakis really pioneered this a different way at Largo, and then UCB sort of took on Second City's mantle and spread around the country. And I think of Sketchfest as a piece of this, of like, oh, you can actually bring the audiences to you rather than go out there and do battle every night in an angry comedy club of drunk.
+[00:05:14] Adam: I'm a pretender. I'm a spy in the House of Love, no matter what. But one of the things that when people think about a career in comedy, they think of stand-up. They think of the way Chris Hardwick or Craig Ferguson came up. But Paul F. Tompkins and other a small group of comedians like Zach Galifianakis really pioneered this a different way at Largo, and then UCB sort of took on Second City's mantle and spread around the country. And I think of Sketchfest as a piece of this, of like, oh, you can actually bring the audiences to you rather than go out there and do battle every night in an angry comedy club of drunk.
 
 [00:05:49] Will: You mean the comedy club in the basement of the Holiday Inn in Albuquerque? It's a great place to go. Everybody loves that.
 
-[00:05:55] Adam: You know, look, you. You know, I've been on stage with Mike Birbiglia, who seems like he's totally like, " Hey, you know, whatever" kind of thing. But when you're on stage with someone who's that practiced at the road, the laser crazy focus of their ability to smell the audience on this tiny granularity.
+[00:05:55] Adam: Look, you. I've been on stage with Mike Birbiglia, who seems like he's totally like, " Hey, you know, whatever" kind of thing. But when you're on stage with someone who's that practiced at the road, the laser crazy focus of their ability to smell the audience on this tiny granularity.
 
 [00:06:13] Janet Varney: I totally agree, and I don't have that need to go. Like, I would have never been the Holiday Inn in Albuquerque. All due respect to Albuquerque.
 
@@ -78,17 +78,17 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:06:26] Will: The Amarillo one,
 
-[00:06:27] Janet Varney: the Taos, the the artisanal Holiday Inn in Taos, New Mexico,
+[00:06:27] Janet Varney: the Taos, the artisanal Holiday Inn in Taos, New Mexico,
 
 [00:06:31] Adam: or Sedona.
 
-[00:06:32] Will: Well, the Laugh Factory in Amarillo is really it's a the special the it's it's a great place. It's amazing. I mean,
+[00:06:32] Will: Well, the Laugh Factory in Amarillo is really it's a the special the it's a great place. It's amazing. I mean,
 
-[00:06:39] Janet Varney: I just couldn't do it, right? I couldn't. I did nothing about. I feel sort of sometimes lazy, or I feel speaking of feeling like you’re a spy in the House of Love. I feel being in that comedy community when I was kind of doing sketch sort of playfully, and I was doing the festival. It had become more of a, you know. David Owen and Cole Stratton and I are—we're all performers, and we've sort of varied on the levels of performing that we've continued to do over the years. But there was a point at which the festival was so overwhelming as a festival that I just didn't even feel like I could perform on it at all, and I started to sort of step back and go like, " Well, maybe I'm just a producer of comedy now, and maybe that's okay." And I don't know, maybe I like that, and and I think we've all again had various degrees of that. And and for Dave, my partner, he really does love producing, and it isn't—he doesn't have that bug to perform, and I totally understand that. Sure. Because I am closer to him than I am to the person who is like, " I'm I'm going to be a road comic. I got to get out there, or I got to do these open mics." I don't. I want the San Francisco experience of like just bring all those smart, savvy people that have already fallen in love with all my heroes, and I can just piggyback on the hard work they did.
+[00:06:39] Janet Varney: I just couldn't do it, right? I couldn't. I did nothing about. I feel sort of sometimes lazy, or I feel speaking of feeling like you’re a spy in the House of Love. I feel being in that comedy community when I was kind of doing sketch sort of playfully, and I was doing the festival. It had become more of a. David Owen and Cole Stratton and I are—we're all performers, and we've sort of varied on the levels of performing that we've continued to do over the years. But there was a point at which the festival was so overwhelming as a festival that I just didn't even feel like I could perform on it at all, and I started to sort of step back and go like, " Well, maybe I'm just a producer of comedy now, and maybe that's okay." And I don't know, maybe I like that, and I think we've all again had various degrees of that. And for Dave, my partner, he really does love producing, and it isn't—he doesn't have that bug to perform, and I totally understand that. Sure. Because I am closer to him than I am to the person who is like, " I'm I'm going to be a road comic. I got to get out there, or I got to do these open mics." I don't. I want the San Francisco experience of like just bring all those smart, savvy people that have already fallen in love with all my heroes, and I can just piggyback on the hard work they did.
 
 [00:07:49] Adam: Exactly.
 
-[00:07:51] Janet Varney: Yeah, and be in a beautiful city and my improv group theme park that really is sort of only exists at festivals because it has all of these people who are on TV shows and stuff who. Don't or have kids and don't feel, frankly, incentivized to do something in L.A. because it's where they live, work, and breathe, and they are everyone already knows them and stuff. But to get the opportunity with a group of people you love to go be in Portland or go be in Vancouver or New York or Chicago, they'll jump at it and they'll make it work in their schedule because it's a fun trip away with friends. But that's about the experience of that city and our friendship as much as it is anything else. They would never be like we just love improvising so much. We're going to Dubuque, you guys. This is the Dubuque festival. We got to get out, you know.
+[00:07:51] Janet Varney: Yeah, and be in a beautiful city and my improv group theme park that really is sort of only exists at festivals because it has all of these people who are on TV shows and stuff who. Don't or have kids and don't feel, frankly, incentivized to do something in L.A. because it's where they live, work, and breathe, and they are everyone already knows them and stuff. But to get the opportunity with a group of people you love to go be in Portland or go be in Vancouver or New York or Chicago, they'll jump at it and they'll make it work in their schedule because it's a fun trip away with friends. But that's about the experience of that city and our friendship as much as it is anything else. They would never be like we just love improvising so much. We're going to Dubuque, you guys. This is the Dubuque festival. We got to get out.
 
 [00:08:35] Adam: And that actually, that's one of the things I love about Sketch Fest. Right, it's one. It's a time of year I get to see a whole bunch of my friends all at once.
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:09:08] Will: on the poster
 
-[00:09:09] Janet Varney: as much as we possibly can because it does feel accurate. And also, like, if I may, sir, you also belong to this wonderful like this sort of collective is also a bunch of nerds who nerd out on each other, and you know that you know that there are people that you are like I can't believe so and so likes me, but they do for you know because they love what you do, and yes, it is you know a little off to the side of what someone who does standup does, but I think it works in your favor.
+[00:09:09] Janet Varney: as much as we possibly can because it does feel accurate. And also if I may, sir, you also belong to this wonderful like this sort of collective is also a bunch of nerds who nerd out on each other, and you know that there are people that you are like I can't believe so and so likes me, but they do for you know because they love what you do, and yes, it is you know a little off to the side of what someone who does standup does, but I think it works in your favor.
 
 [00:09:37] Adam: It totally does.
 
@@ -124,7 +124,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:09:37] Janet Varney: Yeah.
 
-[00:09:37] Adam: And it's you know, there's been so many nights when it's like. I introduced a feminist to the founder of Reddit, and they became really good friends.
+[00:09:37] Adam: And it's there's been so many nights when it's like. I introduced a feminist to the founder of Reddit, and they became really good friends.
 
 [00:09:37] Janet Varney: Nice, nice.
 
@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:09:37] Janet Varney: Yeah.
 
-[00:09:37] Adam: You know, it's like these great confluences of different people.
+[00:09:37] Adam: It's like these great confluences of different people.
 
 [00:10:07] Janet Varney: Absolutely.
 
@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:10:20] Will: Oh, that's amazing.
 
-[00:10:21] Adam: Yeah. Um, it was.
+[00:10:21] Adam: Yeah. It was.
 
 [00:10:23] Janet Varney: How did it feel?
 
@@ -152,37 +152,37 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:10:25] Janet Varney: Somber, to say the least?
 
-[00:10:25] Adam: it was somber. Um, it is the only week in my Twitter history I lost followers.
+[00:10:25] Adam: it was somber. It is the only week in my Twitter history I lost followers.
 
 [00:10:25] Janet Varney: Oh, Did you?
 
-[00:10:25] Adam: I mean, net loss of. Um, well, look, fist bump to be sure. If, but I, I, you know, look, I, I, I read your comments. I know that like there's a lot of people who indulge my liberal, bleeding heart tendencies, and I, I get you. I feel you. Um, I, I, I want people to know, like, I don't think that you're stupid if you voted for someone I disagree with. I think we all want, you know, a stable life for our kids and our families, and I, I really get that. All that being said, holy cow! What a beautiful room to be in. 18,000 people, who most of whom had been working with Obama for, if not eight, then 12 or 13 years.
+[00:10:25] Adam: I mean, net loss of. Um, well, look, fist bump to be sure. If, but I, I look, I, I, I read your comments. I know that like there's a lot of people who indulge my liberal, bleeding heart tendencies, and I, I get you. I feel you. I want people to know I don't think that you're stupid if you voted for someone I disagree with. I think we all want, you know, a stable life for our kids and our families, and I, I really get that. All that being said, holy cow! What a beautiful room to be in. 18,000 people, who most of whom had been working with Obama for, if not eight, then 12 or 13 years.
 
 [00:10:25] Janet Varney: Yeah,
 
-[00:11:09] Will: a bunch of my Chicago like tech community friends who worked on the first campaign and like built the the infrastructure that helped get him elected were there and were posting stuff and it was just like yeah, it was it was amazing.
+[00:11:09] Will: a bunch of my Chicago like tech community friends who worked on the first campaign and like built the infrastructure that helped get him elected were there and were posting stuff and it was just like yeah, it was amazing.
 
-[00:11:22] Adam: It was it was there, and the point at which he started to choke up about Michelle, and he it was the most minor tick possible, but in the room it felt like the Titanic hit an iceberg.
+[00:11:22] Adam: It was there, and the point at which he started to choke up about Michelle, and he it was the most minor tick possible, but in the room it felt like the Titanic hit an iceberg.
 
 [00:11:36] Will: Just silence.
 
-[00:11:37] Adam: Silence. The crowd. No, it was like he was like Michelle, and he paused for the briefest second, but the whole crowd was like, you know, like like Kermit,
+[00:11:37] Adam: Silence. The crowd. No, it was like he was like Michelle, and he paused for the briefest second, but the whole crowd was like Kermit,
 
 [00:11:46] Will: yeah, Muppet level enthusiasm.
 
 [00:11:46] Adam: Exactly.
 
-[00:11:46] Will: I I um. What was what was the Like what was the room chatter going in? Were people talking about how the last you know eight years have been? Were they worried about the future? What was
+[00:11:46] Will: I. What was the Like what was the room chatter going in? Were people talking about how the last you know eight years have been? Were they worried about the future? What was
 
 [00:12:04] Adam: Everybody was worried about the future.
 
 [00:12:04] Will: Yeah.
 
-[00:12:04] Adam: This was a room of, as you can imagine, with Obama, it was a room of mostly people of color and one of the most diverse crowds I have ever been around that I've ever been in the middle of. And it was, like I said, it was a beautiful room. There was a lot of talk. You know, he had released a statement saying it was going to be a speech about looking forward, not looking back. And I loved it. He spent like basically one minute of that speech going, " Here are all the things that we got done."
+[00:12:04] Adam: This was a room of, as you can imagine, with Obama, it was a room of mostly people of color and one of the most diverse crowds I have ever been around that I've ever been in the middle of. And it was, like I said, it was a beautiful room. There was a lot of talk. He had released a statement saying it was going to be a speech about looking forward, not looking back. And I loved it. He spent like basically one minute of that speech going, " Here are all the things that we got done."
 
 [00:12:04] Will: Yeah.
 
-[00:12:04] Adam: Um, and that's where everyone's at is, what do we do moving forward? And all the people I know who are the staffers who are leaving this week or last week, that's they're like, where can I use these incredible skills that I have gleaned or discovered in myself over the past eight years?
+[00:12:04] Adam: And that's where everyone's at is, what do we do moving forward? And all the people I know who are the staffers who are leaving this week or last week, that's they're like, where can I use these incredible skills that I have gleaned or discovered in myself over the past eight years?
 
 [00:12:49] Janet Varney: Right. That's a can of worms.
 
@@ -190,13 +190,13 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:12:54] Janet Varney: It's hard not to just want to talk about that all the time.
 
-[00:12:57] Adam: We we we use a line from 30 Rock in my house. We go, no rat talk tonight, sweetie.
+[00:12:57] Adam: We use a line from 30 Rock in my house. We go, no rat talk tonight, sweetie.
 
 [00:13:02] Janet Varney: Yeah.
 
-[00:13:03] Will: We we had to. We have a two nights a week that we talk about that, and the rest of the time we're not allowed to talk about things that we see on Twitter after about six o'clock in the house. Now it's worked out really well. It's good good for mental health and self care.
+[00:13:03] Will: We had to. We have a two nights a week that we talk about that, and the rest of the time we're not allowed to talk about things that we see on Twitter after about six o'clock in the house. Now it's worked out really well. It's good good for mental health and self care.
 
-[00:13:14] Adam: It really is. Yeah. Yeah. It's on on on MythBusters about five or six years ago, and I've talked about this on the podcast. I went through this whole program of stress reduction. I stopped drinking because just it's hard to drink when you're older. It's
+[00:13:14] Adam: It really is. Yeah. Yeah. It's on MythBusters about five or six years ago, and I've talked about this on the podcast. I went through this whole program of stress reduction. I stopped drinking because just it's hard to drink when you're older. It's
 
 [00:13:25] Will: hard. It's hard work.
 
@@ -204,15 +204,15 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:13:28] Adam: Yeah. And I started getting good amounts of sleep. I started meditating, and I turned off NPR. I like stopped listening to NPR completely because I found that for a week my radio was broken, and I was so happy.
 
-[00:13:28] Janet Varney: Uh-huh. Yeah. I don't. I worked for. I guess it was about six months for the Huffington Post. I well, I was I was there for his re-election, so I real that was a very intense six months because within that six months, were Hurricane Sandy, Sandy Hook,
+[00:13:28] Janet Varney: Uh-huh. Yeah. I don't. I worked for. I guess it was about six months for the Huffington Post. I well, I was there for his re-election, so I real that was a very intense six months because within that six months, were Hurricane Sandy, Sandy Hook,
 
 [00:13:40] Adam: oh wow,
 
-[00:13:40] Janet Varney: the debates, you know, the just all the caucusing, the re-election voting, staying late and reporting that he was there. I'm not a journalist, but they created this show, this whole network called HuffPost Live, which was this sort of conversation and reporting, and they brought some people. Yeah, this is a crazy like left turn is a weird veer off the side of the road for me, but but they came to me because of I guess because of Dinner and a Movie weirdly, and then this podcast I do, and the fact that I have some semblance of intelligence somehow somewhere publicly, and said we were doing these. We want people that are hosting. We have somebody who's like hardcore Politico. We have a couple of those. We have somebody who's kind of coming from you know Good Morning America type world, and but we want people who are also You know, sort of smart, but the people who read us, but aren't necessarily the people who would be sitting and reporting.
+[00:13:40] Janet Varney: the debates, you know, the just all the caucusing, the re-election voting, staying late and reporting that he was there. I'm not a journalist, but they created this show, this whole network called HuffPost Live, which was this sort of conversation and reporting, and they brought some people. Yeah, this is a crazy like left turn is a weird veer off the side of the road for me, but they came to me because of I guess because of Dinner and a Movie weirdly, and then this podcast I do, and the fact that I have some semblance of intelligence somehow somewhere publicly, and said we were doing these. We want people that are hosting. We have somebody who's like hardcore Politico. We have a couple of those. We have somebody who's kind of coming from Good Morning America type world, and but we want people who are also sort of smart, but the people who read us, but aren't necessarily the people who would be sitting and reporting.
 
 [00:13:40] Adam: Normals.
 
-[00:13:40] Janet Varney: And normals, some normies. And and they said you don't have to be exactly. You don't have to be. You don't have to be an expert on anything that we discuss. You can sort of be the person who says, well, now I don't really understand that. Could you, for the folks at home and for me, could you explain that?
+[00:13:40] Janet Varney: And normals, some normies. And they said you don't have to be exactly. You don't have to be. You don't have to be an expert on anything that we discuss. You can sort of be the person who says, well, now I don't really understand that. Could you, for the folks at home and for me, could you explain that?
 
 [00:13:40] Adam: Right.
 
@@ -220,11 +220,11 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:13:40] Will: Ariana.
 
-[00:15:36] Janet Varney: we have the chance to do this thing. Yeah, we have the chance to do this thing that's never been done before. We're gonna have people. And so for the sort of beta phase, it was like that. Was like I would read. You know, in the morning we would be in a bullpen, and I would read stories on. HuffPo and go. I want to know more about that. Can we get this guy, that girl, and that mom, and that senator who all had a point of view about this who never spoke, and get them all in this sort of Google Hangout together?
+[00:15:36] Janet Varney: we have the chance to do this thing. Yeah, we have the chance to do this thing that's never been done before. We're gonna have people. And so for the sort of beta phase, it was like that. Was like I would read. In the morning we would be in a bullpen, and I would read stories on. HuffPo and go. I want to know more about that. Can we get this guy, that girl, and that mom, and that senator who all had a point of view about this who never spoke, and get them all in this sort of Google Hangout together?
 
 [00:15:37] Adam: That’s fun.
 
-[00:15:37] Janet Varney: And it worked. I mean, it was it was astonishing. We people were having conversations that would normally never have conversations, and that was really exciting. And then as it as the year wore on and all of these horrible things started happening, that's when I was like, Oh, I'm not a journalist. I'm not emotionally prepared to handle this at all. I cannot talk about Sandy Hook
+[00:15:37] Janet Varney: And it worked. I mean, it was astonishing. We people were having conversations that would normally never have conversations, and that was really exciting. And then as it as the year wore on and all of these horrible things started happening, that's when I was like, Oh, I'm not a journalist. I'm not emotionally prepared to handle this at all. I cannot talk about Sandy Hook
 
 [00:15:37] Adam: Right.
 
@@ -236,7 +236,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:15:37] Adam: Right.
 
-[00:15:37] Janet Varney: So I really ended up having to kind of take a huge step back. And but the point is, after that happened, after I did that, now I know what it feels like to live and breathe the news, and I don't pay any attention to it. I mean, I very much don't. I can't even read Twitter feed really. I haven't really been looking at anyone's Twitter feed since it became clear that he was going to. Be the the person who was running.
+[00:15:37] Janet Varney: So I really ended up having to kind of take a huge step back. And but the point is, after that happened, after I did that, now I know what it feels like to live and breathe the news, and I don't pay any attention to it. I mean, I very much don't. I can't even read Twitter feed really. I haven't really been looking at anyone's Twitter feed since it became clear that he was going to. Be the person who was running.
 
 [00:16:53] Adam: I totally, I'm there with you. I've written. I wrote to a friend of mine last night who was engaging with somebody during the whole Rob Schneider thing that happened yesterday.
 
@@ -250,9 +250,9 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:17:12] Adam: I wrote to a friend of mine and I was like, I can't believe you have the energy to engage this shit, and he's like, it is. It is what I have to do.
 
-[00:17:12] Janet Varney: Yeah. And I respect and I appreciate. You know, I like I do look at someone like Michael Ian Black, whom I adore, and I don't know if it's like this for him, but some people do sort of feed off of that, and they it's it's I I don't know if it's like extrovert versus introvert, if it's that same kind of principle where you build momentum and you actually are energized by that kind of exchange versus other people who are sapped by it. Well, but I'm definitely sapped by it.
+[00:17:12] Janet Varney: Yeah. And I respect and I appreciate. I like I do look at someone like Michael Ian Black, whom I adore, and I don't know if it's like this for him, but some people do sort of feed off of that, and they it's I I don't know if it's like extrovert versus introvert, if it's that same kind of principle where you build momentum and you actually are energized by that kind of exchange versus other people who are sapped by it. Well, but I'm definitely sapped by it.
 
-[00:17:45] Adam: Let's talk about this one thing because Andy Richter. I saw him on Sunday because I did his wife's podcast with with Susan Orlean, and Andy was saying. You know, I keep tweeting the political stuff, and people keep writing to me and telling me, " Stick to the funny shit."
+[00:17:45] Adam: Let's talk about this one thing because Andy Richter. I saw him on Sunday because I did his wife's podcast with Susan Orlean, and Andy was saying. I keep tweeting the political stuff, and people keep writing to me and telling me, " Stick to the funny shit."
 
 [00:18:00] Will: Well, there's nothing that makes me more upset than that. I don't follow you for this. It's like tough shit. You're following me. You get what you get. What I want to talk about.
 
@@ -262,11 +262,11 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:18:18] Adam: the rest of time.
 
-[00:18:19] Janet Varney: That's correct. That's correct. And that's—I mean—that's the experience. That's because I had—I had nothing to do with that. I mean, when I started to hear rumblings about it, I just thought I—I was like, I can't. I—I don't. I go out of my way to not have to hear certain names because I—I just don't care, and I don't. It doesn't feel like it affects me. There, as a—you know—I don't. The Apprentice doesn't mean anything to me. I don't care. I don't. I also don't. I kind of know what one of the Kardashians looks like, but I don't. I honestly, because just by virtue of like I am in the checkout lane again, and here it is, but I just. I I could that was on a very sort of cellular, but also like it's this is not the most important part level, but that was the most baffling part of it was, I'm just hearing this name all the time now, you know, in a way that
+[00:18:19] Janet Varney: That's correct. That's correct. And that's—I mean—that's the experience. That's because I had nothing to do with that. I mean, when I started to hear rumblings about it, I just thought I—I was like, I can't. I don't. I go out of my way to not have to hear certain names because I—I just don't care, and I don't. It doesn't feel like it affects me. There, as a—you know—I don't. The Apprentice doesn't mean anything to me. I don't care. I don't. I also don't. I kind of know what one of the Kardashians looks like, but I don't. I honestly, because just by virtue of like I am in the checkout lane again, and here it is, but I just. I could that was on a very sort of cellular, but also like it's this is not the most important part level, but that was the most baffling part of it was, I'm just hearing this name all the time now in a way that
 
 [00:19:15] Will: most said word on media
 
-[00:19:17] Janet Varney: and and and so on some level and I and I, I do I I I feel the same way. I'm more interested in connecting with and understanding this the way this all went down and and really getting a sense of like oh these are all the reasons why this happened, much more so than just you know pooping on people who felt that way. I totally get that I live in a bubble and I totally get that there's a lot of rhetoric that went out about you know Hillary that seemed right and maybe I'm wrong and you know the people that believe that are right. I don't I guess I don't know. I wasn't there you know
+[00:19:17] Janet Varney: and so on some level and I, I do I I I feel the same way. I'm more interested in connecting with and understanding this the way this all went down and really getting a sense of like oh these are all the reasons why this happened, much more so than just you know pooping on people who felt that way. I totally get that I live in a bubble and I totally get that there's a lot of rhetoric that went out about you know Hillary that seemed right and maybe I'm wrong and you know the people that believe that are right. I don't I guess I don't know. I wasn't there you know
 
 [00:19:17] Adam: right.
 
@@ -278,21 +278,21 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:20:10] Adam: Yeah.
 
-[00:20:10] Janet Varney: And it just all rushed over, but it was as absurd to me as if it were her. I would. I just was like, I don't understand. I don't understand. And now I understand more, and I've had a lot of tough conversations with with people, you know, people who I'm are in my family or very adjacent to my family who will tell me at length what a genius he is, and he's very good at certain things. I don't argue with that, but I just don't know. I don't. I mean, I don't feel prepared for
+[00:20:10] Janet Varney: And it just all rushed over, but it was as absurd to me as if it were her. I would. I just was like, I don't understand. I don't understand. And now I understand more, and I've had a lot of tough conversations with people who I'm are in my family or very adjacent to my family who will tell me at length what a genius he is, and he's very good at certain things. I don't argue with that, but I just don't know. I don't. I mean, I don't feel prepared for
 
-[00:20:45] Will: that coming year. Shit’s weird, yo. Yeah. Well, the the so the whole thing, the thing to me about it is that there's a Neil Postman book called " Amusing Ourselves to Death" that's basically about the rise of trivia and how the human brain is unable to differentiate things that are important. Like immediately in in a kind of five five core needs you know the the hierarchy of needs versus being presented constantly with these things that that aren't important and that feel important because they're just repeated over and over and over again and figuring out how to how to manage that kind of information overload which is I think he wrote that in like 1980 or 1985
+[00:20:45] Will: that coming year. Shit’s weird, yo. Yeah. Well, the so the whole thing, the thing to me about it is that there's a Neil Postman book called " Amusing Ourselves to Death" that's basically about the rise of trivia and how the human brain is unable to differentiate things that are important. Like immediately in a kind of five five core needs you know the hierarchy of needs versus being presented constantly with these things that that aren't important and that feel important because they're just repeated over and over and over again and figuring out how to manage that kind of information overload which is I think he wrote that in like 1980 or 1985
 
 [00:20:46] Janet Varney: crazy
 
-[00:20:46] Will: and and like presenting that with the the the world of today where you can have a phone that updates you every time somebody says something every time somebody writes a story about a thing where you're just constantly inundated with what seems like awful awful too terrible too apocalyptic news it's figuring out how to manage that is is hard and and I don't think there's anything wrong with just saying no I'm gonna I'm gonna be over here
+[00:20:46] Will: and like presenting that with the world of today where you can have a phone that updates you every time somebody says something every time somebody writes a story about a thing where you're just constantly inundated with what seems like awful awful too terrible too apocalyptic news it's figuring out how to manage that is is hard and I don't think there's anything wrong with just saying no I'm gonna be over here
 
-[00:21:48] Adam: well and I want to I'm gonna be over here isn't I've got my head in the sand it is oh and because I've confronted this too. I have my zone that I'm in. I'm I have a mission. I want to normalize making. I want every kid in the world to be building shit because I love that. Yeah. And so that's that's the zone I'm going to concentrate on.
+[00:21:48] Adam: well and I want to I'm gonna be over here isn't I've got my head in the sand it is oh and because I've confronted this too. I have my zone that I'm in. I'm I have a mission. I want to normalize making. I want every kid in the world to be building shit because I love that. Yeah. And so that's the zone I'm going to concentrate on.
 
 [00:21:48] Janet Varney: Absolutely.
 
 [00:22:09] Will: Well, that's where you can make an impact. Right. That's where your work can make a difference.
 
-[00:22:12] Adam: Precisely. And you know, I think you do the same thing. It's like when you're when you're when you manage large projects, you have to limit your focus from all the other things that are trying to drag it away in order to.
+[00:22:12] Adam: Precisely. And I think you do the same thing. It's like when you're when you manage large projects, you have to limit your focus from all the other things that are trying to drag it away in order to.
 
 [00:22:24] Janet Varney: It sounds like you're saying Andy Richter should stick to the funny.
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:22:32] Janet Varney: Also, I just want to say, Will, that I understand that seems crazy. That book was written in '85, but we were very focused in '85. Like I remember, I felt I needed to wear two swatches in '85 because my time was so precious that I needed to see it twice.
 
-[00:22:46] Will: Did you did you have the swatch internet time watch though? Did you know how many beats it was? Do you not do you not know about? Have we talked about this?
+[00:22:46] Will: Did you have the swatch internet time watch though? Did you know how many beats it was? Do you not know about? Have we talked about this?
 
 [00:22:52] Janet Varney: Listen, I was very young in '85.
 
@@ -318,13 +318,13 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:23:14] Will: I had. I had. Oh, go ahead.
 
-[00:23:15] Janet Varney: Oh, I was gonna say one more thing. I have like eight things floating around my head because of all the cool stuff you guys have been saying. But to take it around back around to what some of the interests are of your viewers and listeners, I also want to say I understand. We all love a story about the rebel on the outside, and we all love the idea of leadership on the outside. I look over and think about Captain Kirk. I think about Luke Skywalker. I think about Han. So, like, there's sort of we we all want. We love the idea. It's a very compelling narrative.
+[00:23:15] Janet Varney: Oh, I was gonna say one more thing. I have like eight things floating around my head because of all the cool stuff you guys have been saying. But to take it around back around to what some of the interests are of your viewers and listeners, I also want to say I understand. We all love a story about the rebel on the outside, and we all love the idea of leadership on the outside. I look over and think about Captain Kirk. I think about Luke Skywalker. I think about Han. So there's sort of we all want. We love the idea. It's a very compelling narrative.
 
-[00:23:45] Will: Two thirds of that narrative is really compelling to me. It's just the fascism and racism part that I kind of have you know personal problems with. But the but the fixing
+[00:23:45] Will: Two thirds of that narrative is really compelling to me. It's just the fascism and racism part that I kind of have you know personal problems with. But the fixing
 
 [00:23:52] Adam: the fascism and let me separate that. I think the fascism is still theoretical. The racism totally actual.
 
-[00:23:58] Will: Right. Um. Pro. Yes. We have a few days before we find out. Well, no. You know. I look. I'm looking forward to seeing all of you in the camps. So.
+[00:23:58] Will: Right. Pro. Yes. We have a few days before we find out. Well, no. You know. I look. I'm looking forward to seeing all of you in the camps. So.
 
 [00:24:09] Janet Varney: Is this just that somehow the video feed is just cut off? Yeah. And that's the first sign. Let me tell you. Somehow they knew they could cut this off right now as we're recording it.
 
@@ -338,27 +338,27 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:24:43] Will: right now when he says no, it's gonna be insurance for everybody. And
 
-[00:24:46] Janet Varney: like, how do I exactly? You sort of go, I don't know what how to feel about that. Right. Like, I kind of want to hate it. Because I don't want anything good to happen. I certainly we we don't want to give credit to somebody that we.
+[00:24:46] Janet Varney: like, how do I exactly? You sort of go, I don't know what how to feel about that. Right. Like, I kind of want to hate it. Because I don't want anything good to happen. I certainly we don't want to give credit to somebody that we.
 
-[00:24:58] Adam: Well, and we're in the zone where you know we keep seeing the headlines like, well, the CIA, blah blah blah, and Donald Trump says that's all bullshit, and everyone's rallying, and then Glenn Greenwald shows up and is like, um, let's all remember it's the CIA, like, don't take anything they're saying on face value.
+[00:24:58] Adam: Well, and we're in the zone where you know we keep seeing the headlines like, well, the CIA, blah blah blah, and Donald Trump says that's all bullshit, and everyone's rallying, and then Glenn Greenwald shows up and is like let's all remember it's the CIA don't take anything they're saying on face value.
 
 [00:25:13] Janet Varney: Yeah,
 
-[00:25:13] Will: yeah. It's it's um.
+[00:25:13] Will: yeah. It's.
 
 [00:25:15] Janet Varney: Should be weird.
 
 [00:25:15] Will: It's going to be a real, real weird couple of years. So yeah, yeah. This is a charming, upbeat note.
 
-[00:25:21] Adam: No, I don't mean. So um, I want to describe to you the business trip I just had.
+[00:25:21] Adam: No, I don't mean. So I want to describe to you the business trip I just had.
 
 [00:25:21] Janet Varney: Okay, great.
 
-[00:25:21] Adam: Um, I had a shoot in Wisconsin for a client. Um, it's a wonderful client that I'm doing uh some several things with. Um, but in order to satisfy all the different things that are going on, because I'm also writing this touring show that we hit the road with in
+[00:25:21] Adam: I had a shoot in Wisconsin for a client. It's a wonderful client that I'm doing some several things with. But in order to satisfy all the different things that are going on, because I'm also writing this touring show that we hit the road with in
 
 [00:25:21] Janet Varney: Yeah.
 
-[00:25:21] Adam: February, Brain Candy. Um, I left the house two nights ago at 11 p.m. for a red eye to Chicago, to arrive at 5 a.m. Drive to Wisconsin. Wisconsin to this testing facility, shoot for all all day long, and then at five o'clock yesterday, got back in a car, went to Milwaukee, flew back through Texas, home 25 hours, portalled door to door.
+[00:25:21] Adam: February, Brain Candy. I left the house two nights ago at 11 p.m. for a red eye to Chicago, to arrive at 5 a.m. Drive to Wisconsin. Wisconsin to this testing facility, shoot for all all day long, and then at five o'clock yesterday, got back in a car, went to Milwaukee, flew back through Texas, home 25 hours, portalled door to door.
 
 [00:25:21] Will: Wow!
 
@@ -370,7 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:26:16] Adam: Well, like I said, I slept in. I slept on many different.
 
-[00:26:18] Will: That doesn't that doesn't count.
+[00:26:18] Will: That doesn't count.
 
 [00:26:20] Adam: No, it does.
 
@@ -384,17 +384,17 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:26:49] Janet Varney: Also, why can't I have some of that energy here at home after I just got eight hours of sleep? Like, why can't I have some of that manic energy that I had over there?
 
-[00:26:56] Adam: Well, and then there's those things you know that you're going into that, like, oh, well, pure adrenaline will carry me through 80% of what's coming.
+[00:26:56] Adam: Well, and then there's those things you know that you're going into that oh, well, pure adrenaline will carry me through 80% of what's coming.
 
 [00:27:02] Janet Varney: Yes, absolutely.
 
-[00:27:04] Adam: Right, like that's just the you know that like uh because I'm doing I'm doing stuff that I'm really having fun doing.
+[00:27:04] Adam: Right, like that's just the you know that like because I'm doing stuff that I'm really having fun doing.
 
 [00:27:09] Janet Varney: Well, that makes a huge difference. I really want to go back to Wisconsin. I did a con there. I thought I was going
 
 [00:27:09] Adam: Wisconsin.
 
-[00:27:09] Janet Varney: Wisconsin. Wisconsin. Yeah. Put the con in Wisconsin. Uh, I, I, I thought I was going to Madison for a comic con. I was so excited because I'd heard so many great things about Madison and the school and people and funny and um and I it turned out that I was at Wisconsin Dell. I think is what's called. Is
+[00:27:09] Janet Varney: Wisconsin. Wisconsin. Yeah. Put the con in Wisconsin. I thought I was going to Madison for a comic con. I was so excited because I'd heard so many great things about Madison and the school and people and funny and I it turned out that I was at Wisconsin Dell. I think is what's called. Is
 
 [00:27:36] Will: that a different school?
 
@@ -402,7 +402,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:27:51] Will: Oh, nice! That sounds great. Yeah. Why would you not want that, Wisconsin? I mean,
 
-[00:27:55] Janet Varney: but you know, so it sort of has this, like the the the hotel that I was staying. But I it just was the opposite of what I thought. Oh, I'm going to get all this great kind of great mat. No, it was I was it was cold. I was inside. It's everything smelled like chlorine because there's nowhere for that smell to go. And uh, and it was very it was very surreal in that I came in like dusting snow off my shoes and and like two screaming children in bathing suits ran past me right as I walked in. I was like, this is weird.
+[00:27:55] Janet Varney: but so it sort of has this, like the hotel that I was staying. But I it just was the opposite of what I thought. Oh, I'm going to get all this great kind of great mat. No, it was I was it was cold. I was inside. It's everything smelled like chlorine because there's nowhere for that smell to go. And it was very surreal in that I came in like dusting snow off my shoes and like two screaming children in bathing suits ran past me right as I walked in. I was like, this is weird.
 
 [00:28:25] Will: It's like going to the circus circus for the first time.
 
@@ -410,7 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:28:27] Will: yeah.
 
-[00:28:27] Janet Varney: It's weird when you feel out of place wearing winter clothes in the middle of winter. Yeah. But uh, but it but the hotel that I was staying. I mean, it does have that sort of like it's like not Vegas. It's like Laughlin, you know, where you're sort of like the hotel I was in had some sort of native People's theme to it, where
+[00:28:27] Janet Varney: It's weird when you feel out of place wearing winter clothes in the middle of winter. Yeah. But it but the hotel that I was staying. I mean, it does have that sort of like it's like not Vegas. It's like Laughlin, you know, where you're sort of like the hotel I was in had some sort of native People's theme to it, where
 
 [00:28:47] Adam: It’s not quite tasteful or a little bit off the mark.
 
@@ -420,7 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:28:55] Janet Varney: Oh, singe.
 
-[00:28:55] Adam: And the the person at the desk goes, " We have a pool." And as if I'm on a sitcom, yeah, as if I'm on a sitcom, I go, " Really? No one else in the world is getting this joke but me." But I'm saying it for my own pleasure.
+[00:28:55] Adam: And the person at the desk goes, " We have a pool." And as if I'm on a sitcom, yeah, as if I'm on a sitcom, I go, " Really? No one else in the world is getting this joke but me." But I'm saying it for my own pleasure.
 
 [00:29:16] Janet Varney: They can't smell it anymore.
 
@@ -470,7 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:30:51] Janet Varney: Yeah.
 
-[00:30:52] Adam: Julia comes back. I had a hospitality suite at the at the hotel because Discovery. And Julia comes back to our room and she puts the key and it doesn't work and it doesn't work. Like this on the door and the door opens up and it's Jeff Bridges.
+[00:30:52] Adam: Julia comes back. I had a hospitality suite at the hotel because Discovery. And Julia comes back to our room and she puts the key and it doesn't work. Like this on the door and the door opens up and it's Jeff Bridges.
 
 [00:31:05] Janet Varney: Oh wow.
 
@@ -596,7 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:34:28] Janet Varney: Exactly. That's exactly what I was going to say.
 
-[00:34:29] Will: Uh. Have a great week, guys! Thanks for watching, Janet. Thank you so much for coming by. This was awesome.
+[00:34:29] Will: Have a great week, guys! Thanks for watching, Janet. Thank you so much for coming by. This was awesome.
 
 [00:34:35] Adam: Thank you for coming by.
 
@@ -616,13 +616,13 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:35:06] Adam: You can.
 
-[00:35:06] Janet Varney: And this weekend, I will just say because I can't believe this is still true, but it's only because we're doing them in huge theaters that Nathan Fillion is coming, and he hasn't done the festival yet, even though he is one of those adjacent people who always almost does it. So it's tremendously satisfying that he's doing it, and he's doing Hardwick's Nerdist podcast, but he's also doing monologues for Upright Citizens Brigade Ass Cat, and that is like a A connection I've been waiting for a long time. Like that's two of my favorite things in one room. So I'm excited about that. Yeah.
+[00:35:06] Janet Varney: And this weekend, I will just say because I can't believe this is still true, but it's only because we're doing them in huge theaters that Nathan Fillion is coming, and he hasn't done the festival yet, even though he is one of those adjacent people who always almost does it. So it's tremendously satisfying that he's doing it, and he's doing Hardwick's Nerdist podcast, but he's also doing monologues for Upright Citizens Brigade Ass Cat, and that is like a connection I've been waiting for a long time. Like that's two of my favorite things in one room. So I'm excited about that. Yeah.
 
 [00:35:40] Will: I think I'm on Quiz-o-Tron on Sunday.
 
 [00:35:40] Janet Varney: Oh, cool! I love Quiz-o-Tron.
 
-[00:35:40] Will: Yeah, so yeah, so I'll be there answering. Well, maybe answering questions with facts or just making some bullshit up. One or the other.
+[00:35:40] Will: Yeah, so I'll be there answering. Well, maybe answering questions with facts or just making some bullshit up. One or the other.
 
 [00:35:50] Janet Varney: It's your prerogative, sir.
 

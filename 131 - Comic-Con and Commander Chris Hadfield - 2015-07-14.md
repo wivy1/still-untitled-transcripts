@@ -12,17 +12,17 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:00:12] Norm: and I am Norm.
 
-[00:00:13] Adam: [unclear: I—my] my voice is completely trashed from the party last night, and and I knew it was first of all I knew it was happening at w00tstock because backstage gets real noisy, and you know I it's all these people I only see once a year, so Thursday night was spent kind of yelling and screaming, and like okay, I've got to hold my voice back until I sing, and then I can talk.
+[00:00:13] Adam: [unclear: I—my] my voice is completely trashed from the party last night, and I knew it was first of all I knew it was happening at w00tstock because backstage gets real noisy, and you know I it's all these people I only see once a year, so Thursday night was spent kind of yelling and screaming, and like okay, I've got to hold my voice back until I sing, and then I can talk.
 
 [00:00:34] Will: Yeah,
 
-[00:00:35] Adam: and so then I sang the you know, Commander thinks aloud. Then we hung out some more, but last night the club was so loud. I woke up this morning and I was like, I wonder if I can talk.
+[00:00:35] Adam: and so then I sang the Commander thinks aloud. Then we hung out some more, but last night the club was so loud. I woke up this morning and I was like, I wonder if I can talk.
 
 [00:00:45] Will: I can teach you something for once.
 
 [00:00:47] Adam: Yes,
 
-[00:00:48] Will: my doctor. I was losing my voice a lot a few years ago because we do a lot of talking at Tested. Right, a couple of two-hour podcasts a week, and next thing you know, you have no voice.
+[00:00:48] Will: my doctor. I was losing my voice a lot a few years ago because we do a lot of talking at Tested. Right, a couple of two-hour podcasts a week, and next thing you have no voice.
 
 [00:00:55] Adam: Yeah,
 
@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:01:45] Norm: That's right.
 
-[00:01:46] Adam: Every other year, I've been coming now. I don't know for almost a decade, and I've always been staying at the Marriott Marquis at the edge of the of the concourse in which the con actually happens. But this year, I'm one hotel farther down at the Grand Hyatt.
+[00:01:46] Adam: Every other year, I've been coming now. I don't know for almost a decade, and I've always been staying at the Marriott Marquis at the edge of the concourse in which the con actually happens. But this year, I'm one hotel farther down at the Grand Hyatt.
 
 [00:02:00] Will: Yeah,
 
@@ -84,7 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:02:36] Will: Yeah.
 
-[00:02:36] Norm: Um. This is Saturday right now. Adam, of course, you do incognito walks. We walk the floor and do interviews. Comic Con, you have there's a regular schedule almost. Like you arrive and there's w00tstock.
+[00:02:36] Norm: This is Saturday right now. Adam, of course, you do incognito walks. We walk the floor and do interviews. Comic Con, you have there's a regular schedule almost. Like you arrive and there's w00tstock.
 
 [00:02:49] Adam: Yes.
 
@@ -126,7 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:04:06] Adam: I think the town is a wonderful movie. He's a terrific director. He's great. J. J. Abrams took 6,500 people out of a panel and showed them a concert of Star Wars music.
 
-[00:04:16] Will: The sad, the sad thing is that Kevin Smith was right after that, and there is a shot of like looks like 50 people in the front of Hall H, and Kevin's doing his thing.
+[00:04:16] Will: The sad thing is that Kevin Smith was right after that, and there is a shot of like looks like 50 people in the front of Hall H, and Kevin's doing his thing.
 
 [00:04:25] Norm: And Hall H is the biggest panel where people wait in tents overnight,
 
@@ -152,9 +152,9 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:05:24] Norm: Cinephile was the name of it. It was a celebration of film, our favorite films.
 
-[00:05:29] Adam: Now to give some backstory, this party started six or seven years ago. Of just as it started as a way for me to make sure I got to see my favorite people at Comic Con. So Discovery was renting me. Discovery was bringing us to Comic Con back then. They would rent me a hospitality suite, and I'd have as many of my friends as the hotel would allow, usually between 40 and 70. And then that party has grown. We rented a restaurant downstairs at the at the hotel after a few years, and then last year we were at Club in the Gaslight. We had about 250 people. This year was at Fluxx in the Gaslight. We were at capacity at 903.
+[00:05:29] Adam: Now to give some backstory, this party started six or seven years ago. Of just as it started as a way for me to make sure I got to see my favorite people at Comic Con. So Discovery was renting me. Discovery was bringing us to Comic Con back then. They would rent me a hospitality suite, and I'd have as many of my friends as the hotel would allow, usually between 40 and 70. And then that party has grown. We rented a restaurant downstairs at the hotel after a few years, and then last year we were at Club in the Gaslight. We had about 250 people. This year was at Fluxx in the Gaslight. We were at capacity at 903.
 
-[00:06:06] Will: Yeah, yeah, it was full all night. It was. It's the kind of party that quite. I mean. So here's the thing I love about the party we we do. This is the second year we've done it. It's the kind of party that I can't get into normally. So like it it was you know you you you always hear about Comic Con parties and it's always like oh that's for other people. We try to like premium members are all welcome. You have to RSVP, but come on in. And um, it's just a it's a lovely event. Yes, we have a good time. And yeah, I'll actually watch this one.
+[00:06:06] Will: Yeah, yeah, it was full all night. It was. It's the kind of party that quite. I mean. So here's the thing I love about the party we do. This is the second year we've done it. It's the kind of party that I can't get into normally. So like it it was you know you always hear about Comic Con parties and it's always like oh that's for other people. We try to like premium members are all welcome. You have to RSVP, but come on in. And it's just a it's a lovely event. Yes, we have a good time. And yeah, I'll actually watch this one.
 
 [00:06:37] Adam: You know how much people loved the five minutes of
 
@@ -166,7 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:06:43] Adam: so that was I love how much people loved watching that. I got so many tweets about it.
 
-[00:06:48] Will: Here's my here's my moment of horror. I had the stomach flu that night. I was laying. I was like, I've got to get this done before. I was on a clock. I was. It was Mission Impossible stuff. I've got to finish this. Boom, boom, boom, boom, boom. Didn't watch it. Normally watch it. I was just like straight to YouTube. Fuck it. Boom. And then the next morning I wake up. I roll over. I'm like, oh, this is horrible. And what do I see? Hey man, you should look at the podcast. You should really look at the podcast. Hey man, listen to the podcast.
+[00:06:48] Will: Here's my moment of horror. I had the stomach flu that night. I was laying. I was like, I've got to get this done before. I was on a clock. I was. It was Mission Impossible stuff. I've got to finish this. Boom, boom, boom, boom, boom. Didn't watch it. Normally watch it. I was just like straight to YouTube. Fuck it. Boom. And then the next morning I wake up. I roll over. I'm like, oh, this is horrible. And what do I see? Hey man, you should look at the podcast. You should really look at the podcast. Hey man, listen to the podcast.
 
 [00:07:19] Adam: Oh my god, you must have.
 
@@ -174,17 +174,17 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:07:28] Adam: Go ahead.
 
-[00:07:28] Will: So I went decided at some point I was overstimulated to the point that I was like, I want to go outside and breathe real air and not have music for a minute. I stepped outside. I saw Mrs. Don't try this and and some former coworkers, and she said, " Hey, can you take me back to the party?" Said, " Oh yeah, absolutely, sure." I have learned years ago earplugs are an essential at this type of event. So when I was outside to talk, I popped the earplug out. We go back in. I jam the earplug back in. Walk back, and I'm like, " Oh man, something's not right." I reach in, and I had gone too far.
+[00:07:28] Will: So I went decided at some point I was overstimulated to the point that I was like, I want to go outside and breathe real air and not have music for a minute. I stepped outside. I saw Mrs. Don't try this and some former coworkers, and she said, " Hey, can you take me back to the party?" Said, " Oh yeah, absolutely, sure." I have learned years ago earplugs are an essential at this type of event. So when I was outside to talk, I popped the earplug out. We go back in. I jam the earplug back in. Walk back, and I'm like, " Oh man, something's not right." I reach in, and I had gone too far.
 
 [00:08:02] Adam: Oh,
 
 [00:08:02] Norm: what?
 
-[00:08:03] Will: Yeah. So I it's not a foam style earplug. It's like a hearing aid style earplug. That's like you know. So, so you can talk with them in because the foam style earplugs you can't talk in. But for like $20, you can get a pair of earplugs that you can actually hear music through and talk. So I went to the the VIP bathroom in the back of the area, and I was in there for as the bouncer said, " Hey man, did you take three dumps while you were in there?"
+[00:08:03] Will: Yeah. So I it's not a foam style earplug. It's like a hearing aid style earplug. That's like you know. So, so you can talk with them in because the foam style earplugs you can't talk in. But for like $20, you can get a pair of earplugs that you can actually hear music through and talk. So I went to the VIP bathroom in the back of the area, and I was in there for as the bouncer said, " Hey man, did you take three dumps while you were in there?"
 
 [00:08:25] Norm: Oh my goodness!
 
-[00:08:25] Will: And you know, meanwhile, I'm like, I'm like through two or three different panic attacks. I'm like, man, I don't even have the needle nose pliers are up in the attic. I'm not able to get them. How am I going to do this? It's just getting worse and worse and worse. So I come out and I'm like, who is going to be able to solve this problem? And it's the bouncer. The bouncer is the savior because those guys deal with it. They know how to deal with anything, right? Like I'm like, I've got
+[00:08:25] Will: And meanwhile, I'm like through two or three different panic attacks. I'm like, man, I don't even have the needle nose pliers are up in the attic. I'm not able to get them. How am I going to do this? It's just getting worse and worse. So I come out and I'm like, who is going to be able to solve this problem? And it's the bouncer. The bouncer is the savior because those guys deal with it. They know how to deal with anything, right? Like I'm like, I've got
 
 [00:08:47] Norm: signed to them. Like
 
@@ -192,7 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:08:54] Adam: and he was probably like, oh, you put the earplug in too far. Yeah, that's problem 17.
 
-[00:08:57] Will: Yeah, we, yeah. So he's like, one of the one of the girl, one of the waiter waitresses that probably has tweezers. We'll we'll just stay here.
+[00:08:57] Will: Yeah, we, yeah. So he's like, one of the girl, one of the waiter waitresses that probably has tweezers. We'll we'll just stay here.
 
 [00:09:04] Norm: They're big. guys.
 
@@ -200,7 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:09:05] Norm: Picked you up and just like
 
-[00:09:06] Will: so. So like 10 minutes later, somebody comes back with tweezers. He's like, I was like, I'll just go in the bathroom. He's like, no, you can't do that yourself.
+[00:09:06] Will: so. So 10 minutes later, somebody comes back with tweezers. He's like, I was like, I'll just go in the bathroom. He's like, no, you can't do that yourself.
 
 [00:09:13] Adam: Turn my volume down just a little bit.
 
@@ -224,27 +224,27 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:09:43] Adam: deadmau5 was epic, and so was the other DJ.
 
-[00:09:46] Will: The other DJ, the other DJ was trying. He had a tough. He had a tough row.
+[00:09:46] Will: The other DJ was trying. He had a tough. He had a tough row.
 
 [00:09:50] Adam: Yes, and yeah,
 
 [00:09:51] Will: because it's a not dancing crowd. So he got him pumped. It was good.
 
-[00:09:54] Norm: The cadence of the party is something that was really interesting because, you know, last year we had a party. It was called Incognito. With your costumes on display, and we invited tested premium members and tested fans who are here because it's Comic Con.
+[00:09:54] Norm: The cadence of the party is something that was really interesting because last year we had a party. It was called Incognito. With your costumes on display, and we invited tested premium members and tested fans who are here because it's Comic Con.
 
 [00:10:07] Adam: Yeah,
 
 [00:10:07] Norm: it's frankly it's a lot of nerds, but it's also in San Diego, and people like to party in San Diego. So we planned it better this year, so we had a good hour before the general admission where fans and test members could come and chat with you. And Adam, you met a ton of them.
 
-[00:10:24] Adam: Yeah, I spent about 80 minutes out front at the beginning of the party talking to premium members and people telling me about their stories, about stuff that they were making, troubles they were having, getting stuff done, balancing work and life. And you know, I love those conversations. It's like you know, you we talk about the stuff that we talk about, and we're kind of just responding to the world and responding to our own lives. And then people come back and let you know that what you are saying is resonating with them, and exactly the way that we're talking about it resonates with us too.
+[00:10:24] Adam: Yeah, I spent about 80 minutes out front at the beginning of the party talking to premium members and people telling me about their stories, about stuff that they were making, troubles they were having, getting stuff done, balancing work and life. And I love those conversations. It's like you we talk about the stuff that we talk about, and we're kind of just responding to the world and responding to our own lives. And then people come back and let you know that what you are saying is resonating with them, and exactly the way that we're talking about it resonates with us too.
 
 [00:10:55] Will: The reason we're talking about it is because we're sitting in the shop
 
 [00:10:57] Adam: Yeah.
 
-[00:10:55] Will: before a show, and and we're like, " Hey, what should we talk about today?" And you are like, " Oh, we just we're good. We just talked about it. Let's let's let's let's go deeper on this."
+[00:10:55] Will: before a show, and we're like, " Hey, what should we talk about today?" And you are like, " Oh, we just we're good. We just talked about it. Let's let's let's let's go deeper on this."
 
-[00:11:07] Adam: Exactly, and you know, I got tons of feedback just that that stuff that the stuff that we're doing really it it hits on a deep level, and people really appreciate it. And
+[00:11:07] Adam: Exactly, and I got tons of feedback just that that stuff that the stuff that we're doing really it hits on a deep level, and people really appreciate it. And
 
 [00:11:15] Norm: and some nice gifts.
 
@@ -252,11 +252,11 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:11:22] Norm: Jonathan. Jonathan Haber.
 
-[00:11:23] Adam: Jonathan Haber. He comes up and he's he's patiently waits for about half an hour. I'm talking and taking pictures with many other people, and finally it's his turn, and he says, " I'm a big fan. You've meant a lot to me. You give me a lot of inspiration, and I have a gift for you. And it's this little box, and he hands it to me, and it's heavy, and he says, " I'm going to be interested in seeing how quickly you can. " And as he says that, I am cracking the top of this cardboard box, and there's some cardboard, you know, what do you call it, like hay in there,
+[00:11:23] Adam: Jonathan Haber. He comes up and he's patiently waits for about half an hour. I'm talking and taking pictures with many other people, and finally it's his turn, and he says, " I'm a big fan. You've meant a lot to me. You give me a lot of inspiration, and I have a gift for you. And it's this little box, and he hands it to me, and it's heavy, and he says, " I'm going to be interested in seeing how quickly you can. " And as he says that, I am cracking the top of this cardboard box, and there's some cardboard, you know, what do you call it, like hay in there,
 
 [00:11:52] Unknown speaker: Yeah.
 
-[00:11:23] Adam: and I part it and I see a little bit of steel, and I say, " He's like, I'm interested to see how fast you can get. " And I say, " It's a Rocketeer buckle. " And here's the thing: in the Rocketeer, the Rocketeer central chest buckle for his harness for his jetpack is an unfindable prop. Like there were a few for the production, and as far as I can tell, no one's ever been able to find the original manufacturer. It is the rarest bloody buckle in the world.
+[00:11:23] Adam: and I part it and I see a little bit of steel, and I say, " He's like, I'm interested to see how fast you can get. " And I say, " It's a Rocketeer buckle. " And here's the thing: in the Rocketeer central chest buckle for his harness for his jetpack is an unfindable prop. Like there were a few for the production, and as far as I can tell, no one's ever been able to find the original manufacturer. It is the rarest bloody buckle in the world.
 
 [00:12:23] Will: So it was found by the production team, but it's something that's hyper rare.
 
@@ -280,15 +280,15 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:13:17] Unknown speaker: I figure, with all the aircraft you have flown over the years, you might have encountered one of these.
 
-[00:13:23] Chris Hadfield: Interesting. So this is designed to be used one-handed, spring-loaded. So yeah, it's on some sort of safety release mechanism, like a lot of parachute gear that I've used, and fairly clear imagery on it. I doubt it's it's a one-off. That looks like a manufactured item. Yeah,
+[00:13:23] Chris Hadfield: Interesting. So this is designed to be used one-handed, spring-loaded. So yeah, it's on some sort of safety release mechanism, like a lot of parachute gear that I've used, and fairly clear imagery on it. I doubt it's a one-off. That looks like a manufactured item. Yeah,
 
 [00:13:40] Adam: yeah,
 
 [00:13:40] Chris Hadfield: yeah. I think it probably is. And you looked up the acronym in the back.
 
-[00:13:44] Adam: So I I haven't I haven't gone back into my research on this recently because I just got this last night. But back when I did, I spent a couple of weeks trying to do internet research to find this company. I found the company, but not any catalog, not any old buckles. And hundreds of members of the RPF have spent time doing this. And like I said, I believe this is one of the replicas from a few years ago. Even still, the replicas are rare as hen's teeth and almost never show up. So for him. To hand this over to me, I'm going to pull my rocketeer off the rafters and start working on it.
+[00:13:44] Adam: So I I haven't gone back into my research on this recently because I just got this last night. But back when I did, I spent a couple of weeks trying to do internet research to find this company. I found the company, but not any catalog, not any old buckles. And hundreds of members of the RPF have spent time doing this. And like I said, I believe this is one of the replicas from a few years ago. Even still, the replicas are rare as hen's teeth and almost never show up. So for him. To hand this over to me, I'm going to pull my rocketeer off the rafters and start working on it.
 
-[00:14:14] Will: Adam, you you slow played something kind of important here.
+[00:14:14] Will: Adam, you slow played something kind of important here.
 
 [00:14:19] Adam: Chris Hadfield,
 
@@ -302,11 +302,11 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:14:26] Will: yeah,
 
-[00:14:26] Adam: this this will have already happened. But Chris is here in in our in our in my hotel suite
+[00:14:26] Adam: this will have already happened. But Chris is here in our in my hotel suite
 
 [00:14:32] Chris Hadfield: next to the nice art.
 
-[00:14:33] Adam: Next to the nice art to to get ready to enjoy his first Comic Con in costume.
+[00:14:33] Adam: Next to the nice art to get ready to enjoy his first Comic Con in costume.
 
 [00:14:39] Chris Hadfield: That's right.
 
@@ -320,7 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:14:54] Adam: Yeah, there you go.
 
-[00:14:54] Chris Hadfield: Well, no, I did when I was six years old. It was a cardboard box spray painted silver and that my mom made for me. We walked around on the last day of October and gathered candy with my with my very first spacesuit. That's I don't know what it was modeled after. One of the Earliest science fiction shows, I think.
+[00:14:54] Chris Hadfield: Well, no, I did when I was six years old. It was a cardboard box spray painted silver and that my mom made for me. We walked around on the last day of October and gathered candy with my very first spacesuit. That's I don't know what it was modeled after. One of the Earliest science fiction shows, I think.
 
 [00:15:15] Adam: Did you ever have a? Did you have Baskin Robbins up in Canada?
 
@@ -332,11 +332,11 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:15:27] Adam: And you could go to them and ask them for old tubs, and they would as soon as they were empty of ice cream, they'd wash them out and keep them in back. And at least three years in a row, between like the ages of six and eight, I would get the tub and I'd cut out a shield and use my dad's animation acetate and make myself a space helmet.
 
-[00:15:45] Will: I I'm completely unsurprised. You you made you turned a closet into a spaceship.
+[00:15:45] Will: I I'm completely unsurprised. You made you turned a closet into a spaceship.
 
-[00:15:51] Adam: I did actually. My my parents' bedroom closet was about five feet wide by about 12 feet long, and I took some cardboard and built a spaceship cockpit. But I I did it dropped away from the back wall, which I painted black with a star field and a fluorescent light, so I could sit in my cockpit and look at space.
+[00:15:51] Adam: I did actually. My parents' bedroom closet was about five feet wide by about 12 feet long, and I took some cardboard and built a spaceship cockpit. But I I did it dropped away from the back wall, which I painted black with a star field and a fluorescent light, so I could sit in my cockpit and look at space.
 
-[00:16:12] Chris Hadfield: My brother and I had adjoining beds in a shared bedroom, but at night, when lights go out, we would both, in each of our beds, pull our knees up, which became the instrument panel in front of us. And we flew the most complex space missions ever, but entirely imaginary in the dark. But you needed you needed an instrument panel in front of you in order to give a feeling of reality to it.
+[00:16:12] Chris Hadfield: My brother and I had adjoining beds in a shared bedroom, but at night, when lights go out, we would both, in each of our beds, pull our knees up, which became the instrument panel in front of us. And we flew the most complex space missions ever, but entirely imaginary in the dark. But you needed an instrument panel in front of you in order to give a feeling of reality to it.
 
 [00:16:34] Adam: So, in the cramped space of any vehicle, space vehicles or any vehicle you've flown through the air or in space, have you ever had a sense memory that took you back to the blankets?
 
@@ -346,7 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:16:55] Chris Hadfield: I mean it's three people, knees pulled up to their chest, where the entire side of your body is touching the person next to you. It's just big enough for three people. So maybe that was a sense memory. It's a spaceship that is just big enough for three people and no bigger.
 
-[00:17:10] Adam: I keep meaning to ask you if you remember somebody from the somebody from the shuttle years ago called Cartalk. Do you remember this,
+[00:17:10] Adam: I keep meaning to ask you if you remember somebody from the shuttle years ago called Cartalk. Do you remember this,
 
 [00:17:18] Chris Hadfield: John Grunsfeld?
 
@@ -362,17 +362,17 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:17:32] Norm: So, your first Comic Con, what are your anticipations for the floor? What is? How has Adam prepped you?
 
-[00:17:39] Chris Hadfield: I was thinking about it, and I was originally inspired to to become an astronaut by the fantasy of of science fiction, my own imagination, the stuff I read, and then Star Trek, and then 2001, A Space Odyssey. All those things ganged up on me to to kind of open my mind wide enough to then blend that with the reality of actual spaceflight to make me want to turn myself into an astronaut. So, for me, this is sort of now coming back at it. This is this is the the fantasy made real. This is all of those images that that help people. Imagine things that otherwise don't exist, that then push the reality. To me, this is a chance to see all that process. So I'm I'm really delighted on that side, and the other is to see what Adam has come up with to to mimic some of the reality that I've experienced as well.
+[00:17:39] Chris Hadfield: I was thinking about it, and I was originally inspired to become an astronaut by the fantasy of science fiction, my own imagination, the stuff I read, and then Star Trek, and then 2001, A Space Odyssey. All those things ganged up on me to kind of open my mind wide enough to then blend that with the reality of actual spaceflight to make me want to turn myself into an astronaut. So, for me, this is sort of now coming back at it. This is the fantasy made real. This is all of those images that that help people. Imagine things that otherwise don't exist, that then push the reality. To me, this is a chance to see all that process. So I'm I'm really delighted on that side, and the other is to see what Adam has come up with to mimic some of the reality that I've experienced as well.
 
-[00:18:33] Adam: Well, so yeah, the costume the costume that we've got is the Clavius based silver spacesuit from 2001. And apropos of my spacesuit walk last year, which was in the alien spacesuit where I almost got heatstroke, these costumes have a fully integrated recirculating cooling system of a shirt. What do you call that shirt?
+[00:18:33] Adam: Well, so yeah, the costume that we've got is the Clavius based silver spacesuit from 2001. And apropos of my spacesuit walk last year, which was in the alien spacesuit where I almost got heatstroke, these costumes have a fully integrated recirculating cooling system of a shirt. What do you call that shirt?
 
 [00:18:50] Chris Hadfield: LCVG, liquid cooling ventilation garment.
 
-[00:18:53] Will: It's it's the mesh shirt with the tubes running through it.
+[00:18:53] Will: It's the mesh shirt with the tubes running through it.
 
-[00:18:55] Chris Hadfield: Yeah, yeah, we wear them when we're training underwater. But those ones they're connected to an umbilical, so there's a big chiller outside that's pumping cold water around your body the whole time you're in there. And it's weird if you get a little hot, you say, could you turn down my suit? You just announce it to the world. Could someone please turn my temperature down? And you and you get a little cooler. It's kind of weird. But then on the space walking suit outside the space shuttle or the space station. There's a dial on your chest. The printing on it is backwards because you have to be able to read it in the mirror on your wrist, and it just chooses how much of that cooling water is going to go through the flash evaporator and how much is just going to keep recirculating around your bodies. It works works pretty well.
+[00:18:55] Chris Hadfield: Yeah, yeah, we wear them when we're training underwater. But those ones they're connected to an umbilical, so there's a big chiller outside that's pumping cold water around your body the whole time you're in there. And it's weird if you get a little hot, you say, could you turn down my suit? You just announce it to the world. Could someone please turn my temperature down? And you get a little cooler. It's kind of weird. But then on the space walking suit outside the space shuttle or the space station. There's a dial on your chest. The printing on it is backwards because you have to be able to read it in the mirror on your wrist, and it just chooses how much of that cooling water is going to go through the flash evaporator and how much is just going to keep recirculating around your bodies. It works works pretty well.
 
-[00:19:35] Adam: I I was I did a test in my house a couple of weeks ago.
+[00:19:35] Adam: I was I did a test in my house a couple of weeks ago.
 
 [00:19:38] Chris Hadfield: Your house is different than my house.
 
@@ -380,7 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:20:00] Chris Hadfield: Wow.
 
-[00:20:00] Adam: Like oh wow. It was moving this that amount of heat. But then once I put fans in the helmet, which is really the thing I was trying to use the cooling to do, I was able to keep the visor clear and I only had to turn on the garment about you know two out of every five minutes. And I've got switches that are easily accessible in the backpacks that we can use to turn on both our blowers and our and our cooling units.
+[00:20:00] Adam: Like oh wow. It was moving this that amount of heat. But then once I put fans in the helmet, which is really the thing I was trying to use the cooling to do, I was able to keep the visor clear and I only had to turn on the garment about you know two out of every five minutes. And I've got switches that are easily accessible in the backpacks that we can use to turn on both our blowers and our cooling units.
 
 [00:20:21] Chris Hadfield: When you come out of the pool training for a spacewalk. It's weird. You're working hard, so you have the thing turned up, keep you really cool. And then for like the last 10 minutes, there's a quiet period. They're extricating you out of your suit, and almost everybody comes out of the suit hypothermic because they forget to turn the temperature back up.
 
@@ -388,7 +388,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:20:21] Chris Hadfield: And so for the last 10 minutes, right against your whole skin, you have ice cold water flowing for a while. So after a while, you learn that that it's a really effective way to chill your body down, especially you know on the exposed vessels by the skin.
 
-[00:20:49] Adam: And I'd heard this from the Henson people. They've built cooling suits for like Bear in the Big Blue House. That costume has a cooling system built into it. And when Henson was first experimenting with it, they had trouble with their with their puppeteers getting hypothermic. And it gets so warm in those costumes. I mean, when the guy who played Godzilla was in the Godzilla suit, he they'd pour out a tea cup of sweat every five minutes he was in the suit. Oh. So you don't even think hypothermia would remotely be possible.
+[00:20:49] Adam: And I'd heard this from the Henson people. They've built cooling suits for like Bear in the Big Blue House. That costume has a cooling system built into it. And when Henson was first experimenting with it, they had trouble with their puppeteers getting hypothermic. And it gets so warm in those costumes. I mean, when the guy who played Godzilla was in the Godzilla suit, he they'd pour out a tea cup of sweat every five minutes he was in the suit. Oh. So you don't even think hypothermia would remotely be possible.
 
 [00:21:15] Chris Hadfield: If we do form a band, it would be good to be the hypothermic puppeteers.
 
@@ -396,11 +396,11 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:21:24] Will: So, okay, so they know the suit. They know the suit by now. So let's talk about it a little bit because this is the Clavius suit from 2001. This is, I think, probably it's. I think it's visually more interesting. It's the same suit, different paint scheme, different color scheme, more or less.
 
-[00:21:39] Adam: When people see 2001 spacesuits, they think of the red one or the yellow one, the Frank Poole or the David Bowman or David Bowman suit that he disables HAL in, which is both orange and green because it's from pieces from the the bay. But the the the one that no one's ever replicated is the Clavius suit. It's what Heywood Floyd rides to Tycho Crater in when he's on his way to investigate the magnetic anomaly.
+[00:21:39] Adam: When people see 2001 spacesuits, they think of the red one or the yellow one, the Frank Poole or the David Bowman or David Bowman suit that he disables HAL in, which is both orange and green because it's from pieces from the bay. But the one that no one's ever replicated is the Clavius suit. It's what Heywood Floyd rides to Tycho Crater in when he's on his way to investigate the magnetic anomaly.
 
-[00:22:01] Will: And and you you've been working on this for what two three five years at this point?
+[00:22:01] Will: And you you've been working on this for what two three five years at this point?
 
-[00:22:06] Adam: I think four or five years, yeah. Assembling the parts, I commissioned the the soft parts and the front pack was made by a friend of mine, and then the backpack was was first sculpted by my friend John Goodson, who's a model maker at ILM. I did all the machining of all the the parts and the dials. The cooling units come. Basically, the cool shirts are from a company called Cool Shirt. They make cooling systems for race car drivers. Oh, and the submersible pumps are a standard cooling system submersible pump for getting people back from being having heat stroke. Like ambulance drivers would have the system in their in their in their trucks. What else? And the boots, the boots of the Clavius suit are in fact the original boots are Tebbutt and Hall firemen's boots, which is a British company from the '50s and '60s. You can't find them. They're actually suede on the outside, but there is a boot that looks almost precisely like it. And
+[00:22:06] Adam: I think four or five years, yeah. Assembling the parts, I commissioned the soft parts and the front pack was made by a friend of mine, and then the backpack was was first sculpted by my friend John Goodson, who's a model maker at ILM. I did all the machining of all the parts and the dials. The cooling units come. Basically, the cool shirts are from a company called Cool Shirt. They make cooling systems for race car drivers. Oh, and the submersible pumps are a standard cooling system submersible pump for getting people back from being having heat stroke. Like ambulance drivers would have the system in their trucks. What else? And the boots of the Clavius suit are in fact the original boots are Tebbutt and Hall firemen's boots, which is a British company from the '50s and '60s. You can't find them. They're actually suede on the outside, but there is a boot that looks almost precisely like it. And
 
 [00:23:01] Will: unfortunately,
 
@@ -420,11 +420,11 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:23:19] Adam: The Sweat pant of shoes.
 
-[00:23:20] Will: Yes, yes. I think that's as good a place as any to to call it a day. We're gonna go do the walk now. We haven't done it for us. This is all you're. You're living way in our future. Yes, it's wrapping around in interesting ways. Thank you so much for.
+[00:23:20] Will: Yes, yes. I think that's as good a place as any to call it a day. We're gonna go do the walk now. We haven't done it for us. This is all you're. You're living way in our future. Yes, it's wrapping around in interesting ways. Thank you so much for.
 
 [00:23:34] Adam: I will also point out that I replicated the lunchbox that Floyd and his team have lunch with in the rocket bus on the way to Tycho. And Chris and I are going to be walking around with these lunchboxes with actual sandwiches in them. At a certain point, I think we may sit down and have some lunch.
 
-[00:23:46] Will: And and because the last time we saw you, Adam taunted you with a pickle when you were on orbit and just wanted something crunchy, as I recall. Yes. I think we even have pickles. Ah, so
+[00:23:46] Will: And because the last time we saw you, Adam taunted you with a pickle when you were on orbit and just wanted something crunchy, as I recall. Yes. I think we even have pickles. Ah, so
 
 [00:23:59] Chris Hadfield: the beauty of being back on Earth.
 

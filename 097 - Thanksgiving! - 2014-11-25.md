@@ -4,7 +4,7 @@
 **Duration:** 26m 48s  
 Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
-[00:00:01] Will: This this isn't Adam's cave. Where are we?
+[00:00:01] Will: This isn't Adam's cave. Where are we?
 
 [00:00:03] Norm: We're back in our office, but don't worry.
 
@@ -40,13 +40,13 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:01:16] Adam: Oh, season's greetings to you both.
 
-[00:01:19] Will: It's this is this is literally. I'm not even here this week. This is my favorite week of the year.
+[00:01:19] Will: It's this is literally. I'm not even here this week. This is my favorite week of the year.
 
 [00:01:23] Adam: You're not even here. You're not here.
 
 [00:01:24] Will: I'm not even here.
 
-[00:01:26] Adam: Where Where do you go?
+[00:01:26] Adam: Where do you go?
 
 [00:01:26] Will: It's the week of Thanksgiving. I'm getting ready. I'm even as you listen to this at home right now. Yeah. I am probably either making pie dough or I'm spatchcocking a turkey.
 
@@ -64,7 +64,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:01:48] Unknown speaker: Okay.
 
-[00:01:49] Adam: Are you, are you celebrating Thanksgiving at your house in San Francisco.
+[00:01:49] Adam: Are you celebrating Thanksgiving at your house in San Francisco.
 
 [00:01:51] Will: Always. Always celebrate Thanksgiving.
 
@@ -74,7 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:02:02] Unknown: Nice.
 
-[00:02:02] Will: And friends. So we, we, when we moved here from, you know, you moved here from the East Coast, yeah. And Thanksgiving, as a, as an expatriate East Coaster, is a terrible. It's the worst possible excuse to go back home and see the parents and the family.
+[00:02:02] Will: And friends. So we, when we moved here from you moved here from the East Coast, yeah. And Thanksgiving, as a, as an expatriate East Coaster, is a terrible. It's the worst possible excuse to go back home and see the parents and the family.
 
 [00:02:15] Adam: It's a, it's nothing but a headache. It is the most. It's the busiest travel day of the year.
 
@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:03:01] Norm: How do you?
 
-[00:03:02] Adam: It was, it was also multiple times, and I'm sure you've had this. They just forget to pre-board young children.
+[00:03:02] Adam: It was also multiple times, and I'm sure you've had this. They just forget to pre-board young children.
 
 [00:03:09] Will: No, now, [unclear: Really?] now sometimes they've removed that as a perk.
 
@@ -172,13 +172,13 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:04:26] Will: Right.
 
-[00:04:27] Adam: Breathing in for the next thing. Yeah. And my my wife, my first wife, she turns around to me at one point and goes, " These seats are great." And I'm like, " Yeah, they're first class. We got bumped."
+[00:04:27] Adam: Breathing in for the next thing. Yeah. And my wife, my first wife, she turns around to me at one point and goes, " These seats are great." And I'm like, " Yeah, they're first class. We got bumped."
 
 [00:04:38] Will: That's amazing. That that is a thing.
 
 [00:04:40] Adam: One of the only two times I ever got bumped to first class before Mythbusters.
 
-[00:04:43] Will: the the and and the the holiday first class bump.
+[00:04:43] Will: the and the holiday first class bump.
 
 [00:04:47] Adam: Oh,
 
@@ -190,7 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:04:50] Adam: Really, it's like getting a BB gun when you're 10.
 
-[00:04:51] Will: [unclear: Really? Yeah.] So the problem with traveling at the holidays is that everybody who's traveling never travels. It's all like like when you travel on Wednesday morning at six o'clock, you're with people who get on the plane all the time. They know the drill.
+[00:04:51] Will: [unclear: Really? Yeah.] So the problem with traveling at the holidays is that everybody who's traveling never travels. It's all like when you travel on Wednesday morning at six o'clock, you're with people who get on the plane all the time. They know the drill.
 
 [00:05:01] Unknown: That’s true.
 
@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:05:05] Adam: But at the holidays, you're behind some guy who's like, " Really, take off my shoes? What will they think of next?"
 
-[00:05:10] Will: Well, and then yeah, and then and then not to be ageist, but I'm about to be ageist. There's a bunch of old people on the airplane that never travel too, and they're just like, " Well, back in my day, you wore a suit and a tie. Where's my smoked almonds?"
+[00:05:10] Will: Well, and then yeah, and then not to be ageist, but I'm about to be ageist. There's a bunch of old people on the airplane that never travel too, and they're just like, " Well, back in my day, you wore a suit and a tie. Where's my smoked almonds?"
 
 [00:05:22] Adam: I must admit, I still dress up to take the plane.
 
@@ -212,7 +212,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:05:27] Will: I wear my nicest T-shirt. I.
 
-[00:05:30] Norm: The saddest thing is the the first the first people in first class who are slumming it, who are just like wearing the
+[00:05:30] Norm: The saddest thing is the first people in first class who are slumming it, who are just like wearing the
 
 [00:05:35] Will: juicy sweatpants.
 
@@ -220,7 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:05:38] Adam: Shorts on the plane. I just don't want to see man legs.
 
-[00:05:41] Will: It's It's a if there's a you know look if there's going to be a problem on the airplane you know it happens during landing or takeoff you're going to be surrounded by burning fuel you don't want sandals or exposed legs oh
+[00:05:41] Will: It's a if there's a you know look if there's going to be a problem on the airplane you know it happens during landing or takeoff you're going to be surrounded by burning fuel you don't want sandals or exposed legs oh
 
 [00:05:52] Adam: no I don't want to even see them even if there's not a danger of burning fuel Norm what are you doing for Thanksgiving
 
@@ -284,13 +284,13 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:07:01] Norm: And a lot of the people who don't go home, they just get together and it becomes a potluck.
 
-[00:07:05] Will: Well, I mean, that's the thing we've always done. Like we, we did that the first year we were here. A friend of a woman I worked with said, " Hey, what are you guys doing for Thanksgiving?" We're like, " I don't know." She said, " Come over to our house," and that was the beginning of like what is now a 15 year tradition.
+[00:07:05] Will: Well, I mean, that's the thing we've always done. Like we did that the first year we were here. A friend of a woman I worked with said, " Hey, what are you guys doing for Thanksgiving?" We're like, " I don't know." She said, " Come over to our house," and that was the beginning of like what is now a 15 year tradition.
 
 [00:07:19] Adam: It's so nice. It is so nice because, look, the older you get, although you, even though you love your family, going home is not a vacation. Spending a lot of time with your extended family is not a vacation. It's there's all sorts of stuff that goes on, and as a therapist, one of my old therapists told me, they don't push your buttons; they installed them.
 
 [00:07:42] Norm: Wow. And there's a tremendous amount of guilt. Also, as well like you said that. Because of how many times you see your family, they count down. Oh, we probably only see you. I can count the number of my times you'll see us before we go.
 
-[00:07:56] Will: [unclear: Oh, yeah.] My My mom,
+[00:07:56] Will: [unclear: Oh, yeah.] My mom,
 
 [00:07:57] Norm: my hand.
 
@@ -304,7 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:08:11] Will: Yeah.
 
-[00:08:13] Adam: Um, I'm going to be in Canada for Thanksgiving.
+[00:08:13] Adam: I'm going to be in Canada for Thanksgiving.
 
 [00:08:16] Will: So they have they celebrate Thanksgiving there, but in July or something, right?
 
@@ -314,13 +314,13 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:08:25] Adam: Remember, kids, all human progress is behind a vanguard of homicidal maniacs.
 
-[00:08:32] Will: Oh, it's well, it's like the line at the beginning of Dazed and Confused, right? You know the the the hippie yeah the hippie history teacher says as they go out to celebrate the bicentennial that you know this was this is a bunch of old white guys deciding they didn't want to pay their taxes anymore.
+[00:08:32] Will: Oh, it's well, it's like the line at the beginning of Dazed and Confused, right? You know the hippie yeah the hippie history teacher says as they go out to celebrate the bicentennial that you know this was this is a bunch of old white guys deciding they didn't want to pay their taxes anymore.
 
-[00:08:47] Adam: Right. Yes. Yeah. They were clearly reading their their Howard Zinn.
+[00:08:47] Adam: Right. Yes. Yeah. They were clearly reading their Howard Zinn.
 
 [00:08:51] Will: Yes.
 
-[00:08:52] Adam: Um, so I will be in Montreal for Thanksgiving.
+[00:08:52] Adam: So I will be in Montreal for Thanksgiving.
 
 [00:08:56] Will: Quebec.
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:09:34] Norm: there's got to be a good coffee table book about unconventional Thanksgivings because there are places that don't close, and what like the diner in the middle of nowhere, and who congregates there for Thanksgiving.
 
-[00:09:44] Adam: One year, one year when the boys were so obviously I have split custody, so every year my ex and I alternate who has them for Thanksgiving and who has them for Christmas, and a few years ago. Julie and I were leaving for Thanksgiving, so we took the boys to an early Thanksgiving at Tommy's Joynt.
+[00:09:44] Adam: One year when the boys were so obviously I have split custody, so every year my ex and I alternate who has them for Thanksgiving and who has them for Christmas, and a few years ago. Julie and I were leaving for Thanksgiving, so we took the boys to an early Thanksgiving at Tommy's Joynt.
 
 [00:09:58] Will: Oh, that's great!
 
@@ -370,9 +370,9 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:10:32] Norm: and people ask for recommendations about San Francisco all the time. Tommy's Joynt, you can't miss it. It's on Van Ness, Geary, O'Farrell, Geary, I think, O'Farrell. And then there is a big it's the mural on the side of the wall. Yeah, cash only, open till two a.m. and it's a bar. Yeah, and seating in the back.
 
-[00:10:48] Adam: Service is spotty sometimes, but they're really, really awesome in there. Like the guy, the people behind the counter are awesome. Sometimes I've had trouble getting a glass of water, but the food is great. [unclear: The food.] Ambience is amazing, and like I said, it's it's been there for it, and it feels like it. It feels like a set from a David Fincher film.
+[00:10:48] Adam: Service is spotty sometimes, but they're really, really awesome in there. Like the guy, the people behind the counter are awesome. Sometimes I've had trouble getting a glass of water, but the food is great. [unclear: The food.] Ambience is amazing, and like I said, it's been there for it, and it feels like it. It feels like a set from a David Fincher film.
 
-[00:11:06] Will: Yeah, it it feels like a
+[00:11:06] Will: Yeah, it feels like a
 
 [00:11:08] Adam: Not in the murdery, rapey way.
 
@@ -384,7 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:11:15] Will: If you're reading a screenplay and it says the setting is a dive bar with a wooden, huge wooden bar, right? It's dimly lit. The light comes in only from the front door. That's it.
 
-[00:11:24] Adam: So so anyway, the the the wife and kids are meeting me in Montreal, and we're gonna have a French dinner.
+[00:11:24] Adam: So so anyway, the wife and kids are meeting me in Montreal, and we're gonna have a French dinner.
 
 [00:11:32] Will: enjoy your poutine, Canuck.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:12:35] Will: Hmm.
 
-[00:12:35] Adam: So we're going to have a a a much Montreal is one of my favorite cities in the world, and it's a direct flight from San Francisco, just over four hours. It's very civilized, and it is. A totally European city in the middle of North America. I have not been to Quebec, but I've been to Montreal half a dozen times. Julie and I have vacationed there at times, and I just I love that city.
+[00:12:35] Adam: So we're going to have a much Montreal is one of my favorite cities in the world, and it's a direct flight from San Francisco, just over four hours. It's very civilized, and it is. A totally European city in the middle of North America. I have not been to Quebec, but I've been to Montreal half a dozen times. Julie and I have vacationed there at times, and I just I love that city.
 
 [00:13:03] Will: You should make thing one and thing two wear berets that have thing one and thing two embroidered on them.
 
@@ -454,11 +454,11 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:14:01] Will: yeah.
 
-[00:14:01] Adam: Like. But they warmed to her, and they wanted to show her their Christian ways, and so she was going back to his family's house over Thanksgiving, and they were like, " Oh, you are going to get to have the candle salad." Listeners who know what candle salad is, you'll see this coming, but it's it's an amazing thing. So she's she gets there right to his. I can't even remember where they're from, but it was somewhere in the south.
+[00:14:01] Adam: Like. But they warmed to her, and they wanted to show her their Christian ways, and so she was going back to his family's house over Thanksgiving, and they were like, " Oh, you are going to get to have the candle salad." Listeners who know what candle salad is, you'll see this coming, but it's an amazing thing. So she's she gets there right to his. I can't even remember where they're from, but it was somewhere in the south.
 
 [00:14:25] Will: Always is, [unclear: isn’t it?].
 
-[00:14:25] Adam: They're like candle salad, candle salad. Oh wow, you are going to have the candle salad. Awesome! It's like it becomes this this touchstone, and they keep repeatingly talking about it to the point where at dinner it's like once turkey has been cleared, they're like, " Oh, candle salad's about to happen." [unclear: Candle salad comes to the table.] Candle salad comes out. Ellen DeGeneres did a whole bit on this.
+[00:14:25] Adam: They're like candle salad. Oh wow, you are going to have the candle salad. Awesome! It's like it becomes this touchstone, and they keep repeatingly talking about it to the point where at dinner it's like once turkey has been cleared, they're like, " Oh, candle salad's about to happen." [unclear: Candle salad comes to the table.] Candle salad comes out. Ellen DeGeneres did a whole bit on this.
 
 [00:14:49] Will: Well, I must have missed that.
 
@@ -494,7 +494,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:16:08] Norm: Yeah.
 
-[00:16:09] Will: You know, right? Cultural norms.
+[00:16:09] Will: Right? Cultural norms.
 
 [00:16:11] Norm: Nothing to do with salad. I'm perplexed.
 
@@ -508,7 +508,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:16:25] Adam: I love the pecan pie. I love pecan pie. I love it. It's pretty good. I really love it. I crave it. I'll eat it for days afterward with glasses of milk. It's one of my favorite densities of sweet.
 
-[00:16:38] Will: You know, and it's if you do it right, it's a it's that purest of pure sweet, like maple syrup.
+[00:16:38] Will: And it's if you do it right, it's a it's that purest of pure sweet, like maple syrup.
 
 [00:16:43] Adam: Yeah.
 
@@ -518,7 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:16:49] Will: Pumpkin pie is. Pretty amazing.
 
-[00:16:51] Adam: I love pumpkin pie, and my my my. I have a relative who makes a phenomenal apple pie.
+[00:16:51] Adam: I love pumpkin pie, and my. I have a relative who makes a phenomenal apple pie.
 
 [00:16:57] Will: We usually do apple and pecan and pumpkin all from scratch.
 
@@ -526,7 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:17:02] Will: Yeah.
 
-[00:17:02] Adam: Leftovers. And then, and then, what happens after that? They spend one more day in Montreal.
+[00:17:02] Adam: Leftovers. And then, what happens after that? They spend one more day in Montreal.
 
 [00:17:08] Will: Okay.
 
@@ -546,7 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:17:31] Adam: Absolutely, that's what he does every Thanksgiving.
 
-[00:17:32] Will: Okay. Okay. Just you know, we've never been there for Thanksgiving before.
+[00:17:32] Will: Okay. Okay. Just we've never been there for Thanksgiving before.
 
 [00:17:36] Adam: I went to dinner at. I went to dinner at Jamie's house once.
 
@@ -568,7 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:18:11] Adam: And then at like 9:30, after dinner's good, Jamie’s a wonderful cook. This does not belie the fact that Jamie and I have never had a dinner alone together. This was a dinner with at his house with his.
 
-[00:18:21] Will: That'll happen at some point. You know, you're gonna do it by accident now.
+[00:18:21] Will: That'll happen at some point. You're gonna do it by accident now.
 
 [00:18:24] Adam: Maybe maybe we'll notice that we've done it.
 
@@ -590,7 +590,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:18:54] Will: Yeah.
 
-[00:18:55] Adam: Now that I'm old, or I, you know, at at 11:30, I'll turn to the the assembled and be like, I gotta go to bed.
+[00:18:55] Adam: Now that I'm old, or I at at 11:30, I'll turn to the assembled and be like, I gotta go to bed.
 
 [00:19:02] Will: Well, my mom always said,
 
@@ -610,11 +610,11 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:19:34] Will: Yes, you pour the first cup of coffee, and then they're supposed to say, " Oh, thank you." After they finish the coffee, you leave.
 
-[00:19:38] Norm: You gotta have friends who are very, like, aware.
+[00:19:38] Norm: You gotta have friends who are very aware.
 
 [00:19:41] Adam: That's signaling. Yeah.
 
-[00:19:43] Will: It's it's it's a it's a 45 50 year old level of signaling versus a 25 year old level.
+[00:19:43] Will: It's a 45 50 year old level of signaling versus a 25 year old level.
 
 [00:19:47] Adam: Twenty five. There's no signaling.
 
@@ -624,7 +624,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:19:55] Will: So Thanksgiving,
 
-[00:19:56] Adam: Thanksgiving in Montreal, and let me just say that Montreal—we've done we've done the Behind the Myths tour show now in over 110 cities. Montreal, the most raucous response we have ever gotten,
+[00:19:56] Adam: Thanksgiving in Montreal, and let me just say that Montreal—we've done the Behind the Myths tour show now in over 110 cities. Montreal, the most raucous response we have ever gotten,
 
 [00:20:10] Will: really
 
@@ -648,11 +648,11 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:21:01] Will: Yes, I love Canada. I'm a fan.
 
-[00:21:02] Adam: So that's I. I like the Thanksgiving week tradition that we have now going to Canada. Last year we had a we had a Thanksgiving dinner with our crew in Canada.
+[00:21:02] Adam: So that's I. I like the Thanksgiving week tradition that we have now going to Canada. Last year we had a Thanksgiving dinner with our crew in Canada.
 
 [00:21:12] Will: That's that that kind of road crew thing seemed when we when we stopped in for a day last year, it seemed like like this weird road family, right?
 
-[00:21:20] Adam: It is a weird road family, and it's really it's it's a lovely group of people, and you know they're all seasoned professionals. Who I mean, I some of my crew see their apartment like three times a year.
+[00:21:20] Adam: It is a weird road family, and it's really it's a lovely group of people, and you know they're all seasoned professionals. Who I mean, I some of my crew see their apartment like three times a year.
 
 [00:21:31] Will: Wow,
 
@@ -664,11 +664,11 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:21:38] Adam: Yeah.
 
-[00:21:38] Will: you know, and then you know now I'm old and like having this comfortable bed with a nice down comforter.
+[00:21:38] Will: And then you know now I'm old and like having this comfortable bed with a nice down comforter.
 
 [00:21:43] Adam: Yeah.
 
-[00:21:43] Will: not a not a.
+[00:21:43] Will: not a.
 
 [00:21:43] Adam: You know these guys. Yeah, it's it's that's the life, and it's it's pretty cool there, and it's a. In the same way that the film industry attracts a certain level of problem-solving professionals, so does the touring industry, and so there's a lot of simpatico.
 
@@ -704,7 +704,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:22:51] Adam: It was my dad's birthday, and I'm saying that out loud because L.A. people don't go out, so come on out in L.A. and come see us.
 
-[00:22:59] Norm: Is that where they they film the Oscars?
+[00:22:59] Norm: Is that where they film the Oscars?
 
 [00:23:01] Will: No, that's the Kodak Theater.
 
@@ -720,7 +720,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:23:18] Will: wah wah wah wah. I like
 
-[00:23:21] Adam: so. I'll tell you. Here's the thing. We watched that season as a family every single week. The kids and Julia and I, and I pulled some of the contacts and connections I have in L.A. to get us tickets to the season finale.
+[00:23:21] Adam: so. I'll tell you. Here's the thing. We watched that season as a family every single week. The kids and Julia and I pulled some of the contacts and connections I have in L.A. to get us tickets to the season finale.
 
 [00:23:37] Will: Wow,
 
@@ -738,7 +738,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:25:00] Will: that’s [unclear: awesome.]
 
-[00:25:00] Adam: So much fun to build, they, they were like, " You!" And they couldn't believe we had been planning.
+[00:25:00] Adam: So much fun to build, they were like, " You!" And they couldn't believe we had been planning.
 
 [00:25:07] Will: You guys totally, totally hoodwinked us. Yeah, yeah, that's awesome.
 
@@ -754,11 +754,11 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:25:19] Adam: [unclear: You’ve taken them to Vancouver.] I tell a lie. They have been to Canada. We took them up to Vancouver and Whistler on a road trip a couple years ago.
 
-[00:25:26] Will: That's a that's a fun ride too.
+[00:25:26] Will: That's a fun ride too.
 
 [00:25:28] Adam: Thing one, believe said for a long time, he wanted to. He was like, " I want to move here. I want to move here. Whether I want to be a ski bum or whatever, you know, he wants to go to Whistler. It's a beautiful, beautiful.
 
-[00:25:37] Will: Oh, Whistler is hard to leave, and and Vancouver is like San Francisco but clean.
+[00:25:37] Will: Oh, Whistler is hard to leave, and Vancouver is like San Francisco but clean.
 
 [00:25:42] Adam: As Julia said, Vancouver and all the cities of Australia and New Zealand, they're romantic comedy versions of America.
 
@@ -776,7 +776,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:25:57] Adam: Whether you're with your family or not, and whatever you think, and I agree with you. Thanksgiving and the founding of this country is a terribly fraught issue. Like, believe me, my homicidal maniac comment is is born from genuine confusion about being happy about Thanksgiving when it's celebrating a very dark and difficult thing.
 
-[00:26:18] Will: On the other side, Thanksgiving is also the harvest festival, and and like,
+[00:26:18] Will: On the other side, Thanksgiving is also the harvest festival, and like,
 
 [00:26:22] Adam: and then they're spending time with your family, which is a different tradition and doesn't have to be linked to.
 

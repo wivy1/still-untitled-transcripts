@@ -30,7 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:01:29] Norm: Okay.
 
-[00:01:29] Adam: And he's actually breaking down what's wrong with it because it definitely one of the things that's wrong with it, and this happens to a few actresses, is that they don't clench up their jaws enough to accurately represent an accent. For instance, when Kate Winslet is trying to do a slight Polish inflected accent in Jobs in Steve Jobs' movie. He goes and shows Meryl Streep doing Sophie's Choice and how, like, the Polish tend to leave their jaw much less open. But if you've been trained in musical theater and in classic theater, you're trained to make the whole instrument wide open.
+[00:01:29] Adam: And he's actually breaking down what's wrong with it because it definitely one of the things that's wrong with it, and this happens to a few actresses, is that they don't clench up their jaws enough to accurately represent an accent. For instance, when Kate Winslet is trying to do a slight Polish inflected accent in Jobs in Steve Jobs' movie. He goes and shows Meryl Streep doing Sophie's Choice and how the Polish tend to leave their jaw much less open. But if you've been trained in musical theater and in classic theater, you're trained to make the whole instrument wide open.
 
 [00:02:20] Will: Open that up as much as possible.
 
@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:02:47] Norm: watch that video. 35 different Hollywood accents. Yeah,
 
-[00:02:50] Adam: he's um he's not very happy with Brad Pitt's accents in many different films.
+[00:02:50] Adam: he's not very happy with Brad Pitt's accents in many different films.
 
 [00:02:55] Will: I'd say. I mean, that's I think that's a fair criticism.
 
@@ -66,7 +66,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:03:06] Unknown speaker: [unclear wording/speaker: Adam “Yeah, I I couldn’t tell you that” / Will “I I couldn’t tell you. That I couldn’t tell you”].
 
-[00:03:09] Will: I couldn't tell you. I I watched Keanu this week.
+[00:03:09] Will: I couldn't tell you. I watched Keanu this week.
 
 [00:03:09] Norm: Oh, was it good? the Key and Peele movie?
 
@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:03:37] Adam: I love Key and Peele. Love them. Love them. Love them. I met Keegan Michael Key at a thing at Sketchfest a couple years ago. We have a bunch of mutual friends. He's every bit as delight. They are every bit as delightful as you hope they are.
 
-[00:03:48] Norm: Didn't, um, he host the White House Correspondents Dinner. The the. Is that him?
+[00:03:48] Norm: Didn't he host the White House Correspondents Dinner. The. Is that him?
 
 [00:03:54] Adam: I don't know if he hosted it, but he played Luther behind Obama.
 
@@ -138,15 +138,15 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:05:14] Will: It was Adam plus one, so sorry, Norm.
 
-[00:05:20] Adam: Fringe benefits. So we went last Wednesday to the. Is this is this going up tomorrow?
+[00:05:20] Adam: Fringe benefits. So we went last Wednesday to the. Is this going up tomorrow?
 
 [00:05:27] Norm: Yes,
 
 [00:05:27] Adam: yeah. So last Wednesday we went to the White House Christmas party, and I am here to tell you it was an incredibly bittersweet and intense experience. More than that, I have been working obviously with the OSTP at the White House and people like Tom Kalil, Andrew Coy, in pushing the Maker agenda and Maker movement forward. We put videos up online on on tested over the past few months in in regards to that. So there were lots of meetings. We had the first board meeting for Nation of Makers, which we announced recently. There were some brainstorming sessions for future projects that I am working on with some of the lovely, amazing people I've met through the White House. So I spent. Pretty much all day Monday and all day Tuesday at the White House in meetings.
 
-[00:06:11] Will: Do you have the red, the red A, the red A badge?
+[00:06:11] Will: Do you have the red A badge?
 
-[00:06:14] Adam: The red A visitor. Yeah, I think so. Yeah, and it was, it was, you know, it was super intense, man. Look, I want to state, tested community knows my politics, and I think I've seen frequently there are some tested members who disagree with my politics, but indulge me, and you know, I, I feel like that's a wonderful and civilized thing. So I want to state outright, I'm about to explain my complicated emotions about this election, but I am, I am not making a value judgment. I, we are all people, and I, I, I know that most people voted what they thought was the best for their country, and I appreciate that. So that's I want to get that out there first.
+[00:06:14] Adam: The red A visitor. Yeah, I think so. Yeah, and it was, you know, it was super intense, man. Look, I want to state, tested community knows my politics, and I think I've seen frequently there are some tested members who disagree with my politics, but indulge me, and I, I feel like that's a wonderful and civilized thing. So I want to state outright, I'm about to explain my complicated emotions about this election, but I am not making a value judgment. I, we are all people, and I, I, I know that most people voted what they thought was the best for their country, and I appreciate that. So that's I want to get that out there first.
 
 [00:06:54] Unknown: [unclear reply/speaker sequence: Adam “Yep”; Norm “But you were there working in addition to attending the party, which I’d love to hear about. You were there working. Yeah” / Will “Yep. But you were there working in addition to attending the party”; Adam “In addition to the party, I did”; Will “Working”]. I think a lot of people don't realize. I mean, you see the White House, whether it's portrayed in media or entertainment, as a place for a showy place, but it is also a place of work.
 
@@ -154,7 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:07:19] Will: It's it's very like it's. So I went the last time I was there was 20 years ago. It's been a little while, but but the Eisenhower especially feels like almost like a university, like an administrative building in a university because there's just all these endless linoleum or not linoleum but tile yeah floors.
 
-[00:07:36] Adam: In fact, those tiles are New York granite and basalt or something marble marble and granite, and they're gorgeous. There are fossils in them. You can look around and find like cut up shells from the from the masonry of. It's beautiful, but
+[00:07:36] Adam: In fact, those tiles are New York granite and basalt or something marble marble and granite, and they're gorgeous. There are fossils in them. You can look around and find like cut up shells from the masonry of. It's beautiful, but
 
 [00:07:52] Will: even then, 20 years ago, it was jam packed. Yeah, everywhere was full.
 
@@ -182,11 +182,11 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:09:10] Will: It's like 25 feet from end to end.
 
-[00:09:13] Adam: Yeah, it's it's. Pretty, it's relatively small. We also, we also on the on the day of the party, I met Susie Morrison, the White House pastry chef,
+[00:09:13] Adam: Yeah, it's. Pretty, it's relatively small. We also on the day of the party, I met Susie Morrison, the White House pastry chef,
 
 [00:09:13] Will: Oh.
 
-[00:09:13] Adam: and we got to tour the the White House kitchens on the day of the Christmas party.
+[00:09:13] Adam: and we got to tour the White House kitchens on the day of the Christmas party.
 
 [00:09:30] Norm: The workspaces, the maker spaces inside the White House.
 
@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:09:53] Will: how does he keep trim?
 
-[00:09:55] Adam: And you know, the the the the the party was really lovely. It was press based, so a lot of the folks, the attendees, were kind of jaded about being there. They're the press corps; they live, eat, and breathe DC.
+[00:09:55] Adam: And you know, the party was really lovely. It was press based, so a lot of the folks, the attendees, were kind of jaded about being there. They're the press corps; they live, eat, and breathe DC.
 
 [00:10:09] Will: So it wasn't just science. Communicators and science press.
 
@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:10:39] Will: wow.
 
-[00:10:39] Adam: Look, I've taken pictures with maybe 250, 300 people at a time, at the most, max. They've probably doing this for every party. I and I can't even tell you how incredibly gracious they were, even in those 10 seconds. Like, I know what it is to to. I know roughly what it is to like try and. I want to give everyone who's taking a picture with me a genuine experience. Want to make eye contact, and I want to. I want to be there with them, even if it's brief. And they were there doing that. I mean, they were so gracious and so beautiful, and.
+[00:10:39] Adam: Look, I've taken pictures with maybe 250, 300 people at a time, at the most, max. They've probably doing this for every party. I and I can't even tell you how incredibly gracious they were, even in those 10 seconds. Like, I know what it is to. I know roughly what it is to like try and. I want to give everyone who's taking a picture with me a genuine experience. Want to make eye contact, and I want to. I want to be there with them, even if it's brief. And they were there doing that. I mean, they were so gracious and so beautiful, and.
 
 [00:11:14] Norm: If it's 10 seconds each, it's two and a half hours, nonstop,
 
@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:11:38] Adam: and they're all putting in the hours to make the world as good as they can before they pass it on to whoever's going to sit at that desk next January.
 
-[00:11:55] Will: So when you are walking around, though, everything's still kind of as it. Like they don't do the turnover where they take the old art down and the new art, you know, take the Obama pictures down and all that stuff until the very last minute, right?
+[00:11:55] Will: So when you are walking around, though, everything's still kind of as it. Like they don't do the turnover where they take the old art down and the new art take the Obama pictures down and all that stuff until the very last minute, right?
 
 [00:12:04] Adam: Yeah, no, so there it's all Christmas party,
 
@@ -252,7 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:12:25] Will: there. You go.
 
-[00:12:26] Adam: Yeah, I mean, it's all it's all happening. Um, I saved I I saved the best for last. We also got to spend about an hour in the White House wood shop.
+[00:12:26] Adam: Yeah, I mean, it's all happening. I saved I I saved the best for last. We also got to spend about an hour in the White House wood shop.
 
 [00:12:36] Will: What?
 
@@ -272,11 +272,11 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:12:56] Will: Wow.
 
-[00:12:56] Adam: Yeah. Right. I mean, you know, he was telling us great stories. He's like, every president's totally different in their manners. Some are very, very private. He said George H. W. Bush. Came down to the shop all the time and used tools.
+[00:12:56] Adam: Yeah. Right. I mean he was telling us great stories. He's like, every president's totally different in their manners. Some are very, very private. He said George H. W. Bush. Came down to the shop all the time and used tools.
 
 [00:13:13] Will: I can see that. He seems like a kind of hands-on guy.
 
-[00:13:16] Adam: Totally, totally, totally. It was so so lovely, and the party was great. And I especially appreciate the the president and first lady taking the time to take pictures and greet everybody. That was amazing. But also, the party was 750 people in a building that is very crowded.
+[00:13:16] Adam: Totally, totally, totally. It was so so lovely, and the party was great. And I especially appreciate the president and first lady taking the time to take pictures and greet everybody. That was amazing. But also, the party was 750 people in a building that is very crowded.
 
 [00:13:34] Will: So, where was it in the actual building? Was it in the White House proper?
 
@@ -298,21 +298,21 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:13:50] Adam: and then right there is a residence, and I don't know how any of that is laid out.
 
-[00:14:02] Will: So I think when you do the tour, they take you like through the main floor. They don't take you downstairs, but you go up to the to the second floor. When the residence, residence is the third floor.
+[00:14:02] Will: So I think when you do the tour, they take you like through the main floor. They don't take you downstairs, but you go up to the second floor. When the residence, residence is the third floor.
 
 [00:14:13] Adam: Yes, that's correct.
 
 [00:14:13] Will: Okay,
 
-[00:14:13] Adam: Um, and I did the tour too. I got, I saw the Oval Office and the, you know, looked at the door of the Situation Room. I mean, you know, it's so intense to see this building that has that so many different dedicated people have been stewards of uh, for brief periods of time. It's really what you feel like, and you know, to their credit, no one at the White House was talking about the transition unless you asked.
+[00:14:13] Adam: And I did the tour too. I got, I saw the Oval Office and the looked at the door of the Situation Room. I mean it's so intense to see this building that has that so many different dedicated people have been stewards of for brief periods of time. It's really what you feel like, and to their credit, no one at the White House was talking about the transition unless you asked.
 
 [00:14:13] Will: Yeah,
 
-[00:14:13] Adam: right. They're just they're hunkering down and they're doing their work, Um, and with as much good humor as they can bring.
+[00:14:13] Adam: right. They're just they're hunkering down and they're doing their work and with as much good humor as they can bring.
 
 [00:14:44] Will: Well, those jobs don't ever stop.
 
-[00:14:46] Adam: No, no, they don't. And there's, yeah, look, there's a fair, there's a fair number of those of those folks who are continuing on, and you know, the new administration will mold it in its in its in the image it sees fit. I, I, I, it's been a very intense.
+[00:14:46] Adam: No, no, they don't. And there's, yeah, look, there's a fair number of those folks who are continuing on, and you know, the new administration will mold it in its in the image it sees fit. I, it's been a very intense.
 
 [00:15:03] Will: I can't even imagine.
 
@@ -320,7 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:15:18] Norm: Yes.
 
-[00:15:18] Adam: Then to Park City, where, uh, in Park City on Saturday night I did an appearance, uh, there as part of one of their arts programs, which was another amazing evening.
+[00:15:18] Adam: Then to Park City, where in Park City on Saturday night I did an appearance there as part of one of their arts programs, which was another amazing evening.
 
 [00:15:27] Will: Park City is so so good.
 
@@ -330,13 +330,13 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:15:31] Adam: No, I've never been. I've been to Moab and I've been to Salt Lake a bunch of times, but not to Park City.
 
-[00:15:36] Will: So Park City is one of the places I've been there in the summer and the winter, and it it it it it doesn't there is like a negative connotation of a ski town in my head, which I don't mean as a pejorative, but but it like it doesn't feel like a ski town. It just feels like a gorgeous place that there happens to be a bunch of really good places to ski around there. Yeah,
+[00:15:36] Will: So Park City is one of the places I've been there in the summer and the winter, and it doesn't there is like a negative connotation of a ski town in my head, which I don't mean as a pejorative, but it like it doesn't feel like a ski town. It just feels like a gorgeous place that there happens to be a bunch of really good places to ski around there. Yeah,
 
 [00:15:53] Adam: I totally agree.
 
 [00:15:54] Norm: And where do they film Westworld. Was that that was also Utah?
 
-[00:15:58] Unknown: Uh, that's different. Moab,
+[00:15:58] Unknown: That's different. Moab,
 
 [00:15:59] Will: but that's like Painted Desert, got it, Utah, not 
 
@@ -350,15 +350,15 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:16:26] Adam: Relatively young,
 
-[00:16:26] Will: and yeah, geologically speaking, and and it just felt like someplace. It felt like someplace out of a movie, you know, but not a western. It felt like Middle Earth or something. I don't know.
+[00:16:26] Will: and yeah, geologically speaking, and it just felt like someplace. It felt like someplace out of a movie but not a western. It felt like Middle Earth or something. I don't know.
 
 [00:16:37] Adam: Yeah, Utah really has a lock on some of the most beautiful scenery in America, and I know. Look, actually, who could say? I drove across the country this summer, and every state has its amazing merits, and it's just beautiful place. But Utah, like I even in Salt Lake, looking around. Not even in Salt Lake, but in Salt Lake, the first time I went, I was like, " Oh my god, I've never." I didn't realize it was surrounded by such a beautiful mountain.
 
-[00:17:01] Will: Three sides. It's a like you feel like you're in a room that just the the roof is the sky, and it's 35 miles across or something. Like it's enormous.
+[00:17:01] Will: Three sides. It's a like you feel like you're in a room that just the roof is the sky, and it's 35 miles across or something. Like it's enormous.
 
 [00:17:09] Norm: Do train lines go through there?
 
-[00:17:11] Will: Train lines? Yeah, yeah. You you can.
+[00:17:11] Will: Train lines? Yeah, yeah. You can.
 
 [00:17:14] Adam: I don't know. I've only taken the train. Took the train from Oakland to Aspen, and then Denver and Chicago.
 
@@ -366,7 +366,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:17:23] Adam: Yeah. Oh, I did not know that.
 
-[00:17:25] Will: Yeah, so they they built some from San Francisco east, and some from St. Louis, I guess west. And they, I don't know if you can still take a passenger train.
+[00:17:25] Will: Yeah, so they built some from San Francisco east, and some from St. Louis, I guess west. And they, I don't know if you can still take a passenger train.
 
 [00:17:32] Norm: A lot of Ticket to Ride.
 
@@ -378,9 +378,9 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:17:40] Adam: Oh, sorry. Yes,
 
-[00:17:42] Norm: and I know you're. You know, you did a collaboration with him there, but how was he? You guys talked about the show, visiting.
+[00:17:42] Norm: and I know you're. You did a collaboration with him there, but how was he? You guys talked about the show, visiting.
 
-[00:17:47] Adam: No, we so we were we were we were working on a. I'm not sure how much I can say about this project right yet. It's going to it's tested. It's going to benefit from this interview that we did. We talked about movies as viewers, as lovers of movies. We also talked about a bunch of Guillermo's favorite movies, and I watched in preparation. I had the list ahead of time. I watched a bunch of his favorite movies, and man, you know, it's a really amazing film education to watch movies like Vampire and. The Spirit of the Beehive.
+[00:17:47] Adam: No, we so we were working on a. I'm not sure how much I can say about this project right yet. It's going to it's tested. It's going to benefit from this interview that we did. We talked about movies as viewers, as lovers of movies. We also talked about a bunch of Guillermo's favorite movies, and I watched in preparation. I had the list ahead of time. I watched a bunch of his favorite movies, and man it's a really amazing film education to watch movies like Vampire and. The Spirit of the Beehive.
 
 [00:18:18] Will: I've never even heard of the Spirit of the Beehive.
 
@@ -408,27 +408,27 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:19:52] Will: That's insane.
 
-[00:19:53] Adam: Yeah. Right. You realize that, and it's sound. It's what they did. They they they looped it. They looped the dialogue, so they're not working with a blimped Mitchell that's like the size of a Volkswagen. They're working with the smallest camera they can, which is still probably the size of a microwave.
+[00:19:53] Adam: Yeah. Right. You realize that, and it's sound. It's what they did. They looped it. They looped the dialogue, so they're not working with a blimped Mitchell that's like the size of a Volkswagen. They're working with the smallest camera they can, which is still probably the size of a microwave.
 
 [00:20:09] Will: Yeah.
 
-[00:20:09] Adam: Wow. It was wonderful. Look, I mean, you know, sitting down and talking movies with Guillermo is one of the Rare, lovely pleasures.
+[00:20:09] Adam: Wow. It was wonderful. Look, I mean sitting down and talking movies with Guillermo is one of the Rare, lovely pleasures.
 
-[00:20:17] Will: Was it all? Was it all? You know, kind of your scary horror movie, creepy creepfests, or was it? Did he have some stuff that was surprising to you?
+[00:20:17] Will: Was it all? Was it all? Kind of your scary horror movie, creepy creepfests, or was it? Did he have some stuff that was surprising to you?
 
-[00:20:25] Adam: That is a really, really excellent question. Um, wow, it was. They all fell into this category of of you know you totally understood why they why they inspired him. But then you know we were talking and we were talking about Coppola because I had a lot of material on Coppola having just interviewed him for the Commonwealth Club, and Guillermo said he want he said I want to stop and single out Francis specifically as an amazing filmmaker because he has never fallen into a groove of doing one kind of movie. Every single movie is totally different on its own merits. You may like them, you may not, but this is a guy devoted to pushing himself and pushing his art in any way that he finds. Inspires him, and he's totally right.
+[00:20:25] Adam: That is a really, really excellent question. Wow, it was. They all fell into this category of you know you totally understood why they inspired him. But then you know we were talking and we were talking about Coppola because I had a lot of material on Coppola having just interviewed him for the Commonwealth Club, and Guillermo said he want he said I want to stop and single out Francis specifically as an amazing filmmaker because he has never fallen into a groove of doing one kind of movie. Every single movie is totally different on its own merits. You may like them, you may not, but this is a guy devoted to pushing himself and pushing his art in any way that he finds. Inspires him, and he's totally right.
 
 [00:20:25] Will: Yeah,
 
 [00:20:25] Adam: you know, it was lovely to hear one an encomium of you know one of the greatest filmmakers from another one.
 
-[00:21:23] Norm: You know, you've interviewed filmmakers from Coppola to Guillermo, who's a friend. Is there a filmmaker you haven't interviewed that you like? Who's your dream interview?
+[00:21:23] Norm: You've interviewed filmmakers from Coppola to Guillermo, who's a friend. Is there a filmmaker you haven't interviewed that you like? Who's your dream interview?
 
 [00:21:23] Unknown: [unclear reply/speaker: Norm “There is a whole board” / Adam “Hmm”].
 
 [00:21:23] Norm: and why isn't it Miyazaki?
 
-[00:21:35] Adam: Oh, I feel like I want to learn Japanese to interview Miyazaki. I would love to interview him. I'd love, you know, I'd love to sit down and talk practical effects with Jon Favreau. It was awesome to talk movies with Peter Jackson. I mean, you know, we filmed there, but still, tons of conversation above and on top of everything. Um,
+[00:21:35] Adam: Oh, I feel like I want to learn Japanese to interview Miyazaki. I would love to interview him. I'd love I'd love to sit down and talk practical effects with Jon Favreau. It was awesome to talk movies with Peter Jackson. I mean we filmed there, but still, tons of conversation above and on top of everything.
 
 [00:21:59] Will: Gilliam,
 
@@ -452,7 +452,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:22:17] Adam: Yeah. Here is the thing about Ken Plume. Is when Ken says, " Oh, I'll introduce you to someone more than any other person you've ever met." Ken really means it, so he said, " Come to DragonCon. This is my first time. Come DragonCon. Terry Gilliam is coming. I'll introduce you." I'm like, " All right, we'll see if that happens." I fly and I arrive at 6 a.m. I get to my room. 8 a.m. He texts me, " Hey, coming up to the 34th floor. I'm having breakfast with Terry. I'm sit there and have breakfast with Terry and his daughter."
 
-[00:22:43] Will: I, I. There, there are. I generally am pretty well behaved in situations with with people that I admire or have have great fame or impact on my life. I don't think I could have a conversation with Terry Gilliam. Like I don't think I'm capable of mustering thoughts and turning them into words. 
+[00:22:43] Will: I. There are. I generally am pretty well behaved in situations with people that I admire or have have great fame or impact on my life. I don't think I could have a conversation with Terry Gilliam. Like I don't think I'm capable of mustering thoughts and turning them into words.
 
 [00:23:00] Unknown speaker: She said, thank, thank him. And that's it. Thank him. Appreciate the work. And yes.
 
@@ -464,15 +464,15 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:23:15] Unknown speaker: Right.
 
-[00:23:15] Will: The the thing that I found because I I find myself talking to people who are in the creative fields a lot more often these days and and it is almost a universal that if you need to give somebody like the other day I was talking about a visual reference that is a way to show a a person is a person without doing a ton of work we were talking about putting a picture of a physical picture on top of an avatar in what I do
+[00:23:15] Will: The thing that I found because I I find myself talking to people who are in the creative fields a lot more often these days and it is almost a universal that if you need to give somebody like the other day I was talking about a visual reference that is a way to show a person is a person without doing a ton of work we were talking about putting a picture of a physical picture on top of an avatar in what I do
 
 [00:23:15] Adam: yeah
 
-[00:23:15] Will: like the face shields in in Brazil
+[00:23:15] Will: like the face shields in Brazil
 
 [00:23:15] Adam: right
 
-[00:23:15] Will: and like it was a concept I spent six minutes trying to describe and I was just like no it's like the things in Brazil with the with the lenticular and he was like oh yeah oh yeah totally yeah I know exactly what you're talking about I'm like oh Jesus everybody yeah so it's a universal that's where I would
+[00:23:15] Will: and like it was a concept I spent six minutes trying to describe and I was just like no it's like the things in Brazil with the lenticular and he was like oh yeah totally yeah I know exactly what you're talking about I'm like oh Jesus everybody yeah so it's a universal that's where I would
 
 [00:23:56] Adam: say and then time bandits
 
@@ -482,15 +482,15 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:24:08] Norm: yes
 
-[00:24:08] Adam: as I was of Julia when it turned out when we first met that she hadn't seen the thing oh now I am jealous that you get to see time bandits for the first time because it is ostensibly a children's movie. It is incredibly dark, incredibly subversive, super playful. It's tragic. As Guillermo had this great quote of the interview, he's like, " God doesn't care, he's up there making avocados." All right. And * Time Bandits* is really, really important to me as a as a as a seminal film. And it one of the things I realized in talking to Guillermo about it was it was because I saw it with my father, and my father took it really seriously.
+[00:24:08] Adam: as I was of Julia when it turned out when we first met that she hadn't seen the thing oh now I am jealous that you get to see time bandits for the first time because it is ostensibly a children's movie. It is incredibly dark, incredibly subversive, super playful. It's tragic. As Guillermo had this great quote of the interview, he's like, " God doesn't care, he's up there making avocados." All right. And * Time Bandits* is really, really important to me as a seminal film. And it one of the things I realized in talking to Guillermo about it was because I saw it with my father, and my father took it really seriously.
 
 [00:24:55] Will: I can see that,
 
 [00:24:55] Adam: and that was important to me at that age. That my that this movie that I thought was for me was my dad was like, " Oh man, that ending was intense and hilarious and really black humor." And he's right. And it was the first time I got that deep insight into what black humor really was.
 
-[00:25:12] Will: I can I can totally see. Like, yes, I can totally I totally understand that.
+[00:25:12] Will: I can totally see. Like, yes, I can totally I totally understand that.
 
-[00:25:16] Adam: So that was it. It was an it was an amazing trip. It was lovely, Mrs. Don't try this, Julia. My wife, of course, met me in DC. We had that amazing day touring around, and then the party, and then she flew back home. So I had two countries, three cities, six days. Got home on Sunday,
+[00:25:16] Adam: So that was it. It was an amazing trip. It was lovely, Mrs. Don't try this, Julia. My wife, of course, met me in DC. We had that amazing day touring around, and then the party, and then she flew back home. So I had two countries, three cities, six days. Got home on Sunday,
 
 [00:25:35] Norm: and then we went to see the Lion King.
 
@@ -500,7 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:25:42] Adam: Yes,
 
-[00:25:43] Will: okay. So you didn't see the the live action remake featuring Emma Watson?
+[00:25:43] Will: okay. So you didn't see the live action remake featuring Emma Watson?
 
 [00:25:47] Adam: No, we went and,
 
@@ -528,11 +528,11 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:26:35] Will: Do they do? I mean, I assume the costumes, like when they have a giraffe or an elephant or something on, it's like a giant puppet. It's a puppetry.
 
-[00:26:41] Norm: So puppetry was the focus, the crux of the piece that we did, which will be coming out soon, hopefully. But when we went backstage, the thing that we don't realize is as much choreography goes on backstage as on stage to make it all work. Because Adams performed at the Orpheum, you know, there's not a lot of backstage.
+[00:26:41] Norm: So puppetry was the focus, the crux of the piece that we did, which will be coming out soon, hopefully. But when we went backstage, the thing that we don't realize is as much choreography goes on backstage as on stage to make it all work. Because Adams performed at the Orpheum there's not a lot of backstage.
 
 [00:26:58] Will: No, there's never as much backstage as you would expect there to be backstage. No,
 
-[00:27:01] Adam: actually, some theaters have tons of it. Some every theater is totally different. When you when you when we take our show around, when we'll take Brain Candy around, some theaters will have tons of crossover, big fat wings. Others will have nothing at all.
+[00:27:01] Adam: actually, some theaters have tons of it. Some every theater is totally different. When you when we take our show around, when we'll take Brain Candy around, some theaters will have tons of crossover, big fat wings. Others will have nothing at all.
 
 [00:27:13] Will: I mean, I guess the place that Norman and I went—the Civic Coliseum in Bakersfield—they just opened up the trucks there.
 
@@ -558,7 +558,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:27:47] Adam: Yeah, I did.
 
-[00:27:47] Will: Yeah, he was he was far away.
+[00:27:47] Will: Yeah, he was far away.
 
 [00:27:49] Norm: It's all the farting,
 
@@ -640,7 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:29:39] Will: Yeah, yeah. I mean,
 
-[00:29:39] Adam: we're we're flying.
+[00:29:39] Adam: we're flying.
 
 [00:29:39] Will: Flying is the right choice.
 
@@ -652,9 +652,9 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:30:00] Will: I think it was 125 last time we talked.
 
-[00:30:02] Adam: Yeah, no, it's gotten bigger once I actually did the did the breakdown.
+[00:30:02] Adam: Yeah, no, it's gotten bigger once I actually did the breakdown.
 
-[00:30:05] Will: At least. You know, at least you have the the special seat, and the you'll you'll get to the boarding line front. Your status is secured for next year.
+[00:30:05] Will: At least. At least you have the special seat, and the you'll you'll get to the boarding line front. Your status is secured for next year.
 
 [00:30:14] Adam: For, yes, for a little while,
 
@@ -682,7 +682,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:30:35] Norm: yes, yes.
 
-[00:30:36] Adam: I'm I'm excited to hear how you like it.
+[00:30:36] Adam: I'm excited to hear how you like it.
 
 [00:30:39] Norm: Yeah, we're talking about taking to a racetrack.
 
@@ -696,11 +696,11 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:30:44] Norm: Yeah.
 
-[00:30:45] Adam: Aww, I missed. You know, I just got wistful and missed Mythbusters driving stuff.
+[00:30:45] Adam: Aww, I missed. I just got wistful and missed Mythbusters driving stuff.
 
-[00:30:51] Will: I I have to imagine, like the not being able to just go out and do something crazy in a car at least two or three times a year is is hard.
+[00:30:51] Will: I have to imagine, like the not being able to just go out and do something crazy in a car at least two or three times a year is is hard.
 
-[00:30:57] Adam: It's it's the. Kristen was telling. Oh, [unclear: Kaylo / Kalu], my friend was telling me. Was pointing out that I, the tested stuff I do is a lot similar to MythBusters, but the shop MythBusters, but not the physical exterior outdoor stuff. Um, I want. I still want
+[00:30:57] Adam: It's the. Kristen was telling. Oh, [unclear: Kaylo / Kalu] my friend was telling me. Was pointing out that I, the tested stuff I do is a lot similar to MythBusters, but the shop MythBusters, but not the physical exterior outdoor stuff. I want. I still want
 
 [00:31:15] Norm: New Year's resolution.
 
@@ -708,7 +708,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:31:17] Norm: Yeah.
 
-[00:31:17] Adam: Um. And yeah, I think we do. We need to put some more physicality in the tested videos. All right. You know, if you guys have some suggestions,
+[00:31:17] Adam: And yeah, I think we do. We need to put some more physicality in the tested videos. All right. You know, if you guys have some suggestions,
 
 [00:31:29] Norm: I don't mean sit ups after lunch.
 
@@ -722,7 +722,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:31:52] Will: Well, have a happy holiday, guys. Are we doing another show next week, or is this it before Christmas?
 
-[00:31:57] Norm: Um, I would love to do another show next week.
+[00:31:57] Norm: I would love to do another show next week.
 
 [00:31:57] Will: Yeah,
 
@@ -734,7 +734,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:32:06] Adam: There we go.
 
-[00:32:06] Norm: Between Christmas and New Year's. Um. I'll end with one story. At lunch today, we were chatting with a friend, and you know, holiday parties are. We did our holiday party for our team, but a lot of holiday party going on. A lot of gift giving. We don't do a gift exchange really at tested. I think really tough to do, but overheard recent holiday party where they did a white elephant for 30 people. White elephant exchange gifts.
+[00:32:06] Norm: Between Christmas and New Year's. I'll end with one story. At lunch today, we were chatting with a friend, and holiday parties are. We did our holiday party for our team, but a lot of holiday party going on. A lot of gift giving. We don't do a gift exchange really at tested. I think really tough to do, but overheard recent holiday party where they did a white elephant for 30 people. White elephant exchange gifts.
 
 [00:32:30] Will: Those are bad gifts. Is that what the white elephant?
 
@@ -750,7 +750,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:32:49] Norm: Trading, stealing, trading.
 
-[00:32:51] Adam: Oh, right, you can do stealing. Yes. Oh, that's terrible. Oh my god! My my ex wife used to work at this place, and we hosted a Christmas party for her bosses who were. Well, I won't tell you where she worked, but her bosses were absolute nut jobs, and the white elephant party with the two like narcissists. Bosses was literally one of them was like, " I've got this that I wanted, so no one stole from me, or you're fired." I'm just kidding. I'm not really kidding. I'm kidding. I'm probably not actually kidding. Like that kind of
+[00:32:51] Adam: Oh, right, you can do stealing. Yes. Oh, that's terrible. Oh my god! My ex wife used to work at this place, and we hosted a Christmas party for her bosses who were. Well, I won't tell you where she worked, but her bosses were absolute nut jobs, and the white elephant party with the two like narcissists. Bosses was literally one of them was like, " I've got this that I wanted, so no one stole from me, or you're fired." I'm just kidding. I'm not really kidding. I'm kidding. I'm probably not actually kidding. Like that kind of
 
 [00:33:24] Will: wow. Right. I could tie this all back.
 
@@ -770,21 +770,21 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:33:41] Will: Wow.
 
-[00:33:43] Adam: I I will tell you, we're not doing any Christmas decorations in our house this year because we're going up to Portland. Our sole Christmas decoration is Totoro, who now lives in the living room.
+[00:33:43] Adam: I will tell you, we're not doing any Christmas decorations in our house this year because we're going up to Portland. Our sole Christmas decoration is Totoro, who now lives in the living room.
 
 [00:33:54] Will: Why wouldn't he?
 
 [00:33:55] Adam: Of course. Yeah. And I sometimes come home and hug him. Yeah. He's holding a single strand of Christmas lights. It's very festive.
 
-[00:34:03] Will: I um my my daughter's four, and she is. This is the first year she's really been super excited about. Like last year, she was kind of excited.
+[00:34:03] Will: I my daughter's four, and she is. This is the first year she's really been super excited about. Like last year, she was kind of excited.
 
 [00:34:03] Norm: Yeah.
 
-[00:34:03] Will: This year, she's she's like ready to go. Wakes up every morning. We have the little thing on the wall that has
+[00:34:03] Will: This year, she's like ready to go. Wakes up every morning. We have the little thing on the wall that has
 
 [00:34:03] Norm: Oh, the advent calendar
 
-[00:34:03] Will: that she's moved through. Yeah, it's um, it's it's really like I don't I have not gotten excited about Christmas like this in a really long time.
+[00:34:03] Will: that she's moved through. Yeah, it's really like I don't I have not gotten excited about Christmas like this in a really long time.
 
 [00:34:03] Norm: That's so sweet.
 
@@ -802,13 +802,13 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:34:31] Adam: If we're a little low energy, we apologize.
 
-[00:34:33] Norm: There's a there's a lot to talk about. We have a lot of great stuff on the site this week. We are finally publishing the completed build, Adam's Strandbeest build from the Exploratorium this past summer.
+[00:34:33] Norm: There's a lot to talk about. We have a lot of great stuff on the site this week. We are finally publishing the completed build, Adam's Strandbeest build from the Exploratorium this past summer.
 
 [00:34:42] Norm then Adam: I can look forward to that. I can't wait for you guys to see this.
 
 [00:34:43] Norm: on the site. In addition to not this most recent visit to the White House, but previously when you went to the White House South by South Lawn event, some videos from there are also going to be popping up on the site this week. So a lot of content throughout the rest of the year, and I think we're going to kick off next year with some exciting stuff from our trip from to Australia.
 
-[00:35:02] Adam: Yeah, we we we have so much. in the hopper.
+[00:35:02] Adam: Yeah, we have so much. in the hopper.
 
 [00:35:04] Will: You had to save it for Australian summer when you shot here, right?
 
@@ -818,13 +818,13 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:35:10] Adam: You know that I found out that in Ecuador, summer and winter happen at the same time, but. Because the country straddles the equator,
 
-[00:35:15] Will: it's just always summer. There's no there's no winter,
+[00:35:15] Will: it's just always summer. There's no winter,
 
 [00:35:15] Adam: right?
 
 [00:35:15] Will: But no summer.
 
-[00:35:20] Adam: They they they they they have right, but they
+[00:35:20] Adam: They have right, but they
 
 [00:35:25] Will: does the toilet flush clockwise or counterclockwise, Adam? That's the question.
 
@@ -832,7 +832,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:35:29] Will: You never tested it.
 
-[00:35:29] Adam: No, it's it's a long story, but it takes a long time. It's a very complicated experiment to test.
+[00:35:29] Adam: No, it's a long story, but it takes a long time. It's a very complicated experiment to test.
 
 [00:35:38] Will: [unclear question/ending: “I assume you have to just go take a toilet” / “I assume you have to just go take a toilet instead of on the equator”]. No, no, no, no.
 
@@ -840,7 +840,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:35:43] Will: So you have to make a toilet.
 
-[00:35:43] Adam: Not how to do it. No, you have to make a drain with zero bias, with zero bias in it, which is completely non-trivial from an engineering standpoint.
+[00:35:43] Adam: Not how to do it. No, you have to make a drain with zero bias in it, which is completely non-trivial from an engineering standpoint.
 
 [00:35:51] Will: Well, yeah, and then you have to inject the water in a no bias way too, right?
 

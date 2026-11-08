@@ -32,11 +32,11 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:01:01] Will: He's in the future.
 
-[00:01:02] Norm: He's he's in the future.
+[00:01:02] Norm: He's in the future.
 
 [00:01:03] Will: He's finally made it.
 
-[00:01:04] Norm: He he went far east. Maybe a little too far, but anyway, Adam will be back next week. But in his stead, we have Jeremy Williams.
+[00:01:04] Norm: He went far east. Maybe a little too far, but anyway, Adam will be back next week. But in his stead, we have Jeremy Williams.
 
 [00:01:04] Jeremy: Hi.
 
@@ -54,13 +54,13 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:01:29] Norm: The Star Wars.
 
-[00:01:30] Will: Well, hold on, but first you you um you went to Monsterpalooza this weekend.
+[00:01:30] Will: Well, hold on, but first you went to Monsterpalooza this weekend.
 
 [00:01:33] Norm: I did. I did. I was down in Pasadena, drove down, and drove the whole family down actually, and I spent first couple days we did a production shoot with our friend Ryan Nagata,
 
 [00:01:33] Will: Ooh.
 
-[00:01:33] Norm: and it was great to see him in the shop. Um, he makes the space suits.
+[00:01:33] Norm: and it was great to see him in the shop. He makes the space suits.
 
 [00:01:49] Will: No, but were you guys making space suits?
 
@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:01:50] Will: Okay.
 
-[00:01:50] Norm: And then I went over to Pasadena for. the the Monsterpalooza the spring Monsterpalooza there's two of them there's a fall one called son of Monsterpalooza
+[00:01:50] Norm: And then I went over to Pasadena for. the Monsterpalooza the spring Monsterpalooza there's two of them there's a fall one called son of Monsterpalooza
 
 [00:01:50] Unknown (Will or Jeremy): Whoa.
 
@@ -80,11 +80,11 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:01:50] Unknown (Will or Jeremy): yep
 
-[00:01:50] Norm: you have makeup companies do demos transforming actors into creatures and you have a lot of artists who in their day jobs might be art directors on video games or work in the special effects houses that fabricate costumes and creatures and they bring their personal projects the things they've sculpted whether digitally or or practically and then their own garage kits
+[00:01:50] Norm: you have makeup companies do demos transforming actors into creatures and you have a lot of artists who in their day jobs might be art directors on video games or work in the special effects houses that fabricate costumes and creatures and they bring their personal projects the things they've sculpted whether digitally or practically and then their own garage kits
 
 [00:02:44] Jeremy: so is it a lot of classic monsters or is it
 
-[00:02:46] Norm: yeah it's a mix yeah so traditionally a lot of classic monsters i think classic classic monsters american monsters have a big presence universal monsters your wolfman's your Bride of Frankenstein’s your frankenstein's monsters all of that Stuff has still has a big presence. A lot of people with storied histories in those worlds, in the world of zombie makeup, and even like the the the legacies of the your your Karloffs, like their families are there. But you also have the modern takes on monsters. You have some Asian monsters. You have Godzilla is represented pretty well there.
+[00:02:46] Norm: yeah it's a mix yeah so traditionally a lot of classic monsters i think classic classic monsters american monsters have a big presence universal monsters your wolfman's your Bride of Frankenstein’s your frankenstein's monsters all of that Stuff has still has a big presence. A lot of people with storied histories in those worlds, in the world of zombie makeup, and even like the legacies of the your Karloffs, like their families are there. But you also have the modern takes on monsters. You have some Asian monsters. You have Godzilla is represented pretty well there.
 
 [00:03:23] Will: Does Totoro belong there?
 
@@ -100,7 +100,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:03:42] Will: like if he was a murderous Totoro.
 
-[00:03:44] Norm: Yeah, or you know, just
+[00:03:44] Norm: Yeah, or just
 
 [00:03:45] Will: I don’t like this.
 
@@ -128,13 +128,13 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:04:10] Norm: Yeah, I like it too.
 
-[00:04:10] Will: Yeah, yeah, I like the I like I like the Gareth Brown Godzilla too.
+[00:04:10] Will: Yeah, yeah, I like the Gareth Brown Godzilla too.
 
-[00:04:14] Norm: Uh, Gar uh, not Gareth, uh, Brown
+[00:04:14] Norm: Gar uh, not Gareth Brown
 
 [00:04:17] Will: Gareth Edwards. Sorry,
 
-[00:04:18] Norm: yes. Uh, and I think fans of classic Godzilla. I mean, Godzilla has so many forms. There's been modern takes in Godzilla, Godzilla 2000 Shin Godzilla,
+[00:04:18] Norm: yes. And I think fans of classic Godzilla. I mean, Godzilla has so many forms. There's been modern takes in Godzilla, Godzilla 2000 Shin Godzilla,
 
 [00:04:18] Jeremy: right?
 
@@ -142,13 +142,13 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:04:28] Jeremy: [unclear: rock song]
 
-[00:04:29] Norm: and this Godzilla, and then an animated Godzilla on Netflix. Uh, this Godzilla, I think is it's still a Toho production. It's an official canonical Godzilla.
+[00:04:29] Norm: and this Godzilla, and then an animated Godzilla on Netflix. This Godzilla, I think is it's still a Toho production. It's an official canonical Godzilla.
 
 [00:04:38] Will: It's a Godzilla ass Godzilla.
 
 [00:04:40] Jeremy: Heck yeah.
 
-[00:04:40] Norm: and you know from the trailers they're they're going full full monsters.
+[00:04:40] Norm: and you know from the trailers they're going full full monsters.
 
 [00:04:45] Will: Is is there a cosplay scene at Monsterpalooza, Norm?
 
@@ -156,11 +156,11 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:04:47] Will: Okay.
 
-[00:04:47] Norm: definitely people in costume. Whether it's things like the the It monster, right, the clown from It to
+[00:04:47] Norm: definitely people in costume. Whether it's things like the It monster, right, the clown from It to
 
 [00:04:56] Will: Pennywise,
 
-[00:04:56] Norm: yeah, Pennywise, that's right. Um. Also, a lot of like smaller horror movies. You'll you'll see some interesting takes on you know the Shining twins, some mashups. We brought the baby there, and he's wearing a red pinstripe
+[00:04:56] Norm: yeah, Pennywise, that's right. Also, a lot of like smaller horror movies. You'll you'll see some interesting takes on you know the Shining twins, some mashups. We brought the baby there, and he's wearing a red pinstripe
 
 [00:04:56] Jeremy: Mm-hmm.
 
@@ -236,23 +236,23 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:06:13] Will: may even become a monster himself. Who knows? Well,
 
-[00:06:15] Norm: one of our friends, George, who's a co-owner of Immortal Masks, was talking to him, and he has a kid who grew up, you know, watching the creatures that he was creating at the company and the films. And now he said that his son, who's a little older now, feigns being afraid, like I don't want to watch that too scary. He's like, No, it's not scary for you. You grew up with this stuff, so I think the kids, you know, and you have you guys have kids.
+[00:06:15] Norm: one of our friends, George, who's a co-owner of Immortal Masks, was talking to him, and he has a kid who grew up watching the creatures that he was creating at the company and the films. And now he said that his son, who's a little older now, feigns being afraid, like I don't want to watch that too scary. He's like, No, it's not scary for you. You grew up with this stuff, so I think the kids and you have you guys have kids.
 
 [00:06:37] Jeremy: I think it's a good move. Yeah, yeah. Maker Faire Monsterpalooza.
 
-[00:06:39] Norm: Exactly. That's right. Indoctrinate them in in the creature culture.
+[00:06:39] Norm: Exactly. That's right. Indoctrinate them in the creature culture.
 
-[00:06:42] Will: Yeah, and especially like old timey monster movies are more funny than scary now, because like they've seen real special effects. Our kids, they know they know what you can do.
+[00:06:42] Will: Yeah, and especially like old timey monster movies are more funny than scary now, because like they've seen real special effects. Our kids, they know what you can do.
 
 [00:06:42] Norm: Yeah.
 
 [00:06:42] Will: and you they watch some guy Lon Chaney, gluing some stuff on his face, and they think it's comedy, not not horror.
 
-[00:06:55] Norm: Right, so there's a we have a bunch of videos coming out in the next two weeks or so. Interviews with a lot of these effects artists and a lot of companies from overseas who came maybe their first time in the states to show at Monsterpalooza because they're international audience for for creature effects.
+[00:06:55] Norm: Right, so there's a we have a bunch of videos coming out in the next two weeks or so. Interviews with a lot of these effects artists and a lot of companies from overseas who came maybe their first time in the states to show at Monsterpalooza because they're international audience for creature effects.
 
 [00:07:13] Will: The workshops and stuff like that are always the most. It seemed like they'd be really interesting to me. Like if you want to learn how to get into resin casting or something like that, but are nervous about it for fear you'll you know do something dangerous or burn your house down or something. There are a lot of good sessions at something like Monster. Well,
 
-[00:07:26] Norm: you've talked directly to the manufacturers of these products, so like a lot of the artists have put their names on and worked with companies putting out different paints. So if you are looking for a paint for a project and you want something that will work with the material you're working with, whether that's a urethane silicone, whatever rubber, you can talk to the company and they have people there, reps. They give out samples. You can watch the demos, see how the paint works, or even casting materials like Smooth On has a big Booth there, you could talk with the reps and and figure out what's right for you. A lot of people experimenting with different molding, mold making materials. I think Joey told me, chatted with a rep for a company that makes a what was it, a gelatin base, a mold making material. So you it will harden, but then when you're done with the mold, if you want to reuse material, you can actually
+[00:07:26] Norm: you've talked directly to the manufacturers of these products, so like a lot of the artists have put their names on and worked with companies putting out different paints. So if you are looking for a paint for a project and you want something that will work with the material you're working with, whether that's a urethane silicone, whatever rubber, you can talk to the company and they have people there, reps. They give out samples. You can watch the demos, see how the paint works, or even casting materials like Smooth On has a big Booth there, you could talk with the reps and figure out what's right for you. A lot of people experimenting with different molding, mold making materials. I think Joey told me, chatted with a rep for a company that makes a what was it, a gelatin base, a mold making material. So you it will harden, but then when you're done with the mold, if you want to reuse material, you can actually
 
 [00:08:15] Will: heat it up. Wow, and it
 
@@ -268,7 +268,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:08:20] Jeremy: It's not a free show, is it?
 
-[00:08:21] Norm: No, it's not a free show. In fact, it's it's maybe it's getting really big. So it used to be in one of those like hotel convention centers, like the Burbank Marriott, and it moved to the Pasadena Convention Center, which is where DesignerCon used to be. And now it feels like it's been there for three or four years, and it's too big for that. Like it opens doors open at 11, and outside in the April heat in Southern California, you have like thousands of people waiting in line outside, waiting to get in, and waiting some people waiting to buy tickets.
+[00:08:21] Norm: No, it's not a free show. In fact, it's maybe it's getting really big. So it used to be in one of those like hotel convention centers, like the Burbank Marriott, and it moved to the Pasadena Convention Center, which is where DesignerCon used to be. And now it feels like it's been there for three or four years, and it's too big for that. Like it opens doors open at 11, and outside in the April heat in Southern California, you have like thousands of people waiting in line outside, waiting to get in, and waiting some people waiting to buy tickets.
 
 [00:08:52] Will: So so this was your first. Trip with the baby, right?
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:09:17] Will: It’s what everybody craves.
 
-[00:09:18] Norm: Will Will's in this week to guest on this. Only a test, and so we decided to talk. Save all our Star Wars conversation for Still Untitled, but then we're gonna roll right after recording this into this is only a test. So if you are listening to this on Tuesday, you'll get essentially the second half of this podcast, the the second two thirds
+[00:09:18] Norm: Will Will's in this week to guest on this. Only a test, and so we decided to talk. Save all our Star Wars conversation for Still Untitled, but then we're gonna roll right after recording this into this is only a test. So if you are listening to this on Tuesday, you'll get essentially the second half of this podcast, the second two thirds
 
 [00:09:18] Jeremy: on Thursday.
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:10:07] Will: Do they not know who you are?
 
-[00:10:09] Norm: I I guess.
+[00:10:09] Norm: I guess.
 
 [00:10:09] Will: Wow.
 
@@ -360,7 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:10:17] Jeremy: What happened?
 
-[00:10:18] Norm: I don't know what happened. Well, what happened there was there was a lot of lot of stuff. Like if there was a celebration to be at, I don't think I think this was the one, the big one to be at since the one right before Force Awakens, because unlike with the last two Star Wars films, and you guys know this, you guys were probably following it online, but unlike for Last Jedi and the Force Awakens, there was no footage, was no name even announced for the film until Celebration. Previously, they had done sizzle reels at Comic Con.
+[00:10:18] Norm: I don't know what happened. Well, what happened there was a lot of stuff. Like if there was a celebration to be at, I don't think I think this was the one, the big one to be at since the one right before Force Awakens, because unlike with the last two Star Wars films, and you guys know this, you guys were probably following it online, but unlike for Last Jedi and the Force Awakens, there was no footage, was no name even announced for the film until Celebration. Previously, they had done sizzle reels at Comic Con.
 
 [00:10:18] Will: That’s true.
 
@@ -368,9 +368,9 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:10:48] Will: one was just for the fans.
 
-[00:10:49] Norm: This is this is the first time, and people weren't even sure they're going to show any. Footage. I think people suspected that we were going to get a name.
+[00:10:49] Norm: This is the first time, and people weren't even sure they're going to show any. Footage. I think people suspected that we were going to get a name.
 
-[00:10:56] Will: This this movie is coming out this Christmas, right?
+[00:10:56] Will: This movie is coming out this Christmas, right?
 
 [00:10:58] Norm: This Christmas.
 
@@ -418,7 +418,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:11:48] Norm: Yeah, Will Will's on board the no no trailer.
 
-[00:11:51] Will: I like Joey's policy. I'm not I'm not I don't look down at the movie theater like Joey does. I watch them in the theater.
+[00:11:51] Will: I like Joey's policy. I'm not I don't look down at the movie theater like Joey does. I watch them in the theater.
 
 [00:11:55] Norm: I mean, you knew you were going to watch this movie anyway, but the curiosity I think probably overwhelmed.
 
@@ -426,7 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:11:59] Norm: you are.
 
-[00:12:00] Will: Well, and JJ JJ usually cuts pretty good trailers like that. If you think about that Force Awakens trailer, with the with the it had that it had what I would consider an iconic shot of the Millennium Falcon doing that loop-de-loop and him doing the crazy camera spins to make it look like Millennium Falcon is doing much cooler stuff. It's very good.
+[00:12:00] Will: Well, and JJ JJ usually cuts pretty good trailers like that. If you think about that Force Awakens trailer, with the it had that it had what I would consider an iconic shot of the Millennium Falcon doing that loop-de-loop and him doing the crazy camera spins to make it look like Millennium Falcon is doing much cooler stuff. It's very good.
 
 [00:12:17] Jeremy: I remember seeing the stabilized footage of that, and it was like actually it's not doing anything that complicated, but the camera work is.
 
@@ -450,13 +450,13 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:12:52] Norm: Oh, sure. which culminated in the special editions, which were
 
-[00:12:55] Will: it was like. Look, as a as a as a as a 20 year old who had never been able to see Star Wars or Empire Strikes Back in the theater, and who saw Return of the Jedi in like a Twin Plex that was that I have a TV larger than now, it was cool to get to see the re releases. Yeah, and then I went and watched the first special edition. Didn't go for the other two.
+[00:12:55] Will: it was like. Look, as a 20 year old who had never been able to see Star Wars or Empire Strikes Back in the theater, and who saw Return of the Jedi in like a Twin Plex that was that I have a TV larger than now, it was cool to get to see the re releases. Yeah, and then I went and watched the first special edition. Didn't go for the other two.
 
 [00:13:15] Jeremy: Okay. You didn't even see them.
 
 [00:13:16] Will: I mean, I watched them eventually because it was like I got them on video. But yeah, I never saw them in theater.
 
-[00:13:20] Jeremy: So yeah, and then so we we went through the prequels, and then we had the new ones, the JJ version. I feel like that's where we diverged. I feel like, as far as I understand it, you kind of like the new ones.
+[00:13:20] Jeremy: So yeah, and then so we went through the prequels, and then we had the new ones, the JJ version. I feel like that's where we diverged. I feel like, as far as I understand it, you kind of like the new ones.
 
 [00:13:30] Will: So I didn't like Force Awakens that much. I think it's very pretty and it's very well done, but I thought it was kind of a boring retread of the thing that we've already seen before.
 
@@ -480,7 +480,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:13:54] Jeremy: you like. you just like that.
 
-[00:13:56] Norm: Um, I really like Last Jedi. I, I really. I mean, we're not going. We're not going back to reviewing the Last Jedi.
+[00:13:56] Norm: I really like Last Jedi. I really. I mean, we're not going. We're not going back to reviewing the Last Jedi.
 
 [00:14:03] Will: Just to be clear,
 
@@ -490,7 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:14:05] Jeremy: Okay,
 
-[00:14:05] Norm: the casino scene. Uh, but I like everything about it.
+[00:14:05] Norm: the casino scene. But I like everything about it.
 
 [00:14:05] Jeremy: Okay,
 
@@ -528,7 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:14:47] Will: yeah
 
-[00:14:47] Jeremy: the new trailer the new teaser um I I went into it a little bit you know I guess optimistic because I I. Star Wars is a part of my childhood, and I'll always have that. And I want it to be good, but it it didn't it didn't hit me like the first scene didn't grab me, whereas it did seem to grab everybody else. That scene in the desert.
+[00:14:47] Jeremy: the new trailer the new teaser I I went into it a little bit you know I guess optimistic because I I. Star Wars is a part of my childhood, and I'll always have that. And I want it to be good, but it didn't hit me like the first scene didn't grab me, whereas it did seem to grab everybody else. That scene in the desert.
 
 [00:15:09] Will: first scene with her holding the lightsaber and standing facing down the TIE interceptor.
 
@@ -566,7 +566,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:15:59] Will: Look, it's an infinite universe. I
 
-[00:16:00] Norm: know, I know, but like the way Star Wars sets up, like, like Star Wars is interesting, right? Because the planets are like they're they're. If you are a desert planet, the whole planet is a desert. If you are an ice planet, yeah, they're all the whole planet, right? Right. So we've seen we've had two desert planets. I think it would be a stretch for them to introduce a yet another third, more complicate complicate the situation.
+[00:16:00] Norm: know, I know, but the way Star Wars sets up, like Star Wars is interesting, right? Because the planets are like they're. If you are a desert planet, the whole planet is a desert. If you are an ice planet, yeah, they're all the whole planet, right? Right. So we've seen we've had two desert planets. I think it would be a stretch for them to introduce a yet another third, more complicate complicate the situation.
 
 [00:16:21] Will: Jakku was originally a paradise that was destroyed by a battle between the Republic and the Empire.
 
@@ -588,7 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:16:44] Norm: the gloves. [unclear: They’re red, she’s coming in / They’re coming in]. She is bracing for it.
 
-[00:16:49] Jeremy: Well, she the trailer opens with her breathing very heavily, and then she. Centers herself, and I like that part. Like she, you can see her transition from, you know, almost from the beginning of her arc in this whole series as a, you know, an she's very unsure of herself to someone who's, you know, maybe in touch with the Force and and
+[00:16:49] Jeremy: Well, she the trailer opens with her breathing very heavily, and then she. Centers herself, and I like that part. Like she, you can see her transition from almost from the beginning of her arc in this whole series as a, you know, an she's very unsure of herself to someone who's maybe in touch with the Force and
 
 [00:17:07] Norm: the confidence is there
 
@@ -600,7 +600,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:17:09] Will: That there's a nice mirror there to the beginning of Return of the Jedi when you when Luke walks up to Jabba's palace and he's like, " Look, man, motherfucker's gonna get some shit done," and just walks in with no lightsaber and kicks some ass.
 
-[00:17:19] Jeremy: That's that's I don't remember him saying that, but
+[00:17:19] Jeremy: That's I don't remember him saying that, but
 
 [00:17:22] Norm: in as much words. It was a long time ago.
 
@@ -612,7 +612,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:17:32] Norm: it could be a training sequence.
 
-[00:17:35] Will: Mm-hmm. Oh no, that you don't, you don't
+[00:17:35] Will: Mm-hmm. Oh no, that you don't
 
 [00:17:36] Jeremy: training sequence.
 
@@ -622,15 +622,15 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:17:37] Will: You don’t play chicken with a space fighter
 
-[00:17:41] Norm: if you're if you're a badass Jedi?
+[00:17:41] Norm: if you're a badass Jedi?
 
-[00:17:43] Will: A A the pilot of that tie interceptor is a baller because he's flying like three feet off the ground, and if he messes up even a little bit, if there's a rock or something in his way, he's gonna die immediately before he gets the chance to ram her.
+[00:17:43] Will: A the pilot of that tie interceptor is a baller because he's flying like three feet off the ground, and if he messes up even a little bit, if there's a rock or something in his way, he's gonna die immediately before he gets the chance to ram her.
 
 [00:17:53] Norm: Right, so she braces. The lightsaber comes out. So there's lightsaber, and she still has the pistol, even though
 
 [00:18:01] Will: Luke style Empire Strikes Back style.
 
-[00:18:02] Norm: Yeah, and and then she flips, and presumably, [unclear: no—]
+[00:18:02] Norm: Yeah, and then she flips, and presumably, [unclear: no—]
 
 [00:18:06] Jeremy: no, you skipped the bad part. So she she what she does is she like she she gets in running stance right, and then she looks back over her shoulder.
 
@@ -690,7 +690,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:19:33] Will: Oof, Wow. Anyway, I like the trailer. I thought was pretty good. So like Lando. Oh, yeah, Lando's there.
 
-[00:19:40] Norm: It jumps through a bunch of quick cuts. Sorry, we have the first appearance of Billy Dee Williams as Lando. He's actually wearing a more Donald Glover solo Lando outfit. Yeah, with the the yellow cape. He
+[00:19:40] Norm: It jumps through a bunch of quick cuts. Sorry, we have the first appearance of Billy Dee Williams as Lando. He's actually wearing a more Donald Glover solo Lando outfit. Yeah, with the yellow cape. He
 
 [00:19:51] Will: still has a cape. I mean, he's a cape guy.
 
@@ -706,7 +706,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:20:17] Jeremy: Donald Glover was great in Solo, but yeah, I mean,
 
-[00:20:20] Will: I'm okay not remembering the Donald Glover. I like I like the Donald Glover that we saw in Solo. I love Donald Glover, but I'm okay walking away from that.
+[00:20:20] Will: I'm okay not remembering the Donald Glover. I like the Donald Glover that we saw in Solo. I love Donald Glover, but I'm okay walking away from that.
 
 [00:20:26] Norm: Lando's Billy Dee Williams.
 
@@ -720,7 +720,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:20:35] Will: Yeah, he's really happy.
 
-[00:20:35] Jeremy: It's it's good, nice to see him.
+[00:20:35] Jeremy: It's good, nice to see him.
 
 [00:20:36] Norm: He's back home
 
@@ -810,7 +810,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:22:08] Jeremy: That's not what I'm saying. I'm saying the movie.
 
-[00:22:10] Will: Well, fine, whatever. You take your take your movie canon. Name. Um,
+[00:22:10] Will: Well, fine, whatever. You take your movie canon. Name.
 
 [00:22:13] Norm: you have a shot of.
 
@@ -818,7 +818,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:22:14] Jeremy: Yeah.
 
-[00:22:14] Will: Because that's a bummer to me. Like the the the movie, when he destroys the helmet in the last movie, and he's like, and the and the Snoke says, " Hey, you got to let go of childish things, yada yada yada, get rid of all this stuff, get rid of the ridiculous helmet." It it is it is a clear turning point for that character, and if he goes back to putting the helmet together and rebuilding the helmet because he needs that crutch, but
+[00:22:14] Will: Because that's a bummer to me. Like the movie, when he destroys the helmet in the last movie, and he's like, and the Snoke says, " Hey, you got to let go of childish things, yada yada yada, get rid of all this stuff, get rid of the ridiculous helmet." It is a clear turning point for that character, and if he goes back to putting the helmet together and rebuilding the helmet because he needs that crutch, but
 
 [00:22:39] Norm: you never see him put on the helmet in the trailer. Yeah, in fact, when you see him in the ship, it's just Kylo Ren, without helmet.
 
@@ -828,7 +828,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:22:49] Will: Why is he rebuilding it if he’s not gonna wear it?
 
-[00:22:49] Jeremy: You're the expert on that movie, but that it seems to me that the that emo Ren is so full of uh you know being fickle about who he wants to be.
+[00:22:49] Jeremy: You're the expert on that movie, but that it seems to me that the that emo Ren is so full of you know being fickle about who he wants to be.
 
 [00:22:49] Will: Yeah.
 
@@ -844,17 +844,17 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:23:10] Will: I don't want to alarm you.
 
-[00:23:10] Jeremy: No, he but he fought right alongside the the lead hero of the
+[00:23:10] Jeremy: No, he but he fought right alongside the lead hero of the
 
 [00:23:15] Norm: story.
 
 [00:23:15] Will: Sometimes the enemy of my enemy is the enemy.
 
-[00:23:18] Norm: So I I think that in terms of uh the the arc of Kylo Ren um do we want to see him redeemed at all? Do you think they will we will see a redemption
+[00:23:18] Norm: So I I think that in terms of the arc of Kylo Ren do we want to see him redeemed at all? Do you think they will we will see a redemption
 
 [00:23:31] Jeremy: I defer to the expert.
 
-[00:23:33] Will: I I don't I don't know that he's a redeemable character.
+[00:23:33] Will: I don't know that he's a redeemable character.
 
 [00:23:36] Norm: I don't think he is either.
 
@@ -872,7 +872,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:23:53] Will: Presumably,
 
-[00:23:54] Norm: well, she is in the in the teaser.
+[00:23:54] Norm: well, she is in the teaser.
 
 [00:23:55] Will: she's in the trailer. Yeah, but I mean that's going to be the hug to send off.
 
@@ -882,7 +882,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:24:17] Will: I I just I don't I feel like, I mean knowing what we know after Attack of the Clones or or after Revenge of the Sith about Anakin and Vader, I that made me think that the redemption at the end of Return of the Jedi was bogus, right? Because after after Anakin goes in and kills a bunch of kid Jedi's, it's pretty hard to have a redemptive arc for him at that point,
 
-[00:24:44] Norm: right? And and Vader's redemption is only in is very narrowly focused. He is redeemed only in that he saves his son.
+[00:24:44] Norm: right? And Vader's redemption is only in is very narrowly focused. He is redeemed only in that he saves his son.
 
 [00:24:44] Will: Yeah,
 
@@ -890,7 +890,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:24:58] Will: Gets the blue force ghost.
 
-[00:24:59] Jeremy: Yeah, I'm with Norm on that one. You know, it's not all about like complete redemption. It's not like everything's in balance, but
+[00:24:59] Jeremy: Yeah, I'm with Norm on that one. It's not all about like complete redemption. It's not like everything's in balance, but
 
 [00:25:04] Will: well, but he gets the force ghost. He's hanging out with the Yoda and Obi-Wan.
 
@@ -912,13 +912,13 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:25:33] Will: Yeah.
 
-[00:25:33] Norm: So yeah, the the Emperor is back. This is confirmed. J J Abrams in interviews at Celebration said that he's glad to have him back. Um, Ian McDiarmid was on set, so it's not just going to be the voice.
+[00:25:33] Norm: So yeah, the Emperor is back. This is confirmed. J J Abrams in interviews at Celebration said that he's glad to have him back. Ian McDiarmid was on set, so it's not just going to be the voice.
 
 [00:25:44] Unknown (Jeremy or Norm): He will be in his body.
 
 [00:25:44] Jeremy: He was on stage at Celebration.
 
-[00:25:46] Norm: He was on stage at Celebration. We don't know if he is uh Palpatine in a corporeal form, in a force ghost, Sith ghost, whatever that means. Form.
+[00:25:46] Norm: He was on stage at Celebration. We don't know if he is Palpatine in a corporeal form, in a force ghost, Sith ghost, whatever that means. Form.
 
 [00:25:55] Will: Did you guys play Battlefront 2?
 
@@ -958,7 +958,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:26:39] Will: Endor.
 
-[00:26:39] Norm: are they actually on? And Endor is a gas. Is a is a gas giant.
+[00:26:39] Norm: are they actually on? And Endor is a gas. Is a gas giant.
 
 [00:26:39] Unknown (Will or Jeremy): It’s a moon.
 
@@ -978,19 +978,19 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:26:59] Will: I mean, I would assume that the forest moon of Endor, where the Ewoks live, got just all kinds of fucked up after the moon-sized space station blew up over it.
 
-[00:27:06] Jeremy: This is gonna mess with a lot of people's minds, also, because I think a lot of people, by the way, this is also small, but they all they all think Endor is this forest moon.
+[00:27:06] Jeremy: This is gonna mess with a lot of people's minds, also, because I think a lot of people, by the way, this is also small, but they all think Endor is this forest moon.
 
 [00:27:15] Norm: No,
 
 [00:27:15] Jeremy: Yeah, but it’s not.
 
-[00:27:15] Norm: Endor is the the planet that the moon revolves around.
+[00:27:15] Norm: Endor is the planet that the moon revolves around.
 
 [00:27:15] Jeremy: Exactly.
 
 [00:27:15] Norm: I think Endor's a gas. I want to say it’s a gas giant. So
 
-[00:27:21] Will: what's what's what's the what's the moon that called End like Steve?
+[00:27:21] Will: what's the moon that called End like Steve?
 
 [00:27:24] Norm: They whatever they want to call it.
 
@@ -1006,7 +1006,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:27:40] Jeremy: would.
 
-[00:27:40] Will: I mean, if the if the Death Star was orbiting the forest moon and it blows up, it's going to fall onto the forest moon.
+[00:27:40] Will: I mean, if the Death Star was orbiting the forest moon and it blows up, it's going to fall onto the forest moon.
 
 [00:29:01] Norm: What I love about
 
@@ -1018,7 +1018,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:29:43] Norm: all feel like sound stages.
 
-[00:29:44] Will: Well, I would say Knowhere is the one that really does Asgard. Knowhere don't because those feel like actual places. You know, they go in the bar in Knowhere, they go in the collector's room, yada yada. You don't think so?
+[00:29:44] Will: Well, I would say Knowhere is the one that really does Asgard. Knowhere don't because those feel like actual places. They go in the bar in Knowhere, they go in the collector's room, yada yada. You don't think so?
 
 [00:29:54] Jeremy: I'm with Norm. Very blue screeny.
 
@@ -1040,7 +1040,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:30:15] Will: After this movie,
 
-[00:30:16] Norm: they've reset a little bit, you know, after the performance of Solo and after Episode Nine, and and we should speculate a little bit about the the title, the Rise of Skywalker. But this will be the last Star Wars movie for a long time.
+[00:30:16] Norm: they've reset a little bit after the performance of Solo and after Episode Nine, and we should speculate a little bit about the title, the Rise of Skywalker. But this will be the last Star Wars movie for a long time.
 
 [00:30:28] Jeremy: For how long?
 
@@ -1054,13 +1054,13 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:30:44] Norm: As a joke, I think it could very well be the case.
 
-[00:30:47] Will: Oops. Um, I think that that is horrible if that's the case.
+[00:30:47] Will: Oops. I think that that is horrible if that's the case.
 
 [00:30:52] Norm: Just renaming things.
 
 [00:30:53] Will: I think renaming stuff for no purpose is really dopey.
 
-[00:30:56] Jeremy: I have no idea. I have no. The whole thing with with. Luke Skywalker is saying, as a Force ghost to Rey in the beginning, " 1,000 generations reside in you now." What does that?
+[00:30:56] Jeremy: I have no idea. I have no. The whole thing with. Luke Skywalker is saying, as a Force ghost to Rey in the beginning, " 1,000 generations reside in you now." What does that?
 
 [00:31:06] Will: It's a lot of pressure, man.
 
@@ -1068,7 +1068,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:31:07] Will: He’s just a kid.
 
-[00:31:07] Jeremy: but that he's Luke Skywalker, and like his father, Anakin, is long gone. What? How is the rise of Skywalker? I don't, I don't, I don't know what that means. I don't know what that.
+[00:31:07] Jeremy: but that he's Luke Skywalker, and like his father, Anakin, is long gone. What? How is the rise of Skywalker? I don't know what that means. I don't know what that.
 
 [00:31:19] Will: Well, did you know what she did when she jumped over that Tie fighter?
 
@@ -1076,7 +1076,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:31:23] Jeremy: and she rose. Yeah, no, I saw that one online. That was good.
 
-[00:31:26] Norm: Also, remember the end of Last Jedi? You had this, this, the final shot of the film was a kid,
+[00:31:26] Norm: Also, remember the end of Last Jedi? You had this, the final shot of the film was a kid,
 
 [00:31:26] Will: yeah,
 
@@ -1096,9 +1096,9 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:32:21] Will: I know there's going to be a damn big monster in there somewhere for no reason at all.
 
-[00:32:24] Norm: You didn't like the the rolling monsters inside the um.
+[00:32:24] Norm: You didn't like the rolling monsters inside the.
 
-[00:32:27] Will: No, inside the the Han Solo's new ship. No, boring.
+[00:32:27] Will: No, inside the Han Solo's new ship. No, boring.
 
 [00:32:27] Norm: Oh,
 
@@ -1106,7 +1106,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:32:33] Will: Unnecessary and boring.
 
-[00:32:34] Norm: And the movie apparently takes place a little while after as um Last Jedi, as opposed to Last Jedi.
+[00:32:34] Norm: And the movie apparently takes place a little while after as Last Jedi, as opposed to Last Jedi.
 
 [00:32:34] Will: [unclear: It’s a time skip / Is it a time skip?]
 
@@ -1120,7 +1120,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:32:48] Jeremy: What is a while? A while is not a year. The time.
 
-[00:32:50] Will: Look, there's no years in Star Wars. Which which which planet's year is it?
+[00:32:50] Will: Look, there's no years in Star Wars. Which planet's year is it?
 
 [00:32:54] Norm: Yeah, yeah.
 
@@ -1158,7 +1158,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:33:24] Will: like a disc.
 
-[00:33:25] Norm: Yes. That's awesome. A unicycle with a lamp on on the top.
+[00:33:25] Norm: Yes. That's awesome. A unicycle with a lamp on the top.
 
 [00:33:28] Will: That's really cool.
 
@@ -1202,19 +1202,19 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:33:57] Will: I think I mean here's the thing: JJ makes a pretty movie. Say what you will. Force Awakens was gorgeous. Little sparse sometimes, maybe.
 
-[00:34:04] Norm: So, also out of Star Wars Celebration, the two other big Star Wars announced one video game. Jedi: Fallen Order, which is from EA's Respawn Entertainment, makers of Titanfall, Apex Legends, and the previously Call of Duty before they they spun off, and they are doing a single player narrative game where you play a kid with force powers.
+[00:34:04] Norm: So, also out of Star Wars Celebration, the two other big Star Wars announced one video game. Jedi: Fallen Order, which is from EA's Respawn Entertainment, makers of Titanfall, Apex Legends, and the previously Call of Duty before they spun off, and they are doing a single player narrative game where you play a kid with force powers.
 
 [00:34:29] Jeremy: Looks like a spiritual successor to the Jedi Knight series. Yeah,
 
 [00:34:31] Norm: if it's that, that's.
 
-[00:34:33] Jeremy: But it looks like like serious force powers.
+[00:34:33] Jeremy: But it looks like serious force powers.
 
-[00:34:35] Will: They they and they explicitly said it. Actually, I think it looks more like Force Unleashed, like those games. If you think about them from the beginning of what the 360 generation,
+[00:34:35] Will: They and they explicitly said it. Actually, I think it looks more like Force Unleashed, like those games. If you think about them from the beginning of what the 360 generation,
 
 [00:34:44] Norm: Yeah.
 
-[00:34:45] Will: Um, it looks it looks. I mean, it looks. Respawn makes really gorgeous moving games.
+[00:34:45] Will: It looks. I mean, it looks. Respawn makes really gorgeous moving games.
 
 [00:34:50] Unknown (Norm or Will): Yeah,
 
@@ -1242,7 +1242,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:35:26] Will: nobody aimed a camera at the screen and put it on YouTube within moments of leaving the theater, nobody would ever do that.
 
-[00:35:32] Norm: I cannot advise whether that's that's something you can can or cannot do. But
+[00:35:32] Norm: I cannot advise whether that's something you can can or cannot do. But
 
 [00:35:37] Will: the casting’s bonkers.
 
@@ -1268,7 +1268,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:35:57] Norm: I want to see he's doing the pilot, but it is in the. Outskirts of the galaxy, or a far away from where all the action's happening, and it's about a bounty. It's a western. I they straight up call it a western.
 
-[00:36:10] Jeremy: I am so glad that people posted these videos because even the the shaky cam shots of the two trailer bits that they shared from the Mandalorian have me about 10 times as excited.
+[00:36:10] Jeremy: I am so glad that people posted these videos because even the shaky cam shots of the two trailer bits that they shared from the Mandalorian have me about 10 times as excited.
 
 [00:36:10] Norm: Really?
 
@@ -1282,7 +1282,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:36:26] Jeremy: It is. It's five years after Jedi. I mean, it is the right time period for me, and it's just what I'm looking for.
 
-[00:36:33] Will: So, um, is does this rise from the footage? Is this like were they making this as a movie and then they're deciding to adapt into a series?
+[00:36:33] Will: So is does this rise from the footage? Is this like were they making this as a movie and then they're deciding to adapt into a series?
 
 [00:36:43] Norm: They 100% launch this as a series for Disney Plus.
 
@@ -1310,7 +1310,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:37:07] Jeremy: He was in Solo.
 
-[00:37:09] Norm: He was the the pilot with the four arms.
+[00:37:09] Norm: He was the pilot with the four arms.
 
 [00:37:11] Will: Yeah,
 
@@ -1356,21 +1356,21 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:38:09] Will: Werner Herzog is great in everything.
 
-[00:38:10] Jeremy: If you you gotta seek out this trailer just for his scene because he knocks it out of the park.
+[00:38:10] Jeremy: If you gotta seek out this trailer just for his scene because he knocks it out of the park.
 
-[00:38:14] Norm: Yeah. You have stormtroopers in this because it is you know in the wake of of Return of the Jedi. No lightsabers that we can see.
+[00:38:14] Norm: Yeah. You have stormtroopers in this because it is you know in the wake of Return of the Jedi. No lightsabers that we can see.
 
 [00:38:14] Will: Gina Carano is who you’re thinking about.
 
 [00:38:14] Norm: Yes, Gina Carano. That's that's the actress.
 
-[00:38:25] Jeremy: You know, I don't. Just give me a good story. This great bounty hunter stuff. It's like the hero of this of this movie. I'm sorry, of this TV series looks like it's going to be kind of like a. He's going to walk the line between the good and the bad.
+[00:38:25] Jeremy: I don't. Just give me a good story. This great bounty hunter stuff. It's like the hero of this movie. I'm sorry, of this TV series looks like it's going to be kind of like a. He's going to walk the line between the good and the bad.
 
 [00:38:25] Norm: Yeah, antihero.
 
 [00:38:25] Jeremy: Yeah, exactly. It's. I think it's going to be super fascinating to see what the life of bounty hunters like.
 
-[00:38:42] Norm: Incredible confidence. You know, gunslinger.
+[00:38:42] Norm: Incredible confidence. Gunslinger.
 
 [00:38:45] Jeremy: Exactly. Like there's a scene with four stormtroopers, and the troopers are like, " We got you four to one." He's like, " I like these odds." I mean,
 
@@ -1378,7 +1378,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:38:45] Jeremy: couldn't be more cliche, but it's like I'm I'm on board.
 
-[00:38:55] Will: Did you did you did they was Nick Nolte in the things that they leaked? I didn't see him.
+[00:38:55] Will: Did you did they was Nick Nolte in the things that they leaked? I didn't see him.
 
 [00:38:58] Norm: I didn't see Nick Nolte,
 
@@ -1392,13 +1392,13 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:39:08] Will: What?
 
-[00:39:09] Norm: I believe it is IG11, but it is of that same class of robots. These bounty these robots that then turn on their um their
+[00:39:09] Norm: I believe it is IG11, but it is of that same class of robots. These bounty these robots that then turn on their
 
 [00:39:17] Jeremy: their sentry mode,
 
 [00:39:18] Norm: their owners, and then start becoming bounty hunters.
 
-[00:39:20] Will: So I didn't I didn't engage with a lot of the old extended universe in Star Wars, but one of the things I did read was Tales of the Bounty Hunters by Kevin J. Anderson, I think, and it tells the story of IG88 and and his plan to take over to incite a droid revolution that kills all the organic. It's very good. It's one of the best pieces of short fiction related to Star Wars that I think I've read in a long time.
+[00:39:20] Will: So I didn't engage with a lot of the old extended universe in Star Wars, but one of the things I did read was Tales of the Bounty Hunters by Kevin J. Anderson, I think, and it tells the story of IG88 and his plan to take over to incite a droid revolution that kills all the organic. It's very good. It's one of the best pieces of short fiction related to Star Wars that I think I've read in a long time.
 
 [00:39:42] Norm: That's one of the great things about Star Wars. You have these cast of characters that appear in like one or two scenes in
 
@@ -1410,7 +1410,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:39:58] Norm: the things we saw.
 
-[00:39:59] Will: I mean, that's kind of my hope. With this hiatus, like my the thing that left me excited about Last Jedi is that they were opening up the world of Star Wars to have more Jedi and more more conflict and more interesting things happening in more places. And I was hoping that that was their gradual transition to make this more of a Marvel Cinematic Universe, where instead of telling stories that are segments of time, they take a story and move it forward from that point. Like like they have you know if you look at the Avenger the Marvel Universe, there have been what like two movies that were that were that were set in the past over the whole run flashbacks, and everything else has been starting with Iron Man moving forward. So you know I think that that gives you it it makes telling the story and watching those movies for me as a movie watcher more urgent and kind of more connected. Makes me feel more connected to the whole thing.
+[00:39:59] Will: I mean, that's kind of my hope. With this hiatus, like my the thing that left me excited about Last Jedi is that they were opening up the world of Star Wars to have more Jedi and more more conflict and more interesting things happening in more places. And I was hoping that that was their gradual transition to make this more of a Marvel Cinematic Universe, where instead of telling stories that are segments of time, they take a story and move it forward from that point. Like they have you know if you look at the Avenger the Marvel Universe, there have been what like two movies that were set in the past over the whole run flashbacks, and everything else has been starting with Iron Man moving forward. So you know I think that that gives you it makes telling the story and watching those movies for me as a movie watcher more urgent and kind of more connected. Makes me feel more connected to the whole thing.
 
 [00:40:52] Jeremy: Yeah, that's why you got two a year from Marvel
 
@@ -1418,11 +1418,11 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:40:55] Jeremy: and like one every. I guess one every year. They tried to do one every year for Star Wars, but only every other year for the main series. Yeah,
 
-[00:41:03] Will: yeah. Well, but I mean, I think I think by having them by having the idea of a main series is probably what's hurt them because it meant people felt like they could skip Solo,
+[00:41:03] Will: yeah. Well, but I mean, I think by having them by having the idea of a main series is probably what's hurt them because it meant people felt like they could skip Solo,
 
 [00:41:11] Norm: and also not like they put too much pressure on the main series to be yeah a perfect movie.
 
-[00:41:16] Will: Yeah. Well, and also the the frankly also those in between movies like just the fact that Solo only made like $1 billion instead of $1.5 billion or $2 billion or whatever makes it a disappointment and and that's like that's a tough thing to do if you are going back and you are telling story if you are if if you are if your pitch for the movie is hey what if we explain why the Kessel Run was 12 parsecs instead of a length of time you know it's hard to get people excited about that I think
+[00:41:16] Will: Yeah. Well, and also the frankly also those in between movies like just the fact that Solo only made like $1 billion instead of $1.5 billion or $2 billion or whatever makes it a disappointment and that's like that's a tough thing to do if you are going back and you are telling story if you are if your pitch for the movie is hey what if we explain why the Kessel Run was 12 parsecs instead of a length of time you know it's hard to get people excited about that I think
 
 [00:41:43] Norm: yeah I think there is less pressure on the Mandalorian and people are gonna be more forgiving for it and
 
@@ -1436,7 +1436,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:41:56] Will: oh oh
 
-[00:41:57] Norm: part two part two that that seems a little too much technology
+[00:41:57] Norm: part two that that seems a little too much technology
 
 [00:42:00] Will: okay okay.
 
@@ -1492,19 +1492,19 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:43:33] Will: And we're well, and a bunch of Asian cinema and a bunch of other stuff.
 
-[00:43:36] Jeremy: Well, absolutely, like stylistically, but like the the thrust of the story was because you know it's basically like the Cold War,
+[00:43:36] Jeremy: Well, absolutely, like stylistically, but like the thrust of the story was because you know it's basically like the Cold War,
 
 [00:43:36] Will: Yeah.
 
 [00:43:36] Jeremy: and we we're beyond that now. We have we have different fears and different you know struggles, and some of them are internal now, especially in our country. And I feel like like maybe that's where the story needs to go if it wants to touch the same heartstones.
 
-[00:43:56] Norm: Well, also storytelling is different now because there's so many other good stories that have. Taken what Star Wars did and and and done that right,
+[00:43:56] Norm: Well, also storytelling is different now because there's so many other good stories that have. Taken what Star Wars did and done that right,
 
 [00:43:56] Jeremy: right
 
-[00:43:56] Norm: So it probably wants to feel different. I think Star Wars as a franchise and as Lucasfilm as a company probably doing a little bit soul searching and and but they also have these characters that people love, and so we're going to still see more of those. I would love to see a new Star Wars trilogy that has nothing to do with any of the characters or any of the things we've seen before.
+[00:43:56] Norm: So it probably wants to feel different. I think Star Wars as a franchise and as Lucasfilm as a company probably doing a little bit soul searching and but they also have these characters that people love, and so we're going to still see more of those. I would love to see a new Star Wars trilogy that has nothing to do with any of the characters or any of the things we've seen before.
 
-[00:44:23] Will: I mean, I think that's like I would like to see them move away from Skywalker. Is ironically right. I mean, so far everything about Star Wars has been about these this this kind of fucked up family and the stuff that I'm interested about. Like my favorite Star Wars game is still Dark Forces because you got to play the special agent that broke in and steal the Death Star plans.
+[00:44:23] Will: I mean, I think that's like I would like to see them move away from Skywalker. Is ironically right. I mean, so far everything about Star Wars has been about these this kind of fucked up family and the stuff that I'm interested about. Like my favorite Star Wars game is still Dark Forces because you got to play the special agent that broke in and steal the Death Star plans.
 
 [00:44:41] Jeremy: Kyle Katarn.
 
@@ -1512,7 +1512,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:44:45] Jeremy: Yeah.
 
-[00:44:45] Will: Um. So so I I hope I I mean from a business side I'm sure that they're sitting back and saying okay what's our 10 what's our five year what's our 10 year what's our 20 year plan for this and you know if you look at what they did with MCU. MCU started with Iron Man, and then they were like, " Okay, well, let's let's let's make this about the Avengers." And they figured out we need three movies to do that.
+[00:44:45] Will: So so I I hope I I mean from a business side I'm sure that they're sitting back and saying okay what's our 10 what's our five year what's our 10 year what's our 20 year plan for this and you know if you look at what they did with MCU. MCU started with Iron Man, and then they were like, " Okay, well, let's let's let's make this about the Avengers." And they figured out we need three movies to do that.
 
 [00:44:45] Jeremy: Yeah,
 
@@ -1538,7 +1538,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:45:44] Will: What's on the site this week, Norm? Anything exciting?
 
-[00:45:45] Norm: Yes, Monsterpalooza stuff is on the site. We have some past videos. A build he built with a sword build he did with Peter Lyon. Weta Workshop is going to be on the site on YouTube for everyone to watch. That's like an hour, 20 minute. Long, uh, one day build, uh, and the project that Jeremy did, uh, with Sean last year in building a arcade cabinet called Star Lords, uh, that project is rolling out on YouTube as well.
+[00:45:45] Norm: Yes, Monsterpalooza stuff is on the site. We have some past videos. A build he built with a sword build he did with Peter Lyon. Weta Workshop is going to be on the site on YouTube for everyone to watch. That's like an hour, 20 minute. Long one day build and the project that Jeremy did with Sean last year in building a arcade cabinet called Star Lords that project is rolling out on YouTube as well.
 
 [00:46:13] Jeremy: That's a good one. It's a long series, six seven parts, but it's worth it. It's a lot of fun watching that.
 
@@ -1546,7 +1546,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:46:18] Jeremy: It's a six month build we did. Yeah, intense.
 
-[00:46:21] Will: What? Um, I guess that'll do it for us this week then.
+[00:46:21] Will: What? I guess that'll do it for us this week then.
 
 [00:46:24] Norm: I think so.
 

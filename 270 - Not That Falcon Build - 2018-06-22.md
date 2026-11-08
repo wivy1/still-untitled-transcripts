@@ -28,23 +28,23 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:00:48] Will: Yeah, remember that? I'm going to be on tour. I'm going to shoot 20 episodes of MythBusters this year. We work like 10 hours a day.
 
-[00:00:57] Adam: Um, I was spent all day yesterday at different doctors.
+[00:00:57] Adam: I was spent all day yesterday at different doctors.
 
 [00:01:00] Will: Oh, that sounds fun.
 
-[00:01:01] Adam: It was. It was productive. In the afternoon, I went and had oral surgery. I I had two implants put in for two new teeth over here on my left side, and I had a carved up molar removed. Three.
+[00:01:01] Adam: It was. It was productive. In the afternoon, I went and had oral surgery. I had two implants put in for two new teeth over here on my left side, and I had a carved up molar removed. Three.
 
 [00:01:16] Norm: Wow.
 
 [00:01:16] Will: Oh wow.
 
-[00:01:17] Adam: Yeah, and it was fine. I actually didn't notice notice a thing. They put me under, you know, anesthesia, so the whole thing felt like it lasted about four minutes to me.
+[00:01:17] Adam: Yeah, and it was fine. I actually didn't notice notice a thing. They put me under anesthesia, so the whole thing felt like it lasted about four minutes to me.
 
 [00:01:25] Will: Oh, that's always good.
 
 [00:01:26] Adam: The dentistry is really great these days.
 
-[00:01:28] Will: Dental anesthesia is really really fun. When I had my wisdom teeth out, my anesthesiologist walked in after they'd already given me the first the let's get you loose shot. Yeah. And he said he said Will Smith, Will Smith, and shook my hand because his name also was Will Smith,
+[00:01:28] Will: Dental anesthesia is really really fun. When I had my wisdom teeth out, my anesthesiologist walked in after they'd already given me the first the let's get you loose shot. Yeah. And he said Will Smith, and shook my hand because his name also was Will Smith,
 
 [00:01:28] Norm: Really?
 
@@ -62,15 +62,15 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:01:57] Will: Yeah.
 
-[00:01:57] Adam: So then I went to I went to my GP and found out that I have tennis elbow.
+[00:01:57] Adam: So then I went to my GP and found out that I have tennis elbow.
 
 [00:01:57] Will: What
 
-[00:01:57] Adam: my my left arm has been hurting more and more over the past couple of months.
+[00:01:57] Adam: my left arm has been hurting more and more over the past couple of months.
 
 [00:01:57] Will: Mm-hmm.
 
-[00:01:57] Adam: It's been it's been difficult to do things like twist the caps off of bottles.
+[00:01:57] Adam: It's been difficult to do things like twist the caps off of bottles.
 
 [00:02:15] Will: Oh, old man, pain.
 
@@ -86,7 +86,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:02:42] Will: That's really good.
 
-[00:02:43] Adam: So I'm going to go to some PT and and learn some exercises and
+[00:02:43] Adam: So I'm going to go to some PT and learn some exercises and
 
 [00:02:46] Will: Just strengthen that thing up.
 
@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:03:07] Adam: I don’t mean to get too technical.
 
-[00:03:08] Norm: Yeah. How how do they diagnose it? Like, what did you tell them? you do to, to.
+[00:03:08] Norm: Yeah. How how do they diagnose it? Like, what did you tell them? you do to.
 
 [00:03:13] Adam: They asked some hilarious questions, like, " Have you fallen in the past couple years?" And I was like, " Sure."
 
@@ -112,7 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:03:32] Will: Do you know who you're dealing with?
 
-[00:03:33] Adam: I well, they did, but they have to go through these questions, and then she um she felt this arm,
+[00:03:33] Adam: I well, they did, but they have to go through these questions, and then she felt this arm,
 
 [00:03:33] Will: yeah,
 
@@ -124,7 +124,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:03:53] Will: I'm really good at hitting out of the park. I get home runs all the time.
 
-[00:03:55] Adam: Like, that's I keep thinking of that. That's what Tom Hanks' character does to to and to not endear himself to his wife's new family in the movie Bachelor Party.
+[00:03:55] Adam: Like, that's I keep thinking of that. That's what Tom Hanks' character does to and to not endear himself to his wife's new family in the movie Bachelor Party.
 
 [00:04:05] Will: I’ve never actually seen Bachelor Party.
 
@@ -140,11 +140,11 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:04:20] Will: That's absolutely true.
 
-[00:04:21] Adam: He's the writer of Doubt and many other really important and amazing plays, but also wrote and directed Joe versus the volcano. In fact, we have a perfect replica of the of the hula girl lamp.
+[00:04:21] Adam: He's the writer of Doubt and many other really important and amazing plays, but also wrote and directed Joe versus the volcano. In fact, we have a perfect replica of the hula girl lamp.
 
 [00:04:21] Will: Oh right!
 
-[00:04:21] Adam: Because it turns out that the hula girl lamp is based on a a pottery line of tiki pottery that you can still buy. And then my friend Mark Yturralde from Comic Con, San Diego Comic Con, had some replicas made of the lampshade, and so my wife's bedside table is the lamp from Joe versus the volcano.
+[00:04:21] Adam: Because it turns out that the hula girl lamp is based on a pottery line of tiki pottery that you can still buy. And then my friend Mark Yturralde from Comic Con, San Diego Comic Con, had some replicas made of the lampshade, and so my wife's bedside table is the lamp from Joe versus the volcano.
 
 [00:04:21] Will: Awesome!
 
@@ -160,13 +160,13 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:05:07] Adam: I have to do that. Like on MythBusters.
 
-[00:05:09] Norm: Of course, of course, it makes sense. Yeah.
+[00:05:09] Norm: Of course, it makes sense. Yeah.
 
 [00:05:09] Adam: On MythBusters, because of the production schedule, I had four root canals in one day.
 
 [00:05:09] Norm: Oh. Wow.
 
-[00:05:09] Adam: My my my the the tooth doctor needed a drink more than I did at the end.
+[00:05:09] Adam: My the tooth doctor needed a drink more than I did at the end.
 
 [00:05:22] Norm: Yeah. You get a lot of mileage.
 
@@ -174,13 +174,13 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:05:23] Adam: Yeah. He was beat.
 
-[00:05:26] Will: So you you you you know this, Norm? You probably haven't experienced this yet. There's a moment when you're in your like let's say mid 30s when you go to the doctor and you say, you know some you you describe some pain that is new to you, and the doctor is like, well, yep, that's a thing that happens.
+[00:05:26] Will: So you know this, Norm? You probably haven't experienced this yet. There's a moment when you're in your like let's say mid 30s when you go to the doctor and you say some you describe some pain that is new to you, and the doctor is like, well, yep, that's a thing that happens.
 
 [00:05:26] Adam: Yeah.
 
 [00:05:26] Will: That's you've got the old.
 
-[00:05:43] Adam: My my wife needed glasses, and the guy was the doctor was like, yeah, you need glasses, and she's like, I've never needed glasses before, and he's like, how old are you? 42, and she's like, uh,
+[00:05:43] Adam: My wife needed glasses, and the guy was the doctor was like, yeah, you need glasses, and she's like, I've never needed glasses before, and he's like, how old are you? 42, and she's like
 
 [00:05:52] Will: yeah. Like
 
@@ -204,7 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:06:03] Norm: Yeah. Hey, last week, one of the things that we didn't talk about was what you had done just that weekend before.
 
-[00:06:11] Adam: That was a crazy, crazy, crazy thing we we left out.
+[00:06:11] Adam: That was a crazy, crazy, crazy thing we left out.
 
 [00:06:13] Norm: Yeah, you were in New Mexico of all places.
 
@@ -226,19 +226,19 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:07:04] Will: Okay.
 
-[00:07:04] Adam: And then also out of that same initiative to to galvanize making into the next stage and to really train a new generation of digital natives on this equipment, 3D printing, rapid prototyping, nation of makers grew.
+[00:07:04] Adam: And then also out of that same initiative to galvanize making into the next stage and to really train a new generation of digital natives on this equipment, 3D printing, rapid prototyping, nation of makers grew.
 
 [00:07:28] Norm: And not just the people who go to makerspaces, but specifically people who run makerspaces.
 
-[00:07:32] Adam: Well, so nation of makers is to help the the the the directors. It's helped anyone who wants to start a makerspace share best practices, curricula, fundraising tips, the legal aspects, the insurance aspects. All of these are something just setting up your own hackerspace includes this whole cascade of stuff.
+[00:07:32] Adam: Well, so nation of makers is to help the directors. It's helped anyone who wants to start a makerspace share best practices, curricula, fundraising tips, the legal aspects, the insurance aspects. All of these are something just setting up your own hackerspace includes this whole cascade of stuff.
 
 [00:07:51] Will: It's like an instruction manual for start, and it's something that didn't exist before. I mean, Dale Dougherty over at Make had done some work with that with schools and stuff like that years ago.
 
 [00:07:51] Adam: Sure, Absolutely,
 
-[00:07:51] Will: but there was no kind of hey, here is here is the safe legal. Like non, not you're not going to be super liable way to do this.
+[00:07:51] Will: but there was no kind of hey, here is the safe legal. Like non, not you're not going to be super liable way to do this.
 
-[00:08:07] Adam: And it's not that no one's, and it's also not that no one's doing this. Maker spaces across the country are seeking to share their best practices with each other and are building, building, you know, books, theoretical books of knowledge about what they're doing, and they're dying to share it. And they have been. We're just looking to help that conversation happen on a national level. So, 400 people convened on Santa Fe to talk about what are the important issues with us for us all around making, and it was really, it was super inspiring. Jen Schachter was there. I helped her build a six and a half foot tall Rosie the Riveter out of 2,600 separate bricks printed by over 700 maker spaces on six continents.
+[00:08:07] Adam: And it's not that no one's, and it's also not that no one's doing this. Maker spaces across the country are seeking to share their best practices with each other and are building, building books, theoretical books of knowledge about what they're doing, and they're dying to share it. And they have been. We're just looking to help that conversation happen on a national level. So, 400 people convened on Santa Fe to talk about what are the important issues with us for us all around making, and it was really, it was super inspiring. Jen Schachter was there. I helped her build a six and a half foot tall Rosie the Riveter out of 2,600 separate bricks printed by over 700 maker spaces on six continents.
 
 [00:08:07] Will: Yeah.
 
@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:08:58] Adam: You lazy, lazy, cold.
 
-[00:09:02] Norm: The the project which is run by the Build Project specifically run by We the Builders
+[00:09:02] Norm: The project which is run by the Build Project specifically run by We the Builders
 
 [00:09:07] Adam: We the Builders which is a Todd Blatt and Jen Schachter
 
@@ -272,7 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:09:36] Norm: Oh.
 
-[00:09:36] Adam: and so everyone who got a piece put the number of the piece on it its orientation was something that I'm gonna I want to say we figured out but frankly I showed up on the second day of building and did a lot of the glory help the actual legwork was done by a whole team of people and under Jen and Todd's Incredible stewardship, and there was lots of, you know. Wait, does this one go? There's eight positions for every,
+[00:09:36] Adam: and so everyone who got a piece put the number of the piece on it its orientation was something that I'm gonna I want to say we figured out but frankly I showed up on the second day of building and did a lot of the glory help the actual legwork was done by a whole team of people and under Jen and Todd's Incredible stewardship, and there was lots of. Wait, does this one go? There's eight positions for every,
 
 [00:10:11] Will: yeah,
 
@@ -284,7 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:10:15] Will: yeah,
 
-[00:10:15] Adam: and deeply satisfying to figure, shunk shunk shunk, and figure it out, and then gluing it all together with with with caulk
+[00:10:15] Adam: and deeply satisfying to figure, shunk shunk shunk, and figure it out, and then gluing it all together with caulk
 
 [00:10:15] Unknown speaker: Mm-hmm.
 
@@ -316,7 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:11:22] Will: Oh, that's so good.
 
-[00:11:22] Adam: So they rattled around. People signed it. People wrote special things on them. I mean, it was the the the the feeling of group involvement was infused throughout the whole thing, and that is terrifically indicative of the whole of NOMCON. It it really felt like that all the way through. And in the beginning, many of the members of the board of directors and other friends of NOMCON got to Santa Fe by taking the train from Los Angeles.
+[00:11:22] Adam: So they rattled around. People signed it. People wrote special things on them. I mean, it was the feeling of group involvement was infused throughout the whole thing, and that is terrifically indicative of the whole of NOMCON. It really felt like that all the way through. And in the beginning, many of the members of the board of directors and other friends of NOMCON got to Santa Fe by taking the train from Los Angeles.
 
 [00:11:22] Norm: Yes,
 
@@ -332,7 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:11:50] Will: just yesterday, and she said it was a transformative experience.
 
-[00:11:55] Adam: Dude, we got to take the train. So I've taken many trains. I've talked about on the podcast before. I love the trains. My favorite method of conveyance. But doing it with a whole bunch of people, you know.
+[00:11:55] Adam: Dude, we got to take the train. So I've taken many trains. I've talked about on the podcast before. I love the trains. My favorite method of conveyance. But doing it with a whole bunch of people.
 
 [00:12:05] Will: Yeah,
 
@@ -352,13 +352,13 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:12:27] Will: Well, so so my friend was saying that like they you guys set up the meals, you asked the conductor to set up the meals so that all of your group would kind of be seated in the same sitting, and you'd be able to like mix and mingle and meet new people every time. And she said it was amazing.
 
-[00:12:42] Adam: It's exactly how it went. It was really lovely, and the observation car too. We would like get up really early and look at, and so you you you leave Los Angeles at like six p.m. You have dinner, you see the view of you know the various Los Angeles train stations on your way out west, east, sorry, and then you wake up and you're in the desert and The view out the window feels like it could be Wild Wild West. You know, it is. It's just it hasn't changed in 150 years since
+[00:12:42] Adam: It's exactly how it went. It was really lovely, and the observation car too. We would like get up really early and look at, and so you leave Los Angeles at like six p.m. You have dinner, you see the view of you know the various Los Angeles train stations on your way out west, east, sorry, and then you wake up and you're in the desert and The view out the window feels like it could be Wild Wild West. You know, it is. It's just it hasn't changed in 150 years since
 
 [00:13:09] Norm: they built
 
-[00:13:09] Adam: that train. Yeah, and it's super gorgeous everywhere they stop. You feel a little bit different, you know, of that desert weather. It was great. It was a terrific way to get into the zone.
+[00:13:09] Adam: that train. Yeah, and it's super gorgeous everywhere they stop. You feel a little bit different of that desert weather. It was great. It was a terrific way to get into the zone.
 
-[00:13:21] Will: It reminded me of the train jam, which is a thing that happens in the springtime before GDC. So, a bunch of game developers get on a. They they basically buy out the entire train. It runs from Chicago to Emeryville, and they get on in Chicago. And by the end of the thing, then there've like been 20 teams. The teams form spontaneously out of people on the jam. I mean, some people bring their own teams, I guess. And then they present the games at GDC when they get here, and it's like a four-day long. Jason did that. Jason Imms, one of our former staff writers from before your time went on the ride two two or three years ago and covered it and said
+[00:13:21] Will: It reminded me of the train jam, which is a thing that happens in the springtime before GDC. So, a bunch of game developers get on a. They basically buy out the entire train. It runs from Chicago to Emeryville, and they get on in Chicago. And by the end of the thing, then there've like been 20 teams. The teams form spontaneously out of people on the jam. I mean, some people bring their own teams, I guess. And then they present the games at GDC when they get here, and it's like a four-day long. Jason did that. Jason Imms, one of our former staff writers from before your time went on the ride two two or three years ago and covered it and said
 
 [00:13:59] Adam: It’s a great train ride.
 
@@ -404,7 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:15:49] Adam: yeah
 
-[00:15:49] Norm: and then this year for San Diego it's gonna it's gonna be Star Wars themed
+[00:15:49] Norm: and then this year for San Diego it's gonna be Star Wars themed
 
 [00:15:54] Adam: ooh yeah yeah and we are helping test as part of this.
 
@@ -424,7 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:16:10] Adam: No, it's really feel good all the way down.
 
-[00:16:12] Will: Oh, that's like I, you, you see little kids looking at cosplay and engaging in cosplay at Maker Faire at Comic Con wherever it is, and and it's such it's like my daughter went to we went to the Incredibles. My daughter put on we we made a Violet costume for her,
+[00:16:12] Will: Oh, that's like I, you see little kids looking at cosplay and engaging in cosplay at Maker Faire at Comic Con wherever it is, and it's such it's like my daughter went to we went to the Incredibles. My daughter put on we made a Violet costume for her,
 
 [00:16:12] Adam: yeah,
 
@@ -436,19 +436,19 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:16:30] Adam: Copy.
 
-[00:16:30] Will: Um, but yeah, it's uh, it's it like the kids would be excluded of that because they're in a wheelchair. Blows, and it's awesome that people are. I mean, that's rad, and
+[00:16:30] Will: But yeah, it's it like the kids would be excluded of that because they're in a wheelchair. Blows, and it's awesome that people are. I mean, that's rad, and
 
 [00:16:44] Adam: it's been growing exponentially every single year.
 
 [00:16:44] Will: That's awesome.
 
-[00:16:44] Adam: Yeah, it's really great. So, uh, yeah, NOMCON was really inspirational, and again, the the confluence of different people from all over the world. Um, I I I met some kids from the Navajo Nation and their makerspace and stuff that they're doing was really inspiring. Uh, actually, some of the folks I met there were. We're actively donating tools to MythBusters Junior, and I got to see them again this week as they were setting some of those rapid prototyping tools up on our set.
+[00:16:44] Adam: Yeah, it's really great. So, uh, yeah, NOMCON was really inspirational, and again, the confluence of different people from all over the world. I met some kids from the Navajo Nation and their makerspace and stuff that they're doing was really inspiring. Actually, some of the folks I met there were. We're actively donating tools to MythBusters Junior, and I got to see them again this week as they were setting some of those rapid prototyping tools up on our set.
 
 [00:16:44] Norm: Oh, awesome!
 
-[00:16:44] Adam: Yeah, it's it feels like we are gen. It feels like we're at the beginning of a wonderful long-term community, beneficial set of relationships. That's what that's what it felt like.
+[00:16:44] Adam: Yeah, it's it feels like we are gen. It feels like we're at the beginning of a wonderful long-term community, beneficial set of relationships. That's what it felt like.
 
-[00:17:29] Will: I mean, this this has been going on for what 15 years, almost 20 years, almost. Maker
+[00:17:29] Will: I mean, this has been going on for what 15 years, almost 20 years, almost. Maker
 
 [00:17:34] Norm: spaces and hackerspaces.
 
@@ -456,13 +456,13 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:17:35] Adam: Yeah, no, Make came around in 2004.
 
-[00:17:38] Will: Yeah, so we're we're coming up on on on 16, 14, 15 years next year. I guess
+[00:17:38] Will: Yeah, so we're coming up on 16, 14, 15 years next year. I guess
 
-[00:17:44] Adam: it's the thing that I kept saying is that it was felt so lucky that MythBusters came of age of alongside the whole maker movement and got to like hand in hand to a certain extent, you know, to to be part of that. It felt like the most ideal time for that.
+[00:17:44] Adam: it's the thing that I kept saying is that it was felt so lucky that MythBusters came of age of alongside the whole maker movement and got to like hand in hand to a certain extent to be part of that. It felt like the most ideal time for that.
 
 [00:17:57] Will: I mean, there there was a reason it resonated so well. Yeah, at that moment, right? And and that I think that had a lot to do with it.
 
-[00:18:04] Norm: That’s so bizarre in my mind. Like growing up with that, like I grew up with that, and there are now kids who grew up. And and and like kids who had first robotics and don't know a world without
+[00:18:04] Norm: That’s so bizarre in my mind. Like growing up with that, like I grew up with that, and there are now kids who grew up. And like kids who had first robotics and don't know a world without
 
 [00:18:04] Adam: right
 
@@ -470,7 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:18:04] Adam: Right, right, right.
 
-[00:18:16] Will: right it's the thing I always say about Maker Faire which is I love that by the time a kid is walking around Maker Faire for four hours they're so tired of seeing robots they're like no dad I don't need to see another robot you know let's like what what those kids that saw enough robots by like at age five I could have never gotten tired of seeing robots
+[00:18:16] Will: right it's the thing I always say about Maker Faire which is I love that by the time a kid is walking around Maker Faire for four hours they're so tired of seeing robots they're like no dad I don't need to see another robot you know let's like what those kids that saw enough robots by like at age five I could have never gotten tired of seeing robots
 
 [00:18:16] Adam: right right right
 
@@ -478,9 +478,9 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:18:16] Norm: yeah yeah
 
-[00:18:16] Will: and and um just the world they live in is really cool
+[00:18:16] Will: and just the world they live in is really cool
 
-[00:18:44] Adam: um we I'm I was working on something this morning when you arrived Norm
+[00:18:44] Adam: We I'm I was working on something this morning when you arrived Norm
 
 [00:18:48] Norm: this is so funny because I know you're on set so to give people a little bit of context you're on, Adam, you're on set like multiple days a week now it very much is like when Will and I were working with you when you were filming MythBusters and even back then you know we would come in to the cave here and you would have projects new projects that you had done very early in the morning very very early in the morning or very very late at night
 
@@ -504,7 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:19:43] Will: Wow.
 
-[00:19:43] Adam: If you if you're familiar with my TED talk about the Maltese Falcon, it's my problem with it was that I spent all this time building it, molding and casting, and multiple multiple iterations of molding and casting until my Maltese Falcon was perfect but too short, by like an inch and a half, a significant degree. And so I what I did was I gathered together all these hundreds of photos that I've gathered, but also taken. I got an audience with a first generation casting off a Maltese Falcon. I can't tell whose it was. That's it's a secret. But I got I got an audience with this.
+[00:19:43] Adam: If you if you're familiar with my TED talk about the Maltese Falcon, it's my problem with it was that I spent all this time building it, molding and casting, and multiple multiple iterations of molding and casting until my Maltese Falcon was perfect but too short, by like an inch and a half, a significant degree. And so I what I did was I gathered together all these hundreds of photos that I've gathered, but also taken. I got an audience with a first generation casting off a Maltese Falcon. I can't tell whose it was. That's it's a secret. But I got an audience with this.
 
 [00:20:47] Will: You got to spend some time with a.
 
@@ -540,7 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:22:56] Will: Wow.
 
-[00:22:56] Adam: There's no way when Humphrey Bogart is holding it in the photo that he's holding a 50 pound bird. There's just no way. And a a filmmaker in L.A. came across in the early '90s a resin bird at an at a flea market that got sold at Profiles in History, I believe. Sold it, and I think it sold again a few years ago. I believe that that is absolutely a resin bird made at the time. And in fact, that's the only bird whose measurements I have exactly 11.125 inches tall.
+[00:22:56] Adam: There's no way when Humphrey Bogart is holding it in the photo that he's holding a 50 pound bird. There's just no way. And a filmmaker in L.A. came across in the early '90s a resin bird at an at a flea market that got sold at Profiles in History, I believe. Sold it, and I think it sold again a few years ago. I believe that that is absolutely a resin bird made at the time. And in fact, that's the only bird whose measurements I have exactly 11.125 inches tall.
 
 [00:22:56] Unknown speaker: Okay.
 
@@ -556,13 +556,13 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:23:49] Will: Okay.
 
-[00:23:49] Adam: I decided to to bridge the gap between the two, and it's as close as I can get.
+[00:23:49] Adam: I decided to bridge the gap between the two, and it's as close as I can get.
 
 [00:23:49] Will: Okay.
 
 [00:23:49] Unknown speaker: Cool.
 
-[00:23:49] Adam: Um. So yeah, I I should be. We will cover this on tested. Um. Uh.
+[00:23:49] Adam: So yeah, I I should be. We will cover this on tested.
 
 [00:23:49] Will: Yeah.
 
@@ -582,7 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:24:43] Will: A lovely kind of like. Yeah.
 
-[00:24:56] Adam: Well, so so I have two Maltese Falcon shelves that are off in the corner there, and one is all. Everyone else's Maltese Falcon. I I I buy one of everybody.
+[00:24:56] Adam: Well, so so I have two Maltese Falcon shelves that are off in the corner there, and one is all. Everyone else's Maltese Falcon. I buy one of everybody.
 
 [00:25:05] Will: Yeah, I got one of those and scanned it and put it in the Adam episode.
 
@@ -592,13 +592,13 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:25:09] Adam: And then there's a second shelf of some of the last few castings I have of my original bird, and also all the iterations. I have my original Sculpey sculpt. I have my interim master. I have my scanning master, etc. And now I have an extra microcrystalline wax casting plus one of the 3D prints. It's been. I'm glad to finally be tackling this again.
 
-[00:25:33] Will: It's it's you talked about it for a long time.
+[00:25:33] Will: It's you talked about it for a long time.
 
 [00:25:34] Adam: Yeah, it's been very cool. It's time to get to it.
 
 [00:25:37] Norm: Wow. And that's you're spending. You're going to be like in residence there.
 
-[00:25:40] Adam: Yeah, yeah. And Tom will be at there at the same time. We're gonna we're gonna we're gonna cut it up.
+[00:25:40] Adam: Yeah, yeah. And Tom will be at there at the same time. We're gonna cut it up.
 
 [00:25:45] Will: You're going to camp.
 
@@ -630,11 +630,11 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:26:17] Norm: Good guess.
 
-[00:26:17] Adam: That would be great. I wonder if you could, with carbon fiber and stuff, build like you know, look the Velociraptor costume is a holy grail for me.
+[00:26:17] Adam: That would be great. I wonder if you could, with carbon fiber and stuff, build like look the Velociraptor costume is a holy grail for me.
 
 [00:26:26] Will: Yeah,
 
-[00:26:27] Adam: that is totally one. But imagine, like, you've seen some of the Hulkbuster cosplays that people have built out of foam that are like 10 feet tall.
+[00:26:27] Adam: that is totally one. But imagine you've seen some of the Hulkbuster cosplays that people have built out of foam that are like 10 feet tall.
 
 [00:26:27] Norm: Yep.
 
@@ -650,7 +650,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:26:49] Norm: Yeah, your arm length is the T-Rex. Everything scales up.
 
-[00:26:51] Will: What was it? We saw it was the Left for Dead costume. The the giant monster was the first one of those like oversized with the armature that I had ever seen, and we saw it at Comic Con, and maybe like 2000. It was before we started Tested. It was 2008, probably.
+[00:26:51] Will: What was it? We saw it was the Left for Dead costume. The giant monster was the first one of those like oversized with the armature that I had ever seen, and we saw it at Comic Con, and maybe like 2000. It was before we started Tested. It was 2008, probably.
 
 [00:27:04] Norm: Yeah, you had the puppet.
 
@@ -726,7 +726,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:29:28] Norm: as an action hero
 
-[00:29:29] Will: acting, but he's he's like an he's like a special ops soldier. Actually, so the setup for the movie.
+[00:29:29] Will: acting, but he's like an he's like a special ops soldier. Actually, so the setup for the movie.
 
 [00:29:34] Adam: When I hear special ops soldier, I do not think.
 
@@ -734,7 +734,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:29:34] Adam: Adrien Brody
 
-[00:29:38] Will: no, but but so the setup for the movie is that like the predators from the predator movie
+[00:29:38] Will: no, but so the setup for the movie is that like the predators from the predator movie
 
 [00:29:44] Adam: yeah
 
@@ -750,7 +750,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:29:50] Will: and like it's it is not a it's not a good movie but it's exceptional
 
-[00:29:56] Norm: it sets they they capture the world's most deadliest killers right
+[00:29:56] Norm: it sets they capture the world's most deadliest killers right
 
 [00:30:00] Adam: right right right okay
 
@@ -778,7 +778,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:30:25] Adam: Yeah.
 
-[00:30:25] Will: The whole movie is worth it for for that scene. Um.
+[00:30:25] Will: The whole movie is worth it for that scene.
 
 [00:30:25] Adam: Yeah.
 
@@ -788,15 +788,15 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:30:34] Norm: No, no,
 
-[00:30:34] Will: No, it’s, um.
+[00:30:34] Will: No, it’s.
 
 [00:30:34] Norm: I don't know.
 
-[00:30:34] Will: Somebody who I didn't know. Yeah. It's um, it's it's and and the kid from that '70s show is in it. Topher Grace,
+[00:30:34] Will: Somebody who I didn't know. Yeah. It's and the kid from that '70s show is in it. Topher Grace,
 
 [00:30:41] Adam: right? You know the Predator franchise has my favorite tagline of any movie ever, which is Predator Two, where Predator visits New York City, and the tagline is, " He's in town with a few days to kill."
 
-[00:30:57] Will: Oh, that's so good. So, so yeah, like like
+[00:30:57] Will: Oh, that's so good. So, so yeah, like
 
 [00:31:00] Adam: that's the Danny Glover Predator movie.
 
@@ -816,9 +816,9 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:31:18] Will: Go hit me.
 
-[00:31:19] Norm: Hold on, hold on. One of our friends, Mike Mika, wrote this. In Home Alone, Kevin McCallister's mother's maiden name is Schaefer. In Predator, Arnold Schwarzenegger is Dutch Schaefer.
+[00:31:19] Norm: Hold on. One of our friends, Mike Mika, wrote this. In Home Alone, Kevin McCallister's mother's maiden name is Schaefer. In Predator, Arnold Schwarzenegger is Dutch Schaefer.
 
-[00:31:38] Will: You think that you think that?
+[00:31:38] Will: You think that?
 
 [00:31:39] Norm: So there is a single universe Predator slash Home Alone theory that posits that Dutch Schaefer and Kevin McCallister are related, and that their trap sending combat skills are genetic.
 
@@ -836,7 +836,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:32:01] Adam: that makes sense.
 
-[00:32:01] Will: If if that's the case, though, Norm, that means that the Home Alone universe and the Aliens universe are the same.
+[00:32:01] Will: If that's the case, though, Norm, that means that the Home Alone universe and the Aliens universe are the same.
 
 [00:32:10] Norm: That's right.
 
@@ -870,9 +870,9 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:32:29] Adam: I haven't, and I'm shocked that it is, if anything, twice as good as I remember.
 
-[00:32:29] Will: Oh, the the first few seasons are like the all time great TV seasons.
+[00:32:29] Will: Oh, the first few seasons are like the all time great TV seasons.
 
-[00:32:42] Adam: We're in the middle of season four. We just dealt with Don just won the Clio and then went drunkenly pitched the the Life cereal company.
+[00:32:42] Adam: We're in the middle of season four. We just dealt with Don just won the Clio and then went drunkenly pitched the Life cereal company.
 
 [00:32:42] Will: Yeah.
 
@@ -898,17 +898,17 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:33:24] Will: Yeah. Oh yeah. Oh yeah.
 
-[00:33:26] Adam: I ended up meeting the director of that episode. She's a friend of a friend of mine, and you always seek some sort of commonality. And so I was like, " Oh, you know what? One of my favorite episodes was." And I mentioned that. She's like, " I directed that one." So I got to hear stories of what it's like to be on set because apparently, when Jon Hamm and Elisabeth Moss get on set together, they do what they will do in the best way. They unpack parts of those characters that the writers didn't expect, and they do things that are really amazing. And apparently, it's it was electric when they had scenes together.
+[00:33:26] Adam: I ended up meeting the director of that episode. She's a friend of mine, and you always seek some sort of commonality. And so I was like, " Oh, you know what? One of my favorite episodes was." And I mentioned that. She's like, " I directed that one." So I got to hear stories of what it's like to be on set because apparently, when Jon Hamm and Elisabeth Moss get on set together, they do what they will do in the best way. They unpack parts of those characters that the writers didn't expect, and they do things that are really amazing. And apparently, it's it was electric when they had scenes together.
 
 [00:33:58] Will: Well, I mean, so that the thing that that whole show works because the characters are awful and fascinating and so well realized.
 
 [00:34:07] Adam: John Slattery, man.
 
-[00:34:09] Will: Oh man, like like all of them. Um, uh, the the guy who played Cooper, um, Bert Cooper,
+[00:34:09] Will: Oh man, like all of them. The guy who played Cooper Bert Cooper,
 
 [00:34:14] Adam: yeah.
 
-[00:34:15] Will: Um, it's like you could make you could have made a show about any of those characters. That went on for as long as Mad Men did. That was like a Mary Tyler Moore style. Hey, here's here's here's a gal in the city. Here's Jon Hamm, an old bastard in the city, And I like that.
+[00:34:15] Will: It's like you could make you could have made a show about any of those characters. That went on for as long as Mad Men did. That was like a Mary Tyler Moore style. Hey, here's here's here's a gal in the city. Here's Jon Hamm, an old bastard in the city, And I like that.
 
 [00:34:29] Adam: I also I was surprised Julia would mention that she thought that Bert Cooper was in the show less until watched it again and realized he's in every episode, almost doing. And in many seasons, he's the deus ex machina, right? He gets Jon. He gets Hamm to sorry. He gets Don to sign the contract, and then later on, when Don gets asked to be on the board of directors of the Metropolitan Museum of Art, and Bert says, " There are not many people who get to decide what does and doesn't happen in the world, and you are being offered a seat at the table." And I was like, " Damn, that is cold." He is like, " Yeah, Bert is this. I love Bert Cooper.
 
@@ -944,7 +944,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:35:41] Will: Pretty Damn good.
 
-[00:35:41] Adam: Really good. Actually, I got a genuine guffaw of Rich Sommer, who played Harry, the TV guy on on Mad Men, by doing that.
+[00:35:41] Adam: Really good. Actually, I got a genuine guffaw of Rich Sommer, who played Harry, the TV guy on Mad Men, by doing that.
 
 [00:35:49] Will: Rich also is great.
 
@@ -1000,7 +1000,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:37:17] Adam: Oh, I watch it at least every couple of years.
 
-[00:37:19] Will: No, no, you're talking about the one, the the '50s one.
+[00:37:19] Will: No, no, you're talking about the one, the '50s one.
 
 [00:37:22] Norm: '60, 1960.
 
@@ -1016,15 +1016,15 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:37:28] Will: it's hard
 
-[00:37:29] Norm: watching it is an amazing exercise in in understanding why Steven Soderbergh wanted to remake it because he saw the chemistry, he saw something there. The movies are way too long, two and a half hours long, and they don't even get to the point of the heist until halfway through.
+[00:37:29] Norm: watching it is an amazing exercise in understanding why Steven Soderbergh wanted to remake it because he saw the chemistry, he saw something there. The movies are way too long, two and a half hours long, and they don't even get to the point of the heist until halfway through.
 
 [00:37:29] Adam: Right, right,
 
-[00:37:29] Norm: hour of getting people together, but it's it's. I want to say it's great, but it's really interesting.
+[00:37:29] Norm: hour of getting people together, but it's. I want to say it's great, but it's really interesting.
 
 [00:37:52] Will: Well, there's a vibe to it that like it is a cool movie.
 
-[00:37:56] Norm: It is a Rat Pack movie, very much you know, very Mad Men. It's you know full that era type of politics and misogyny, and and but it's also a heist movie, and you know, seeing Vegas in 1960s so quaint.
+[00:37:56] Norm: It is a Rat Pack movie, very much very Mad Men. It's you know full that era type of politics and misogyny, and but it's also a heist movie, and seeing Vegas in 1960s so quaint.
 
 [00:38:10] Will: I'm going to see Ocean's Eight this weekend. We saw Incredibles two last week. I know you haven't seen yet, Adam.
 
@@ -1038,11 +1038,11 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:38:21] Norm: I don’t wanna spoil it. I don’t want to say anything.
 
-[00:38:23] Adam: Wow. Um, I will say
+[00:38:23] Adam: Wow. I will say
 
 [00:38:24] Will: people should go see Incredibles Two.
 
-[00:38:25] Adam: I'm dying to see Ocean's Eight. My friend Sasha just saw it and told me it was amazing. I can't wait to see it. Um, I reminded of the Onion headline for Ocean's Eight, which is " Man Watching Trailer for Ocean's Eight, Still Wondering Who the Protagonist Is." Oh, Onion! Every now and then you can get in a headline that doesn't happen for real.
+[00:38:25] Adam: I'm dying to see Ocean's Eight. My friend Sasha just saw it and told me it was amazing. I can't wait to see it. I reminded of the Onion headline for Ocean's Eight, which is " Man Watching Trailer for Ocean's Eight, Still Wondering Who the Protagonist Is." Oh, Onion! Every now and then you can get in a headline that doesn't happen for real.
 
 [00:38:47] Will: I feel like the Onion writers, like they've they've gone from being writers to editors in the last two years.
 
@@ -1056,7 +1056,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:39:01] Adam: I'm going to see it. I'm going to see that. That's uh. Maybe I'll see it this weekend.
 
-[00:39:05] Will: We came back, and my daughter wanted to put on Incredibles 1 after we saw after we saw that, and we did, and it's amazing.
+[00:39:05] Will: We came back, and my daughter wanted to put on Incredibles 1 after we saw that, and we did, and it's amazing.
 
 [00:39:11] Adam: Incredibles 2 starts the minute Incredibles 1 ends.
 
@@ -1076,7 +1076,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:39:23] Will: Yeah, yeah. That's his cameo in that one.
 
-[00:39:29] Adam: You know, John Ratzenberger used to host a Travel Channel show, I think called Made in America. If I remember correctly, he visited factories around the country. And when I was an early Discovery talent, and as I said last week on the on the podcast, you know, Anthony Bourdain was my smoking buddy off in the corner of Discovery events. Ratzenberger also was was somebody that I ran into a bunch at these different things, and he was a real sweetie pie.
+[00:39:29] Adam: John Ratzenberger used to host a Travel Channel show, I think called Made in America. If I remember correctly, he visited factories around the country. And when I was an early Discovery talent, and as I said last week on the podcast Anthony Bourdain was my smoking buddy off in the corner of Discovery events. Ratzenberger also was was somebody that I ran into a bunch at these different things, and he was a real sweetie pie.
 
 [00:39:55] Will: Please tell me he just told you extensively, lots and lots of trivia about things you didn't care about.
 
@@ -1086,7 +1086,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:40:07] Adam: A little-known fact about the alligator, Adam. No, he's a delightful man. So I'm glad that he's in every Pixar film.
 
-[00:40:14] Will: Yeah, he's he's he's the best.
+[00:40:14] Will: Yeah, he's the best.
 
 [00:40:17] Norm: I think that's it. It's a perfect place to stop. We got a whole day of filming ahead.
 
@@ -1104,7 +1104,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:40:45] Will: I I'm a big fan of shooting Norm with things. I think that yeah, the more things you can shoot Norm with, the better off we all are.
 
-[00:40:51] Adam: Julia was. I showed her the the finale this morning, and she was wondering which one of the dinosaurs was Was the one going like this? Was that Ryan?
+[00:40:51] Adam: Julia was. I showed her the finale this morning, and she was wondering which one of the dinosaurs was Was the one going like this? Was that Ryan?
 
 [00:40:59] Norm: That that might have been Teague.
 
@@ -1166,7 +1166,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:43:07] Adam: Yeah, I I really really enjoy it. I like it much better than having a controller in my hand. I like that direct one to one control that can’t be—
 
-[00:43:15] Will: You can use your phone now while you're while you're riding, right?
+[00:43:15] Will: You can use your phone now while you're riding, right?
 
 [00:43:17] Adam: Yeah, I'm just surfing, surfing Reddit. I'm surfing Reddit while bombing downhills. Anyway, the XR is incredible, and I love it. And the video went up this morning.
 

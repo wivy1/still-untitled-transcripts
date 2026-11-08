@@ -14,7 +14,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:01:02] Norm: Which podcast is this?
 
-[00:01:03] Will: Which one is this? Is this the dad's one, or is this the the the other?
+[00:01:03] Will: Which one is this? Is this the dad's one, or is this the other?
 
 [00:01:07] Adam: Wake up, man!
 
@@ -52,7 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:02:13] Adam: it's just too much going on. You just need to have it out.
 
-[00:02:16] Will: And and you can't do it while you're on the tour because you can't take a day off or two days off or whatever.
+[00:02:16] Will: And you can't do it while you're on the tour because you can't take a day off or two days off or whatever.
 
 [00:02:19] Adam: And also, I was you know potentially going to get super puffy in the face. So then I got back. We had to run right back into MythBusters production, and then we were on a location shoot, and then we went to the Bahamas for reasons that I can't exactly explain right now for work. For work, yeah, it was for work. And in the middle of the Bahamas, the toothache. Now I've been taking Vicodin, and I can't stand that stuff. I mean, yes, it helps with the pain, but ibuprofen is more reliable to me. However, the pain was so extreme, up and down over the last month, vacillating between three and five.
 
@@ -60,7 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:02:58] Adam: on the 10 scale. So five will ruin your day.
 
-[00:03:01] Will: It's it's funny because like toothaches are something that were an incredibly common problem. Let's say fifty or 100 years ago.
+[00:03:01] Will: It's funny because like toothaches are something that were an incredibly common problem. Let's say fifty or 100 years ago.
 
 [00:03:06] Adam: Yeah,
 
@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:03:46] Adam: That was a seven. No, this was a five. Yeah. So I had to leave the Bahamas 24 hours early. My dentist, she's amazing. I love her. I will not tell you her name because she's mine. We love her. Weirdly, She's like actually a friend.
 
-[00:04:03] Will: When you find a good dentist, it is it is a person to bring into your life and make it make integral to both of each other.
+[00:04:03] Will: When you find a good dentist, it is a person to bring into your life and make it make integral to both of each other.
 
 [00:04:08] Adam: So she worked out and she got me an appointment with the guy. And I on Friday I went in. Now here's the best part is because my wisdom teeth don't need to be removed genetically, they're actually easy to remove.
 
@@ -116,7 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:04:54] Adam: They are absolutely sickening. And it's
 
-[00:04:56] Will: you guys are you guys are really dainty.
+[00:04:56] Will: you guys are really dainty.
 
 [00:04:58] Norm: I mean, over time, yeah, with all that plaque and stuff. First of all, flossing is [unclear: I know] number one thing.
 
@@ -126,7 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:05:08] Norm: People don't know how to floss properly either. It's it's not the sawing motion. It's the scraping up and down.
 
-[00:05:12] Will: Well, so my dentist told me to get. I can't believe we're talking about dental care here. We're not dentists, just to be clear. But she gave me. She told me to get one of those things you clip the little heads on, and it has a thing that goes across. It's like it basically just [unclear: a cross cross saw / a cross cross R / across yeah it’s like a little thing that goes across the cross]. And and when I started using that, all of a sudden I got good at flossing. Like I had always gotten bad notes when I when I went into the dentist before about my flossing, and once I switched to that, she was like, " Oh no, you're doing a really good job because it's all up and down, and you kind of just rank it around from side to side to get the get the edges."
+[00:05:12] Will: Well, so my dentist told me to get. I can't believe we're talking about dental care here. We're not dentists, just to be clear. But she gave me. She told me to get one of those things you clip the little heads on, and it has a thing that goes across. It's like it basically just [unclear: a cross cross saw / a cross cross R / across yeah it’s like a little thing that goes across the cross] And when I started using that, all of a sudden I got good at flossing. Like I had always gotten bad notes when I went into the dentist before about my flossing, and once I switched to that, she was like, " Oh no, you're doing a really good job because it's all up and down, and you kind of just rank it around from side to side to get the get the edges."
 
 [00:05:43] Adam: At any rate, I had the surgery on Friday. On Friday, there was potential that I had to be on. A television show of some kind on Saturday. Luckily, I didn't have to be. However, the dentist was so gentle; I did not have major swelling.
 
@@ -152,7 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:06:52] Adam: you have to give it that.
 
-[00:06:54] Will: Oh no no. I like, but yeah, like when I think about super stressful, I think about like the the the kind of existential dread that I get watching Breaking Bad or something like that.
+[00:06:54] Will: Oh no no. I like, but yeah, like when I think about super stressful, I think about like the kind of existential dread that I get watching Breaking Bad or something like that.
 
 [00:07:02] Adam: It's not that kind of stressful. Not even Pulp Fiction stressful.
 
@@ -170,7 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:07:25] Adam: Sure,
 
-[00:07:25] Will: we'll do no spoilers spoilers for a bit and then we'll warn you you haven't seen it yet.
+[00:07:25] Will: we'll do no spoilers spoilers for a bit and then we'll warn you haven't seen it yet.
 
 [00:07:30] Adam: That sounds good.
 
@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:07:35] Will: Yeah,
 
-[00:07:35] Adam: it's fantastic, and I think that let's just talk about the the Mad Max Road Warrior franchise thus far. I'm a big believer that the Road Warrior, which is also called Mad Max Two, is the best.
+[00:07:35] Adam: it's fantastic, and I think that let's just talk about the Mad Max Road Warrior franchise thus far. I'm a big believer that the Road Warrior, which is also called Mad Max Two, is the best.
 
 [00:07:48] Will: I think that's a general, a very safe statement.
 
@@ -230,15 +230,15 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:09:56] Will: Yeah, yeah.
 
-[00:09:58] Norm: Their their their arc and their story, their redemption is not contingent on how bad they had it on screen.
+[00:09:58] Norm: Their arc and their story, their redemption is not contingent on how bad they had it on screen.
 
-[00:10:06] Adam: It is, it is, it is a different story than you think it is,
+[00:10:06] Adam: It is a different story than you think it is,
 
-[00:10:11] Will: and and everything about the movie is different than I thought it was coming in.
+[00:10:11] Will: and everything about the movie is different than I thought it was coming in.
 
 [00:10:14] Adam: Yeah,
 
-[00:10:14] Will: like it is a perfect example of a trailer that masked the masked the movie, but but told you what you needed to see to get done.
+[00:10:14] Will: like it is a perfect example of a trailer that masked the movie, but told you what you needed to see to get done.
 
 [00:10:21] Norm: And even the big set pieces, you see in the trailer a giant tornado, and you're like, " Oh, that's got to be the big finale," but it's not.
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:10:33] Will: Oh yeah, or first fifteen probably.
 
-[00:10:35] Norm: Yeah, if it's a two hour two hour car chase, they have a lot of material to work with,
+[00:10:35] Norm: Yeah, if it's a two hour car chase, they have a lot of material to work with,
 
 [00:10:38] Adam: and they really managed to do. I really appreciated that the trailer showed a lot that did not spoil nearly any of the film for me.
 
@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:10:54] Adam: Yeah,
 
-[00:10:54] Will: and probably most of his life, if I had to guess. He, everything you look at in this in this movie,
+[00:10:54] Will: and probably most of his life, if I had to guess. He, everything you look at in this movie,
 
 [00:11:02] Norm: I'm thinking him on set on Babe.
 
@@ -286,17 +286,17 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:11:42] Adam: Babe is amazing. Babe is Babe loves you.
 
-[00:11:45] Will: I have I have a two year old now, so I'm in the window for watching Babe again. Yeah,
+[00:11:45] Will: I have a two year old now, so I'm in the window for watching Babe again. Yeah,
 
-[00:11:48] Adam: no, Babe is a Babe is a masterpiece.
+[00:11:48] Adam: no, Babe is a masterpiece.
 
-[00:11:50] Will: Um, so. So I love everything you look at has a rich backstory that they don't tell you. Like you look at you look at characters walking through the desert who have nothing to do with the race, and there is very clearly they're they're up to something. George knows what it is. Yeah, we don't. I'm I I love I love having that kind of it's the same kind of backstory that like the Millennium Falcon had in Star Wars.
+[00:11:50] Will: So. So I love everything you look at has a rich backstory that they don't tell you. Like you look at characters walking through the desert who have nothing to do with the race, and there is very clearly they're up to something. George knows what it is. Yeah, we don't. I'm I I love having that kind of it's the same kind of backstory that like the Millennium Falcon had in Star Wars.
 
 [00:12:13] Adam: Every piece of the world has a long
 
 [00:12:15] Will: tail.
 
-[00:12:15] Norm: Well, if you think of the the the series Mad Max: Road Warrior, Thunderdome, he says even though this movie is set you know decades in our time, film decades later, it's only supposed to be only a few years later, and it's the same Max. Tom Hardy surprisingly, around the same age as Mel Gibson was when he did Road Warrior.
+[00:12:15] Norm: Well, if you think of the series Mad Max: Road Warrior, Thunderdome, he says even though this movie is set you know decades in our time, film decades later, it's only supposed to be only a few years later, and it's the same Max. Tom Hardy surprisingly, around the same age as Mel Gibson was when he did Road Warrior.
 
 [00:12:36] Adam: Really,
 
@@ -310,7 +310,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:12:42] Will: Yeah, and Mad
 
-[00:12:43] Norm: Max. It's the continuation of that character. You know, he has the the long hair. You know, and then he becomes more of a Tom Hardy persona. Yeah, but it's it's like. You see, you know, they still call it guzzoline. Like the world, yeah. You know, in the first Mad Max, you had roads. You had the world was not completely falling apart, and then you know society rebuilds itself in its own ways. And by Fury Road, there are no real roads, and you have a fully developed post-apocalypse.
+[00:12:43] Norm: Max. It's the continuation of that character. He has the long hair. And then he becomes more of a Tom Hardy persona. Yeah, but it's like. You see they still call it guzzoline. Like the world, yeah. In the first Mad Max, you had roads. You had the world was not completely falling apart, and then you know society rebuilds itself in its own ways. And by Fury Road, there are no real roads, and you have a fully developed post-apocalypse.
 
 [00:13:13] Adam: So let's shall we transition? Yeah, let's transition.
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:13:38] Adam: I want to start with the fact that it's totally blew me away that Charlize Theron's the main character of this movie.
 
-[00:13:44] Will: But but you should have known that because Max is never the main character of the movie.
+[00:13:44] Will: But you should have known that because Max is never the main character of the movie.
 
 [00:13:47] Adam: I it didn't occur to me. Again, it's a sort of you’re right. You're right. When you look back at the other movies, Max isn't necessarily Max is your camera. He is your protagonist. He is our eyes. He is our ethos. Actually,
 
@@ -358,7 +358,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:14:16] Will: So Star Wars is the story of Anakin, right? If you want, if the whole in the
 
-[00:14:20] Adam: and I at any rate, at any rate, gentlemen.
+[00:14:20] Adam: and I at any rate, gentlemen.
 
 [00:14:23] Will: Oh yeah,
 
@@ -366,11 +366,11 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:14:36] Norm: Oh yeah,
 
-[00:14:37] Adam: like you can't, you can't. What is it? You can't put that light under any kind of bushel.
+[00:14:37] Adam: like you can't. What is it? You can't put that light under any kind of bushel.
 
 [00:14:43] Will: It's like talking about the physical transformation actresses and actors take now is kind of become. It's become just the thing that people do, but this was amazing. I couldn't believe that she amputated her arm for the role.
 
-[00:14:58] Adam: Yeah, that's that's
+[00:14:58] Adam: Yeah, that's
 
 [00:14:59] Will: going. I mean, that's
 
@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:15:00] Will: Machine method
 
-[00:15:01] Norm: and her stunt double, fantastic. And you're right. So we talk about the the character story. We're entering this world. You know, even if it's the first Mad Max movie you've seen, you get the first opening lines or him standing at the edge, and he tells you the theme of the movie right away.
+[00:15:01] Norm: and her stunt double, fantastic. And you're right. So we talk about the character story. We're entering this world. Even if it's the first Mad Max movie you've seen, you get the first opening lines or him standing at the edge, and he tells you the theme of the movie right away.
 
 [00:15:15] Adam: Right,
 
@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:15:16] Adam: Yes,
 
-[00:15:16] Norm: and then and then it's a car chase. You know, car chase, punk car chase, and you know, to be fair, that first 10 minutes where he gets branded, and you know, you get to find out that that citadel that they're all in with the war boys. The lens is on him.
+[00:15:16] Norm: and then it's a car chase. Car chase, punk car chase, and to be fair, that first 10 minutes where he gets branded, and you get to find out that that citadel that they're all in with the war boys. The lens is on him.
 
 [00:15:30] Adam: Yeah,
 
@@ -394,11 +394,11 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:15:34] Adam: Imperator Furiosa is the name of Charlize Theron's character.
 
-[00:15:37] Will: His story appears to be done actually because he's he's caged
+[00:15:37] Will: His story appears to be done actually because he's caged
 
 [00:15:40] Adam: right, and he actually remains caged for the first third of the movie and doesn't actually get all the way out of his bonds until halfway through.
 
-[00:15:47] Norm: And when when the You know when they're framing up the the caravans do the trade for oil with the the guzzling town, which again
+[00:15:47] Norm: And when the You know when they're framing up the caravans do the trade for oil with the guzzling town, which again
 
 [00:15:56] Will: water for oil is the trade.
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:16:01] Will: Mother's milk for oil. Okay.
 
-[00:16:02] Norm: So one town has makes all the the bullets. One town makes all the gas. One town makes all the—.
+[00:16:02] Norm: So one town has makes all the bullets. One town makes all the gas. One town makes all the—.
 
 [00:16:06] Adam: Oh, is that the theme?
 
@@ -424,7 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:16:19] Will: Yeah.
 
-[00:16:19] Norm: and she makes the call, and she you know she makes a decision to to go off road, and then She's like, oh, I'm gonna go to the gas town, and she's like, oh—
+[00:16:19] Norm: and she makes the call, and she you know she makes a decision to go off road, and then She's like, oh, I'm gonna go to the gas town, and she's like, oh—
 
 [00:16:24] Will: well, and then everybody with her follows her unconditionally because that's the way it works.
 
@@ -440,19 +440,19 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:17:12] Norm: Yes,
 
-[00:17:12] Adam: that that becomes the the connection. They are both survivors in the extreme.
+[00:17:12] Adam: that that becomes the connection. They are both survivors in the extreme.
 
 [00:17:18] Norm: Well, blood siblings, literally.
 
 [00:17:20] Adam: Yes,
 
-[00:17:20] Norm: they they share blood.
+[00:17:20] Norm: they share blood.
 
 [00:17:21] Adam: Right,
 
 [00:17:22] Will: literally.
 
-[00:17:22] Adam: By the end, that becomes the ritual. Um, I wanted to talk about there's been a lot of frufruff. What do you call it?
+[00:17:22] Adam: By the end, that becomes the ritual. I wanted to talk about there's been a lot of frufruff. What do you call it?
 
 [00:17:29] Will: Brouhaha.
 
@@ -460,7 +460,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:17:30] Norm: Kerfuffle.
 
-[00:17:31] Adam: Kerfuffle. Um, about whether or not Mad Mad Max Fury Road is a feminist masterpiece, an anti male diatribe. Blah blah blah. There is a lot of stuff about the movie's feminism or lack thereof, and There are people on both sides, from MRA to feminists, who have argued both sides of this coin.
+[00:17:31] Adam: Kerfuffle. About whether or not Mad Mad Max Fury Road is a feminist masterpiece, an anti male diatribe. Blah blah blah. There is a lot of stuff about the movie's feminism or lack thereof, and There are people on both sides, from MRA to feminists, who have argued both sides of this coin.
 
 [00:17:52] Will: People are really upset about this movie.
 
@@ -468,7 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:17:57] Norm: That's interesting that you say that on both sides of the spectrum, there are they're making both arguments.
 
-[00:18:02] Adam: They are, and I I spent a fair bit of time reading reading a bunch of it, and I have to say, you know, there are people for whom look, Hollywood makes the most appallingly sexist movies. It it can, right?
+[00:18:02] Adam: They are, and I I spent a fair bit of time reading reading a bunch of it, and I have to say there are people for whom look, Hollywood makes the most appallingly sexist movies. It can, right?
 
 [00:18:19] Will: It's totally. I've seen Transformers three
 
@@ -478,17 +478,17 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:18:25] Will: I that's a super good point.
 
-[00:18:27] Adam: As far as the way movies have traditionally treated women in action movies, this movie is a giant leap forward. As far as a as a as a feminist who might have spent a woman who has spent year who has spent years Watching this terrible degradation of of of women in Hollywood, this movie might not go far enough, and I totally grant that. But it is a giant leap forward for action movies, in my opinion, specifically because they don't they don't do a lot of the dumb tropes that movies do. They don't make the women things to rescue. They don't set up a powerful woman and then make turn her useless at the beginning of Act Three so a man can rescue her. They don't succumb to all of that bullshit, and I really think that it's wonderful for them.
+[00:18:27] Adam: As far as the way movies have traditionally treated women in action movies, this movie is a giant leap forward. As far as a feminist who might have spent a woman who has spent year who has spent years Watching this terrible degradation of women in Hollywood, this movie might not go far enough, and I totally grant that. But it is a giant leap forward for action movies, in my opinion, specifically because they don't do a lot of the dumb tropes that movies do. They don't make the women things to rescue. They don't set up a powerful woman and then make turn her useless at the beginning of Act Three so a man can rescue her. They don't succumb to all of that bullshit, and I really think that it's wonderful for them.
 
 [00:19:12] Will: They they actively, in fact, actually, the women in what they call it the harem, the the wives of the emperat of a
 
 [00:19:18] Norm: Immortan Joe,
 
-[00:19:19] Will: Immortan— Immortan Joe. Um, they say we're not things like that's a thing that they clearly have repeated to themselves.
+[00:19:19] Will: Immortan— Immortan Joe. They say we're not things like that's a thing that they clearly have repeated to themselves.
 
-[00:19:24] Adam: Yeah, and and they actually they're actually fairly competent. They have their own minds. They don't become ah, you know, at the at the key moments of the film.
+[00:19:24] Adam: Yeah, and they actually they're actually fairly competent. They have their own minds. They don't become ah at the key moments of the film.
 
-[00:19:34] Will: Well, they exhibit the whole range. Yeah, right. There are some that that want nothing to do with guns and won't do guns. There are some that are that are Counting bullets and reloading guns and shooting guns by the end of the movie, and then there's this amazing moment. What at the end of the second act when they reach the place that they've been going the entire time, and they meet a tribe of
+[00:19:34] Will: Well, they exhibit the whole range. Yeah, right. There are some that that want nothing to do with guns and won't do guns. There are some that are Counting bullets and reloading guns and shooting guns by the end of the movie, and then there's this amazing moment. What at the end of the second act when they reach the place that they've been going the entire time, and they meet a tribe of
 
 [00:19:52] Adam: hardened older women.
 
@@ -498,11 +498,11 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:20:04] Will: Yeah, they were ready to go. One one man, one bullet. One man, which I think is probably what the MRA people got pissed off about.
 
-[00:20:10] Adam: Yeah, I'm never going to agree with those guys. I mean, that that's that's that's in the extreme it’s a fringe.
+[00:20:10] Adam: Yeah, I'm never going to agree with those guys. I mean, that that's in the extreme it’s a fringe.
 
 [00:20:16] Norm: So, to go to the other extreme, let's talk about why feminists, for example, think the movie doesn't go too far enough.
 
-[00:20:25] Adam: Well, look, and I'm in this. I'm a believer that the perfect is the that the that the perfect is the enemy of the good. Sure, there's man. We have a lot to atone for in the ways that we have treated women in our culture, in our media. There's this, There, there are there are Many things to to leap forward for, and you know, there's a lot of bodies along the side of the road to make a.
+[00:20:25] Adam: Well, look, and I'm in this. I'm a believer that the perfect is the that the perfect is the enemy of the good. Sure, there's man. We have a lot to atone for in the ways that we have treated women in our culture, in our media. There's this, There are Many things to leap forward for, and there's a lot of bodies along the side of the road to make a.
 
 [00:20:50] Will: There are a lot of bodies on the side of the road.
 
@@ -524,7 +524,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:21:33] Adam: It was at least two weeks with the women within the harem of Immortan Joe to talk to them about. About how they would be responding to the trauma of their captivity, and Eve Ensler famously wrote the vagina monologues. And
 
-[00:21:51] Will: but she also did research in in African countries where people are, you know, ritually raped and stuff like that. And. And that was the that was the specific the specific brunt of that of that. That seemed like the reason she was there.
+[00:21:51] Will: but she also did research in African countries where people are ritually raped and stuff like that. And. And that was the specific brunt of that. That seemed like the reason she was there.
 
 [00:22:07] Adam: And and that is a terrific step in the right direction for a major director of an expensive, big blockbuster tentpole film to bring in a a renowned feminist to talk to the cast about putting real depth into this story rather than the surface depth of oh I watched her get raped in Act One, therefore in Act Three I get to watch her kill the guy.
 
@@ -542,7 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:22:48] Norm: Oh yeah,
 
-[00:22:49] Adam: yeah. With the with the.
+[00:22:49] Adam: yeah. With the.
 
 [00:22:50] Norm: With the blood guy, yeah. with the
 
@@ -578,9 +578,9 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:23:48] Will: Yeah,
 
-[00:23:48] Adam: she's standing behind him. There's a pause, and beautifully, he takes the rifle off of his off of his shoulder and hands it to her.
+[00:23:48] Adam: she's standing behind him. There's a pause, and beautifully, he takes the rifle off of his shoulder and hands it to her.
 
-[00:23:56] Will: And since she doesn't have the arm, doesn't acknowledge it, other than she just rests it. The the the rifle on his shoulder.
+[00:23:56] Will: And since she doesn't have the arm, doesn't acknowledge it, other than she just rests it. The rifle on his shoulder.
 
 [00:24:02] Adam: And then says, Don’t breathe, and she makes the shot. I love that scene. I love that non-verbal.
 
@@ -598,15 +598,15 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:24:23] Norm: It’s his name on the movie or whatever. He’s the lens, right? And it takes a while, and that feels earned. And like she has no, she doesn't hesitate to pull that trigger with the shotguns.
 
-[00:24:32] Adam: You're totally right. It feels very earned, especially when she shows him the special key sequence to to run the. Car, so I think,
+[00:24:32] Adam: You're totally right. It feels very earned, especially when she shows him the special key sequence to run the. Car, so I think,
 
 [00:24:39] Will: but that was a pragmatic choice too. She couldn't do the driving then. Right, he had to. He had to be able to drive, so she had no choice whether she trusted him or not. She had to tell him how to start the car, or else the cargo was going to die.
 
-[00:24:49] Norm: The earning part is when he goes off that one scene where you don't see it off camera when he kills the the bullet guy, and it's not a you know now I trust you because you can kill people. It's because you're also surviving,
+[00:24:49] Norm: The earning part is when he goes off that one scene where you don't see it off camera when he kills the bullet guy, and it's not a you know now I trust you because you can kill people. It's because you're also surviving,
 
 [00:25:00] Adam: right? Yeah. So when you ask about, let's say, feminists who feel like this film does not go far enough, a friend of mine is a philosophy professor and asked me if I'd seen Ex Machina, which I have not. Yet.
 
-[00:25:12] Norm: Oh, yeah, that's what I want to talk about exactly as a as a comparison.
+[00:25:12] Norm: Oh, yeah, that's what I want to talk about exactly as a comparison.
 
 [00:25:15] Adam: And I want to see Ex Machina, but I when she asked me if I'd seen it, I said I haven't. I'm a little nervous about it. And She said why, and I said, hi, female android robot,
 
@@ -626,7 +626,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:25:59] Adam: What do you think?
 
-[00:25:59] Norm: No, I think that that's the lens by saying it it doesn't need to have the check boxes, in in the tropes. That's what makes it a a big step forward.
+[00:25:59] Norm: No, I think that that's the lens by saying it doesn't need to have the check boxes, in the tropes. That's what makes it a big step forward.
 
 [00:26:08] Will: The fact that you
 
@@ -642,7 +642,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:26:20] Will: yeah, this is. But but I mean, the Bechdel test is the thinnest of of like criteria
 
-[00:26:26] Adam: because it's shocking that it's so hard to to pass it.
+[00:26:26] Adam: because it's shocking that it's so hard to pass it.
 
 [00:26:28] Norm: Yes,
 
@@ -662,7 +662,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:26:47] Adam: Her complexity was was both boring and inexplicable at times.
 
-[00:26:52] Norm: You know, the the very character of a warrior princess itself is a trope. You know that,
+[00:26:52] Norm: You know, the very character of a warrior princess itself is a trope. You know that,
 
 [00:26:59] Will: but she's trained by Thanos. She should be a an ultimate badass in the universe, right?
 
@@ -670,11 +670,11 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:27:08] Will: Yeah,
 
-[00:27:08] Norm: and and by by by setting her up, that character so high up by saying she's a badass, you're also in yourself, you know, compensating for a lot.
+[00:27:08] Norm: and by by by setting her up, that character so high up by saying she's a badass, you're also in yourself compensating for a lot.
 
 [00:27:18] Adam: Yeah,
 
-[00:27:18] Norm: and this movie doesn't do that. She, you know, Furiosa is respected. She's a good driver, but she's not perfect. But it's she's not held up to that high standard.
+[00:27:18] Norm: and this movie doesn't do that. She Furiosa is respected. She's a good driver, but she's not perfect. But it's she's not held up to that high standard.
 
 [00:27:26] Adam: Right. I'm really really pleased with this movie. I know that Tom Hardy was apparently difficult on set and has apologized publicly to both George Miller and Charlize Theron for being difficult. I'm curious about it. Might have been a very stressful shoot.
 
@@ -690,9 +690,9 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:27:51] Will: I they didn't make a ton of money, so I hope they make three more. I hope they make one more.
 
-[00:27:54] Adam: I hope they make one more. I really enjoyed the spit out of this movie, and I do think that, like again, you know, I'm not a fan of Hollywood's treatment of women, and it has. This movie is a wonderful move forward.
+[00:27:54] Adam: I hope they make one more. I really enjoyed the spit out of this movie, and I do think that, like again I'm not a fan of Hollywood's treatment of women, and it has. This movie is a wonderful move forward.
 
-[00:28:10] Norm: It's also it's also great that the movies don't need to be about those specific characters that we saw going forward. The Mad Max in some sense.
+[00:28:10] Norm: It's also great that the movies don't need to be about those specific characters that we saw going forward. The Mad Max in some sense.
 
 [00:28:20] Will: It's an anthology.
 
@@ -712,17 +712,17 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:28:37] Adam: Yeah.
 
-[00:28:37] Will: Um. The thing that you guys said that the movie's about survival, and I well, I think that's definitely true. The the the big conflict for me is that it's survival versus humanity. And these movies always start with Max in an almost feral state. I mean, the first one doesn't, but.
+[00:28:37] Will: The thing that you guys said that the movie's about survival, and I well, I think that's definitely true. The big conflict for me is that it's survival versus humanity. And these movies always start with Max in an almost feral state. I mean, the first one doesn't, but.
 
 [00:28:52] Adam: Right, right.
 
-[00:28:52] Will: Road Warrior and Thunderdome both start with him almost feral, and then he develops a connection to humanity again. You know, becomes this is still still absolutely brutal throughout, but you know, goes back into the into the into the outback.
+[00:28:52] Will: Road Warrior and Thunderdome both start with him almost feral, and then he develops a connection to humanity again. Becomes this is still still absolutely brutal throughout, but goes back into the outback.
 
 [00:29:07] Adam: Yeah.
 
-[00:29:07] Will: As a man, and then presumably something's going to happen. He's going to be out alone for a long time and and come back feral again the next go round.
+[00:29:07] Will: As a man, and then presumably something's going to happen. He's going to be out alone for a long time and come back feral again the next go round.
 
-[00:29:16] Adam: It'd be interesting, you know. Mad Max keeps on going to find his adventure. It'd be interesting if the next movie finds Max settled somewhere, and adventure comes and finds him.
+[00:29:16] Adam: It'd be interesting. Mad Max keeps on going to find his adventure. It'd be interesting if the next movie finds Max settled somewhere, and adventure comes and finds him.
 
 [00:29:27] Will: I don't think he's a settler. I don't think he's going to have another wife and kids.
 
@@ -736,29 +736,29 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:29:48] Will: Please
 
-[00:29:48] Adam: Fury Road. It deserves it deserves your $10. Go see. I wasn't a big fan of it in 3D. Frankly,
+[00:29:48] Adam: Fury Road. It deserves your $10. Go see. I wasn't a big fan of it in 3D. Frankly,
 
 [00:29:55] Norm: I didn't watch it in 3D.
 
 [00:29:55] Will: I saw it in 3D and I was—.
 
-[00:29:56] Adam: I had to see it in 3D because that's the ticket I could get, and it wasn't that. I I want to go see it again in 2D.
+[00:29:56] Adam: I had to see it in 3D because that's the ticket I could get, and it wasn't that. I want to go see it again in 2D.
 
-[00:30:01] Norm: It's some of the best best best stunts, best cinematography for for car chase. I mean,
+[00:30:01] Norm: It's some of the best best best stunts, best cinematography for car chase. I mean,
 
-[00:30:07] Adam: it's it's oh, and also most of the stunts. There's a lot of CG in this movie, but only in service of the stunts, which were practically done. So it's not like cars flying through the air while people are playing chess inside them and crap like that.
+[00:30:07] Adam: it's oh, and also most of the stunts. There's a lot of CG in this movie, but only in service of the stunts, which were practically done. So it's not like cars flying through the air while people are playing chess inside them and crap like that.
 
 [00:30:20] Will: Well, there's there are cars flying through the air,
 
 [00:30:23] Adam: but there were real cars flying through real air and real drivers doing some very amazing stunts.
 
-[00:30:28] Will: And the you know it's the anti Michael Bay in a lot of ways. So we we touched on this a little while ago. He got a wonderful performance out of what's her name from the third Transformers movie, Rosie Hunting Whiteley Wheatley something like that.
+[00:30:28] Will: And the you know it's the anti Michael Bay in a lot of ways. So we touched on this a little while ago. He got a wonderful performance out of what's her name from the third Transformers movie, Rosie Hunting Whiteley Wheatley something like that.
 
 [00:30:40] Adam: Okay,
 
-[00:30:40] Will: which I didn't think was possible after seeing that third Transformers movie. And the battle scenes are intelligible, and you can see what's going on. Like you can you can follow all the fights, you can follow the car chases. It's cut really quickly in a lot of places, but there's always a sense of purpose and there's always a trail to follow, so you know what's going on.
+[00:30:40] Will: which I didn't think was possible after seeing that third Transformers movie. And the battle scenes are intelligible, and you can see what's going on. Like you can follow all the fights, you can follow the car chases. It's cut really quickly in a lot of places, but there's always a sense of purpose and there's always a trail to follow, so you know what's going on.
 
-[00:30:59] Adam: There's also that lovely, lovely transformation of Nux, the war boy, who becomes actually among their among their party, and I really dug that. Was perhaps the most surprising twist in the film to me that he becomes a genuinely interesting character, and you get a glimpse into a whole new aspect of the world because of his because of his character.
+[00:30:59] Adam: There's also that lovely, lovely transformation of Nux, the war boy, who becomes actually among their party, and I really dug that. Was perhaps the most surprising twist in the film to me that he becomes a genuinely interesting character, and you get a glimpse into a whole new aspect of the world because of his character.
 
 [00:31:21] Will: And they gave those. When was the last time you saw a stormtrooper get motivation? Like right? Yeah. I mean, they gave motivation for all of those war boys, which is something that I've never. Yeah. It's incredibly unusual.
 
@@ -770,7 +770,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:31:37] Will: really, really creepy. Also,
 
-[00:31:40] Adam: the the production design is among the best production. I mean, there's tons of internet video of all the behind the scenes cars and testing and building that they did for the chase stuff.
+[00:31:40] Adam: the production design is among the best production. I mean, there's tons of internet video of all the behind the scenes cars and testing and building that they did for the chase stuff.
 
 [00:31:49] Norm: The real cars,
 
@@ -800,7 +800,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:32:48] Adam: I know the production designer says George Miller does not like things that do not work. So when you show him a prop, he goes, 'Great.' Plug it in. Let's see it go. And if it doesn't, he's like, " Come back when it works."
 
-[00:32:58] Will: I hope George Miller gets to make as many of these movies as he wants for for as long as he can. Yeah,
+[00:32:58] Will: I hope George Miller gets to make as many of these movies as he wants for as long as he can. Yeah,
 
 [00:33:03] Adam: I totally agree.
 

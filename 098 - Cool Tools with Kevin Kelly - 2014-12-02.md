@@ -16,7 +16,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:00:23] Norm: It'll take less than five minutes, and you'll also be entered to enter a raffle to win a $100 gift card from Amazon.
 
-[00:00:30] Will: It's an ongoing raffle. They'll need to collect your email address. They're only going to use it if you win the raffle, so you don't have to worry about it being sold to Russian spammers or Chinese militants or anything bad. Nothing bad's going to happen to your email address. It'll be perfectly safe, and you'll only see it used if you know you win the win the raffle. So the address again is podsurvey. dot com slash Untitled. I think that's it.
+[00:00:30] Will: It's an ongoing raffle. They'll need to collect your email address. They're only going to use it if you win the raffle, so you don't have to worry about it being sold to Russian spammers or Chinese militants or anything bad. Nothing bad's going to happen to your email address. It'll be perfectly safe, and you'll only see it used if you know you win the raffle. So the address again is podsurvey. dot com slash Untitled. I think that's it.
 
 [00:00:52] Norm: Back to the cave.
 
@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:01:23] Kevin: Well, I was actually involved in starting the WELL, which was the first public access to the internet. I did the Hackers First Hackers Conference, which brought together three generations of hackers. I did the Virtual Reality Jamboree. We call it Cyberthon, which was the first public access to VR in '89.
 
-[00:01:39] Adam: So wait, the WELL—you you helped birth the first trolls.
+[00:01:39] Adam: So wait, the WELL—you helped birth the first trolls.
 
 [00:01:43] Kevin: Exactly. I was there for the first flame.
 
@@ -50,11 +50,11 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:01:49] Will: Okay.
 
-[00:01:49] Adam: A few years ago, I'm at a. Oh, I have two, but the the main one is I'm at this event that that IDEO does called. Quickies, where people get up and talk about stuff that they're working on. I know, I know.
+[00:01:49] Adam: A few years ago, I'm at a. Oh, I have two, but the main one is I'm at this event that that IDEO does called. Quickies, where people get up and talk about stuff that they're working on. I know.
 
-[00:02:05] Will: Okay, that's that's not what I was expecting.
+[00:02:05] Will: Okay, that's not what I was expecting.
 
-[00:02:07] Adam: And after the quickie, I'm talking to a writer, a writer who writes for Wired, and we're just shooting the breeze. And I talked about something being open source, and he goes, " Yeah, that whole open source thing. I just don't think it scales." And I was like, " Are you kidding me? You really you don't think it scales? Yeah, I just don't see it." And I turned to my right, and there was Kevin Kelly talking to someone else, and I said, " Kevin, come here. This guy doesn't think open source scales, and you just started talking to him about it." Now that was my Woody Allen Marshall McLuhan moment. I got to actually get the the main advocate for open source and turn him on the writer. Yeah. But then the other thing that happened at that very same event was I was talking about I gave a 10 minute talk about building the Maltese Falcon, and Kevin is the one who came up to me and said. That is a lovely talk. You could refine that and turn that into a nice little thing, and that became my first TED talk.
+[00:02:07] Adam: And after the quickie, I'm talking to a writer who writes for Wired, and we're just shooting the breeze. And I talked about something being open source, and he goes, " Yeah, that whole open source thing. I just don't think it scales." And I was like, " Are you kidding me? You really you don't think it scales? Yeah, I just don't see it." And I turned to my right, and there was Kevin Kelly talking to someone else, and I said, " Kevin, come here. This guy doesn't think open source scales, and you just started talking to him about it." Now that was my Woody Allen Marshall McLuhan moment. I got to actually get the main advocate for open source and turn him on the writer. Yeah. But then the other thing that happened at that very same event was I was talking about I gave a 10 minute talk about building the Maltese Falcon, and Kevin is the one who came up to me and said. That is a lovely talk. You could refine that and turn that into a nice little thing, and that became my first TED talk.
 
 [00:03:05] Norm: Yeah. Oh.
 
@@ -74,7 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:03:25] Kevin: That's right.
 
-[00:03:25] Will: And talked kind of about the future. I think is the if I had to guess. Yeah. If I had to encompass everything into one one gap, you talked a little bit about travels, and then you talked about cool tools a lot, which which we've had on the site before. I think everybody here is is a fan of what you've done with this book.
+[00:03:25] Will: And talked kind of about the future. I think is the if I had to guess. Yeah. If I had to encompass everything into one one gap, you talked a little bit about travels, and then you talked about cool tools a lot, which we've had on the site before. I think everybody here is is a fan of what you've done with this book.
 
 [00:03:45] Adam: We bought two cases of these from Kevin last year and gave them away to everyone for Christmas.
 
@@ -82,9 +82,9 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:03:50] Kevin: Yeah. That so so one of the things I I did and talked about at XO XO was this self published entity. It was a physical book. It weighs five pounds. It has a lot of atoms in it. It's very big and oversized. It's a book that lists the coolest recommendable tools that that I and the readers of the website for the past 12 years know about, and the experience of self-publishing it is a pretty cool thing because I was just two people, and I made a book that was very similar to something that was made a long time ago called the Whole Earth Catalog, which I did work on eventually and publish, which is a same thing. It's kind of like an encyclopedia of user recommended cool stuff, and it was made with the state of the art technology at that time, which is newsprint, really cheap, Polaroids, IBM Selectric, typewriting for the text, but it took 30 people a year to make one of them, and I and my assistant basically made the same book in color. With two people, that is the power of technology. That's what is now possible. That's what all the stuff that we're excited by is allowing individuals to accomplish a lot more with fewer barriers.
 
-[00:05:17] Will: We do that right here, right? If you look at this, 20 years ago, this would have been a room in a special building, a special room in a special building with at least one and probably two people on the other side. More if we were actually doing real video, right? And yeah, everything. And and this is a thousand, maybe $1,200 worth of gear. Exactly, and it's a little bit overkill for what we do.
+[00:05:17] Will: We do that right here, right? If you look at this, 20 years ago, this would have been a room in a special building, a special room in a special building with at least one and probably two people on the other side. More if we were actually doing real video, right? And yeah, everything. And this is a thousand, maybe $1,200 worth of gear. Exactly, and it's a little bit overkill for what we do.
 
-[00:05:35] Kevin: So that so that amplification, which is what the this digital technology brings, is is really very powerful, particularly for individuals or small groups. And that's what the allowed me to self publish this book, which was about has about 1,500 different tools, and each one of them is a positive review. So these are recommendations. There are 1,500 recommendations of something that would allow you to leverage. And accomplish something. So these are things that allow you to make things and to make things happen. That's how my my definition is.
+[00:05:35] Kevin: So that amplification, which is what the this digital technology brings, is is really very powerful, particularly for individuals or small groups. And that's what the allowed me to self publish this book, which was about has about 1,500 different tools, and each one of them is a positive review. So these are recommendations. There are 1,500 recommendations of something that would allow you to leverage. And accomplish something. So these are things that allow you to make things and to make things happen. That's how my definition is.
 
 [00:06:09] Norm: Is it from one time period or from the whole 10 years?
 
@@ -100,15 +100,15 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:06:57] Will: They don't even tell you how to use it. They're just like, " Good luck." See you in two days.
 
-[00:06:59] Kevin: but I'm really big into renting tools. So you can rent, you know, a wet saw. You can rent a ditch witch. You can rent a hole auger. Just knowing that suddenly opens up all kinds of things that you didn't even think were possible before. And just seeing a a tool that oh yeah here's a tool that makes a small hole bigger. That's almost metaphorical. That's almost like profound.
+[00:06:59] Kevin: but I'm really big into renting tools. So you can rent, you know, a wet saw. You can rent a ditch witch. You can rent a hole auger. Just knowing that suddenly opens up all kinds of things that you didn't even think were possible before. And just seeing a tool that oh yeah here's a tool that makes a small hole bigger. That's almost metaphorical. That's almost like profound.
 
 [00:06:59] Adam: Well, right. I like the ones that make the big hole smaller.
 
-[00:07:25] Will: Right. That's tricky. It's a little harder. I I mean I think so. I discovered that you could rent jackhammers and stuff like that when I was in college, and I had this house and it had concrete in places that I didn't want there to be concrete anymore. So I rented a jackhammer. It was both the best and one of the worst weekends of my life because I realized really quickly that A, jackhammering up concrete is unbelievably hard work. Yeah. And then B getting rid of the jackhammered up concrete is a much harder problem than jackhammering up the concrete. So I had to go rent a truck after I rented the jackhammer, and you know then it was hilarious.
+[00:07:25] Will: Right. That's tricky. It's a little harder. I mean I think so. I discovered that you could rent jackhammers and stuff like that when I was in college, and I had this house and it had concrete in places that I didn't want there to be concrete anymore. So I rented a jackhammer. It was both the best and one of the worst weekends of my life because I realized really quickly that A, jackhammering up concrete is unbelievably hard work. Yeah. And then B getting rid of the jackhammered up concrete is a much harder problem than jackhammering up the concrete. So I had to go rent a truck after I rented the jackhammer, and you know then it was hilarious.
 
 [00:07:57] Adam: Yeah. Totally like that.
 
-[00:07:59] Kevin: Yeah, so this idea that that tools are kind of handle at one end and opportunity at the other, I think is the main message of this book, Cool Tools, which is it's aimed at young people really to open up and say, hey, you know, there's so much more possibilities in the world than you think there are, and that the college is even going to tell you. And here is here's a thing that shows you how you can run for public office and win, or here's how to
+[00:07:59] Kevin: Yeah, so this idea that that tools are kind of handle at one end and opportunity at the other, I think is the main message of this book, Cool Tools, which is it's aimed at young people really to open up and say, hey there's so much more possibilities in the world than you think there are, and that the college is even going to tell you. And here is here's a thing that shows you how you can run for public office and win, or here's how to
 
 [00:08:32] Will: build build a treehouse,
 
@@ -126,7 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:08:32] Kevin: It's it's like it's liberating because you realize that you can make an alternative to having a big house and a mortgage if if you needed to, and that that kind of confidence allows you to do all kinds of things that you would never attempt before.
 
-[00:09:03] Will: Well, and and so, like the whole Earth Catalog, the whole Earth Catalog was a fixture at one of my grandmother's houses. It was there with Campmor and Foxfire books and all that stuff. She was kind of a you know a 50 year old hippie in the late '60s, and she like it was it was it was one of the books on the back of the toilet in the downstairs bathroom, and you would just take it out and kind of flip through, and you'd learn about all sorts of novel things that you probably didn't know existed. I think that's what I think you you captured that really well with this. It reminds me a lot of that.
+[00:09:03] Will: Well, and so, like the whole Earth Catalog was a fixture at one of my grandmother's houses. It was there with Campmor and Foxfire books and all that stuff. She was kind of a you know a 50 year old hippie in the late '60s, and she like it was one of the books on the back of the toilet in the downstairs bathroom, and you would just take it out and kind of flip through, and you'd learn about all sorts of novel things that you probably didn't know existed. I think that's what I think you captured that really well with this. It reminds me a lot of that.
 
 [00:09:33] Kevin: So, for my own history, when I was in high school and graduating from high school, I discovered the Whole Earth Catalog for the first time. That was when it was coming out in '68, '69, 1968, 1969, and I got the message from the Whole Earth Catalog that I I didn't need to go to college and I could invent my own life.
 
@@ -136,13 +136,13 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:09:53] Adam: that's a hell of a thing to extrapolate.
 
-[00:09:53] Kevin: Yes, well, but and and and that's that set me on my course. It's like no, you can invent your life. You don't need to go to college. You don't need to work for corporation. There is this other parallel universe where you can make it up and do your own stuff. And I'm I'm hoping to some extent that that's part of this message of this book is that people will say, " Oh my gosh, I can I can hire people, I can hire freelancers to help me do anything I want on Elance. It's like it's amazing.
+[00:09:53] Kevin: Yes, well, but and that's that set me on my course. It's like no, you can invent your life. You don't need to go to college. You don't need to work for corporation. There is this other parallel universe where you can make it up and do your own stuff. And I'm I'm hoping to some extent that that's part of this message of this book is that people will say, " Oh my gosh, I can I can hire people, I can hire freelancers to help me do anything I want on Elance. It's like it's amazing.
 
 [00:10:28] Adam: Yeah, yeah.
 
 [00:10:28] Kevin: I do that all the time now for everything.
 
-[00:10:31] Will: You you said at XO, and I think I think that you copy edited the whole book in like three three
+[00:10:31] Will: You said at XO, and I think that you copy edited the whole book in like three three
 
 [00:10:35] Kevin: 48 hours.
 
@@ -172,9 +172,9 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:11:31] Will: That's a year's worth of work, probably.
 
-[00:11:31] Kevin: Right, but for someone else in India or somebody, oh, this is this is this is a job.
+[00:11:31] Kevin: Right, but for someone else in India or somebody, oh, this is a job.
 
-[00:11:37] Will: Well, and they and they do it fast.
+[00:11:37] Will: Well, and they do it fast.
 
 [00:11:39] Kevin: They do it, fast, and they're so good, and they keep track of it, and they're so professional. And so it's like it's speed that you get distributed, and you get it fast, and you get professional work, and you're making people around the world happy because they've they've got a job, they've got work to do.
 
@@ -204,17 +204,17 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:12:18] Adam: It's a black Christmas tree, Black Friday, Black.
 
-[00:12:21] Will: Um, but but I love we love to give tools for Christmas for for gifts.
+[00:12:21] Will: But I love we love to give tools for Christmas for gifts.
 
 [00:12:21] Adam: Yeah, yeah.
 
-[00:12:21] Will: And one of the things that we have not done that we've been promising for a very long time is to talk about like the essential toolkit for homes and for people. Like you you you you talked about sending your kids off to college and wanting to give them a box of the tools that they would need.
+[00:12:21] Will: And one of the things that we have not done that we've been promising for a very long time is to talk about like the essential toolkit for homes and for people. Like you talked about sending your kids off to college and wanting to give them a box of the tools that they would need.
 
 [00:12:39] Kevin: Well, that's actually how this all began, and because besides the fact that I was editing and publishing the Whole Earth Catalog, when the web came along, the catalog kind of died because the web was better. But I wanted to give a one of those storage crates, those plastic storage crates that kind of have the folding top. I wanted to give a crate full of tools to my kids when they left. Tools that they probably may not encounter elsewhere. But also, they would be the most general purpose tool. So it was like basically like what would be a really cool general purpose toolkit.
 
-[00:13:12] Will: And and you're thinking about stuff like household stuff, car stuff, fixing backpacks and stuff like that.
+[00:13:12] Will: And you're thinking about stuff like household stuff, car stuff, fixing backpacks and stuff like that.
 
-[00:13:17] Kevin: The most general purpose in the sense that you know, okay, I'm imagining them as sort of you know they have an art project or they want to do they want to maintain or fix something or they're living in renting a house somewhere and they have to fix it or they or they're going to make something. And so you want the most you know utilitarian wide purpose set of tools. And you know they know about a hammer, but they don't know about a forward action staple gun.
+[00:13:17] Kevin: The most general purpose in the sense that okay, I'm imagining them as sort of you know they have an art project or they want to do they want to maintain or fix something or they're living in renting a house somewhere and they have to fix it or they or they're going to make something. And so you want the most you know utilitarian wide purpose set of tools. And you know they know about a hammer, but they don't know about a forward action staple gun.
 
 [00:13:17] Will: Right.
 
@@ -234,7 +234,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:14:12] Adam: it's a hammer.
 
-[00:14:13] Kevin: This, this is. Imagine a staple gun with with the the handle reversed.
+[00:14:13] Kevin: This is. Imagine a staple gun with the handle reversed.
 
 [00:14:13] Will: Okay.
 
@@ -250,19 +250,19 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:15:09] Adam: it turns out.
 
-[00:15:11] Kevin: So the idea is is there are great tools like that. You don't want to misuse them, but but if you are going to fill the box or crate
+[00:15:11] Kevin: So the idea is is there are great tools like that. You don't want to misuse them, but if you are going to fill the box or crate
 
 [00:15:18] Adam: Yeah.
 
 [00:15:18] Kevin: with the stuff, let's get some really good, the best things that we can find that are going to be general purpose. So a staple gun to me is is an essential part of any kit because you can use it for I don't know art projects.
 
-[00:15:34] Adam: But the lovely thing about the reverse the reverse one is that it solves a problem you didn't realize was a problem, and is just the best. There is no better version of that device than that one. It is that's it, and it's great to have someone point you to that and say, " I used one of these for 25 years, and this one's better than all of those that I learned on."
+[00:15:34] Adam: But the lovely thing about the reverse one is that it solves a problem you didn't realize was a problem, and is just the best. There is no better version of that device than that one. It is that's it, and it's great to have someone point you to that and say, " I used one of these for 25 years, and this one's better than all of those that I learned on."
 
-[00:15:54] Kevin: Right, and that's actually. That is the form of the best canonical cool tool review. I've used all staple guns for the past 20 years, and this is the one you want to buy. If you can say that, then then that's you've sold it.
+[00:15:54] Kevin: Right, and that's actually. That is the form of the best canonical cool tool review. I've used all staple guns for the past 20 years, and this is the one you want to buy. If you can say that, then that's you've sold it.
 
 [00:16:09] Norm: And surprisingly, those things don't change very often.
 
-[00:16:11] Kevin: Yeah, in fact, it's very likely that something brand new is not going to be really, really classic because it takes two or three years for people to kind of see and compare it to other things that they had, and and you know the novelty of a new tool wear off pretty quickly. So a lot of the tools in cool tools are older ones, the ones that are not brand new this year. In fact, I shy away from trying to review the latest camera even because cameras are on this exponential improvement.
+[00:16:11] Kevin: Yeah, in fact, it's very likely that something brand new is not going to be really, really classic because it takes two or three years for people to kind of see and compare it to other things that they had, and you know the novelty of a new tool wear off pretty quickly. So a lot of the tools in cool tools are older ones, the ones that are not brand new this year. In fact, I shy away from trying to review the latest camera even because cameras are on this exponential improvement.
 
 [00:16:47] Norm: They iterate. Right. So quickly. Right.
 
@@ -270,9 +270,9 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:16:51] Norm: month.
 
-[00:16:52] Kevin: month is not going to be the best next month. But there are some camera stuff that let's say a tripod. They're not. They're not. Moving that fast, or or other kind of gear that you might recommend. So yeah.
+[00:16:52] Kevin: month is not going to be the best next month. But there are some camera stuff that let's say a tripod. They're not. They're not. Moving that fast, or other kind of gear that you might recommend. So yeah.
 
-[00:17:05] Will: So so do you want to you you you prepared a list, I think?
+[00:17:05] Will: So so do you want to you prepared a list, I think?
 
 [00:17:08] Kevin: I have a list of things that I I was imagining putting into the crate, and I started to put the tools in physically to put the tools in the crate, and I found out that oh my gosh, I filled it up so fast.
 
@@ -280,15 +280,15 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:17:21] Kevin: It gets very heavy, and so I decided the the book came about. It's like okay, I'm going to put in just a few of the tools, and then I put the book in, and the book will point to all the rest. So so so this this set may not is not going to fit into a crate, but this is a list of the kinds of things that again are maybe not as obvious as you know a hammer. Like another one is digital calipers.
 
-[00:17:49] Will: Yep. Digital calipers when buying a pair of a pair of $25 digital calipers are a life changing purchase.
+[00:17:49] Will: Yep. Digital calipers when buying a pair of $25 digital calipers are a life changing purchase.
 
 [00:17:54] Adam: You can now get a pair for $7 or $8.
 
-[00:17:56] Kevin: Yeah, it's it's amazing,
+[00:17:56] Kevin: Yeah, it's amazing,
 
 [00:17:57] Adam: and they're 99.99% as good. I don't get me wrong. I love my Mitutoyo and my Starrett calipers, and over the years, as a machinist, I have learned the value of really good ones. But as an entry level thing that allows you to measure the thickness of a human hair for $7, you can get a great digital caliper.
 
-[00:18:15] Kevin: Yeah, and the way for for the listeners, this is kind of like a sliding a ruler, like a slide rule. There's two two parts to it that slide along, and then there's a there's a there's a little readout that gives you the measurement of the width that you're trying to measure. So you squeeze the little what do you call it the prongs, the two prongs, and it will it will read the length that inside or outside of what you're trying to measure. And so
+[00:18:15] Kevin: Yeah, and the way for the listeners, this is kind of like a sliding a ruler, like a slide rule. There's two two parts to it that slide along, and then there's a little readout that gives you the measurement of the width that you're trying to measure. So you squeeze the little what do you call it the prongs, the two prongs, and it will read the length that inside or outside of what you're trying to measure. And so
 
 [00:18:46] Will: You can do depth too.
 
@@ -298,9 +298,9 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:18:47] Kevin: and so this is like if you're building anything that's small and you want to measure it. A tape measure is not going to work. You use a digital caliper.
 
-[00:18:57] Will: Or even if you want to know, like, if you want to know how thick a picture frame is going to be off the wall or something like that, it's they're great for that.
+[00:18:57] Will: Or even if you want to know if you want to know how thick a picture frame is going to be off the wall or something like that, it's they're great for that.
 
-[00:19:03] Kevin: Right. So so there's there's tons and tons of uses for it. So imagine it's kind of like a another smaller version of a tape measure, but you're measuring small things. So that's that's that's something that would add to this box. Another one would be, I have, I don't even know how to say this because I only ever read it, but the Knipex
+[00:19:03] Kevin: Right. So so there's there's tons and tons of uses for it. So imagine it's kind of like a another smaller version of a tape measure, but you're measuring small things. So that's something that would add to this box. Another one would be, I have, I don't even know how to say this because I only ever read it, but the Knipex
 
 [00:19:24] Adam: Knipex
 
@@ -314,9 +314,9 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:19:31] Will: Nippers are wires. You use them for straight edge wire snips.
 
-[00:19:34] Adam: Knipex makes a host of tools, and in general, if they make a tool, they make one of the best versions of that tool. And they used to be about $60 for a set of the the pressure pliers that would cut piano wire all day long and never dent. But now they make flush cutters and nippers. They make wire strippers. I just bought a pair of their wire strippers. They're cheaper than Greenlee's, cheaper than than a couple of the others that I've spent like $100 on. And better,
+[00:19:34] Adam: Knipex makes a host of tools, and in general, if they make a tool, they make one of the best versions of that tool. And they used to be about $60 for a set of the pressure pliers that would cut piano wire all day long and never dent. But now they make flush cutters and nippers. They make wire strippers. I just bought a pair of their wire strippers. They're cheaper than Greenlee's, cheaper than than a couple of the others that I've spent like $100 on. And better,
 
-[00:19:59] Kevin: yeah. I also have the wrenches. They have a set of kind of like channel lock wrenches that adjust the the mouth of it, and they're otherwise they're kind of just two two levers handles, and they are indestructible. They're hefty. They're very precise, and so
+[00:19:59] Kevin: yeah. I also have the wrenches. They have a set of kind of like channel lock wrenches that adjust the mouth of it, and they're otherwise they're kind of just two two levers handles, and they are indestructible. They're hefty. They're very precise, and so
 
 [00:20:17] Adam: fully parallel.
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:21:23] Will: They make good wire strippers.
 
-[00:21:24] Adam: Then my very first pair of dikes was used by someone, not me, to cut through a wire that was live, and so there's a there's a right right through it, and it actually makes a fantastic wire stripper for lamp cord specifically.
+[00:21:24] Adam: Then my very first pair of dikes was used by someone, not me, to cut through a wire that was live, and so there's a right right through it, and it actually makes a fantastic wire stripper for lamp cord specifically.
 
 [00:21:42] Kevin: So, so just for the visualization, is that live wire cuts a little hole,
 
@@ -370,7 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:22:14] Adam: Not only that, if I have a prop and I want to make it look like it's old, you can paint it black and then use the silver sharpie. Just just draw along the edges of the black, and it'll look like it's worn down. I have aged so many things with the silver sharpie.
 
-[00:22:33] Kevin: Okay, there's another use for it. So add that to the to the box. Another one is Kroil. I think I say Kroil penetrating oil.
+[00:22:33] Kevin: Okay, there's another use for it. So add that to the box. Another one is Kroil. I think I say Kroil penetrating oil.
 
 [00:22:41] Adam: Oh, Kroil is great.
 
@@ -402,13 +402,13 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:23:39] Adam: Yeah, it definitely does have that. Yeah, I agree.
 
-[00:23:42] Kevin: So, so it's actually a little hard to find. Most hardware stores don't sell it, but you can find it online. And it's, it's, it's a bit. There are other penetrating oils, but this one is particularly effective, and it's been around for like at least 100 years or something.
+[00:23:42] Kevin: So, so it's actually a little hard to find. Most hardware stores don't sell it, but you can find it online. And it's a bit. There are other penetrating oils, but this one is particularly effective, and it's been around for like at least 100 years or something.
 
 [00:23:54] Adam: It's great.
 
-[00:23:55] Kevin: Yeah, so another thing that I would add to this box is. Uh, cutting mats, or even a a magnetic cutting mat. So cutting mats are things that it's it's like a kind of a plastic mat that they call it self healing. Is you can cut on it with a razor blade or an X-Acto knife, and it doesn't leave a a groove in it like you would if on a cutting on a table or a piece of wood that then interrupts your cutting the next time.
+[00:23:55] Kevin: Yeah, so another thing that I would add to this box is. Cutting mats, or even a magnetic cutting mat. So cutting mats are things that it's like a kind of a plastic mat that they call it self healing. Is you can cut on it with a razor blade or an X-Acto knife, and it doesn't leave a groove in it like you would if on a cutting on a table or a piece of wood that then interrupts your cutting the next time.
 
-[00:24:24] Will: I I got a huge cutting mat for my work desk at home, and it was one of the best things I've ever bought.
+[00:24:24] Will: I got a huge cutting mat for my work desk at home, and it was one of the best things I've ever bought.
 
 [00:24:24] Kevin: Right,
 
@@ -424,7 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:24:49] Will: Oh, that's great.
 
-[00:24:50] Adam: You know, years ago when I worked as a graphic designer in New York in the mid '80s, that we used to buy. Something akin to the cutting board on a roll and cover our desks with it, and it was dimensional, probably about a sixteenth of an inch thick. And I can't remember what we called it; I might have called it like Borco or something like that. I'll have to see if I can find it.
+[00:24:50] Adam: Years ago when I worked as a graphic designer in New York in the mid '80s, that we used to buy. Something akin to the cutting board on a roll and cover our desks with it, and it was dimensional, probably about a sixteenth of an inch thick. And I can't remember what we called it; I might have called it like Borco or something like that. I'll have to see if I can find it.
 
 [00:25:11] Norm: it was on a roll, so you can when you use too much, you can just replace it.
 
@@ -432,7 +432,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:25:14] Norm: That's fantastic.
 
-[00:25:22] Kevin: Yeah, yeah. So, so, so, so that that's something that again, it's it's a tool that will actually make if you're doing a lot of cutting of anything, it's a great thing to have. And I think even small versions of it, which can fit into this crate, would would be useful.
+[00:25:22] Kevin: Yeah, yeah. So, so, so, so that that's something that again, it's a tool that will actually make if you're doing a lot of cutting of anything, it's a great thing to have. And I think even small versions of it, which can fit into this crate, would would be useful.
 
 [00:25:36] Adam: They make an 8.5 by 11 one, and I've got 20 of those.
 
@@ -446,9 +446,9 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:25:59] Will: You have to use it. Yeah, yeah.
 
-[00:26:01] Kevin: So another one I would add to this box are ball end hex wrenches. So hex wrenches or Allen wrenches, we sometimes call them. They're you know they're they're six sided wrenches that are used for assembling IKEA furniture or adjusting parts on your bicycle. But there is a version that's called a ball end that has a little ball on the end of it, the end that you sit in, and the reason why that's good is it allows you to come in at a slight angle.
+[00:26:01] Kevin: So another one I would add to this box are ball end hex wrenches. So hex wrenches or Allen wrenches, we sometimes call them. They're you know they're six sided wrenches that are used for assembling IKEA furniture or adjusting parts on your bicycle. But there is a version that's called a ball end that has a little ball on the end of it, the end that you sit in, and the reason why that's good is it allows you to come in at a slight angle.
 
-[00:26:28] Will: The first time we encountered these was when we built the first MakerBot. They shipped one of those for the for the M three bolts that they had, and it was a life changing experience for me because I I'd never encountered that before, and I was like, this is this is suddenly an infinitely more useful tool. Look, I can do it from an angle,
+[00:26:28] Will: The first time we encountered these was when we built the first MakerBot. They shipped one of those for the M three bolts that they had, and it was a life changing experience for me because I I'd never encountered that before, and I was like, this is suddenly an infinitely more useful tool. Look, I can do it from an angle,
 
 [00:26:45] Norm: right? Ergonomics,
 
@@ -468,7 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:27:08] Adam: You buy cheapy, cheapy Allen wrenches, and the small ones, at least, will start to soften around their corners. And there's nothing worse than stripping out your Allen wrench when you're trying to undo a little tiny screw.
 
-[00:27:20] Kevin: So, so the the brand that you like is called what?
+[00:27:20] Kevin: So, so the brand that you like is called what?
 
 [00:27:23] Adam: Bondhus.
 
@@ -476,7 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:27:27] Adam: I think they're French.
 
-[00:27:28] Kevin: So, um, another one that I am a big that would certainly put in this one is a 25 foot wide tape measure, the kind that rolls up. You know, your standard tape measure. And the idea here is is get a 25 foot one because they're not much heavier.
+[00:27:28] Kevin: So another one that I am a big that would certainly put in this one is a 25 foot wide tape measure, the kind that rolls up. You know, your standard tape measure. And the idea here is is get a 25 foot one because they're not much heavier.
 
 [00:27:47] Will: It's not much bigger than a 12 foot,
 
@@ -484,7 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:27:50] Will: Well, you can measure a room with a 25 foot, right? You can't really with a 12 foot.
 
-[00:27:53] Kevin: And the newest kind of these tape measures, if you haven't seen one, you know, even the even the fat ones. Are very they allow you to kind of extend it so you can actually hold it out?
+[00:27:53] Kevin: And the newest kind of these tape measures, if you haven't seen one even the fat ones. Are very they allow you to kind of extend it so you can actually hold it out?
 
 [00:27:53] Adam: Oh yeah,
 
@@ -500,7 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:28:16] Norm: Oh
 
-[00:28:17] Kevin: boy! Right, right, right. So, so, so, so, so it is worth looking at some of the newest one of these, and actually, I have a favorite that actually shows the the markings are show it on show the feet and the inches together for each marking. In other words, they don't just
+[00:28:17] Kevin: boy! Right, right, right. So, so, so, so, so it is worth looking at some of the newest one of these, and actually, I have a favorite that actually shows the markings are show it on show the feet and the inches together for each marking. In other words, they don't just
 
 [00:28:37] Will: oh, so it says six feet four inches
 
@@ -508,13 +508,13 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:28:40] Will: instead of just four inches, and then you have to go back.
 
-[00:28:41] Kevin: So, so it's like why not? You know, I mean, you are printing it doesn't doesn't cost any more to print that. So why not why not show all the markings?
+[00:28:41] Kevin: So, so it's like why not? I mean, you are printing it doesn't doesn't cost any more to print that. So why not show all the markings?
 
 [00:28:47] Will: So you have the calipers for small measurements less than a foot, and the tape measure for stuff that's a foot or bigger. That's great.
 
 [00:28:52] Kevin: Another one is screwdrivers. If you are gonna have a screwdriver, have a ratcheting screwdriver. It's like you know.
 
-[00:29:00] Will: Now I have to talk about this. Okay, my favorite screwdriver in the world, like my my 99% of the time screwdriver is the cheap four head, big bigs Phillips, small Phillips, big flat, small flat from Ace. Okay, you know you you flip the handle around, pop it out. it goes back in.
+[00:29:00] Will: Now I have to talk about this. Okay, my favorite screwdriver in the world, like my 99% of the time screwdriver is the cheap four head, big bigs Phillips, small Phillips, big flat, small flat from Ace. Okay you flip the handle around, pop it out. it goes back in.
 
 [00:29:16] Adam: When you pull the bits out, it's perfect for hose clamps.
 
@@ -532,7 +532,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:30:06] Adam: You have to buy a system,
 
-[00:30:07] Kevin: so you're buying a system. You're buying a system, and these, and eventually, very soon, the entire workshop tools are all going to be cordless, and because of the improvements in battery. And so, you want to kind of understand that you might as well decide, kind of, you know, you're going Nikon or Canon, kind of,
+[00:30:07] Kevin: so you're buying a system. You're buying a system, and these, and eventually, very soon, the entire workshop tools are all going to be cordless, and because of the improvements in battery. And so, you want to kind of understand that you might as well decide, kind of you're going Nikon or Canon, kind of,
 
 [00:30:26] Adam: right? Yeah, yeah, yeah, because you're going to buy a bunch of, because
 
@@ -556,7 +556,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:31:15] Kevin: Yeah,
 
-[00:31:15] Adam: yeah. I wanted to mention with it with the tape measure. Do you? I was just making a recommendation last night for a 12 year old's birthday, and I was suggesting a toolkit. And I was I wasn't even thinking that we were going to do this this morning, but I was making what tools a 12 year old would have should have. And I included a cloth tape.
+[00:31:15] Adam: yeah. I wanted to mention with it with the tape measure. Do you? I was just making a recommendation last night for a 12 year old's birthday, and I was suggesting a toolkit. And I was I wasn't even thinking that we were going to do this morning, but I was making what tools a 12 year old would have should have. And I included a cloth tape.
 
 [00:31:33] Norm: Oh,
 
@@ -580,7 +580,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:31:50] Kevin: Yeah. Right.
 
-[00:31:53] Will: Um. No, no. Go ahead. Sorry, I was just gonna say on the drill, um, chuckless,
+[00:31:53] Will: Um. No, no. Go ahead. Sorry, I was just gonna say on the drill chuckless,
 
 [00:31:59] Unknown: Keyless chucking.
 
@@ -588,7 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:31:53] Kevin: Right?
 
-[00:31:53] Will: And and
+[00:31:53] Will: And
 
 [00:32:08] Adam: And most of the models have that.
 
@@ -638,11 +638,11 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:33:26] Adam: Right. Right. Right. Right. Right.
 
-[00:33:27] Kevin: Okay. And then and then keep them charged, and then you you always have you always can reach for one that's ready to go.
+[00:33:27] Kevin: Okay. And then keep them charged, and then you always have you always can reach for one that's ready to go.
 
 [00:33:32] Adam: I came up with a need for C batteries recently.
 
-[00:33:34] Will: You You can get an Eneloop adapter.
+[00:33:34] Will: You can get an Eneloop adapter.
 
 [00:33:36] Adam: I haven't seen a C battery in ages.
 
@@ -668,7 +668,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:33:51] Adam: Wow.
 
-[00:33:51] Will: Well, and they make and and because they're because they're rechargeables, they make different densities. Right.
+[00:33:51] Will: Well, and they make and because they're rechargeables, they make different densities. Right.
 
 [00:33:56] Adam: Right. Right.
 
@@ -692,17 +692,17 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:34:11] Will: And just whenever you think about it, just dump, switch them over,
 
-[00:34:22] Kevin: right, right, right. Yeah. So, so, um, another another one I would put into this box is um a Stanley organizer tray. This is the the cheap, the affordable version of the sorto the um Sortimo
+[00:34:22] Kevin: right, right, right. Yeah. So, so another another one I would put into this box is a Stanley organizer tray. This is the cheap, the affordable version of the sorto the Sortimo
 
 [00:34:22] Norm: Sortimo.
 
-[00:34:22] Kevin: that that Adam is a big fan of. I have stacks and stacks of these, and the the the way that they're different from a normal well, it's a plastic organizing tray, but the way that they're different is that the interior divisions are themselves little trays that you can take out or or move around, and they come in different sizes, and so you can kind of um you can kind of uh adapt or modify the layout of the compartments to what it is that you're storing, and then you can take them out to work on. Workshop, you can remove those, and and they operate very similar to the sortimo, but they are like one tenth the cost.
+[00:34:22] Kevin: that that Adam is a big fan of. I have stacks and stacks of these, and the way that they're different from a normal well, it's a plastic organizing tray, but the way that they're different is that the interior divisions are themselves little trays that you can take out or move around, and they come in different sizes, and so you can kind of adapt or modify the layout of the compartments to what it is that you're storing, and then you can take them out to work on. Workshop, you can remove those, and they operate very similar to the sortimo, but they are like one tenth the cost.
 
 [00:35:18] Adam: Yeah, well, and when you search for sortimo on Amazon, that's what comes up. They've they've bought that search term, I think.
 
-[00:35:24] Kevin: And um, and and and then if you have a lot of stuff, you can make you can stack these trays. You can they have handles. You can kind of and they won't if you overturn them and it's closed, nothing shifts around, um and uh they're they're just indispensable for organizing small parts and small stuff.
+[00:35:24] Kevin: And then if you have a lot of stuff, you can make you can stack these trays. You can they have handles. You can kind of and they won't if you overturn them and it's closed, nothing shifts around and they're just indispensable for organizing small parts and small stuff.
 
-[00:35:44] Will: One of the things my mom gave me when I bought a house was, I mean, she basically went out and bought a a box that was similar to that. It's not the same thing, but it's a vertical box with a bunch of trays. It's not the box isn't great. The thing that's in it is awesome. She went to the hardware store and went and got a bunch of sheetrock nails, sheetrock screws, you know, different size nails, and just assorted fastening hardware for everything from like hanging pictures to bolting things to other things, and even some great big lag bolts to hang stuff in the garage. And put it all in a box and said, " Look, this is this this isn't all going to be perfect for when you're going to need stuff, but but this is the stuff that we use the most at home and have for the last 20 years, and it was it is proven to be incredibly useful.
+[00:35:44] Will: One of the things my mom gave me when I bought a house was, I mean, she basically went out and bought a box that was similar to that. It's not the same thing, but it's a vertical box with a bunch of trays. It's not the box isn't great. The thing that's in it is awesome. She went to the hardware store and went and got a bunch of sheetrock nails, sheetrock screws different size nails, and just assorted fastening hardware for everything from like hanging pictures to bolting things to other things, and even some great big lag bolts to hang stuff in the garage. And put it all in a box and said, " Look, this is this this isn't all going to be perfect for when you're going to need stuff, but but this is the stuff that we use the most at home and have for the last 20 years, and it was it is proven to be incredibly useful.
 
 [00:36:25] Kevin: Now that's a whole different challenge, which would be really cool. If you're going to give a 12 year old a box, what would you put in the sorting box?
 
@@ -724,11 +724,11 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:37:24] Will: It's kind of like electrical tape, right? But not.
 
-[00:37:26] Kevin: Yeah, but but there's no adhesive.
+[00:37:26] Kevin: Yeah, but there's no adhesive.
 
 [00:37:27] Will: No adhesive. Okay.
 
-[00:37:28] Kevin: Right, and so it's really big in the marine community and stuff because it's silicone, so it has it lasts a long time, is impervious to salt water, and that adhesive isn't being affected by the by the salt water.
+[00:37:28] Kevin: Right, and so it's really big in the marine community and stuff because it's silicone, so it has it lasts a long time, is impervious to salt water, and that adhesive isn't being affected by the salt water.
 
 [00:37:28] Adam: Right, right, right.
 
@@ -736,7 +736,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:37:43] Kevin: Yeah. Another one is cordless Dremel. We all know Dremels. Now that they're cordless, is like, why do why would you buy one that wasn't?
 
-[00:37:52] Adam: I have I have a I have an issue with this one.
+[00:37:52] Adam: I have a I have an issue with this one.
 
 [00:37:55] Kevin: Okay.
 
@@ -744,11 +744,11 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:38:00] Kevin: Okay. Well, there.
 
-[00:38:01] Adam: And I, you know, so I always have a corded one,
+[00:38:01] Adam: And I so I always have a corded one,
 
 [00:38:01] Kevin: Right?
 
-[00:38:01] Adam: And I've been a Dremel user for 30 years. I mean, it's just a totally indispensable model making tool with all the different bits and saws and sanders and flap sanders. It's just gotten better and better and better. And now they have real cordless Dremels with genuine good batteries. The old ones, the first iteration, was not that good. But I'm a moderate user. I mean, when I use it, I use it. But I'm a moderate user, and I've had two failures in the last.
+[00:38:01] Adam: And I've been a Dremel user for 30 years. I mean, it's just a totally indispensable model making tool with all the different bits and saws and sanders and flap sanders. It's just gotten better and better. And now they have real cordless Dremels with genuine good batteries. The old ones, the first iteration, was not that good. But I'm a moderate user. I mean, when I use it. But I'm a moderate user, and I've had two failures in the last.
 
 [00:38:32] Kevin: Is it the battery failing or the motor failing?
 
@@ -784,7 +784,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:39:32] Norm: oh, that's what we use. We shatter car windows with the exact same thing.
 
-[00:39:36] Adam: Um, I would be, I would love a recommendation for a never fail brand of those because I've been using those for 20 years, but I find that the springs wear out and that occasionally you'll they just they stop working. Okay, and I you know I've had that happen with with all of them that I've had over the years.
+[00:39:36] Adam: I would be, I would love a recommendation for a never fail brand of those because I've been using those for 20 years, but I find that the springs wear out and that occasionally you'll they just they stop working. Okay, and I you know I've had that happen with all of them that I've had over the years.
 
 [00:39:53] Kevin: Wow, yeah, well, see, I'm not a power user.
 
@@ -806,15 +806,15 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:40:25] Will: You can't go all the way through.
 
-[00:40:26] Kevin: It can't go all the way through. It doesn't far. But but but for, it's just fantastic for, like milling, drilling plastic or sheet sheet.
+[00:40:26] Kevin: It can't go all the way through. It doesn't far. But for, it's just fantastic for, like milling, drilling plastic or sheet sheet.
 
 [00:40:35] Norm: So once. Well,
 
 [00:40:36] Adam: that's the thing is there are drill bits specifically made for acrylic and for shattering plastics, and they usually have a very steep angled tip. And I have, in a pinch, actually, ground my own drills to become plexi bits. But those bits are expensive. Unibits will drill sixteenth inch acrylic without shattering it. They a normal drill bit as it's going through, it's got two cutting edges that are both moving material out of the cut, but they also will drag the drill into the cut. And in acrylic, when it does that, it just shatters. Yeah. And a normal drill bit in acrylic is a nightmare. Unibits, it's basically a scrape. And it doesn't have a long spiral, so it cuts through sheet material so beautifully. When I discovered the Unibits, it changed my life.
 
-[00:41:25] Will: It's almost when you watch it, you you almost make a curl of the acrylic off the side,
+[00:41:25] Will: It's almost when you watch it, you almost make a curl of the acrylic off the side,
 
-[00:41:30] Kevin: shaving it off, yeah, rather than cutting it. I guess is the word. I I put in my box a little tiny pry bar. It's it's it's kind of has a kind of has like a little claw went in, and it has a kind of a wedge at the other, and it's. You use it all the time. It's it's it's it's for taking out, you know, old nails. It's for prying things. It's leverage. It's it's a small.
+[00:41:30] Kevin: shaving it off, yeah, rather than cutting it. I guess is the word. I put in my box a little tiny pry bar. It's kind of has a little claw went in, and it has a kind of a wedge at the other, and it's. You use it all the time. It's for taking out old nails. It's for prying things. It's leverage. It's a small.
 
 [00:41:57] Will: It's a simple tool.
 
@@ -830,7 +830,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:42:31] Kevin: fantastic.
 
-[00:42:33] Adam: Fantastic. You know, along with zip ties, I'm gonna suggest the little Ziploc baggies, glassine bags. Tap plastic sells them in every size imaginable. And having for a project, you're working on a project. It's dinner time. You got to put it away, and you can put the little tiny screws that you've got in these bags and label them. I do it constantly to store projects.
+[00:42:33] Adam: Fantastic. Along with zip ties, I'm gonna suggest the little Ziploc baggies, glassine bags. Tap plastic sells them in every size imaginable. And having for a project, you're working on a project. It's dinner time. You got to put it away, and you can put the little tiny screws that you've got in these bags and label them. I do it constantly to store projects.
 
 [00:42:55] Kevin: That's a great idea. Yeah, can't have too many plastic bags.
 
@@ -840,7 +840,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:43:01] Adam: I actually almost never throw out Ziploc bags. I have a whole shelf just for Ziplocs, new, old, covered with them. I remember we saw we just got some costumes with Ziploc bags that were like 36.
 
-[00:43:13] Kevin: That’s what I'm saying. The big ones are. You you can get
+[00:43:13] Kevin: That’s what I'm saying. The big ones are. You can get
 
 [00:43:16] Adam: oh yeah I had no idea
 
@@ -858,7 +858,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:43:31] Adam: Gambino
 
-[00:43:33] Kevin: so something else I would throw into this box is a magnetic stud finder so this is a little tiny thing which is basically a couple super magnets on in a handheld device and what you do is you're finding the the nails in the stud which will allow you to tell you where the stud is so it's actually in my experience far more reliable than these I don't know the
+[00:43:33] Kevin: so something else I would throw into this box is a magnetic stud finder so this is a little tiny thing which is basically a couple super magnets on in a handheld device and what you do is you're finding the nails in the stud which will allow you to tell you where the stud is so it's actually in my experience far more reliable than these I don't know the
 
 [00:43:57] Will: ultrasonic ones.
 
@@ -880,7 +880,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:44:12] Norm: yes yeah that works I'll
 
-[00:44:13] Will: I'll tell you the secret is to just never put anything anywhere that but but above an outlet. So look for the wall ganging plate, and it's either gonna be the left or the right, and then go up. It's done.
+[00:44:13] Will: I'll tell you the secret is to just never put anything anywhere that but above an outlet. So look for the wall ganging plate, and it's either gonna be the left or the right, and then go up. It's done.
 
 [00:44:25] Norm: He’s really good at patching.
 
@@ -896,15 +896,15 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:44:53] Adam: Wow, I didn't even know about this.
 
-[00:44:54] Kevin: Yeah, it's it's it's um it's like simple. It's like $1 or something, and it's been around forever.
+[00:44:54] Kevin: Yeah, it's like simple. It's like $1 or something, and it's been around forever.
 
 [00:45:00] Will: They usually come in a set of like three.
 
-[00:45:01] Kevin: Phillips or standard, and so you can you can you can screw a screw that's hidden in some way.
+[00:45:01] Kevin: Phillips or standard, and so you can screw a screw that's hidden in some way.
 
-[00:45:08] Will: The other nice thing about those is because essentially you know the the screwdriver is a wheel a wheel and an axle. So, because the the 90 degree offset makes the outside of the wheel a lot bigger, yeah, you can put a ton of torque on the screw if you have something that's stuck with those.
+[00:45:08] Will: The other nice thing about those is because essentially you know the screwdriver is a wheel and an axle. So, because the 90 degree offset makes the outside of the wheel a lot bigger, yeah, you can put a ton of torque on the screw if you have something that's stuck with those.
 
-[00:45:23] Kevin: Um, twe tweezers,
+[00:45:23] Kevin: Twe tweezers,
 
 [00:45:25] Adam: tweezers,
 
@@ -916,13 +916,13 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:45:30] Adam: They are totally.
 
-[00:45:31] Will: These are like watchmakers' tweezers, right? The fine, the fine point.
+[00:45:31] Will: These are like watchmakers' tweezers, right? The fine point.
 
 [00:45:33] Adam: You can get them at any beauty store.
 
 [00:45:34] Will: Really?
 
-[00:45:34] Kevin: Yeah. Yeah. And and they have a little bit of of a grip at the end, and they're very very sharp. Meaning, I mean, that they're very very fine, so so you can pick up things with with great precision.
+[00:45:34] Kevin: Yeah. Yeah. And they have a little bit of a grip at the end, and they're very very sharp. Meaning, I mean, that they're very very fine, so so you can pick up things with great precision.
 
 [00:45:47] Adam: You can pull out the smallest splinters,
 
@@ -978,7 +978,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:47:02] Will: We’re taking a real weird Matrix turn here.
 
-[00:47:08] Kevin: Um, I like vise grips. The classic vise grip is to me. What should be in your box, and and then and there is a variety of them. So I I like to put in ones that look like that have like I have one that has a parallel flat.
+[00:47:08] Kevin: I like vise grips. The classic vise grip is to me. What should be in your box, and then and there is a variety of them. So I I like to put in ones that look like that have like I have one that has a parallel flat.
 
 [00:47:26] Adam: Yeah.
 
@@ -990,9 +990,9 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:47:31] Adam: those are so amazing.
 
-[00:47:32] Kevin: They're it's like it's like having two plates and a vise grip, so you can actually lock this thing in. It becomes like a real vise at that point.
+[00:47:32] Kevin: They're it's like having two plates and a vise grip, so you can actually lock this thing in. It becomes like a real vise at that point.
 
-[00:47:39] Adam: Yeah, so it's yeah they they they come down.
+[00:47:39] Adam: Yeah, so it's yeah they come down.
 
 [00:47:41] Kevin: Okay, imagine two plates the size of I don't know a cracker that are attached to the jaw.
 
@@ -1006,33 +1006,33 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:47:58] Adam: Well, no, you're reminding me that there was this great great list that made its way around the web a couple years ago of tools and just to give you the example, they showed a crescent wrench and said this is great for softening the edges of a bolt, and then they showed vise grips. This is perfect for making sure the bolt is useless because if you don't get it torqued enough, the vise grip can absolutely ruin your day.
 
-[00:48:23] Will: I one time, one time we had a tractor that the steering wheel came off of, and yeah, my father just took the vise grips, clamped them onto the thing. It was like.
+[00:48:23] Will: I one time we had a tractor that the steering wheel came off of, and yeah, my father just took the vise grips, clamped them onto the thing. It was like.
 
 [00:48:33] Adam: I have driven many vehicles with vise grips over the years.
 
-[00:48:37] Kevin: I think it's a perfectly valid use of of the tool.
+[00:48:37] Kevin: I think it's a perfectly valid use of the tool.
 
-[00:48:41] Adam: Oh, there and neat. They make um, they make big ones. They make little tiny, beautiful vise grips, needle nose vise grips. One of my favorite things.
+[00:48:41] Adam: Oh, there and neat. They make big ones. They make little tiny, beautiful vise grips, needle nose vise grips. One of my favorite things.
 
 [00:48:51] Will: You can round out anything with a pair needle nose vise grips.
 
-[00:48:53] Kevin: So for those who haven't seen a vise grip, it's like a pair of pliers, but there's the the jaw on one side is adjustable with with a with a screw, so you can actually adjust it, and then it is locked.
+[00:48:53] Kevin: So for those who haven't seen a vise grip, it's like a pair of pliers, but there's the jaw on one side is adjustable with a screw, so you can actually adjust it, and then it is locked.
 
 [00:49:06] Adam: It's got a little cam lock.
 
-[00:49:07] Kevin: It has a little lock with a lever, so that once you get very close to The closing of the jaws it locks it locks into at that position. So if you just you can adjust the the tension on this vise grip so that when it does close onto whatever you're gripping it won't come off. And that's why it can be abused is because um you can just strip something because or
+[00:49:07] Kevin: It has a little lock with a lever, so that once you get very close to The closing of the jaws it locks into at that position. So if you just you can adjust the tension on this vise grip so that when it does close onto whatever you're gripping it won't come off. And that's why it can be abused is because you can just strip something because or
 
 [00:49:36] Adam: you can dent it or mar it.
 
-[00:49:37] Kevin: you can dent it or mar it. So it can easily be abused, but it is a very handy thing. I mean, you can use it for other things other than tightening bolts. And that's the whole point is that you can you can grip a table, you can grip all kinds of things with one.
+[00:49:37] Kevin: you can dent it or mar it. So it can easily be abused, but it is a very handy thing. I mean, you can use it for other things other than tightening bolts. And that's the whole point is that you can grip a table, you can grip all kinds of things with one.
 
 [00:49:48] Adam: There's there's another use that it has which I use all the time, which is if you're grinding something small and metal, it's going to get hot really quickly, and you're going to have to be cooling it down constantly. But you can clamp it to a vise grip and grind all day long. It's great for holding onto small parts while you're filing and shaping them.
 
-[00:50:05] Kevin: Right, right. Um, last one is um. LED flashlights have sort of just—they're on another one of these curves of changing really, really fast.
+[00:50:05] Kevin: Right, right. Last one is. LED flashlights have sort of just—they're on another one of these curves of changing really, really fast.
 
 [00:50:17] Adam: And what are you using now?
 
-[00:50:18] Kevin: I have—I have this Tim Jenison Tim's Vermeer. If you've seen that movie about the guy, yeah. This is a pocketable. It's in the change pocket. It's
+[00:50:18] Kevin: I have this Tim Jenison Tim's Vermeer. If you've seen that movie about the guy, yeah. This is a pocketable. It's in the change pocket. It's
 
 [00:50:28] Will: that is much smaller than my. It's
 
@@ -1048,13 +1048,13 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:50:38] Adam: That’s lovely.
 
-[00:50:38] Kevin: You don't need to have one this small. I I like the ones that use one, one double A.
+[00:50:38] Kevin: You don't need to have one this small. I like the ones that use one, one double A.
 
 [00:50:48] Adam: Yeah, that's my favorite size.
 
-[00:50:49] Kevin: That that that because batteries are easy to find and you can you can have multiple ones of them, but LED technology keeps changing and improving really, really fast, and they're so handy. I mean, I I have them everywhere.
+[00:50:49] Kevin: That that that because batteries are easy to find and you can have multiple ones of them, but LED technology keeps changing and improving really, really fast, and they're so handy. I mean, I I have them everywhere.
 
-[00:51:02] Will: I I have to say I love a good headlamp. Like a headlamp is a is a.
+[00:51:02] Will: I have to say I love a good headlamp. Like a headlamp is a.
 
 [00:51:07] Adam: I'm a recent. Convert to headlamp.
 
@@ -1070,15 +1070,15 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:51:31] Kevin: Okay.
 
-[00:51:31] Will: Um, it's one. They have three. I can't remember which one that they recommended. But I think the the one that they recommended was black, and it's basically water resistant.
+[00:51:31] Will: It's one. They have three. I can't remember which one that they recommended. But I think the one that they recommended was black, and it's basically water resistant.
 
 [00:51:31] Kevin: Okay.
 
-[00:51:31] Will: Um, has dimmable. The thing. The reason I bought that one, it was a little bit more expensive, is because the red light is actually bright enough to use when I'm camping.
+[00:51:31] Will: Has dimmable. The thing. The reason I bought that one, it was a little bit more expensive, is because the red light is actually bright enough to use when I'm camping.
 
 [00:51:31] Kevin: Okay.
 
-[00:51:31] Will: So like normally on the on the lower end models, the it's a four battery, four battery four AAA light, I think. Um, and the red light was bright enough that I could see in the dark when I was walking. Not just when I was like sitting at camp looking at my hands.
+[00:51:31] Will: So like normally on the lower end models, the it's a four battery four AAA light, I think. And the red light was bright enough that I could see in the dark when I was walking. Not just when I was like sitting at camp looking at my hands.
 
 [00:52:06] Kevin: Okay, great. So, so you can use for camping as well?
 
@@ -1090,7 +1090,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:52:10] Kevin: Right.
 
-[00:52:16] Adam: Oh boy. I just wanted to show you. I'm always pleased when I can show an example of the absolute limit of a technology. So this is an internal Google project. That is, they they they developed it, and it's an incredibly. I'm not going to turn it on while I point it, but it's four four cluster.
+[00:52:16] Adam: Oh boy. I just wanted to show you. I'm always pleased when I can show an example of the absolute limit of a technology. So this is an internal Google project. That is, they developed it, and it's an incredibly. I'm not going to turn it on while I point it, but it's four four cluster.
 
 [00:52:35] Kevin: So there's 16 high watt LEDs.
 
@@ -1154,13 +1154,13 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:54:16] Will: You have a whole book.
 
-[00:54:17] Kevin: I have a whole book, and you know, it's sort of like, well, have we reached a limit to what's kind of general purpose? Yeah, I mean, I would throw in a aluminum speed square, which is a triangle, aluminum triangle that you use for kind of contractor work. It's like a right angle. It's for it's for, but you can get little small ones, and they're often good enough for what you want to do.
+[00:54:17] Kevin: I have a whole book, and it's sort of like, well, have we reached a limit to what's kind of general purpose? Yeah, I mean, I would throw in a aluminum speed square, which is a triangle, aluminum triangle that you use for kind of contractor work. It's like a right angle. It's for, but you can get little small ones, and they're often good enough for what you want to do.
 
 [00:54:37] Will: Well, and you can get those with a level built in too, which means that if you're hanging pictures or whatever, everyone needs a level for hanging pictures.
 
 [00:54:42] Adam: It's funny. I have a whole drawer full of rulers of about 18 inches or less and squares, and that speed square ends up becoming. I actually wish someone would design one a little more precise, a little tighter, because the speed squares made meant for building stairs.
 
-[00:54:56] Kevin: yeah, right for for kind of lumber
+[00:54:56] Kevin: yeah, right for kind of lumber
 
 [00:54:58] Will: contractor work,
 
@@ -1168,11 +1168,11 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:55:00] Adam: So it's very very perfect for that application.
 
-[00:55:04] Kevin: But you would like to have a kind of a a precise, precise, a precision version.
+[00:55:04] Kevin: But you would like to have a kind of a precise, precise, a precision version.
 
 [00:55:07] Adam: just a little more precise, yeah, yeah. But again, it comes out of that drawer more than almost any other square.
 
-[00:55:11] Kevin: Yeah, yeah. So there's, you know, there's lots of things we could add. One of the things I didn't add, which I, will you reminded me, which is, security bit set. So security means that a lot of your electronic devices these days have screws that have a head that are not your standard slot or Phillips
+[00:55:11] Kevin: Yeah, yeah. So there's there's lots of things we could add. One of the things I didn't add, which I, will you reminded me, which is, security bit set. So security means that a lot of your electronic devices these days have screws that have a head that are not your standard slot or Phillips
 
 [00:55:32] Will: or Allen.
 
@@ -1200,7 +1200,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:56:40] Kevin: Oh, really?
 
-[00:56:40] Adam: Manufacturer. Yeah, you, you, everyone was serial numbered. That's how serious. I mean, every everybody tries this, and it works for a while, and then it doesn't work anymore.
+[00:56:40] Adam: Manufacturer. Yeah, you, everyone was serial numbered. That's how serious. I mean, every everybody tries this, and it works for a while, and then it doesn't work anymore.
 
 [00:56:49] Will: Right. Somebody in China gets the factory.
 
@@ -1230,7 +1230,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:57:50] Adam: Yeah,
 
-[00:57:51] Kevin: but but it is, but having even a quality set of small micro screwdrivers and bits is actually an essential part of this thing because anything,
+[00:57:51] Kevin: but it is, but having even a quality set of small micro screwdrivers and bits is actually an essential part of this thing because anything,
 
 [00:57:51] Adam: Yeah, yeah,
 
@@ -1238,7 +1238,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:58:09] Will: eyeglasses too, Kevin.
 
-[00:58:10] Adam: I I particularly like The Wihas,
+[00:58:10] Adam: I particularly like The Wihas,
 
 [00:58:13] Kevin: Wihas, exactly.
 
@@ -1250,7 +1250,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:58:25] Adam: Do you want to keep going?
 
-[00:58:31] Will: I think we're good. I think I think we have fantastic. Oh my god! I think this is a wonderful list, and I mean, as always, we'd love to hear suggestions from you guys for stuff that we've forgotten.
+[00:58:31] Will: I think we're good. I think we have fantastic. Oh my god! I think this is a wonderful list, and I mean, as always, we'd love to hear suggestions from you guys for stuff that we've forgotten.
 
 [00:58:31] Adam: Oh yeah, totally.
 
@@ -1274,7 +1274,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:59:28] Kevin: It is available, and this
 
-[00:59:30] Adam: is a literally dozens of hours of of oogling and drooling and making plans to purchase. And actually, it's one of the ultimate bathroom books.
+[00:59:30] Adam: is a literally dozens of hours of oogling and drooling and making plans to purchase. And actually, it's one of the ultimate bathroom books.
 
 [00:59:41] Kevin: It is.
 
@@ -1290,7 +1290,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [01:00:31] Norm: They have to. They have to list it,
 
-[01:00:32] Kevin: and and then you're not surprised. And so, so it's always I'll look at whatever I'm going to buy a camera, stereo, whatever. I'm going to get the manual first. Look at the manual first to double check to make sure that this is what I want.
+[01:00:32] Kevin: and then you're not surprised. And so, so it's always I'll look at whatever I'm going to buy a camera, stereo, whatever. I'm going to get the manual first. Look at the manual first to double check to make sure that this is what I want.
 
 [01:00:45] Norm: God, AV equipment. It's essential.
 
@@ -1306,7 +1306,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [01:01:11] Will: stuff you don't want to have to move.
 
-[01:01:13] Kevin: Refrigerators, things that have a high breakage rate, and and
+[01:01:13] Kevin: Refrigerators, things that have a high breakage rate, and
 
 [01:01:18] Will: Like washers and dryers and stuff like that.
 
@@ -1318,7 +1318,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [01:01:39] Unknown: laptops. [unclear: I never purchasing Apple Care.]
 
-[01:01:39] Will: Laptops, phones. I buy I buy Apple Care because I drop
+[01:01:39] Will: Laptops, phones. I buy Apple Care because I drop
 
 [01:01:39] Adam: Really?
 
@@ -1326,9 +1326,9 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [01:01:49] Kevin: Well, there you go. Yeah. Anyway, so this is a book on Amazon. It's a great gift. It's particularly aimed for young people, people in college, trying to open up to them the idea that the hey, small set of tools you can do almost anything.
 
-[01:02:02] Adam: My my wife, who's not a maker, she's very facile. She's a wonderful cook, but she's like she doesn't make things in general. This was on our table right after I got the first review copy, and she was like, " This is the greatest book ever."
+[01:02:02] Adam: My wife, who's not a maker, she's very facile. She's a wonderful cook, but she's like she doesn't make things in general. This was on our table right after I got the first review copy, and she was like, " This is the greatest book ever."
 
-[01:02:16] Kevin: Yeah, it's it's
+[01:02:16] Kevin: Yeah, it's
 
 [01:02:20] Adam: A lot of cross appeal.
 
@@ -1338,7 +1338,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [01:02:29] Kevin: Yeah, exactly. Or whether you need a composting toilet, or actually, if you need a low flush toilet that really does flush, I have one to recommend.
 
-[01:02:39] Will: This this is wonderful.
+[01:02:39] Will: This is wonderful.
 
 [01:02:40] Adam: That is a great. We've gone all the way into the toilet.
 
@@ -1352,7 +1352,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [01:02:47] Will: What's the website? It's the books on Amazon.
 
-[01:02:50] Kevin: The the website is I think is Cool Dash Tools.
+[01:02:50] Kevin: The website is I think is Cool Dash Tools.
 
 [01:02:55] Will: Okay,
 

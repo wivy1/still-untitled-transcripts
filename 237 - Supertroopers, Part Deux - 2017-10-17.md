@@ -28,7 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:00:33] Norm: Doesn't make it.
 
-[00:00:33] Adam: This is we had, um, we had a Star Trek bit. Also, your microphone, I can't quite hear you. I think you want to talk into the face of it.
+[00:00:33] Adam: This is we had a Star Trek bit. Also, your microphone, I can't quite hear you. I think you want to talk into the face of it.
 
 [00:00:40] Ryan: Got it. Yeah,
 
@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:00:40] Unknown speaker: A little better.
 
-[00:00:40] Adam: Um, we had a Star Trek bit in the Jamie Hyneman Adam Savage touring show for a while, and my tour manager Gretchen said something about. I can't even. She didn't say Star Wars. She said, and I'm not sure she even said Star Trek. But it was like it was a level of remove from the cultural phenomenon of both Star Wars and Star Trek that was quite impressive.
+[00:00:40] Adam: We had a Star Trek bit in the Jamie Hyneman Adam Savage touring show for a while, and my tour manager Gretchen said something about. I can't even. She didn't say Star Wars. She said, and I'm not sure she even said Star Trek. But it was like it was a level of remove from the cultural phenomenon of both Star Wars and Star Trek that was quite impressive.
 
 [00:01:06] Ryan: I knew I liked Gretchen,
 
@@ -78,15 +78,15 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:02:30] Norm: They had two full Enterprise D bridges that they built because they would run these simultaneously with full casts and a motion simulator ride. And then you could also pay to have like an event. You could get married on the bridge of the Star Trek Enterprise, like a full immersive experience, not just like a Star Tour type thing.
 
-[00:02:47] Adam: So I'm in Vegas a few years ago, and I can't even remember where the hell we were. I think my wife and I were staying at the Palazzo because I had a corporate appearance there. And my buddy Steve Molaro writes to me. Steve is a showrunner for Big Bang Theory, and he's like, " Dude, you're in Vegas." I'm like, " Yeah, I am." And he's like, " They're they're having a garage sale of all the props and costumes from the Star Trek experience right now." And I'm like, " Right now?" And he's like, " Well, it's 9:30 now, and the the garage sale opens at 10:00 a.m." And I was like, " Baby, I gotta go." So I'm like, I got so excited, and you know, it's Sunday at 9:30 in the morning in Vegas. Like that is maybe Vegas as quiet as possible.
+[00:02:47] Adam: So I'm in Vegas a few years ago, and I can't even remember where the hell we were. I think my wife and I were staying at the Palazzo because I had a corporate appearance there. And my buddy Steve Molaro writes to me. Steve is a showrunner for Big Bang Theory, and he's like, " Dude, you're in Vegas." I'm like, " Yeah, I am." And he's like, " They're they're having a garage sale of all the props and costumes from the Star Trek experience right now." And I'm like, " Right now?" And he's like, " Well, it's 9:30 now, and the the garage sale opens at 10:00 a.m." And I was like, " Baby, I gotta go." So I'm like, I got so excited, and it's Sunday at 9:30 in the morning in Vegas. Like that is maybe Vegas as quiet as possible.
 
 [00:03:30] Norm: It's closer to when Steven Soderbergh shoots his scenes for Ocean's films, right?
 
-[00:03:34] Adam: Right. So it's so it's 9:30 in the morning. I jump out of bed. I get on my clothes. I run downstairs. I catch a cab to this address, and you know, Vegas. I like I drive for half an hour to some warehouse district in the middle of absolute nowhere. This looks like a rejected. A rejected scene from Breaking Bad is where I've been taking the cab,
+[00:03:34] Adam: Right. So it's 9:30 in the morning. I jump out of bed. I get on my clothes. I run downstairs. I catch a cab to this address, and Vegas. I like I drive for half an hour to some warehouse district in the middle of absolute nowhere. This looks like a rejected. A rejected scene from Breaking Bad is where I've been taking the cab,
 
 [00:03:34] Norm: So sad.
 
-[00:03:34] Adam: and the cab pulls up out front, and I look, and there's like 500 people on line, and I remember at that moment that I'm famous, and everyone turns and is like, " Oh, cool." So, you know, I get on line, and people are really awesome, and we start talking about Star Trek, and then the organizers come out. They've heard that I'm in line, so they come out and it's Mr. Savage. Will you join us? And so they bring me in before it opens.
+[00:03:34] Adam: and the cab pulls up out front, and I look, and there's like 500 people on line, and I remember at that moment that I'm famous, and everyone turns and is like, " Oh, cool." So I get on line, and people are really awesome, and we start talking about Star Trek, and then the organizers come out. They've heard that I'm in line, so they come out and it's Mr. Savage. Will you join us? And so they bring me in before it opens.
 
 [00:04:25] Norm: Fantastic!
 
@@ -96,7 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:04:29] Norm: What do they have?
 
-[00:04:30] Adam: What they had, I mean, it was it was like it was like you know panel displays and LCARS displays and costumes. I looked at it. I like touched a Klingon costume, and the the woman went, " Trust me, you don't want to do you don't want to have anything to do with that costume." And it was like it's got the DNA and sweat of like seven. Thousand actors.
+[00:04:30] Adam: What they had, I mean, it was like you know panel displays and LCARS displays and costumes. I looked at it. I like touched a Klingon costume, and the woman went, " Trust me, you don't want to do you don't want to have anything to do with that costume." And it was like it's got the DNA and sweat of like seven. Thousand actors.
 
 [00:04:52] Norm: I bet the smell of foam latex.
 
@@ -104,19 +104,19 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:05:04] Norm: Oh, oh! What would you have wanted from that? Do you think?
 
-[00:05:08] Adam: I, I feel like I would have wanted some type of. I tell a lie. I actually did buy a little LCARS display, which somehow got lost in some move between shops at some point. But I would have wanted almost like a control panel, like one of the bridge, like one of the smaller bridge control panels, or some device from the background.
+[00:05:08] Adam: I feel like I would have wanted some type of. I tell a lie. I actually did buy a little LCARS display, which somehow got lost in some move between shops at some point. But I would have wanted almost like a control panel, like one of the bridge, like one of the smaller bridge control panels, or some device from the background.
 
-[00:05:27] Norm: Yeah, like the the the comms panel or navigation, so you can like tell tell. Wil Wheaton  I got your panel.
+[00:05:27] Norm: Yeah, like the comms panel or navigation, so you can like tell tell. Wil Wheaton I got your panel.
 
 [00:05:33] Adam: What is that thing Spock was always looking in? I want one of those. Yeah, the microscope with the glowing blue light.
 
-[00:05:37] Norm: Because they had built out a full promenade from Deep Space Nine. It was a bar. I remember they they had characters walking around pretending to be characters, and it was really sad because they used to have the annual big Star Trek convention at that bar. And then once the Hilton shut down that the whole attraction, everything they put it away in storage, and you'd hear rumors pop up that some developer was going to buy it up and put it in a mall somewhere or like you know Miracle Mile or something, but never happened, and so it all just went away.
+[00:05:37] Norm: Because they had built out a full promenade from Deep Space Nine. It was a bar. I remember they had characters walking around pretending to be characters, and it was really sad because they used to have the annual big Star Trek convention at that bar. And then once the Hilton shut down that the whole attraction, everything they put it away in storage, and you'd hear rumors pop up that some developer was going to buy it up and put it in a mall somewhere or like you know Miracle Mile or something, but never happened, and so it all just went away.
 
-[00:06:06] Ryan: I have to admit, even though it's no secret, sci-fi is not my my my my highest on my list.
+[00:06:06] Ryan: I have to admit, even though it's no secret, sci-fi is not my highest on my list.
 
 [00:06:06] Adam: Not my jam,
 
-[00:06:06] Ryan: Not my jam. but I definitely actually I remember going to uh to that a couple times actually because whenever people came in town,
+[00:06:06] Ryan: Not my jam. but I definitely actually I remember going to that a couple times actually because whenever people came in town,
 
 [00:06:06] Adam: yeah, someone to take them to.
 
@@ -130,7 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:06:23] Ryan: Nice.
 
-[00:06:23] Norm: the people, what they would their their holiday parties, uh, but it was fascinating.
+[00:06:23] Norm: the people, what they would their holiday parties but it was fascinating.
 
 [00:06:44] Adam: half dress Klingons.
 
@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:07:14] Ryan: two versions.
 
-[00:07:15] Norm: Black Mirror did two seasons. It's it's all run by the same person, and it's British based. So they did two seasons in the UK. I believe it was like three movie length episodes per season, and then as they do with the UK shows, they did a holiday special, which is like a three part story. But as they typically, they all tied together at some point.
+[00:07:15] Norm: Black Mirror did two seasons. It's all run by the same person, and it's British based. So they did two seasons in the UK. I believe it was like three movie length episodes per season, and then as they do with the UK shows, they did a holiday special, which is like a three part story. But as they typically, they all tied together at some point.
 
 [00:07:36] Adam: They did, and so and
 
@@ -170,7 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:07:39] Ryan: Okay, because I remember the original.
 
-[00:07:40] Adam: I love Black Mirror. I find it slightly uneven, but that Christmas special is among the tightest, most efficient screenwriting I have come across in film or television. Boy, like every Thing that that show does to communicate to you the world that you're in and how much it doesn't communicate and lets you fill in, like you arrive and you're in some sort of Antarctic way station that these two guys have been in for five years. You understand this from the from the from the exposition, and you just fill in like, oh, it's somehow the post apocalypse and these guys are it's some kind of penance or prison or something,
+[00:07:40] Adam: I love Black Mirror. I find it slightly uneven, but that Christmas special is among the tightest, most efficient screenwriting I have come across in film or television. Boy, like every Thing that that show does to communicate to you the world that you're in and how much it doesn't communicate and lets you fill in, like you arrive and you're in some sort of Antarctic way station that these two guys have been in for five years. You understand this from the exposition, and you just fill in like, oh, it's somehow the post apocalypse and these guys are it's some kind of penance or prison or something,
 
 [00:08:21] Norm: and they tell each other stories.
 
@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:08:22] Adam: Holy cow, It’s so tight. the way in which Black Mirror takes an idea and dives really deeply into all the aspects of it that could be messed up is amazing.
 
-[00:08:34] Norm: Which is why I like the original first two seasons a little more. I know it's it's trite to say than the U.S. one because the U.S. one they release like all these episodes at once, and I think the U.S. one is a little more like what? Hey, the story is what if cell phones, but too much. Like, I give me a little more depth, and I think the U.K. ones took some of those ideas a little further. There is one episode I think it was Emmy Award winning. That speaking of Blade Runner, Mackenzie Davis was in San Junipero. So that's the one I would recommend watching from the Netflix U.S. run.
+[00:08:34] Norm: Which is why I like the original first two seasons a little more. I know it's trite to say than the U.S. one because the U.S. one they release like all these episodes at once, and I think the U.S. one is a little more like what? Hey, the story is what if cell phones, but too much. Like, I give me a little more depth, and I think the U.K. ones took some of those ideas a little further. There is one episode I think it was Emmy Award winning. That speaking of Blade Runner, Mackenzie Davis was in San Junipero. So that's the one I would recommend watching from the Netflix U.S. run.
 
 [00:09:07] Adam: You mean Junipero?
 
@@ -214,9 +214,9 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:10:32] Norm: So it's a lot of these films come out with art books. You know, the making of
 
-[00:10:36] Adam: most big, most big aesthetically important films have some large coffee table book that associate that comes out with them.
+[00:10:36] Adam: most big aesthetically important films have some large coffee table book that associate that comes out with them.
 
-[00:10:44] Norm: And this one that's coming out for Blade Runner, I don't think it's exactly out yet. They call it specifically the art and soul of Blade Runner 2049, and it was. It's not just the the art of But it's really chronicles journey. How did this film get made? And it's written by. I'm apologize. I forget her name. But it's the director's partner,
+[00:10:44] Norm: And this one that's coming out for Blade Runner, I don't think it's exactly out yet. They call it specifically the art and soul of Blade Runner 2049, and it was. It's not just the art of But it's really chronicles journey. How did this film get made? And it's written by. I'm apologize. I forget her name. But it's the director's partner,
 
 [00:11:03] Adam: Villeneuve's wife.
 
@@ -224,19 +224,19 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:11:04] Adam: wife. Yeah, yeah. Who is a journalist?
 
-[00:11:05] Norm: It's a journalist. So it's 100% taken from the journalist perspective of someone who's embedded in a production, and interviewed all the participants throughout, and writing it more than just hiring a writer who's a fan and and writing captions for photos.
+[00:11:05] Norm: It's a journalist. So it's 100% taken from the journalist perspective of someone who's embedded in a production, and interviewed all the participants throughout, and writing it more than just hiring a writer who's a fan and writing captions for photos.
 
-[00:11:20] Adam: Well, and so as I was saying last week during the spoiler cast, when Ryan Gosling is having his baseline test, the book chronicles how the scene was originally written, how Gosling intersected with that scene, and thought, " I need something more to understand what's going on," and worked with Villeneuve to deepen that whole scene based on the the goal of the scene, based on this. So it's just this wonderful example of the writers, Michael Green and Hampton Fancher, coming up with this really interesting scenario, and the actor Gosling coming in and saying. In order for me to understand what's happening here, I need to modify and deepen this experience. And doing that, so it's this entire this idea of that a great film like this comes out of a deep collaboration from all corners, from the screenwriters to the talent to the director, all going, " Oh, we can add this, we can add this, we can add this." And it's the book chronicles that repeatedly throughout the design process, throughout the writing and narrative process.
+[00:11:20] Adam: Well, and so as I was saying last week during the spoiler cast, when Ryan Gosling is having his baseline test, the book chronicles how the scene was originally written, how Gosling intersected with that scene, and thought, " I need something more to understand what's going on," and worked with Villeneuve to deepen that whole scene based on the goal of the scene, based on this. So it's just this wonderful example of the writers, Michael Green and Hampton Fancher, coming up with this really interesting scenario, and the actor Gosling coming in and saying. In order for me to understand what's happening here, I need to modify and deepen this experience. And doing that, so it's this entire this idea of that a great film like this comes out of a deep collaboration from all corners, from the screenwriters to the talent to the director, all going, " Oh, we can add this, we can add this, we can add this." And it's the book chronicles that repeatedly throughout the design process, throughout the writing and narrative process.
 
 [00:12:23] Norm: Got to watch the film, Ryan.
 
-[00:12:24] Ryan: It's so it's so on my list. I should have done it this weekend. I am really upset with myself.
+[00:12:24] Ryan: It's so on my list. I should have done it this weekend. I am really upset with myself.
 
 [00:12:27] Norm: Well, you are running out of time because, and this is the part I am super conflicted about because I want to see it again in Dolby theaters, but because the film is doing so poorly, it may not be in theaters. They might be pulling it soon, and I want to wait till I get the book and have a chance to dive in the book, read the entire, and then enjoy it in theaters again.
 
 [00:12:46] Adam: Well, so I also have another hope about the film, which is I recognize its U.S. opening was softer than they anticipated, 31 million instead of 47. I am very sad about that, and mostly the reason that I am sad about that. We might have talked about this last week. Is this? It means that less. It means that movie studios are going to be rightfully more circumspect about blowing $150 million on a movie like this. I understand the reason that they would be. I just feel like it's better for culture overall if there are big risky bets made, like Alcon made on this film, because the result, even though it might not be a box office smash, is a magnificent addition to the canon of science fiction film and film in general. And it's such an important movie, as far as I'm concerned, that I think it will be nominated for several Oscars. And I hope that the Oscar campaign revivifies and perhaps gives a second theatrical life to this film.
 
-[00:13:40] Norm: And while we talk about shows like Black Mirror, and I know there's a resurgence in these anthology science fiction shows. Spielberg just signed up to do Amazing Stories for Apple, which could be an anthology show, and also there's the Philip K. Dick Electric Dreams series that Bryan Cranston's doing. Those are great, and those are going to expand the the horizon for a lot of these stories. But they're not the cinematic experience,
+[00:13:40] Norm: And while we talk about shows like Black Mirror, and I know there's a resurgence in these anthology science fiction shows. Spielberg just signed up to do Amazing Stories for Apple, which could be an anthology show, and also there's the Philip K. Dick Electric Dreams series that Bryan Cranston's doing. Those are great, and those are going to expand the horizon for a lot of these stories. But they're not the cinematic experience,
 
 [00:13:40] Unknown speaker: Right.
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:14:38] Ryan: All right. I'm going to make this happen this week, just to clarify, because I'm really tired of not knowing what's going on with this movie.
 
-[00:14:43] Adam: Now, speaking of great movies, I was lucky enough, and I'm allowed to talk about it. Luckily, I was lucky enough to go to the the wrap party for Coco, the new Pixar film directed by Lee Unkrich, and it is. I'm here to tell you. Coco is amazing. Like it is an incredible film. I don't, I, I don't want to spoil anything about it. It has, uh, it has to do, uh, deeply with Mexican culture and Dia de Dia de Muertos, um, and uh, how Mexican culture thinks about their dead and remembers them. It's also deeply about family, and like any good Pixar film, family plays this super important role. And um, it was hard to see the last half hour through my tears of joy. I'm not kidding. It's one of these like, so the films, like again, no spoilers. I promise, no spoilers at all. I will say that the film sets up things at the beginning where you think, oh, I bet that's gonna happen, and it subverts most of the things that you think.
+[00:14:43] Adam: Now, speaking of great movies, I was lucky enough, and I'm allowed to talk about it. Luckily, I was lucky enough to go to the wrap party for Coco, the new Pixar film directed by Lee Unkrich, and it is. I'm here to tell you. Coco is amazing. Like it is an incredible film. I don't, I, I don't want to spoil anything about it. It has to do deeply with Mexican culture and Dia de Muertos and how Mexican culture thinks about their dead and remembers them. It's also deeply about family, and like any good Pixar film, family plays this super important role. And it was hard to see the last half hour through my tears of joy. I'm not kidding. It's one of these like, so the films, like again, no spoilers. I promise, no spoilers at all. I will say that the film sets up things at the beginning where you think, oh, I bet that's gonna happen, and it subverts most of the things that you think.
 
 [00:14:43] Norm: That's good,
 
@@ -286,7 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:15:59] Norm: And one step ahead,
 
-[00:16:00] Adam: and it is such a great ride. I've never seen lighting and sets and a subtlety of the. Distance of this incredible world that they created. This is not Book of Life, another wonderful film that also deals deeply in Mexican culture, produced by Guillermo del Toro. This is not the same plot. It's not a ripoff. They're you know completely separate entities. And the the the world premiere opening of Coco will be in Mexico City. If I if I understand correctly,
+[00:16:00] Adam: and it is such a great ride. I've never seen lighting and sets and a subtlety of the. Distance of this incredible world that they created. This is not Book of Life, another wonderful film that also deals deeply in Mexican culture, produced by Guillermo del Toro. This is not the same plot. It's not a ripoff. They're you know completely separate entities. And the world premiere opening of Coco will be in Mexico City. If I understand correctly,
 
 [00:16:27] Norm: what Pixar film do you think this mostly is a sibling to?
 
@@ -296,13 +296,13 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:16:34] Adam: Oh, my gosh, that's a really great question.
 
-[00:16:37] Norm: Like, if you like this type of Pixar film, because some people like they like Incredibles because of its action adventure, and yes, there's family there, but they or they like or you know, Inside Out was wonderful because it's a movie you can really watch with a child growing up.
+[00:16:37] Norm: If you this type of Pixar film, because some people like they like Incredibles because of its action adventure, and yes, there's family there, but they or they like or Inside Out was wonderful because it's a movie you can really watch with a child growing up.
 
 [00:16:51] Adam: Plays on multiple levels. This one also plays on multiple levels. It is an adventure story. It is a journey inside, right? So there's a lot. There's a little Inside Out. There's a little Bugs Life. Like this is what the world looks like from this perspective in a way that you didn't expect. Okay, it's Deeply musical in a way that's really important, and
 
 [00:17:13] Norm: that's different.
 
-[00:17:14] Adam: And Michael Giacchino's score is incredible. There's some beautiful songs in it that will wreck you in the best way. It was originally apparently a musical, then scaled back. It still is a little. There's a musical aspect to it, a Hollywood musical aspect to it, [unclear: but it’s not. It’s essentially / but it’s not essentially] a musical in terms of songs pushing the plot forward. But it's it's really magnificent, and there's so many. I mean, basically, this is a movie you can go see three times and never see the same thing twice because you're like you start looking at oh the density again the the one of the things the undersung things about Pixar they get a lot of attention for their character and story because they pay deep attention to that they get a lot of attention for the the look but when you talk about the look you're talking about entire teams of people designing sets of surpassing intricacy and then lighting teams who are writing algorithms about how light moves through these worlds and the light in these worlds are Mind-bendingly lovely. So it's it's. I can't gush enough about it. Full disclosure. Full disclosure. Lee Unkrich, the director co-director, is a good friend of mine, and a lot of friends of mine. I have a lot of friends at Pixar, so I've already drunk that Kool Aid. Just so you know,
+[00:17:14] Adam: And Michael Giacchino's score is incredible. There's some beautiful songs in it that will wreck you in the best way. It was originally apparently a musical, then scaled back. It still is a little. There's a musical aspect to it, a Hollywood musical aspect to it, [unclear: but it’s not. It’s essentially / but it’s not essentially] a musical in terms of songs pushing the plot forward. But it's really magnificent, and there's so many. I mean, basically, this is a movie you can go see three times and never see the same thing twice because you're like you start looking at oh the density again the one of the things the undersung things about Pixar they get a lot of attention for their character and story because they pay deep attention to that they get a lot of attention for the look but when you talk about the look you're talking about entire teams of people designing sets of surpassing intricacy and then lighting teams who are writing algorithms about how light moves through these worlds and the light in these worlds are Mind-bendingly lovely. So it's. I can't gush enough about it. Full disclosure. Full disclosure. Lee Unkrich, the director co-director, is a good friend of mine, and a lot of friends of mine. I have a lot of friends at Pixar, so I've already drunk that Kool Aid. Just so you know,
 
 [00:18:30] Norm: I think we're all kind of on the Pixar.
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:18:39] Norm: Oh.
 
-[00:18:39] Adam: And um, it's totally true. It really does feel like a bridge between cultures in a way that's really important.
+[00:18:39] Adam: And it's totally true. It really does feel like a bridge between cultures in a way that's really important.
 
 [00:19:01] Ryan: Okay,
 
@@ -330,15 +330,15 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:19:02] Ryan: totally awesome. I'm super excited.
 
-[00:19:05] Norm: Visually, so in terms of the the Disney World, somebody did over the weekend. I was a quick shout out. We have in San Francisco the Walt Disney Family Museum, which is I think it's a hidden gem,
+[00:19:05] Norm: Visually, so in terms of the Disney World, somebody did over the weekend. I was a quick shout out. We have in San Francisco the Walt Disney Family Museum, which is I think it's a hidden gem,
 
 [00:19:14] Adam: amazing museum,
 
-[00:19:15] Norm: a great museum. If you're any a fan of Anything related to Disney culture or just history of animation in general, and it's kind of secluded. It's in the Presidio, but they also do special exhibitions. So you know the history of like Snow White and Seven Dwarfs or Pinocchio, and most recently one of their what's going ongoing exhibition right now until January is the work of an artist named Eyvind, Eyvind Earle. It's a weird like old timey 1920 name E I W or E Y V I N D. But he was the lead concept artist for Sleeping Beauty. So when you think of Sleeping Beauty and all that gothic pastel like and all the trees looking very square, like that was all him. And it's his entire breadth of work because he worked until he died in in 2000. And I just went to see the exhibit, and it was really breathtaking.
+[00:19:15] Norm: a great museum. If you're any a fan of Anything related to Disney culture or just history of animation in general, and it's kind of secluded. It's in the Presidio, but they also do special exhibitions. So you know the history of like Snow White and Seven Dwarfs or Pinocchio, and most recently one of their what's going ongoing exhibition right now until January is the work of an artist named Eyvind, Eyvind Earle. It's a weird like old timey 1920 name E I W or E Y V I N D. But he was the lead concept artist for Sleeping Beauty. So when you think of Sleeping Beauty and all that gothic pastel like and all the trees looking very square, like that was all him. And it's his entire breadth of work because he worked until he died in 2000. And I just went to see the exhibit, and it was really breathtaking.
 
 [00:20:08] Adam: Is it really?
 
-[00:20:08] Norm: It's amazing. Some of the original cel back. It's not matte paintings, but I guess they're just the cel backgrounds for the layered multiplane camera for Sleeping Beauty are on display, and it's it's. Wonderful!
+[00:20:08] Norm: It's amazing. Some of the original cel back. It's not matte paintings, but I guess they're just the cel backgrounds for the layered multiplane camera for Sleeping Beauty are on display, and it's. Wonderful!
 
 [00:20:19] Adam: Awesome!
 
@@ -352,11 +352,11 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:20:27] Norm: Yes. Yes.
 
-[00:20:28] Adam: So when you're listening to this, it is Tuesday. On this very day, I am getting on a plane and flying to London, where this coming Friday, I will be the MC at Michael Giacchino's 50th birthday party concert at the Royal Albert Hall, featuring a full symphony playing excerpts from Michael's entire canon, from video games through Lost, through Paramount, through Marvel, through every basically every franchise you can think of: Star Trek, Star Wars, Marvel, DC. Michael Giacchino has written the score within that franchise, and I will be helping helping celebrate this as as the MC at his birthday party.
+[00:20:28] Adam: So when you're listening to this, it is Tuesday. On this very day, I am getting on a plane and flying to London, where this coming Friday, I will be the MC at Michael Giacchino's 50th birthday party concert at the Royal Albert Hall, featuring a full symphony playing excerpts from Michael's entire canon, from video games through Lost, through Paramount, through Marvel, through every basically every franchise you can think of: Star Trek, Star Wars, Marvel, DC. Michael Giacchino has written the score within that franchise, and I will be helping helping celebrate this as the MC at his birthday party.
 
 [00:21:08] Norm: Is he conducting?
 
-[00:21:09] Adam: Michael will apparently be conducting at some point, and there'll be a couple of super amazing guest appearances on stage, which I won't spoil, but. This is going to be so much fun. A whole bunch of my friends were all heading to heading to London this week to to to join in the celebration. That's going to be pretty amazing. I believe tickets. I believe there are still a few tickets available. So if you're in London this coming Friday, come on out to the Royal Albert Hall. It's going to. It's listen. I have now been lucky enough to sit through three different evenings of symphonic renderings of Michael Giacchino's scores for Lost, for Star Trek, and for something else which now escapes me. There's nothing like hearing a movie score being played by an orchestra live. Holy shit!
+[00:21:09] Adam: Michael will apparently be conducting at some point, and there'll be a couple of super amazing guest appearances on stage, which I won't spoil, but. This is going to be so much fun. A whole bunch of my friends were all heading to London this week to join in the celebration. That's going to be pretty amazing. I believe tickets. I believe there are still a few tickets available. So if you're in London this coming Friday, come on out to the Royal Albert Hall. It's going to. It's listen. I have now been lucky enough to sit through three different evenings of symphonic renderings of Michael Giacchino's scores for Lost, for Star Trek, and for something else which now escapes me. There's nothing like hearing a movie score being played by an orchestra live. Holy shit!
 
 [00:21:56] Norm: Star Wars.
 
@@ -376,11 +376,11 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:22:38] Norm: I mean, I was super skeptical when Hans Zimmer said he was going to headline Coachella, but from every indication, that was a transformative experience for everyone who attended Coachella this past year.
 
-[00:22:49] Adam: Fascinating, fascinating. Yeah. So, actually, no, I won't say that. Never mind. I had a little, a little tiny spoiler to tell about one of the things we talked about tonight, but I realized I shouldn't.
+[00:22:49] Adam: Fascinating, fascinating. Yeah. So, actually, no, I won't say that. Never mind. I had a little tiny spoiler to tell about one of the things we talked about tonight, but I realized I shouldn't.
 
 [00:23:00] Norm: The fact that there are spoilers makes this a very intriguing event, and I'm envious that of everyone who's going to be there in London with you.
 
-[00:23:09] Adam: I'm I'm really psyched. I also get to see some friends in London, so yeah. I will be I'll be gone about a week, and then we'll be back again and recording another podcast the following week.
+[00:23:09] Adam: I'm really psyched. I also get to see some friends in London, so yeah. I will be I'll be gone about a week, and then we'll be back again and recording another podcast the following week.
 
 [00:23:20] Norm: Yeah, and Also, one of one final shout out. I know Brain Candy is going back on tour in November.
 
@@ -388,13 +388,13 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:23:35] Norm: Yes.
 
-[00:23:36] Adam: BrainCandyLive.com. See if we're coming to a city near you. Please come on out. Michael Stevens and I. Even if you've seen the show before, and we're not repeating any markets we did this spring, but if we're close to you and you're wondering to come see it again, come see it again because we've rejiggered a whole bunch of this show. It's an organic and ongoing process, and we're having so much fun performing it. We performed a little bit of a piece of it on the Kelly Ripa and Ryan Seacrest show, and we'll be performing another piece of it on a late night show in a couple of weeks. This is so much fun for us to do, and if you're if you're wondering whether or not to come on out or bring your kids, it's completely family friendly, and you will also laugh your ass off. It is it plays to both kids and adults.
+[00:23:36] Adam: BrainCandyLive.com. See if we're coming to a city near you. Please come on out. Michael Stevens and I. Even if you've seen the show before, and we're not repeating any markets we did this spring, but if we're close to you and you're wondering to come see it again because we've rejiggered a whole bunch of this show. It's an organic and ongoing process, and we're having so much fun performing it. We performed a little bit of a piece of it on the Kelly Ripa and Ryan Seacrest show, and we'll be performing another piece of it on a late night show in a couple of weeks. This is so much fun for us to do, and if you're wondering whether or not to come on out or bring your kids, it's completely family friendly, and you will also laugh your ass off. It is it plays to both kids and adults.
 
 [00:24:18] Norm: It's one of those things that just before we sat down to record this. Podcast. Ryan and I were privy to some of your experimentation to develop
 
 [00:24:18] Adam: Yes.
 
-[00:24:18] Norm: things for the show, and it's it's awesome. It was just incredible to be a fly on the wall to watch you build something and tinker with something that these thousands of people are going to get to see.
+[00:24:18] Norm: things for the show, and it's awesome. It was just incredible to be a fly on the wall to watch you build something and tinker with something that these thousands of people are going to get to see.
 
 [00:24:36] Adam: Yeah, I am trying to figure out a way to you know dunk a kid's hand into a pot of boiling water safely. Safely.
 
@@ -408,9 +408,9 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:25:00] Norm: Yeah, and so we're doing lots of builds in the office this week with the team. Something's happening in our studio right now, so we'll we'll hopefully see some of you there.
 
-[00:25:10] Adam: It's really I love it when this place when our co offices become hives of activity. Because you know, there's people over in the makerspace and the tested offices, and then we'll drift over here for supplies and advice and ideas, and it just that feverish intensity of those kind of builds makes me very happy.
+[00:25:10] Adam: It's really I love it when this place when our co offices become hives of activity. Because there's people over in the makerspace and the tested offices, and then we'll drift over here for supplies and advice and ideas, and it just that feverish intensity of those kind of builds makes me very happy.
 
-[00:25:33] Norm: Us too, us too,
+[00:25:33] Norm: Us too,
 
 [00:25:33] Adam: yeah,
 
@@ -420,7 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:25:35] Norm: But I guess that does it for this week.
 
-[00:25:37] Adam: One last thing: I tweeted about this yesterday. There's a young girl who handmade her own Totoro costume from the designs from my one-day build using a lot of the same techniques, and she knocked it out of the park. I tweeted about it yesterday. Just check my Twitter feed because I love this, and I said this. I think the next, I'm not sure I'm able to make it to Silicon Valley Comic Con next year because of the spring tour, but definitely I'll be at San Diego Comic Con, and I really want to say this: Studio Ghibli cosplayers, let's have a meetup at San Diego Comic Con. All the Kikis and the Princess Mononokees, all the the Totoros, the No Faces, the Cat Buses. I want to have a Big Studio Ghibli meetup because there's so much love for these costumes and for these franchises. Come on, you.
+[00:25:37] Adam: One last thing: I tweeted about this yesterday. There's a young girl who handmade her own Totoro costume from the designs from my one-day build using a lot of the same techniques, and she knocked it out of the park. I tweeted about it yesterday. Just check my Twitter feed because I love this, and I said this. I think the next, I'm not sure I'm able to make it to Silicon Valley Comic Con next year because of the spring tour, but definitely I'll be at San Diego Comic Con, and I really want to say this: Studio Ghibli cosplayers, let's have a meetup at San Diego Comic Con. All the Kikis and the Princess Mononokees, all the Totoros, the No Faces, the Cat Buses. I want to have a Big Studio Ghibli meetup because there's so much love for these costumes and for these franchises. Come on, you.
 
 [00:26:28] Norm: [unclear: I don’t think / The] Wind Rises? Zero airplane.
 

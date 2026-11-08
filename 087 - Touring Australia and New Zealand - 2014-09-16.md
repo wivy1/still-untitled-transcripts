@@ -30,7 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:00:28] Will: Wow.
 
-[00:00:28] Adam: Um, we toured the Behind the Myths tour to Sydney, Perth, Adelaide, Melbourne, Brisbane, and Auckland.
+[00:00:28] Adam: We toured the Behind the Myths tour to Sydney, Perth, Adelaide, Melbourne, Brisbane, and Auckland.
 
 [00:00:39] Will: These sound like made-up places.
 
@@ -52,9 +52,9 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:01:10] Adam: That'll be yeah. We work six-day weeks. It's actually the rhythm ends up feeling great.
 
-[00:01:26] Will: Well, because you you just do a show and then you get on the bus, go to sleep, and wake up the next morning in a new town, right?
+[00:01:26] Will: Well, because you just do a show and then you get on the bus, go to sleep, and wake up the next morning in a new town, right?
 
-[00:01:31] Adam: Right, and like I did last year, you know, forcing myself to get out every day and see something and photograph it and write about it was a really important practice. And I know I didn't do that a lot in Australia, and I'm sorry, sorry for the lack of updates. But this and perhaps another subsequent podcast should serve as a kind of a a review of how it went, and I'll have some pictures to support it.
+[00:01:31] Adam: Right, and like I did last year forcing myself to get out every day and see something and photograph it and write about it was a really important practice. And I know I didn't do that a lot in Australia, and I'm sorry, sorry for the lack of updates. But this and perhaps another subsequent podcast should serve as a kind of a review of how it went, and I'll have some pictures to support it.
 
 [00:01:54] Will: Okay, so first things first.
 
@@ -80,15 +80,15 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:02:14] Norm: What’s a drop bear?
 
-[00:02:14] Will: Drop bears. You got to watch out. They fall into your car, and they're they're deadly animals.
+[00:02:14] Will: Drop bears. You got to watch out. They fall into your car, and they're deadly animals.
 
-[00:02:19] Adam: It's it's it's literally like a snipe. It's an Australian ripping of the tourists.
+[00:02:19] Adam: It's literally like a snipe. It's an Australian ripping of the tourists.
 
 [00:02:19] Norm: Wow.
 
 [00:02:19] Adam: And so I did this morning zoo show, and he's like, " How many drop bears?" Blah blah blah, and I was like, " I don't know how many draw. I don't know how big drop bears are." And he's like, " Oh my god, I fooled Adam Savage into thinking they was drop bears." Now I realize I'm doing a Kiwi accent there. Sorry, I got all mixed up with my accents while I was down under. There you go. There's an awkward.
 
-[00:02:46] Will: You just got to chew the chew the vowels and the consonants in the back of the mouth there.
+[00:02:46] Will: You just got to chew the vowels and the consonants in the back of the mouth there.
 
 [00:02:50] Adam: And then in Australia, there are distinct accents in each part of the country.
 
@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:02:59] Will: Savages.
 
-[00:02:59] Adam: But boy, they're they're unique all over the place. It's quite fascinating.
+[00:02:59] Adam: But boy, they're unique all over the place. It's quite fascinating.
 
 [00:03:04] Will: When you sent the trucks, this is a weird question. But when you said that, like one of the things that always blew me away in Australia is they do three and four deep tractor trailers through like the central part of the country, right? And I just I like that is a. I mean, I know that it's a big. Then there's lots of empty, and there's not much traffic. I assume, but an 18 wheeler with four trailers on it seems just reckless and wild and out of order. Out of control.
 
@@ -122,7 +122,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:03:48] Will: we should go do that. Wow, I keep turning Norm up, thinking it's me. Was that you?
 
-[00:03:55] Adam: Let me say from the from the get go that. And I told the Australians I would keep their secret, but I'm blowing it right now. Australia is a beautiful country.
+[00:03:55] Adam: Let me say from the get go that. And I told the Australians I would keep their secret, but I'm blowing it right now. Australia is a beautiful country.
 
 [00:04:03] Will: Of course. It has to be, right?
 
@@ -136,11 +136,11 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:04:40] Norm: every city,
 
-[00:04:41] Adam: Water. Brisbane is beautiful. Melbourne is gorgeous. I mean, everyone knows Sydney, which is also magnificent and incredibly varied, like San Francisco. There's million different places and microclimates and stuff. Um, and the people were ridiculously friendly. Like I, I, I look. I don't know. Maybe it's just going to a country with like healthcare and reasonable minimum wage. But everyone's is so nice, and it's just I don't know. I didn't hear a car horn for the entire time I was there.
+[00:04:41] Adam: Water. Brisbane is beautiful. Melbourne is gorgeous. I mean, everyone knows Sydney, which is also magnificent and incredibly varied, like San Francisco. There's million different places and microclimates and stuff. And the people were ridiculously friendly. Like I, I, I look. I don't know. Maybe it's just going to a country with like healthcare and reasonable minimum wage. But everyone's is so nice, and it's just I don't know. I didn't hear a car horn for the entire time I was there.
 
 [00:05:13] Will: But how how did they let the other people know that they were driving poorly? It
 
-[00:05:19] Adam: was it was a really really a great grand tour of of Australia.
+[00:05:19] Adam: was it was a really really a great grand tour of Australia.
 
 [00:05:25] Norm: So let's let's do chronological. What was the first city you went in? What did you do in that city?
 
@@ -162,17 +162,17 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:05:54] Adam: And there's a beautiful Camperdown Cemetery. I wrote about that in a blog post. And then we did a bunch of press, a full day of press, and then that night we went off to Melbourne, I believe. And in Melbourne, we did our first performance of the show. And interestingly enough, the Australian crowds are a little quieter, I think, than than American crowds.
 
-[00:06:46] Norm: Like more respectful. They don't they don't know when to cheer or or how loud to cheer.
+[00:06:46] Norm: Like more respectful. They don't know when to cheer or how loud to cheer.
 
-[00:06:50] Adam: Um, it's not. Respectful, and not to say that they were disrespectful. It's just I think it's less of a thing to ah yell at a at a concert. You know, it's like oh, you know, here at a concert, and so we're going to watch it. There's a notable thing in the U.S. You know, you you get a you you you get a lot on stage by talking about the city you're in. People love it in the U.S. when you talk about their city.
+[00:06:50] Adam: It's not. Respectful, and not to say that they were disrespectful. It's just I think it's less of a thing to ah yell at a concert. It's like oh here at a concert, and so we're going to watch it. There's a notable thing in the U.S. You get a lot on stage by talking about the city you're in. People love it in the U.S. when you talk about their city.
 
 [00:07:16] Will: Hello, San Francisco.
 
 [00:07:20] Adam: I mean, it's just it's a great way of of bringing the audience closer. They they love that discussion. Australia, that that's not really you know sure yeah
 
-[00:07:28] Will: they don't have a a real sense of pride about the place that they live.
+[00:07:28] Will: they don't have a real sense of pride about the place that they live.
 
-[00:07:32] Adam: I don't think it's a lack of sense of pride, but perhaps just a different a different way of expressing it,
+[00:07:32] Adam: I don't think it's a lack of sense of pride, but perhaps just a different way of expressing it,
 
 [00:07:37] Will: or maybe just a resistance to cheap cheap
 
@@ -198,9 +198,9 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:08:04] Adam: It's produced out of Beyond Productions in Sydney.
 
-[00:08:06] Norm: The response or the fan reaction and your interactions with the audience, what what is that like?
+[00:08:06] Norm: The response or the fan reaction and your interactions with the audience, what is that like?
 
-[00:08:12] Adam: On that front, it was great. It was a good portion of every audience knew that we were an Australian show, and we talked about that at every performance. That we consider the show's sense of humor to be deeply Australian in that Anglo-Saxon taking the piss way. Hmm. Um. So after Melbourne, I think, how did it work? I think Melbourne, then Adelaide, then Perth, then Brisbane. But I could be wrong about that order.
+[00:08:12] Adam: On that front, it was great. It was a good portion of every audience knew that we were an Australian show, and we talked about that at every performance. That we consider the show's sense of humor to be deeply Australian in that Anglo-Saxon taking the piss way. Hmm. So after Melbourne, I think, how did it work? I think Melbourne, then Adelaide, then Perth, then Brisbane. But I could be wrong about that order.
 
 [00:08:37] Will: We're not going to judge you. There's not a quiz.
 
@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:08:41] Will: Yeah, it's been a while too since that leg of the trip. So.
 
-[00:08:43] Adam: Um. Also, thing one and thing two came with us for the first two weeks of the trip.
+[00:08:43] Adam: Also, thing one and thing two came with us for the first two weeks of the trip.
 
 [00:08:47] Will: Your children,
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:09:58] Will: When did you start that? I mean, I don't mean to get into like parenting business.
 
-[00:10:01] Adam: When did I start flying them alone? I think the first time they flew by themselves, they flew up to Seattle to see their maternal grandmother, Noni. Um,
+[00:10:01] Adam: When did I start flying them alone? I think the first time they flew by themselves, they flew up to Seattle to see their maternal grandmother, Noni.
 
 [00:10:13] Will: and was
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:10:28] Will: Yeah, I got to imagine.
 
-[00:10:30] Adam: Um, but this flying alone on Southwest from San Francisco to Seattle, um, they were it was in that was intense for them.
+[00:10:30] Adam: But this flying alone on Southwest from San Francisco to Seattle they were it was in that was intense for them.
 
 [00:10:37] Will: So did you make sure that they knew not to make jokes going through customs or to talk about the drugs that they ingested—
 
@@ -278,13 +278,13 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:10:37] Will: Yeah.
 
-[00:10:43] Adam: yeah, yeah. They they already know no joking, no nothing.
+[00:10:43] Adam: yeah, yeah. They already know no joking, no nothing.
 
 [00:10:46] Will: It’s not a funny place.
 
 [00:10:47] Norm: Liberating, I'll tell you. To fly for the first couple times on your own.
 
-[00:10:51] Adam: Oh, actually, the the time that got me was, see, when they fly alone when they're younger, the airlines have a whole system in place.
+[00:10:51] Adam: Oh, actually, the time that got me was, see, when they fly alone when they're younger, the airlines have a whole system in place.
 
 [00:10:59] Will: Yeah, the unaccompanied minor.
 
@@ -308,7 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:11:49] Will: depends on your feeling about your child, right?
 
-[00:11:51] Adam: Of course, it depends on your parents' feeling about their kids' ability to manage going to the airport. But when thing one had to go to do something, I can't even remember what he had to do. Oh, he was going away for a for a meditation camp. He does a meditation camp a couple times a year.
+[00:11:51] Adam: Of course, it depends on your parents' feeling about their kids' ability to manage going to the airport. But when thing one had to go to do something, I can't even remember what he had to do. Oh, he was going away for a meditation camp. He does a meditation camp a couple times a year.
 
 [00:11:51] Will: Okay.
 
@@ -320,13 +320,13 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:12:33] Will: Well, and and there's multiple stages of that too. Like a direct flight to Seattle, where you don't have to make a big change in a huge multi-terminal airport, is a completely different thing than like flying through Chicago or or Atlanta or. Even yeah, even Dallas,
 
-[00:12:47] Adam: Chicago, or or LAX.
+[00:12:47] Adam: Chicago, or LAX.
 
 [00:12:47] Will: Yeah.
 
 [00:12:47] Adam: transferring between airlines and LAX. If you're not on the same airline, dude, that's that can be a while.
 
-[00:12:55] Will: I I went to Heathrow.
+[00:12:55] Will: I went to Heathrow.
 
 [00:12:56] Adam: Oh,
 
@@ -340,7 +340,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:13:05] Will: Oh, yeah. Okay, so back to Australia.
 
-[00:13:07] Adam: So back to Australia. Um, it was funny. We spent two weeks with them, Mrs. Don't Try This, and I, with the thing one and thing two. And of course, because you're traveling with your kids, you yell at them all the time because they're screwing up, and their hotel room smells like boy sweat and dirty clothes.
+[00:13:07] Adam: So back to Australia. It was funny. We spent two weeks with them, Mrs. Don't Try This, and I, with the thing one and thing two. And of course, because you're traveling with your kids, you yell at them all the time because they're screwing up, and their hotel room smells like boy sweat and dirty clothes.
 
 [00:13:22] Will: I can only imagine.
 
@@ -356,7 +356,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:13:35] Will: I mean,
 
-[00:13:35] Adam: to have to step into that room full of boy sweat and Doritos ground into the carpet. So what we did was, we for each hotel stay. I think they stayed at three different hotels. They they had to clean their room at the end. Reasonable enough so that it could be clean, and then we left a nice tip for the cleaning lady.
+[00:13:35] Adam: to have to step into that room full of boy sweat and Doritos ground into the carpet. So what we did was, we for each hotel stay. I think they stayed at three different hotels. They had to clean their room at the end. Reasonable enough so that it could be clean, and then we left a nice tip for the cleaning lady.
 
 [00:13:54] Will: Okay, fair enough. I mean that that that works.
 
@@ -376,7 +376,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:14:59] Will: Stuff going on back home and
 
-[00:15:00] Adam: right and and so when we landed in Perth, we were both kind of like crazy. So we drove down south. We drove down south of Perth to a cape called Cape Naturaliste. It's about three hours south, and we stayed at this beautiful lodge owned by the Pullman Group Hotel Company. And we set out in the morning from the lodge on a thing called the Cape to Cape Walk. Now the total walk is 158 kilometers. We did 15 kilometers.
+[00:15:00] Adam: right and so when we landed in Perth, we were both kind of like crazy. So we drove down south. We drove down south of Perth to a cape called Cape Naturaliste. It's about three hours south, and we stayed at this beautiful lodge owned by the Pullman Group Hotel Company. And we set out in the morning from the lodge on a thing called the Cape to Cape Walk. Now the total walk is 158 kilometers. We did 15 kilometers.
 
 [00:15:00] Will: Okay.
 
@@ -384,7 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:15:35] Will: That's a long walk.
 
-[00:15:36] Adam: Yeah, it was just just under 10 miles, and we were beat at the end of the day. We stopped at a hotel called the Caves, which was absolutely gorgeous. And then we we caught a taxi. Sorry, the taxi. So we caught the taxi back to our hotel, and
+[00:15:36] Adam: Yeah, it was just just under 10 miles, and we were beat at the end of the day. We stopped at a hotel called the Caves, which was absolutely gorgeous. And then we caught a taxi. Sorry, the taxi. So we caught the taxi back to our hotel, and
 
 [00:15:52] Will: now that grammar joke's gone.
 
@@ -410,15 +410,15 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:16:30] Will: Oh, because I'm sure you're—
 
-[00:16:31] Adam: Driver. Yeah. When you're hugging the middle lane, it's your inclination to kind of be able to see the line, but that puts the driver into the into the verge, as it were.
+[00:16:31] Adam: Driver. Yeah. When you're hugging the middle lane, it's your inclination to kind of be able to see the line, but that puts the driver into the verge, as it were.
 
 [00:16:40] Norm: Yeah.
 
-[00:16:41] Adam: Um. So we both, as passengers, were like
+[00:16:41] Adam: So we both, as passengers, were like
 
 [00:16:44] Norm: gnashing
 
-[00:16:45] Adam: our teeth and freaking out. There was a lot of that, and then the second hike we did was in Auckland. We took the ferry over to Waiheke Island, which is a a beautiful, beautiful. Uh, island about a 30-minute ferry ride, um, and with a gorgeous hike. We set a bunch of gorgeous hikes. It's a really big island. We only got this one like four-mile loop done. Um, but we were, how does this work? We were three quarters of the way done with the loop, and we were thinking, well, we can go to the town, which will be another hour and a half before we get back to the ferry, or we could just head back overland. And Lincoln head back overland, and it's one hour back to the ferry. And then Julia looks at her watch and she says, " When will the ferry get here?" And I said, " It leaves in exactly 31 minutes." And she's like, " I think we can make it." I'm like, " Back to the ferry, so we get back early." And she's like, " Come on, let's." And by the time we decided, it was 28 minutes.
+[00:16:45] Adam: our teeth and freaking out. There was a lot of that, and then the second hike we did was in Auckland. We took the ferry over to Waiheke Island, which is a beautiful, beautiful. Island about a 30-minute ferry ride and with a gorgeous hike. We set a bunch of gorgeous hikes. It's a really big island. We only got this one like four-mile loop done. But we were, how does this work? We were three quarters of the way done with the loop, and we were thinking, well, we can go to the town, which will be another hour and a half before we get back to the ferry, or we could just head back overland. And Lincoln head back overland, and it's one hour back to the ferry. And then Julia looks at her watch and she says, " When will the ferry get here?" And I said, " It leaves in exactly 31 minutes." And she's like, " I think we can make it." I'm like, " Back to the ferry, so we get back early." And she's like, " Come on, let's." And by the time we decided, it was 28 minutes.
 
 [00:17:44] Will: So you made a one-hour walk in 28 minutes.
 
@@ -486,15 +486,15 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:20:09] Will: Yeah, yeah. What's the entrance? Yeah, well, you're driving down the road. Is it grand
 
-[00:20:13] Adam: building? It's it's actually it's it's a it's a host of buildings over in this part of Wellington, and I can't remember the name of the area of Wellington that it's in. And I know there's a bunch of Kiwis yelling at the podcast right now.
+[00:20:13] Adam: building? It's actually it's a host of buildings over in this part of Wellington, and I can't remember the name of the area of Wellington that it's in. And I know there's a bunch of Kiwis yelling at the podcast right now.
 
-[00:20:25] Will: That’s what, that’s what podcasts are for, is getting the radio in your car.
+[00:20:25] Will: That’s what podcasts are for, is getting the radio in your car.
 
 [00:20:26] Adam: But it felt very much like Industrial Light and Magic when I first got there in the late '90s. Which is Industrial Light and Magic used to be both sides of Kerner Boulevard in San Rafael here, all the buildings pointed to anyone, and there was a George building.
 
 [00:20:43] Norm: You start with one, and as you expand, you go. Well, we'll lease that building.
 
-[00:20:46] Adam: There's that one. That's a shooting stage. There's another shooting stage. That's machine shop. There's camera department. That's model shop. And it's the same thing over at Weta. It's a there are there's a there's a compound, a main compound, and all these buildings are nondescript.
+[00:20:46] Adam: There's that one. That's a shooting stage. There's another shooting stage. That's machine shop. There's camera department. That's model shop. And it's the same thing over at Weta. It's a there are there's a compound, a main compound, and all these buildings are nondescript.
 
 [00:20:46] Will: Yeah.
 
@@ -502,7 +502,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:21:06] Will: Yeah.
 
-[00:21:06] Adam: But it is just building after building after building, and it was so satisfying because I'm I lament the loss of Industrial Light and Magic's model shop. Those those folks, the men and women that I worked with there, just they they formed me in a significant way, and it felt like going home. The people at Weta were could not have been nicer. You know, there are a lot of fans among them, and a lot who just know my skill base and know where I come from. So it was it was every conversation was as someone once said to me started in the middle.
+[00:21:06] Adam: But it is just building after building, and it was so satisfying because I'm I lament the loss of Industrial Light and Magic's model shop. Those those folks, the men and women that I worked with there, just they formed me in a significant way, and it felt like going home. The people at Weta were could not have been nicer. There are a lot of fans among them, and a lot who just know my skill base and know where I come from. So it was every conversation was as someone once said to me started in the middle.
 
 [00:21:42] Will: I yeah I assume you have a little bit different experience than than a civilian coming through on a tour like that or on a visit like that.
 
@@ -528,15 +528,15 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:22:36] Norm: Peter Jackson!
 
-[00:22:37] Will: Yeah, when you when you hit when you hit Peter Jackson's or Guillermo's house or what, like, does the same thing happen to you? It happens to people when they walk in here. Where you just kind of like
+[00:22:37] Will: Yeah, when you hit Peter Jackson's or Guillermo's house or what does the same thing happen to you? It happens to people when they walk in here. Where you just kind of like
 
 [00:22:37] Adam: With myself.
 
-[00:22:37] Will: You know, make the face, or
+[00:22:37] Will: Make the face, or
 
 [00:22:50] Adam: um, yeah, and then I'm trying to have a conversation with someone while I'm just staring.
 
-[00:22:56] Will: I mean, that but that we we we literally. I mean, I watch that happen a dozen. I'm sure you've seen that happen hundreds of times at this point.
+[00:22:56] Will: I mean, that but that we literally. I mean, I watch that happen a dozen. I'm sure you've seen that happen hundreds of times at this point.
 
 [00:22:56] Adam: Absolutely.
 
@@ -562,7 +562,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:23:20] Will: Yeah.
 
-[00:23:20] Norm: and the city was actually decked out to celebrate the success of those movies and the cultural phenomenon. I think in the middle of one square they had a giant, like, 30 foot statue of of an orc or a troll or something. Was that city also in full Hobbit mode?
+[00:23:20] Norm: and the city was actually decked out to celebrate the success of those movies and the cultural phenomenon. I think in the middle of one square they had a giant 30 foot statue of an orc or a troll or something. Was that city also in full Hobbit mode?
 
 [00:23:44] Adam: No no no no. But everywhere you went in New Zealand, Everybody, I can't say it would be wrong to say that everyone laid their claim on Peter Jackson, but it's really clear that the entire country takes a great pride in having played such a central and important role in such a great series of movies. I mean, the Lord of the Rings films are just so important and so beautiful. And New Zealand, in all of its ecosystems, it's an astonishing country for the breadth of climates that it encompasses. And so, I mean, so just to continue on, and we'll we'll cover Weta the Weta visit in another podcast. But that night that I was finished, I spent about seven hours at Weta over all told, and that after that, I took the cab back to the hotel, got in a car with Julia, and we drove north about three hours, three and a half hours to the southern end of a the biggest lake in the southern hemisphere, Lake Taupo. It's the big body of water right in the middle of the North Island of New Zealand. Sadly, we did not get to the South Island, which is apparently a whole its own unbelievable thing.
 
@@ -580,11 +580,11 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:25:15] Will: Yeah.
 
-[00:25:15] Adam: and mostly lost in the clouds. So the next morning we got up at this beautiful bed and breakfast, and our the proprietor showed us a couple of great hikes, and we drove back down south to a couple of beautiful little hikes in Tongariro State Park, which is like looking up at these beautiful this beautiful volcano. We went to this waterfall where part of The Hobbit was shot, and then we spent the rest of the day driving up north back to Auckland. Now, when you're driving up through the center of the country, you can take Route 1, is the big highway. Big highway. It's the two lane road that heads all the way through New Zealand, but past Lake Taupo. Um. You can actually take these little side roads all the way north, and that's what we did through farm country. All these little tiny hilly roads,
+[00:25:15] Adam: and mostly lost in the clouds. So the next morning we got up at this beautiful bed and breakfast, and our the proprietor showed us a couple of great hikes, and we drove back down south to a couple of beautiful little hikes in Tongariro State Park, which is like looking up at these beautiful this beautiful volcano. We went to this waterfall where part of The Hobbit was shot, and then we spent the rest of the day driving up north back to Auckland. Now, when you're driving up through the center of the country, you can take Route 1, is the big highway. Big highway. It's the two lane road that heads all the way through New Zealand, but past Lake Taupo. You can actually take these little side roads all the way north, and that's what we did through farm country. All these little tiny hilly roads,
 
 [00:25:15] Will: Sheep farms, cows.
 
-[00:25:15] Adam: Yes, it was like everything you saw was so beautiful. You were like, oh look, oh look, and at a certain point, we like passed this field of baby sheep playing with each other with their little furry fetlocks dark and like they look like they were wearing leg warmers. And Julie was like, now they're just showing off. Come on. Oh, and there's a sign that says Hobbiton this way because that's where Hobbiton is. We didn't even go. We didn't need to. It all looks like Hobbiton. Little wisps of smoke rising up from the countryside. I mean, just absolutely jaw droppingly gorgeous.
+[00:25:15] Adam: Yes, it was like everything you saw was so beautiful. You were like, oh look, and at a certain point, we like passed this field of baby sheep playing with each other with their little furry fetlocks dark and like they look like they were wearing leg warmers. And Julie was like, now they're just showing off. Come on. Oh, and there's a sign that says Hobbiton this way because that's where Hobbiton is. We didn't even go. We didn't need to. It all looks like Hobbiton. Little wisps of smoke rising up from the countryside. I mean, just absolutely jaw droppingly gorgeous.
 
 [00:26:57] Will: So it's, but I mean, both Australia and New Zealand are kind of sparsely populated by our Northern California standards. I mean, the cities obviously are dense, but if you average out over the whole landmass, oh
 
@@ -594,9 +594,9 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:27:15] Adam: 4.5 million people.
 
-[00:27:16] Will: Right? I knew it was not many. Off by a factor of four. Nice job, Will. Did you like? I find when I go someplace, when I go back to you know visit family in rural parts of the East Coast, which is still much more dense than that, I kind of have like almost space shock, like like the crush of humanity coming back on me when I come to San Francisco, which isn't a super duper dense city by like northeast standards. Did you have any kind of any kind of
+[00:27:16] Will: Right? I knew it was not many. Off by a factor of four. Nice job, Will. Did you like? I find when I go someplace, when I go back to you know visit family in rural parts of the East Coast, which is still much more dense than that, I kind of have like almost space shock the crush of humanity coming back on me when I come to San Francisco, which isn't a super duper dense city by like northeast standards. Did you have any kind of
 
-[00:27:45] Adam: the the culture shock I had coming back was actually just I really found the populace of New Zealand and Australia both from a direct audience interaction point of view, from a meet and greet point of view. You know, we have meet and greets after every every performance, and then from the indirect of just walking through all the cities because we went walking everywhere. We went to really good food. We had great. I'll tell you, the the the hamburger has has been. Brought to a high art form in Australia, and I'm not being facetious. There's some really good food happening in all of the cities we went to.
+[00:27:45] Adam: the culture shock I had coming back was actually just I really found the populace of New Zealand and Australia both from a direct audience interaction point of view, from a meet and greet point of view. We have meet and greets after every every performance, and then from the indirect of just walking through all the cities because we went walking everywhere. We went to really good food. We had great. I'll tell you, the hamburger has has been. Brought to a high art form in Australia, and I'm not being facetious. There's some really good food happening in all of the cities we went to.
 
 [00:28:22] Will: Describe the hamburger, the best one.
 
@@ -604,7 +604,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:28:24] Will: I'm really hungry, I’m interested.
 
-[00:28:26] Adam: So many different amazing hamburgers in one place. This food truck place in Auckland, they they cut up beets and put them into the burger patty.
+[00:28:26] Adam: So many different amazing hamburgers in one place. This food truck place in Auckland, they cut up beets and put them into the burger patty.
 
 [00:28:36] Will: Okay, I'm I'm feeling this so far.
 
@@ -612,7 +612,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:28:43] Will: Beets are awesome and taste good.
 
-[00:28:44] Adam: Oh, they love beets down under, and I don't. And in New Zealand, they love beets significantly. They were in a lot of the food we were eating. The fries, the I mean, I don't mean to say that it's all it's all stadium food because it's not
+[00:28:44] Adam: Oh, they love beets down under, and I don't. And in New Zealand, they love beets significantly. They were in a lot of the food we were eating. The fries, the I mean, I don't mean to say that it's all stadium food because it's not
 
 [00:28:44] Will: Right.
 
@@ -624,17 +624,17 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:29:15] Norm: What do most people do there?
 
-[00:29:17] Adam: Uh, there's well, it depends upon the city you're in. You know, there's there's big cosmopolitan cities like Sydney and Brisbane where it's like you know they have they have all sorts of things that you'd have in a city.
+[00:29:17] Adam: There's well, it depends upon the city you're in. There's there's big cosmopolitan cities like Sydney and Brisbane where it's like you know they have all sorts of things that you'd have in a city.
 
 [00:29:28] Will: Normal city jobs,
 
-[00:29:29] Adam: yeah. Um, in Perth, it's a lot of mining. There's a lot of people making a lot of money in mining. Apparently, the economy in Perth is similar to what's going on in North Dakota, where you know even mid-level jobs pay really well because it's hard to find people to fill those jobs. There’s a lot of.
+[00:29:29] Adam: yeah. In Perth, it's a lot of mining. There's a lot of people making a lot of money in mining. Apparently, the economy in Perth is similar to what's going on in North Dakota, where you know even mid-level jobs pay really well because it's hard to find people to fill those jobs. There’s a lot of.
 
 [00:29:45] Will: You're talking about the fracking boom, right?
 
-[00:29:48] Adam: Yeah, the fracking boom in North Dakota. Um, so, uh, coming back into the United States, where in general, walking down the street here in San Francisco, especially in my neighborhood in the Mission, there's a certain level of aggression. Um, and it's I don't mean to say, uh, I want to be careful about saying this. I I don't mean to say Americans are aggressive. It's more just like there was a gentility to the populace of Australia, New Zealand that I I found I I don't. Find in my city right now, and that makes me kind of sad.
+[00:29:48] Adam: Yeah, the fracking boom in North Dakota. So coming back into the United States, where in general, walking down the street here in San Francisco, especially in my neighborhood in the Mission, there's a certain level of aggression. And it's I don't mean to say I want to be careful about saying this. I don't mean to say Americans are aggressive. It's more just like there was a gentility to the populace of Australia, New Zealand that I I found I I don't. Find in my city right now, and that makes me kind of sad.
 
-[00:30:22] Will: It's it's the thing that I found the last time I went to Canada is something as simple as when the crosswalk is counting down and it has 10 seconds left, and somebody's in turning right out of the street that that that it has the green light right now.
+[00:30:22] Will: It's the thing that I found the last time I went to Canada is something as simple as when the crosswalk is counting down and it has 10 seconds left, and somebody's in turning right out of the street that that that it has the green light right now.
 
 [00:30:22] Adam: Yeah.
 
@@ -644,7 +644,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:30:48] Will: Just general common decency.
 
-[00:30:50] Adam: There was a lot of common decency. Um, that being said, I can't even describe how much we missed our dogs.
+[00:30:50] Adam: There was a lot of common decency. That being said, I can't even describe how much we missed our dogs.
 
 [00:30:58] Will: Oh, I can't imagine for a month and a half.
 
@@ -668,7 +668,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:31:28] Adam: Yeah, that was really that was like one of the best fringe benefits of having you stay there. It was great. So we were luckily we didn't have to board the dogs for more than two days for the whole time.
 
-[00:31:38] Will: Oh, that's awesome because they turn into monsters if you board them for like five. I mean, my my dog
+[00:31:38] Will: Oh, that's awesome because they turn into monsters if you board them for like five. I mean, my dog
 
 [00:31:38] Adam: Stressful.
 
@@ -676,7 +676,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:31:38] Adam: Right.
 
-[00:31:38] Will: So she runs around in a pack all day, but five days of that and she comes back an absolute monster. So you know she's she's called the wild. She's snarling and it takes two or three days to get her back to normal.
+[00:31:38] Will: So she runs around in a pack all day, but five days of that and she comes back an absolute monster. So you know she's called the wild. She's snarling and it takes two or three days to get her back to normal.
 
 [00:31:38] Adam: Yeah.
 
@@ -686,13 +686,13 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:32:08] Will: I'm sure they were thrilled to see you.
 
-[00:32:09] Adam: They're practically you know how Huxley, my bigger dog, when he gets excited, he kind of he kind of squirms from side to side. We were like joking, he's going to hurt his back like bending with glee. And actually, when I I sat down in our foyer. To receive him and like, oh, come here and lick my face. He kind of, he has all sorts of different excited sounds. You know, he can be like when he sees people he particularly loves. But when we came home after five weeks, he was like, it was such a you. I've never heard the sound. It was like, oh God, why did you go away for so long?
+[00:32:09] Adam: They're practically you know how Huxley, my bigger dog, when he gets excited, he kind of squirms from side to side. We were like joking, he's going to hurt his back like bending with glee. And actually, when I I sat down in our foyer. To receive him and like, oh, come here and lick my face. He kind of, he has all sorts of different excited sounds. He can be like when he sees people he particularly loves. But when we came home after five weeks, he was like, it was such a you. I've never heard the sound. It was like, oh God, why did you go away for so long?
 
 [00:32:52] Will: Do they get mopey? Do the like my dad's dog when he
 
 [00:32:57] Adam: I don’t know.
 
-[00:32:57] Norm: they got they got mopey. They got mopey for a couple days,
+[00:32:57] Norm: they got mopey. They got mopey for a couple days,
 
 [00:33:00] Will: like just laying by the door waiting.
 
@@ -700,7 +700,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:33:00] Will: oh yeah, that's so sad. That's the mopey dog is the saddest dog of all.
 
-[00:33:06] Adam: Oh, I'll tell you about food also in Australia, New Zealand. Here's a place that we went to in um uh where was it in Auckland?  Okay.
+[00:33:06] Adam: Oh, I'll tell you about food also in Australia, New Zealand. Here's a place that we went to in where was it in Auckland? Okay.
 
 [00:33:06] Will: Okay.
 
@@ -736,7 +736,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:34:51] Will: It's that's fascinating. That like my favorite thing about going outside the country is is is food because it's a completely different experience everywhere you go.
 
-[00:34:59] Adam: Yeah, and and really also not realizing like oh right Australia is sitting right there under the Philippines and all all of Asia, so it's going to have some really different takes.
+[00:34:59] Adam: Yeah, and really also not realizing like oh right Australia is sitting right there under the Philippines and all all of Asia, so it's going to have some really different takes.
 
 [00:35:09] Will: Did you have food tips?
 
@@ -764,7 +764,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:36:01] Norm: Did you make a list of all the restaurants? I know you got business cards.
 
-[00:36:03] Adam: Julia has a. I think Julia has a more comprehensive list. I will. Yeah, I have some photos of of a couple of places we ate that were particularly notable.
+[00:36:03] Adam: Julia has a. I think Julia has a more comprehensive list. I will. Yeah, I have some photos of a couple of places we ate that were particularly notable.
 
 [00:36:11] Will: You know what I've started doing over the last few years is is I add. It only works if there's Yelp. But I add, I just bookmark stuff in Yelp that's good.
 
@@ -782,13 +782,13 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:36:38] Norm: Jeez.
 
-[00:36:38] Will: Um. Did you have the the roadies on since you weren’t on the buses and and had that? Did you like when you were on the U S. tour? You kind of asked the guys who are on the crew, setting up and taking down, helping you guys do the show every night, and they all knew like awesome places to eat around the country.
+[00:36:38] Will: Did you have the roadies on since you weren’t on the buses and had that? Did you like when you were on the U S. tour? You kind of asked the guys who are on the crew, setting up and taking down, helping you guys do the show every night, and they all knew like awesome places to eat around the country.
 
-[00:36:54] Adam: No, in this case, most of us were brand new, and we, you know, Julia's got the nose for that. She goes to different food blog sites and she's got the nose and goes and finds the good stuff every time.
+[00:36:54] Adam: No, in this case, most of us were brand new, and we Julia's got the nose for that. She goes to different food blog sites and she's got the nose and goes and finds the good stuff every time.
 
 [00:37:05] Will: The Southern Hemisphere equivalent of Chowhound or whatever.
 
-[00:37:08] Adam: We did have one. We we crossed over with two other tours. We were in the same city one night as the Bob Dylan tour. He was touring Australia, New Zealand. And on another night with the Queen tour, Brian May was touring with Adam Lambert. And on the Dylan tour, they were incredibly gracious. Our tour manager and Dylan's tour manager know each other, so they invited us over to see the show.
+[00:37:08] Adam: We did have one. We crossed over with two other tours. We were in the same city one night as the Bob Dylan tour. He was touring Australia, New Zealand. And on another night with the Queen tour, Brian May was touring with Adam Lambert. And on the Dylan tour, they were incredibly gracious. Our tour manager and Dylan's tour manager know each other, so they invited us over to see the show.
 
 [00:37:08] Will: Oh, that's awesome!
 
@@ -798,13 +798,13 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:37:48] Adam: The food was fantastic. That is one thing that they that the touring companies really do also strive for is excellent catering.
 
-[00:37:55] Will: I mean, I have to imagine that makes it like if you are eating if you are doing this for 30 days in a row, 26 or 30 days, like eating bad food is the most demoralizing thing in the world, and and it’ll get everybody
+[00:37:55] Will: I mean, I have to imagine that makes it like if you are eating if you are doing this for 30 days in a row, 26 or 30 days, like eating bad food is the most demoralizing thing in the world, and it’ll get everybody
 
 [00:38:07] Adam: Very inexpensive morale.
 
 [00:38:08] Will: Yeah.
 
-[00:38:07] Adam: When you consider the the overall thing, so
+[00:38:07] Adam: When you consider the overall thing, so
 
 [00:38:11] Will: and not just for you, but for everybody on the team.
 
@@ -812,7 +812,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:38:11] Will: because a lot of people.
 
-[00:38:15] Adam: Exactly. Exactly. I actually got a nice at the end when we met when we saw the Queen show. The the tour promoter Paul Dainty, who is the co-promoted the tour with our tour promoter Magic Space down in Australia. Paul brought me back into his office at the end of the Queen show and introduced me to Brian May, which was totally amazing.
+[00:38:15] Adam: Exactly. Exactly. I actually got a nice at the end when we met when we saw the Queen show. The tour promoter Paul Dainty, who is the co-promoted the tour with our tour promoter Magic Space down in Australia. Paul brought me back into his office at the end of the Queen show and introduced me to Brian May, which was totally amazing.
 
 [00:38:15] Will: Wow!
 
@@ -820,11 +820,11 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:38:15] Will: Yeah.
 
-[00:38:15] Adam: the New Zealand show was their last show before going home, and he said he said, " When is your next tour?" And I said, " December." And he said, " How many cities?" And I said, " 26 cities in 31 days." And he said, " Oh man, we don't do that. My hat is off to you." And I thought, I got a tip of the hat for some rigorous touring from Brian May. That’s pretty cool.
+[00:38:15] Adam: the New Zealand show was their last show before going home, and he said, " When is your next tour?" And I said, " December." And he said, " How many cities?" And I said, " 26 cities in 31 days." And he said, " Oh man, we don't do that. My hat is off to you." And I thought, I got a tip of the hat for some rigorous touring from Brian May. That’s pretty cool.
 
 [00:39:05] Will: That's awesome. That is awesome. I don't think there's a better place to leave it than that.
 
-[00:39:09] Adam: No, I think so. Oh wait, I want to mention. I read a crap ton of books while I was on the on the trip. And a bunch of great ones.
+[00:39:09] Adam: No, I think so. Oh wait, I want to mention. I read a crap ton of books while I was on the trip. And a bunch of great ones.
 
 [00:39:17] Will: Can we do a podcast about it?
 
@@ -834,7 +834,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:39:25] Adam: It's it floored me how much I loved it. I read it in one plane flight.
 
-[00:39:30] Will: It is it is a super fast read, and I was up until four o'clock in the morning finishing it after starting it at like three o'clock in the afternoon.
+[00:39:30] Will: It is a super fast read, and I was up until four o'clock in the morning finishing it after starting it at like three o'clock in the afternoon.
 
 [00:39:37] Adam: I'm gonna read it again. Oh, here's what. Here's what I also got to. I saw Chris Hadfield. He happened to be at my hotel.
 
@@ -844,7 +844,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:39:47] Will: you met Elvis after that, right? Jesus.
 
-[00:39:50] Adam: And Hadfield's Hadfield said, " You got to listen to it." Hadfield's wife, sorry, Helena, said, " You have to listen to it." The the the the the reading of it,
+[00:39:50] Adam: And Hadfield's Hadfield said, " You got to listen to it." Hadfield's wife, sorry, Helena, said, " You have to listen to it." The reading of it,
 
 [00:40:00] Norm: audio book.
 
@@ -866,7 +866,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:40:23] Adam: So good listening to him. Oh.
 
-[00:40:25] Will: Because they do the chants, and you could like my my idea of what the chants were in that, and what the chants were as intended, completely different. Yeah,
+[00:40:25] Will: Because they do the chants, and you could like my idea of what the chants were in that, and what the chants were as intended, completely different. Yeah,
 
 [00:40:33] Adam: and that's great. I listened to American Gods,
 
@@ -874,13 +874,13 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:40:36] Adam: full cast recording.
 
-[00:40:38] Will: Yeah, and that's everybody should read American Gods. You American Gods is $0.99 on Kindle pretty much all the time now on Amazon. Get it, just go get it and read it if you know. But but we should do it.
+[00:40:38] Will: Yeah, and that's everybody should read American Gods. You American Gods is $0.99 on Kindle pretty much all the time now on Amazon. Get it, just go get it and read it if you know. But we should do it.
 
 [00:40:48] Norm: But the Martian,
 
 [00:40:49] Adam: the Martian, the Martian's the book I want to say just killed me and was so amazing.
 
-[00:40:53] Will: The setup, the first chapter, maybe chapter and a half of that is so. It is it is an unbelievable first chapter of a book, and
+[00:40:53] Will: The setup, the first chapter, maybe chapter and a half of that is so. It is an unbelievable first chapter of a book, and
 
 [00:41:01] Adam: you have to read it.
 
@@ -900,7 +900,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:41:26] Adam: He totally agreed. He was like, " I want to know who that guy spoke to at NASA because he clearly knows stuff in a deep, deep way." Hadfield wrote one of the blurbs on the back.
 
-[00:41:34] Will: Well, and he he clearly like from talking to him about because when we were talking to him about asparagus, eating asparagus in space,
+[00:41:34] Will: Well, and he clearly like from talking to him about because when we were talking to him about asparagus, eating asparagus in space,
 
 [00:41:34] Adam: Yeah.
 
@@ -916,7 +916,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:42:14] Adam: He was like, “I’m downstairs.”
 
-[00:42:14] Will: That’s amazing. That’s so good. Okay, now hold on. I’m gonna I’m gonna say this again.
+[00:42:14] Will: That’s amazing. That’s so good. Okay, now hold on. I’m gonna say this again.
 
 [00:42:14] Adam: Yeah.
 

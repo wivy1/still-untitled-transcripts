@@ -30,13 +30,13 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:00:46] Norm: We're in a place in England. Danica and I, we just finished our honeymoon and we've met up in a place for a work trip.
 
-[00:00:55] Adam: Right. But you, you let's talk about your honeymoon for a minute because you visited some amazing cities.
+[00:00:55] Adam: Right. But you let's talk about your honeymoon for a minute because you visited some amazing cities.
 
 [00:01:00] Norm: Yes.
 
 [00:01:00] Danica: We did.
 
-[00:01:00] Norm: We went to we went to London, Paris, Amsterdam,
+[00:01:00] Norm: We went to London, Paris, Amsterdam,
 
 [00:01:00] Danica: Prague,
 
@@ -74,7 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:02:15] Danica: Prague, we want to go back actually to Czech Republic and do more exploring. And we want to live in Amsterdam. Like Amsterdam was the most amazing city.
 
-[00:02:35] Adam: I I was I called my wife from Amsterdam and I'm like, all the houses are lit up. They all have windows that face the street. No one has their curtains closed, and through every window is a lit tableau of a life I would be happy to live.
+[00:02:35] Adam: I was I called my wife from Amsterdam and I'm like, all the houses are lit up. They all have windows that face the street. No one has their curtains closed, and through every window is a lit tableau of a life I would be happy to live.
 
 [00:02:48] Norm: Yeah. No, we totally did that with houseboats and with the houses. It's all canal front property.
 
@@ -88,9 +88,9 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:03:22] Adam: Yeah.
 
-[00:03:22] Norm: You know, for a honeymoon occasion, you can. People go to the beach. They do like a Mexico trip or like you know an all-inclusive. Or we wanted to walk and we wanted to go to museums, and so we did 20 museums in 12 days. You know, London made it easy.
+[00:03:22] Norm: For a honeymoon occasion, you can. People go to the beach. They do like a Mexico trip or like you know an all-inclusive. Or we wanted to walk and we wanted to go to museums, and so we did 20 museums in 12 days. London made it easy.
 
-[00:03:46] Adam: You went to one of my favorite museums, the V&A, and you saw a piece that I didn't know was still on display, but the the wooden automata of the tiger eating the man.
+[00:03:46] Adam: You went to one of my favorite museums, the V&A, and you saw a piece that I didn't know was still on display, but the wooden automata of the tiger eating the man.
 
 [00:03:54] Norm: Yes, from from India, I think West India. It was a a tiger mauling a man, but itself is. A sound box that supposedly plays the screech of a man dying.
 
@@ -112,13 +112,13 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:04:58] Adam: Like they have been pillaging longer than anybody else. They have all the best stuff.
 
-[00:05:03] Norm: Scale was a big, surprising thing too, both in the art and the architecture. The art, when you see in the textbook or even on your phone or your tablet, it's it's you can visualize the whole thing. But when you see a massive Rembrandt painting in person, and it's you know 30 feet wide by 20 feet tall, it engulfs your entire visage, and you can see all the textural brushwork.
+[00:05:03] Norm: Scale was a big, surprising thing too, both in the art and the architecture. The art, when you see in the textbook or even on your phone or your tablet, it's you can visualize the whole thing. But when you see a massive Rembrandt painting in person, and it's you know 30 feet wide by 20 feet tall, it engulfs your entire visage, and you can see all the textural brushwork.
 
-[00:05:26] Adam: Well, and so I went to the National Gallery. The most recent time was about five years ago with my sons. So they were 11 or 12, and I didn't, I hadn't been there for a decade, and I didn't realize until I was walking through that oh, actually, even though I never really took a college level art history class, I know a college level art history's amount of information, and I started talking to them about what they were looking at about 15th, 16th, 17th, 18th, 19th, and 20th century painting, and because of the way that it was laid out at that point. We were getting a course in the shifting movement of how painting changed how we look at ourselves, and there was this way in which you moved from the the mannerist sort of slightly weird portraits of the 17th century to the more realistic and the the more incredible, and then you get to the impressionists. And I just remember coming upon the Degas paintings of the dancers and the light, and I'm getting goosebumps as I describe it. I like I got teary because it was so overwhelming to feel this this progression of history of aesthetic history happen. Yeah, and the gallery lays it out so beautifully.
+[00:05:26] Adam: Well, and so I went to the National Gallery. The most recent time was about five years ago with my sons. So they were 11 or 12, and I didn't, I hadn't been there for a decade, and I didn't realize until I was walking through that oh, actually, even though I never really took a college level art history class, I know a college level art history's amount of information, and I started talking to them about what they were looking at about 15th, 16th, 17th, 18th, 19th, and 20th century painting, and because of the way that it was laid out at that point. We were getting a course in the shifting movement of how painting changed how we look at ourselves, and there was this way in which you moved from the mannerist sort of slightly weird portraits of the 17th century to the more realistic and the more incredible, and then you get to the impressionists. And I just remember coming upon the Degas paintings of the dancers and the light, and I'm getting goosebumps as I describe it. I like I got teary because it was so overwhelming to feel this progression of history of aesthetic history happen. Yeah, and the gallery lays it out so beautifully.
 
 [00:06:41] Danica: It's extraordinary.
 
-[00:06:43] Norm: Yeah, the Musée d'Orsay in Paris has Degas dancers as well as his sculptures of those dancers working in multiple mediums, and then the the buildings, the scaled. I mean, you know, in America we're lucky if we have things that are over 100 years old in the cities that we live in, and Yes. and you're standing in you know at 11 p.m. in the center of the Louvre, and everything's well lit. Yeah. So like all their massive. Monuments and and museums are lit at night, and people are walking around, engulfed by what looks like buildings for giants. Yeah.
+[00:06:43] Norm: Yeah, the Musée d'Orsay in Paris has Degas dancers as well as his sculptures of those dancers working in multiple mediums, and then the buildings, the scaled. I mean in America we're lucky if we have things that are over 100 years old in the cities that we live in, and Yes. and you're standing in you know at 11 p.m. in the center of the Louvre, and everything's well lit. Yeah. So like all their massive. Monuments and museums are lit at night, and people are walking around, engulfed by what looks like buildings for giants. Yeah.
 
 [00:06:43] Adam: Yeah, so
 
@@ -134,9 +134,9 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:07:41] Adam: Oh my gosh.
 
-[00:07:41] Norm: And. Some miniatures, some costumes, but if you're looking for a more comprehensive film museum type experience between now and September, I have to give a shout out at the Barbican Center. They have an exhibit called Into the Unknown, which is just about the science fiction, and it has so many great things from science fiction film and and media books, TV. Mm-hmm. yeah.
+[00:07:41] Norm: And. Some miniatures, some costumes, but if you're looking for a more comprehensive film museum type experience between now and September, I have to give a shout out at the Barbican Center. They have an exhibit called Into the Unknown, which is just about the science fiction, and it has so many great things from science fiction film and media books, TV. Mm-hmm. yeah.
 
-[00:08:06] Adam: Here’s a question. You're such a wonderful photographer. I'm curious if you have a different hat on on your honeymoon about documenting your trip than you do at Comic Con, and I'm further wondering if you would if you were thinking about posting a gallery on Tested so that people can see Norm's personal honeymoon photos.
+[00:08:06] Adam: Here’s a question. You're such a wonderful photographer. I'm curious if you have a different hat on your honeymoon about documenting your trip than you do at Comic Con, and I'm further wondering if you would if you were thinking about posting a gallery on Tested so that people can see Norm's personal honeymoon photos.
 
 [00:08:26] Danica: Would you like me to post my collection of me taking photos of Norm taking photos of this entire exhibit? Yes, because I love that.
 
@@ -148,17 +148,17 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:08:51] Adam: really,
 
-[00:08:51] Norm: I just like I felt the the missed opportunity, like the photos. Turned out okay,
+[00:08:51] Norm: I just like I felt the missed opportunity, like the photos. Turned out okay,
 
 [00:08:51] Adam: yeah, yeah, yeah.
 
-[00:08:51] Norm: But they're not like close-ups, and you don't get different focal lengths, and you get only so much perspective, and it's complete. I don't know the phrase for FOMO, for for not having your best gear to capture the experience the best way possible.
+[00:08:51] Norm: But they're not like close-ups, and you don't get different focal lengths, and you get only so much perspective, and it's complete. I don't know the phrase for FOMO, for not having your best gear to capture the experience the best way possible.
 
 [00:08:51] Adam: Yeah.
 
-[00:08:51] Norm: But it definitely changes when you have a DSLR, and you know, we're in exhibit. Like I'm spending three times as much time at each item object to photograph, then to absorb, and then to rephotograph, and then to move on.
+[00:08:51] Norm: But it definitely changes when you have a DSLR, and we're in exhibit. Like I'm spending three times as much time at each item object to photograph, then to absorb, and then to rephotograph, and then to move on.
 
-[00:09:44] Adam: Do you think that there's a a reticence to spend that amount of time with just an iPhone at the same place? Because I personally, I feel like if I'm on a random street, like I was in the place we are staying now, I was walking back from dinner last night, and I just taking pictures down each of the streets. But I also thought, I I would I would love to have my DSLR right now because I would spend more time really. Sculpting these shots, whereas with an iPhone, I feel like a little bit like an asshole.
+[00:09:44] Adam: Do you think that there's a reticence to spend that amount of time with just an iPhone at the same place? Because I personally, I feel like if I'm on a random street, like I was in the place we are staying now, I was walking back from dinner last night, and I just taking pictures down each of the streets. But I also thought, I I would love to have my DSLR right now because I would spend more time really. Sculpting these shots, whereas with an iPhone, I feel like a little bit like an asshole.
 
 [00:10:13] Danica: You can't not look like an asshole.
 
@@ -170,13 +170,13 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:10:24] Norm: I think in your mind, you don't think of them as archival.
 
-[00:10:28] Adam: I do, I do.
+[00:10:28] Adam: I do.
 
 [00:10:30] Norm: With your phone.
 
 [00:10:31] Adam: But I also notice that I'm reticent to spend a lot of time taking a whole bunch of photos with the iPhone.
 
-[00:10:37] Norm: Yeah, and I think with the phone, I think it's it's more a bookmark to recall. Yeah. But it's not the thing that I'm going to blow up or the thing that I'm going to be especially proud of, just because I know I can come back and.
+[00:10:37] Norm: Yeah, and I think with the phone, I think it's more a bookmark to recall. Yeah. But it's not the thing that I'm going to blow up or the thing that I'm going to be especially proud of, just because I know I can come back and.
 
 [00:10:48] Danica: But I mean, it's a choice you make to either be more present in what's happening or to document it in a more official way. Also, the wear and tear on having to carry all that weight.
 
@@ -188,13 +188,13 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:11:19] Danica: Okay, we should go back.
 
-[00:11:19] Adam: So while you guys while you guys were traveling, we all went and saw a movie in separate cities, and I want to talk about it. Yeah, we haven't talked about it on the podcast.
+[00:11:19] Adam: So while you guys were traveling, we all went and saw a movie in separate cities, and I want to talk about it. Yeah, we haven't talked about it on the podcast.
 
 [00:11:29] Norm: It is the title of this podcast. It is going to be a spoiler cast. The funny story for us is, and we're first time talking about Wonder Woman.
 
 [00:11:29] Adam: Yeah,
 
-[00:11:29] Norm: the movie came out I think June 1. First, I want to say in the states, and we the the ramp up, the contextual ramp up, like the buzz for this film was building. The reviews had come out. Rotten Tomatoes, 95%, glowing reviews everywhere. Studios were reevaluating what how much money you think it was going to make. I think they initially estimated 75 million at most. You know, comparing it to Thor and Captain America,
+[00:11:29] Norm: the movie came out I think June 1. First, I want to say in the states, and we the ramp up, the contextual ramp up, like the buzz for this film was building. The reviews had come out. Rotten Tomatoes, 95%, glowing reviews everywhere. Studios were reevaluating what how much money you think it was going to make. I think they initially estimated 75 million at most. Comparing it to Thor and Captain America,
 
 [00:12:05] Adam: they thought that globally or U S.
 
@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:12:23] Danica: forever.
 
-[00:12:23] Adam: Yeah. No, I watch those trailers a lot. Right. Getting really excited about what what was going to happen, and this is one of those rare cases where, you know, watching trailers, getting excited about movie is nothing but an exercise in repeated disappointment in many ways. And this was one where I felt totally delivered.
+[00:12:23] Adam: Yeah. No, I watch those trailers a lot. Right. Getting really excited about what was going to happen, and this is one of those rare cases where watching trailers, getting excited about movie is nothing but an exercise in repeated disappointment in many ways. And this was one where I felt totally delivered.
 
 [00:12:44] Norm: So we rectified that. We saw it twice. We saw it in London and in Prague. And I guess we should talk about it.
 
@@ -236,7 +236,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:13:13] Adam: Not very often.
 
-[00:14:03] Norm: Danica is a big fan of Wonder Woman. Right, forever, from Lynda Carter on. And did you guys ever watch the the leaked pilot for that TV, David E. Kelley Wonder Woman?
+[00:14:03] Norm: Danica is a big fan of Wonder Woman. Right, forever, from Lynda Carter on. And did you guys ever watch the leaked pilot for that TV, David E. Kelley Wonder Woman?
 
 [00:14:03] Adam: No.
 
@@ -252,13 +252,13 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:14:31] Adam: I don’t know her.
 
-[00:14:32] Danica: And the the costume was super shitty looking, like vinyl or pleather pants. Pants. I mean, there's nothing right about this. Like it looked like a joke from the beginning. Like you're just being trolled.
+[00:14:32] Danica: And the costume was super shitty looking, like vinyl or pleather pants. Pants. I mean, there's nothing right about this. Like it looked like a joke from the beginning. Like you're just being trolled.
 
 [00:14:47] Norm: It was her in modern day, after running a corporation, but also still being fighting as Wonder Woman. And at the end, it was very David E. Kelley. I don't want to say like Ally McBeal Wonder Woman, but at the end, she's on her computer. Signing up for like a social media account or like a dating account or something, yeah.
 
 [00:14:47] Adam: Wow.
 
-[00:14:47] Norm: Which was I'm glad this movie wasn't that. The journey for a Wonder Woman movie to be made has it's gone. You know, Hollywood very resistant to making movies with female stars.
+[00:14:47] Norm: Which was I'm glad this movie wasn't that. The journey for a Wonder Woman movie to be made has it's gone. Hollywood very resistant to making movies with female stars.
 
 [00:15:16] Adam: As Joss Whedon famously said after Guardian's success, well, now that Hollywood has seen that a raccoon can anchor a tentpole film, maybe they'll let a woman try it.
 
@@ -286,23 +286,23 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:17:34] Norm: Oh, as Kirk. That was hired. I mean that that that character is a learer.
 
-[00:17:39] Adam: Right, and and that scene between the two of them is this remarkable, very careful movement of two people towards each other, rather than one person being the leader. It is this really wonderful dance, and she has. All the agency in this scene.
+[00:17:39] Adam: Right, and that scene between the two of them is this remarkable, very careful movement of two people towards each other, rather than one person being the leader. It is this really wonderful dance, and she has. All the agency in this scene.
 
 [00:18:00] Danica: Yes, he looks like what's going on. I don't know what's going to go on. She's like, " You are mine."
 
 [00:18:07] Adam: It's great. It's just,
 
-[00:18:08] Norm: and he is fantastic. I think he he is given so much to work with, and it's been made a point now. I think that if he in the role of this film is the quote unquote superhero girlfriend,
+[00:18:08] Norm: and he is fantastic. I think he is given so much to work with, and it's been made a point now. I think that if he in the role of this film is the quote unquote superhero girlfriend,
 
 [00:18:21] Adam: yeah,
 
-[00:18:21] Norm: which you know he is the analog to to in Thor to Natalie Portman's character, and to Lois Lane, right? Like, if you compare those roles,
+[00:18:21] Norm: which you know he is the analog to in Thor to Natalie Portman's character, and to Lois Lane, right? Like, if you compare those roles,
 
 [00:18:21] Adam: indeed,
 
-[00:18:21] Norm: like you talk that that shows you how little the Natalie Portman character, who is supposed to be the the physicist or the astrophysicist, is given in Thor.
+[00:18:21] Norm: like you talk that that shows you how little the Natalie Portman character, who is supposed to be the physicist or the astrophysicist, is given in Thor.
 
-[00:18:43] Adam: Well, and just even from the trailer, if you watch the trailer, she says, " You're a man," with this kind of weird hungry look on her face, and he says, " Do I not look like one?" And there are I've thought about that line since that trailer came out. There's a lot of ways to read that line. And many of those, many of the interpretations along this chart you could graph, would involve some type of feeling like that was a commentary on one's masculinity. Masculinity, don't I look like one? And he has none of that in his delivery. He's genuinely curious. What about your interpretation of being a man is unique here? He's like it's it's a very very outside the box kind of delivery in my opinion.
+[00:18:43] Adam: Well, and just even from the trailer, if you watch the trailer, she says, " You're a man," with this kind of weird hungry look on her face, and he says, " Do I not look like one?" And there are I've thought about that line since that trailer came out. There's a lot of ways to read that line. And many of those, many of the interpretations along this chart you could graph, would involve some type of feeling like that was a commentary on one's masculinity. Masculinity, don't I look like one? And he has none of that in his delivery. He's genuinely curious. What about your interpretation of being a man is unique here? He's like it's a very very outside the box kind of delivery in my opinion.
 
 [00:19:29] Danica: Yeah, it's so nuanced. It's not. It's it's amazing. Like, I although I do get, I'm very sick of hearing about how Chris Pine is the best part of that movie and that performance is everything. Like when I hear that in light of what Gal Gadot did, I just like we're right back there where it's just you have to make sure that you are exalting the male performance, and it was amazing.
 
@@ -312,7 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:19:54] Adam: No, it's not his movie. And when she. The moment again. This is in the trailer, so this isn't a real spoiler. But the moment in the film when she steps up the ladder out of the trench into No Man's Land, I'm goosebumping right now. Is it delivers everything that you think that scene might be delivering in the trailer and more. It's super moving. And
 
-[00:20:16] Danica: even just the way that they sequence that. You know, in the trailer, you had the perfect ringlet hair view of her descending up the ladder.
+[00:20:16] Danica: even just the way that they sequence that. In the trailer, you had the perfect ringlet hair view of her descending up the ladder.
 
 [00:20:16] Adam: Yeah.
 
@@ -324,13 +324,13 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:20:34] Adam: you catch glimpses of the armor until that.
 
-[00:20:36] Danica: Just and you know you know it's there because you see it in you know blurry
+[00:20:36] Danica: Just and you know it's there because you see it in you know blurry
 
 [00:20:36] Adam: Yeah.
 
-[00:20:36] Danica: focus right on the side of the screen when she looks at it to grab it, but it's amazing that they they were able to keep it covered. You see just little flashes of it, and then it's not revealed until she's on that battlefield.
+[00:20:36] Danica: focus right on the side of the screen when she looks at it to grab it, but it's amazing that they were able to keep it covered. You see just little flashes of it, and then it's not revealed until she's on that battlefield.
 
-[00:20:51] Adam: And let's just also talk about the aesthetic difficulty of your main character is not going to take off that armor for the whole movie. She's got it underneath all the things she's wearing, and they somehow managed not to make that a parody or a joke or something weird. She's just always like ready. Yeah. Um. So by the way, that armor was made by my friends at FBFX in London, and I have held, I have held some pieces of the armor, and it is every bit as gorgeous in person.
+[00:20:51] Adam: And let's just also talk about the aesthetic difficulty of your main character is not going to take off that armor for the whole movie. She's got it underneath all the things she's wearing, and they somehow managed not to make that a parody or a joke or something weird. She's just always like ready. Yeah. So by the way, that armor was made by my friends at FBFX in London, and I have held some pieces of the armor, and it is every bit as gorgeous in person.
 
 [00:21:20] Danica: It's extraordinary.
 
@@ -376,7 +376,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:24:10] Adam: Yeah, let's okay.
 
-[00:24:13] Norm: I mean, at this point, we're we're going to talk.
+[00:24:13] Norm: I mean, at this point, we're going to talk.
 
 [00:24:16] Adam: Yes, turn off your stereo or
 
@@ -394,7 +394,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:24:29] Norm: Yes, and it is the cast is Connie Nielsen who plays her Hippolyta, right?
 
-[00:24:35] Adam: And Connie Nielsen played the the love interest in Gladiator,
+[00:24:35] Adam: And Connie Nielsen played the love interest in Gladiator,
 
 [00:24:41] Norm: right?
 
@@ -410,7 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:24:50] Danica: Antiope.
 
-[00:24:51] Adam: And and by the way, this movie passes the Bechdel test. Because there's a couple of lovely scenes between Connie Nielsen and Robin Wright, and they're talking about something other than a man.
+[00:24:51] Adam: And by the way, this movie passes the Bechdel test. Because there's a couple of lovely scenes between Connie Nielsen and Robin Wright, and they're talking about something other than a man.
 
 [00:24:51] Norm: And they both have names.
 
@@ -454,9 +454,9 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:26:26] Norm: Mm-hmm. Yeah.
 
-[00:26:26] Adam: and that that sequence is shocking when you see it in that in that format.
+[00:26:26] Adam: and that that sequence is shocking when you see it in that format.
 
-[00:26:41] Norm: The whole you were talking about the the Amazon fight scene on the beach
+[00:26:41] Norm: The whole you were talking about the Amazon fight scene on the beach
 
 [00:26:41] Adam: Yeah.
 
@@ -468,7 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:26:54] Danica: Mm-hmm.
 
-[00:26:41] Norm: It's just like it's beautiful, it's elegant to watch, but also it's believable. And they hired like you know MMA fighters and and and athletes
+[00:26:41] Norm: It's just like it's beautiful, it's elegant to watch, but also it's believable. And they hired like you know MMA fighters and athletes
 
 [00:26:41] Adam: Oh, really?
 
@@ -476,7 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:26:41] Adam: Oh, cool!
 
-[00:26:41] Norm: So yeah, and there are stories you read about them walking on set, putting on armor, and feeling like like you know putting on armor makes you feel different.
+[00:26:41] Norm: So yeah, and there are stories you read about them walking on set, putting on armor, and feeling like you know putting on armor makes you feel different.
 
 [00:26:41] Adam: Yeah.
 
@@ -488,7 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:27:22] Danica: In their armor, just and it's just it just
 
-[00:27:28] Adam: you can tell it's ah oh that must have been awesome. So there's this one thing that I caught in an early trailer and thought, are they really going to do this? But the scene in in the movie where the fully mature Diana is fighting
+[00:27:28] Adam: you can tell it's ah oh that must have been awesome. So there's this one thing that I caught in an early trailer and thought, are they really going to do this? But the scene in the movie where the fully mature Diana is fighting
 
 [00:27:46] Norm: Antiope.
 
@@ -500,7 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:28:22] Norm: Which in my head, as I rewrite it, I think of as she is her power is awakening, and I love that, like the scene where she jumps and retrieves the armor, like that discovery of power when she's breaking, yes, slamming her hands into the side of the wall and feeling the delight, the joy on her face, right? Like I feel like as she her power awakened, it's like it was a mythological thing where then. Then that was Ares bringing the war.
 
-[00:28:47] Adam: You're right. You're right. You're right. I just I just realized that they actually telegraphed throughout the film that the more Diana realizes her power, the easier she will be for Ares to find. That didn't occur to me, but of course that makes sense. That's the moment at which the world will enter enter their world. The worlds will crash together.
+[00:28:47] Adam: You're right. You're right. You're right. I just realized that they actually telegraphed throughout the film that the more Diana realizes her power, the easier she will be for Ares to find. That didn't occur to me, but of course that makes sense. That's the moment at which the world will enter enter their world. The worlds will crash together.
 
 [00:29:03] Danica: I didn't have the same problem you did with her being alone and that because there had to be some pretext for her to be separated from all the other Amazons because she had to discover him alone and there had to be that conflict.
 
@@ -510,13 +510,13 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:29:34] Adam: Yes.
 
-[00:29:34] Norm: Which is not explicitly said, but it's it's the one that yeah, and the one that feels the most and the one that's most angered by by her death. And also the time like. These these Amazons are immortal, right? They're they're the whole pretext that it's you know it's a flashback from modern day. So her training is, you know, could be centuries.
+[00:29:34] Norm: Which is not explicitly said, but it's the one that yeah, and the one that feels the most and the one that's most angered by by her death. And also the time like. These these Amazons are immortal, right? They're the whole pretext that it's you know it's a flashback from modern day. So her training is could be centuries.
 
 [00:29:34] Adam: Right.
 
-[00:29:34] Norm: It doesn't. It's not 20 years. It's you know, it's enough time to be a true warrior to read all these texts to learn all these languages, and
+[00:29:34] Norm: It doesn't. It's not 20 years. It's it's enough time to be a true warrior to read all these texts to learn all these languages, and
 
-[00:30:03] Adam: that's actually. So when we're talking superpowers, I love that Diana's polyglot, that she can speak all the languages except for Native American, except for whatever the the Native American
+[00:30:03] Adam: that's actually. So when we're talking superpowers, I love that Diana's polyglot, that she can speak all the languages except for Native American, except for whatever the Native American
 
 [00:30:03] Danica: chief,
 
@@ -558,7 +558,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:31:04] Danica: So it was so strange. But I'm like, oh my god, that's right.
 
-[00:31:07] Adam: I I
+[00:31:07] Adam: I
 
 [00:31:12] Norm: I'm also glad when the No Man's Land thing happens, and they you know they really telegraph. Chris Pine says, " No man can cross that." That's why they call it No Man's Land. She doesn't say, " I am no man."
 
@@ -584,7 +584,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:32:29] Danica: Ooh.
 
-[00:32:29] Adam: It's great, and plus, it's it's pacing. It's like at the halfway point in the film.
+[00:32:29] Adam: It's great, and plus, it's pacing. It's like at the halfway point in the film.
 
 [00:32:29] Norm: Yeah.
 
@@ -606,7 +606,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:33:42] Norm: We gotta talk about the ending.
 
-[00:33:43] Adam: Okay, actually, I also want to talk about a couple of the. There's there's three villains in this film. Danny Huston is the one who plays the general. He's the one most prominently featured in the trailer, and then there's the actress whose name escapes me who plays Doctor Poison with the with the mask, and she wears this creepy mask you've seen in the trailers. I love that mask. It has real historical precedents. There's a character from Boardwalk Empire.
+[00:33:43] Adam: Okay, actually, I also want to talk about a couple of the. There's there's three villains in this film. Danny Huston is the one who plays the general. He's the one most prominently featured in the trailer, and then there's the actress whose name escapes me who plays Doctor Poison with the mask, and she wears this creepy mask you've seen in the trailers. I love that mask. It has real historical precedents. There's a character from Boardwalk Empire.
 
 [00:34:11] Danica: My favorite character from Boardwalk Empire,
 
@@ -640,7 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:35:23] Norm: the God Killer,"
 
-[00:35:25] Adam: and it didn't bother me. You know, sometimes the telegraph beats don't bug me, and that one didn't.
+[00:35:25] Adam: and it didn't bother me. Sometimes the telegraph beats don't bug me, and that one didn't.
 
 [00:35:30] Norm: And it turns out neither of them are Ares, and Ares is
 
@@ -652,23 +652,23 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:35:36] Danica: breaks through.
 
-[00:35:36] Adam: Got their big breakthrough, you know, but they make everything that they're in better, and they make everyone they're acting opposite better.
+[00:35:36] Adam: Got their big breakthrough but they make everything that they're in better, and they make everyone they're acting opposite better.
 
-[00:36:05] Norm: So he's Ares, and he reveals himself after Diana kills Danny Huston's character, who she thinks the general is Ares, and you know it's your classic: the meek man is actually the the big
+[00:36:05] Norm: So he's Ares, and he reveals himself after Diana kills Danny Huston's character, who she thinks the general is Ares, and you know it's your classic: the meek man is actually the big
 
 [00:36:18] Danica: misdirection.
 
-[00:36:18] Norm: God, yeah, yeah. I think it's. I don't think he was miscast in that role. I think they could have played with that being a facade and have another. And I think it would be okay to have a little bit of stunt casting because the thing that took me out of it was the flashback scenes where he talks about being thrown off of Olympus, and he's like. Naked and and buff, but it's still him with a ridiculous
+[00:36:18] Norm: God, yeah, yeah. I think it's. I don't think he was miscast in that role. I think they could have played with that being a facade and have another. And I think it would be okay to have a little bit of stunt casting because the thing that took me out of it was the flashback scenes where he talks about being thrown off of Olympus, and he's like. Naked and buff, but it's still him with a ridiculous
 
 [00:36:40] Danica: mustache.
 
-[00:36:41] Adam: Oh, I didn't even I didn't even see I didn't notice that. Look, I mean, the problem was in that fight scene is I wasn't really scared of Ares. I I sort of knew. I mean, I know woman. I'm not sure it's because I knew that Wonder Woman's going to survive because the movie begins in the present day in in at the Louvre where apparently she works her whole important job on an Android tablet, but but I wasn't scared of him. I wasn't frightened of him, and I was frightened of Danny Huston, and I was really frightened of Doctor Poison. So it seemed like I was moving down this ladder.
+[00:36:41] Adam: Oh, I didn't even see I didn't notice that. Look, I mean, the problem was in that fight scene is I wasn't really scared of Ares. I sort of knew. I mean, I know woman. I'm not sure it's because I knew that Wonder Woman's going to survive because the movie begins in the present day in at the Louvre where apparently she works her whole important job on an Android tablet, but I wasn't scared of him. I wasn't frightened of him, and I was frightened of Danny Huston, and I was really frightened of Doctor Poison. So it seemed like I was moving down this ladder.
 
 [00:37:14] Norm: Well, if the theme of the movie seems to be that, as a flashback, she at the end of this this flashback is disillusioned a little bit, right? Like she's less naive about the good the goodness in pure goodness in in man,
 
-[00:37:28] Adam: which is and the the the the ambivalence about the goodness of man is a central theme in the DC universe films.
+[00:37:28] Adam: which is and the ambivalence about the goodness of man is a central theme in the DC universe films.
 
-[00:37:35] Norm: And her coming back in Batman v Superman is to To you know, be a champion again. Like he does, Ares doesn't need to die to to you know for this to happen. Like Ares can, Ares can, it can, it can, he can be scary. Wonder Woman doesn’t need to die for Ares to win.
+[00:37:35] Norm: And her coming back in Batman v Superman is to you know, be a champion again. Like he does, Ares doesn't need to die to you know for this to happen. Like Ares can, it can, he can be scary. Wonder Woman doesn’t need to die for Ares to win.
 
 [00:37:35] Adam: Right.
 
@@ -704,7 +704,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:38:33] Adam: If Viggo's in the film though, you immediately know that he's going to be the big baddie.
 
-[00:38:36] Norm: Well, at the at the end, that's the reveal. I mean, I'm seeing. At the end, he transforms into and
+[00:38:36] Norm: Well, at the end, that's the reveal. I mean, I'm seeing. At the end, he transforms into and
 
 [00:38:42] Adam: reveals exactly.
 
@@ -728,13 +728,13 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:39:13] Danica: Eric Stoltz.
 
-[00:39:15] Adam: Eric Stoltz plays another angel. Chris Meloni plays the human. Christopher Walken plays Gabriel, and and Viggo Mortensen at like 25 plays the devil, and he is the scariest devil in almost any film except the devil from Constantine, and I can never remember that actor's name. The devil from Constantine is an actor who was in eight millimeter. Is
+[00:39:15] Adam: Eric Stoltz plays another angel. Chris Meloni plays the human. Christopher Walken plays Gabriel, and Viggo Mortensen at like 25 plays the devil, and he is the scariest devil in almost any film except the devil from Constantine, and I can never remember that actor's name. The devil from Constantine is an actor who was in eight millimeter. Is
 
 [00:39:38] Danica: this one we figured out? Was it?
 
-[00:39:41] Norm: Is it the character actor that's that's like in Minority Report and? Ah,
+[00:39:41] Norm: Is it the character actor that's like in Minority Report and? Ah,
 
-[00:39:45] Adam: he's like he's like a Russian. He always has these kind of yeah.
+[00:39:45] Adam: he's like a Russian. He always has these kind of yeah.
 
 [00:39:50] Danica: Oh, from the Saint.
 
@@ -788,19 +788,19 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:40:41] Danica: not for a second. Even when he's like forming his armor and all that, you it just doesn't work.
 
-[00:40:48] Adam: You know, I I since the very beginning of my love for action movies, which I I bring to the summer of I think 1979 when Raiders came out, and so did I think Moonraker and a million other incredible films. Um, not Moonraker at any rate. Um, the thing is that I understood from like 17 on is that the villains have to scare you, and you you they have to be scary in order for you to feel involvement. And Thoth Thoth the the the the German from Raiders is a genuinely terrifying villain. Yes, Rodin, I know you.
+[00:40:48] Adam: I since the very beginning of my love for action movies, which I I bring to the summer of I think 1979 when Raiders came out, and so did I think Moonraker and a million other incredible films. Um, not Moonraker at any rate. The thing is that I understood from like 17 on is that the villains have to scare you, and you they have to be scary in order for you to feel involvement. And Thoth Thoth the German from Raiders is a genuinely terrifying villain. Yes, Rodin, I know you.
 
 [00:40:48] Danica: Yes.
 
-[00:40:48] Adam: Um, really, really scary. And the the Ares was not terrifying.
+[00:40:48] Adam: really, really scary. And the Ares was not terrifying.
 
 [00:41:33] Danica: At all.
 
 [00:41:33] Norm: So what would you want?
 
-[00:41:35] Adam: So that, so that's that, like you know, full, full reveal. Like I, I don't, I don't have a, I didn't have a problem with the fact that that didn't quite work. I still loved everything all the way through. I still.
+[00:41:35] Adam: So that, so that's that, like full, full reveal. Like I, I don't have a, I didn't have a problem with the fact that that didn't quite work. I still loved everything all the way through. I still.
 
-[00:41:47] Danica: I'm, I'm actually completely okay with muddling, or in this version, this cycle, changing Wonder Woman's origin story.
+[00:41:47] Danica: I'm actually completely okay with muddling, or in this version, this cycle, changing Wonder Woman's origin story.
 
 [00:41:47] Adam: Yep.
 
@@ -812,7 +812,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:42:27] Adam: Well, she's going to show up in Justice League, so we're going to see modern day. So it makes sense to me to bounce back in history to earlier adventures of Wonder Woman. Which is still problematic because you'll know that she's going to survive, so she's going to have to, I guess, clearly lose people important to her.
 
-[00:42:43] Norm: I feel that I want to see a return to Themyscira, or at least her attempt to. Like, why doesn't she go back? Like, that's I would love to see more of that world. You know, there's the whole like, why? What was she doing during World War II?
+[00:42:43] Norm: I feel that I want to see a return to Themyscira, or at least her attempt to. Like, why doesn't she go back? Like, that's I would love to see more of that world. There's the whole like, why? What was she doing during World War II?
 
 [00:42:58] Adam: Right. At the point of this podcast, I still don't think that Patty Jenkins has officially made a deal to direct the second episode, which has been talked about in the press a lot as a big miss, a kind of chauvinistic miss on the studio's part for not locking her up before the film got released because now she's holding all the cards, which is great.
 
@@ -826,7 +826,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:43:29] Danica: for World War One. Like the Germans are the Nazis.
 
-[00:43:58] Adam: Yeah, except that except that bear with me. The Germans weren't monolithically evil as Nazis always are in World War II films. In in in Wonder Woman, the enemy wasn't the Germans as much as it was war in general. Like we spent a lot more time on the fact that of just countless senseless deaths on both sides, civilian and military, and it not being just Germans stepping on people's necks while shooting babies.
+[00:43:58] Adam: Yeah, except that bear with me. The Germans weren't monolithically evil as Nazis always are in World War II films. In Wonder Woman, the enemy wasn't the Germans as much as it was war in general. Like we spent a lot more time on the fact that of just countless senseless deaths on both sides, civilian and military, and it not being just Germans stepping on people's necks while shooting babies.
 
 [00:44:27] Danica: Yeah.
 
@@ -840,7 +840,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:44:43] Norm: It's not. I mean, that's a challenge for writer.
 
-[00:44:45] Adam: Look, she also says in she also says in Batman v Superman, I've killed things from other worlds before,
+[00:44:45] Adam: Look, she also says in Batman v Superman, I've killed things from other worlds before,
 
 [00:44:52] Norm: and I want to see that.
 
@@ -854,11 +854,11 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:45:08] Adam: So yeah, maybe Thanos. Who knows?
 
-[00:45:10] Norm: Take her, take her out of play.
+[00:45:10] Norm: Take her out of play.
 
 [00:45:12] Adam: Oh wait, no, sorry, Marvel.
 
-[00:45:13] Norm: No, but like there's there's there's DC, like there's there's you know the the new gods and stuff like that. But like take her out of play. Explain that she's not in World War II because she was, you know, there's something some other big threat.
+[00:45:13] Norm: No, but there's DC, like there's you know the new gods and stuff like that. But take her out of play. Explain that she's not in World War II because she was there's something some other big threat.
 
 [00:45:26] Adam: Yeah,
 
@@ -908,7 +908,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:47:18] Danica: There's not a topic I would like to rant or speak more about than this. So I'm very happy to be here.
 
-[00:47:22] Adam: Good, Wonder Woman. So I want to tell you, you know, there's some amazing Wonder Woman costumes being built and offered on Etsy right now. As soon as we're done with this podcast, I'll show you a couple.
+[00:47:22] Adam: Good, Wonder Woman. So I want to tell there's some amazing Wonder Woman costumes being built and offered on Etsy right now. As soon as we're done with this podcast, I'll show you a couple.
 
 [00:47:35] Norm: All right. We'll see you guys next time.
 

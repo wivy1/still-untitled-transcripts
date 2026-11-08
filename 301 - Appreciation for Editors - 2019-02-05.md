@@ -22,7 +22,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:00:16] Norm: Well, recently,
 
-[00:00:17] Will: I I was in the Northland. I went. I went to the land that was so cold right now that they don't have a color for it on the weather maps.
+[00:00:17] Will: I was in the Northland. I went. I went to the land that was so cold right now that they don't have a color for it on the weather maps.
 
 [00:00:25] Norm: Is that really the case?
 
@@ -38,7 +38,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:01:04] Adam: Oh man, it was brutal. I was loading some of Chico MacMurtrie's sculptures into the Art Institute there back in probably '92, '93.
 
-[00:01:13] Will: Was it like? Did was it? Let me ask. I have I have some new perspective on cold. That I gained this weekend.
+[00:01:13] Will: Was it like? Did was it? Let me ask. I have some new perspective on cold. That I gained this weekend.
 
 [00:01:18] Adam: [unclear: ∅ / No], this was not nearly as when I went. It was not nearly as cold as it is this week. Okay, not at all.
 
@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:01:48] Norm: That won’t fly in weather like that..
 
-[00:01:48] Will: My ass, like when you're walking around, like the places where skin is like. Luckily, I have a beard. And I had a hat and I had mittens, but the like the area from the top of my beard to my glasses just felt like knives were stabbing it. And then after you've been outside for about 10 minutes, that also happens to your ass if you are not wearing double pants. Let's see what else. What else did I learn? I learned that if you lay down and make a snow angel when it's that cold, it is almost certainly a mistake, and that it it once you get below negative 10, then it's cold enough that your skin doesn't have to be wet to stick to metal. So,
+[00:01:48] Will: My ass, like when you're walking around the places where skin is like. Luckily, I have a beard. And I had a hat and I had mittens, but the like the area from the top of my beard to my glasses just felt like knives were stabbing it. And then after you've been outside for about 10 minutes, that also happens to your ass if you are not wearing double pants. Let's see what else. What else did I learn? I learned that if you lay down and make a snow angel when it's that cold, it is almost certainly a mistake, and that it once you get below negative 10, then it's cold enough that your skin doesn't have to be wet to stick to metal. So,
 
 [00:01:48] Adam: oh wow,
 
@@ -112,15 +112,15 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:03:59] Will: So
 
-[00:04:00] Adam: we're bundled. Oh yeah! Angry and these like girls are getting out in miniskirts and not even not even responding.
+[00:04:00] Adam: we're bundled. Oh yeah! Angry and these like girls are getting out in miniskirts and not even responding.
 
 [00:04:08] Will: Um,
 
-[00:04:08] Norm: did you see that video on social media? Was it Greenland? The airport that's that runway that's basically on a strip of ice, and it's a POV video from the cockpit of the airplane. Oh boy! Adds approaching, and it's beautiful because it's like you know, persistent golden hour at that time of year or something. But it's basically ice on water, and you see this landing strip and the lights, you know, lining it, and it's it's like science fiction. Wow! And it lands on
+[00:04:08] Norm: did you see that video on social media? Was it Greenland? The airport that's that runway that's basically on a strip of ice, and it's a POV video from the cockpit of the airplane. Oh boy! Adds approaching, and it's beautiful because it's like persistent golden hour at that time of year or something. But it's basically ice on water, and you see this landing strip and the lights lining it, and it's like science fiction. Wow! And it lands on
 
 [00:04:33] Adam: amazing. You just you kind of you don't stop. You just skid until you are no longer skidding.
 
-[00:04:38] Will: It’s a stunt.. So um, so I I can't talk about a lot of what goes on at Ord Camp because it's a it's a friendie a kind of unconference thing, and I don't know if we've ever actually explained. We've talked about this a couple times before, but we've never explained what an unconference is. Um, and it's kind of it's kind of I would describe it as a super inclusive thing, depending on who how you do your invitations and stuff. Yeah. But they do a really good job of getting people of of Diverse viewpoints and perspectives and backgrounds and and and everything, and then the people that they invite kind of determine what the topics are. So I went to sessions about playing the accordion and learning to write a song, and I went to I went to like I there were a couple of astronauts there, so I got to go to astronaut sessions.
+[00:04:38] Will: It’s a stunt.. So so I I can't talk about a lot of what goes on at Ord Camp because it's a friendie a kind of unconference thing, and I don't know if we've ever actually explained. We've talked about this a couple times before, but we've never explained what an unconference is. And it's kind of I would describe it as a super inclusive thing, depending on who how you do your invitations and stuff. Yeah. But they do a really good job of getting people of Diverse viewpoints and perspectives and backgrounds and everything, and then the people that they invite kind of determine what the topics are. So I went to sessions about playing the accordion and learning to write a song, and I went to like I there were a couple of astronauts there, so I got to go to astronaut sessions.
 
 [00:04:38] Norm: Fantasy camp.
 
@@ -128,29 +128,29 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:05:33] Adam: so much
 
-[00:05:33] Will: Lego Millennium Falcon that was just set up there that people would kind of sit down and figure out. Like Norm and I have done this a bunch with these big projects. It's hard to divvy that stuff up. Yeah, and the people there would just kind of sit down and spontaneously figure out. Okay, you do this part, I'll do this part. You find some pieces, I'll do some pieces. Yeah, yada yada. Um, a lot of like novel foods to taste. Um, one of a local beekeeper always brings honey that she's collected from all around and all around town, so you can tell like, oh, this is where the lingonberries are, and this is where [unclear: the grass, this is where / the gra-, this is where] the clover is, and all this stuff.
+[00:05:33] Will: Lego Millennium Falcon that was just set up there that people would kind of sit down and figure out. Like Norm and I have done this a bunch with these big projects. It's hard to divvy that stuff up. Yeah, and the people there would just kind of sit down and spontaneously figure out. Okay, you do this part, I'll do this part. You find some pieces, I'll do some pieces. Yeah, yada yada. A lot of like novel foods to taste. One of a local beekeeper always brings honey that she's collected from all around and all around town, so you can tell like, oh, this is where the lingonberries are, and this is where [unclear: the grass, this is where / the gra-, this is where] the clover is, and all this stuff.
 
 [00:05:33] Norm: Crazy.
 
-[00:05:33] Will: Um. But I got a new sensation this week.
+[00:05:33] Will: But I got a new sensation this week.
 
 [00:06:08] Norm: What? What does that mean?
 
-[00:06:09] Will: Well, so you're you're you're in your mid 30s, Norm. You're in your mid 50s, Adam. I'm in my mid 40s. It's unusual that I feel something like my sense of proprioception has a new stimulus at this point in my life, like
+[00:06:09] Will: Well, so you're in your mid 30s, Norm. You're in your mid 50s, Adam. I'm in my mid 40s. It's unusual that I feel something like my sense of proprioception has a new stimulus at this point in my life, like
 
 [00:06:24] Norm: physical sensation.
 
-[00:06:25] Will: I felt I felt I felt burning. I felt cold. I felt stabbing. I felt you know all the different all the normal stuff.
+[00:06:25] Will: I felt burning. I felt cold. I felt stabbing. I felt you know all the different all the normal stuff.
 
 [00:06:31] Norm: The love of a child
 
-[00:06:32] Will: got it covered. Yeah, the the love of a human being. A cognitive neuroscientist taught me how to how to get dizzy in a new way. Yeah, so
+[00:06:32] Will: got it covered. Yeah, the love of a human being. A cognitive neuroscientist taught me how to get dizzy in a new way. Yeah, so
 
 [00:06:45] Norm: is this something you can share?
 
 [00:06:46] Unknown speaker (Adam then Will or Adam): [unclear: Like I can share body hack / It’s like active body hacking / I can share this].
 
-[00:06:46] Will: I didn't ask her, but I think it'll be okay. So your vestibular system, your your inner ear has tubes, three tubes, and they're all oriented different ways, which is why we have a six axis gyroscope in our head, basically,
+[00:06:46] Will: I didn't ask her, but I think it'll be okay. So your vestibular system, your inner ear has tubes, three tubes, and they're all oriented different ways, which is why we have a six axis gyroscope in our head, basically,
 
 [00:06:46] Norm: right?
 
@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:07:34] Adam: So instead of a vertical dizziness, this is like a horizontal.
 
-[00:07:37] Will: This is like a horizontal dizziness. This is this is the second axis, right?
+[00:07:37] Will: This is like a horizontal dizziness. This is the second axis, right?
 
 [00:07:37] Norm: Right.
 
@@ -196,11 +196,11 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:08:50] Adam: right, right, right.
 
-[00:08:50] Will: So you hit the hairs. It's it seems like you can maybe tolerate it more if you are on axis, but I think that that's my theory, not official science. So it's a fascinating weekend. It's like. It's a it's a rad event. I highly recommend people look up unconferences. You can host them yourself. You just need a place and interesting people to invite. You don't need like you know you don't need big sponsors or anything like that. You need a room and some people and some maybe some food.
+[00:08:50] Will: So you hit the hairs. It's it seems like you can maybe tolerate it more if you are on axis, but I think that that's my theory, not official science. So it's a fascinating weekend. It's like. It's a rad event. I highly recommend people look up unconferences. You can host them yourself. You just need a place and interesting people to invite. You don't need like you know you don't need big sponsors or anything like that. You need a room and some people and some maybe some food.
 
 [00:09:25] Norm: Is it the kind of thing where everyone has to present?
 
-[00:09:27] Will: No, you don't. So so they have the way the way they do the actual scheduling is at the they have an opening session where they kind of say hey here's why you're here to the new people and then they let usually different groups go. This year I think they picked even number birthdays first, so you get like half the people out there at once. And they have these big boards that have all the rooms that are available, all the spaces that are available, and hour long time slots in each one. So people take a big three by five post it card, post it note, write their pitch idea on it, smack it up on the board, and then over the next like two or three hours, people will come by and stick little little those little dots, those little paper dots on the ones so you can kind of move the ones to indicate that they're interested in this session. And what that does is lets the organizers kind of move the ones that have more interest into the bigger rooms and the ones that have less.
+[00:09:27] Will: No, you don't. So so they have the way they do the actual scheduling is at the they have an opening session where they kind of say hey here's why you're here to the new people and then they let usually different groups go. This year I think they picked even number birthdays first, so you get like half the people out there at once. And they have these big boards that have all the rooms that are available, all the spaces that are available, and hour long time slots in each one. So people take a big three by five post it card, post it note, write their pitch idea on it, smack it up on the board, and then over the next like two or three hours, people will come by and stick little little those little dots, those little paper dots on the ones so you can kind of move the ones to indicate that they're interested in this session. And what that does is lets the organizers kind of move the ones that have more interest into the bigger rooms and the ones that have less.
 
 [00:09:27] Adam: Oh wow!
 
@@ -208,11 +208,11 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:09:27] Adam: yeah,
 
-[00:09:27] Will: but it kind of self organizes. It's really, it's really a neat process. And and you know, as opposed to a normal conference, it goes from like nine o'clock in the morning until five o'clock, and then you go home and go to a bar or something, Yeah, hang out with people that you met that day. This one starts at like 10 and goes until six o'clock in the morning. Sometimes,
+[00:09:27] Will: but it kind of self organizes. It's really a neat process. And as opposed to a normal conference, it goes from like nine o'clock in the morning until five o'clock, and then you go home and go to a bar or something, Yeah, hang out with people that you met that day. This one starts at like 10 and goes until six o'clock in the morning. Sometimes,
 
 [00:10:31] Adam: oh wow!
 
-[00:10:32] Will: Like people stay up late at in the wee hours. People are playing like werewolf and and making music and working on Lego and singing karaoke and all sorts of stuff. It's a, it's a, it's a, it's. I find it always interesting to get a big, giant group of interesting people together and let them chat.
+[00:10:32] Will: Like people stay up late at in the wee hours. People are playing like werewolf and making music and working on Lego and singing karaoke and all sorts of stuff. It's a, it's. I find it always interesting to get a big, giant group of interesting people together and let them chat.
 
 [00:10:50] Norm: What if you are incredibly socially awkward and have a lot of social anxiety?
 
@@ -232,13 +232,13 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:11:31] Adam: and I was like, " Oh, buddy, I am so glad to welcome you to the club."
 
-[00:11:54] Will: Well, so so and so one of the things that Fitz and Zach do at the beginning is they say, " Look, everybody's here because for a reason, right? If you were invited to come here, your or your application was accepted, you are interesting and you have something to add, whether it's in terms of presenting or sharing something that you know, or just." Asking questions or listening and and being generally interesting, right? Like there's no there's no right or wrong, and everybody contributes, and it's a it's a lovely weekend. So
+[00:11:54] Will: Well, so so and so one of the things that Fitz and Zach do at the beginning is they say, " Look, everybody's here because for a reason, right? If you were invited to come here, your or your application was accepted, you are interesting and you have something to add, whether it's in terms of presenting or sharing something that you know, or just." Asking questions or listening and being generally interesting, right? Like there's no right or wrong, and everybody contributes, and it's a lovely weekend. So
 
 [00:12:24] Norm: I have a variation on that.
 
 [00:12:24] Will: Okay.
 
-[00:12:24] Norm: The the definition definition you gave of imposter syndrome of being at a event or in a room, any place where you feel like the other person in the room definitely belongs there and you don't belong. I think the variation I have is not that they belong here, but that someone in my field should be here instead of me.
+[00:12:24] Norm: The definition definition you gave of imposter syndrome of being at a event or in a room, any place where you feel like the other person in the room definitely belongs there and you don't belong. I think the variation I have is not that they belong here, but that someone in my field should be here instead of me.
 
 [00:12:48] Will: I think that I mean I think that's a that's very apt. Yeah, I think that's absolutely 
 
@@ -252,7 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:12:59] Norm: Yes.
 
-[00:12:59] Will: Well, so the other thing the other thing that they do, and this is another part of being inclusive that isn't necessarily related to gender or ethnicity or religion or whatever, but I think Fitz calls this one the Pac Man rule. So if you're sitting in a cluster of people and you're having a chat outside in a conference hall or whatever. Look to your right and look to your left. If there's a gap, if there's not a gap in that circle of people that you're talking to, make enough room that somebody can just kind of sidle up and join the conversation if they want.
+[00:12:59] Will: Well, so the other thing that they do, and this is another part of being inclusive that isn't necessarily related to gender or ethnicity or religion or whatever, but I think Fitz calls this one the Pac Man rule. So if you're sitting in a cluster of people and you're having a chat outside in a conference hall or whatever. Look to your right and look to your left. If there's a gap, if there's not a gap in that circle of people that you're talking to, make enough room that somebody can just kind of sidle up and join the conversation if they want.
 
 [00:12:59] Adam: Nice.
 
@@ -298,7 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:14:51] Norm: Post- event FOMO.
 
-[00:14:53] Will: Yeah, but look, FOMO is a real FOMO is real. Imposter syndrome also real. Um, but you roll in, you roll in. The next time I went a couple years later, I made a point to go up and introduce myself to everybody who I thought was interesting, anybody I wanted to meet, and it was a, it was a. I mean, both of them were transformative experiences, but that second one, and it's hard to do. Like, yeah, no matter no matter who you are or what you do. It's always like, oh God! I introduced myself to Scalzi again while we were there this weekend. It's like, hey, I met you at at Wootstock, and he's like, oh right, yeah, I remember being at Wootstock. But I'm sorry, I was like, that's okay.
+[00:14:53] Will: Yeah, but look, FOMO is a real FOMO is real. Imposter syndrome also real. But you roll in. The next time I went a couple years later, I made a point to go up and introduce myself to everybody who I thought was interesting, anybody I wanted to meet, and it was a. I mean, both of them were transformative experiences, but that second one, and it's hard to do. Like, yeah, no matter who you are or what you do. It's always like, oh God! I introduced myself to Scalzi again while we were there this weekend. It's like, hey, I met you at at Wootstock, and he's like, oh right, yeah, I remember being at Wootstock. But I'm sorry, I was like, that's okay.
 
 [00:15:26] Adam: [unclear: It’s a lot of he meets / It’s a lot of, it’s / I don’t expect you to. He meets] a lot of people. John does,
 
@@ -312,11 +312,11 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:15:49] Will: Okay,
 
-[00:15:49] Adam: and then a little trip to Los Angeles to take care of some other business, and the shoots going. This is just an incredible crew. We're making some beautiful television. It's very different than what I've made before, although it will also feel quite familiar. It's really exciting. It's it's it's a really really neat thing that we're doing.
+[00:15:49] Adam: and then a little trip to Los Angeles to take care of some other business, and the shoots going. This is just an incredible crew. We're making some beautiful television. It's very different than what I've made before, although it will also feel quite familiar. It's really exciting. It's a really really neat thing that we're doing.
 
 [00:16:18] Will: So this is. This is the first time in a while you've like MythBusters Junior. I mean, obviously, the last 10 seasons of MythBusters were informed by the first few seasons of MythBusters. The MythBusters Junior. is informed by everything that came before it with MythBusters. This is the first time in a while you've made something that was kind of from scratch.
 
-[00:16:35] Adam: Well, and obviously, it's got a ton of the same DNA that MythBusters does because it's because it's me.
+[00:16:35] Adam: Well, and obviously, it's got a ton of the same DNA that MythBusters does because it's me.
 
 [00:16:40] Will: Yeah, of course.
 
@@ -328,11 +328,11 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:16:55] Will: right?
 
-[00:16:55] Adam: But also, we've just made decisions to film certain things in different ways, and to choose to cover different aspects of the narrative, and then once it's in the edit suite, then a show comes out of that, and we're not sure what that show is going to feel like, right? Like that's the that's the the coolest part to me, is that you do your best on set, and then. In post, this show comes out of it, and the fact is that the first rough cut of post I talked about this the last time with Junior. The first rough cut out of post always unhinges me because it's not a show yet; 
+[00:16:55] Adam: But also, we've just made decisions to film certain things in different ways, and to choose to cover different aspects of the narrative, and then once it's in the edit suite, then a show comes out of that, and we're not sure what that show is going to feel like, right? Like that's the coolest part to me, is that you do your best on set, and then. In post, this show comes out of it, and the fact is that the first rough cut of post I talked about this the last time with Junior. The first rough cut out of post always unhinges me because it's not a show yet;
 
 [00:16:55] Will: right?
 
-[00:16:55] Adam: It's just an assembly of the story, but it doesn't have a point of view, and you kind of find that point of view in the first two or three episodes, and then you start to understand what you're what you're working with. And it's it's that's it's that's that's been really fun.
+[00:16:55] Adam: It's just an assembly of the story, but it doesn't have a point of view, and you kind of find that point of view in the first two or three episodes, and then you start to understand what you're working with. And it's that's been really fun.
 
 [00:17:48] Norm: This reminds Did you read that io nine interview with one of the editors of Black Panther?
 
@@ -342,9 +342,9 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:17:55] Adam: Yes,
 
-[00:17:56] Norm: and it was exactly what you're talking about, but for film, and I didn’t realize that also applied to TV shows. And it's it's with interview I think with Charles Pulliam-Moore, totally worth reading on io nine. But the insights what people say about film is true. Films are made multiple times when it's written, when it's shot, and when it's edited. And from her perspective as an editor, she said she edits a film without having it's almost like being dropped into the the kitchen when when the meal’s already been half cooked, but she's cooking it then her way, like without any of the direction of the director.
+[00:17:56] Norm: and it was exactly what you're talking about, but for film, and I didn’t realize that also applied to TV shows. And it's with interview I think with Charles Pulliam-Moore, totally worth reading on io nine. But the insights what people say about film is true. Films are made multiple times when it's written, when it's shot, and when it's edited. And from her perspective as an editor, she said she edits a film without having it's almost like being dropped into the kitchen when the meal’s already been half cooked, but she's cooking it then her way, like without any of the direction of the director.
 
-[00:18:34] Adam: She was saying she does the first cut pass without talking, not without talking to anybody, but as a as a totally fresh pair of eyes.
+[00:18:34] Adam: She was saying she does the first cut pass without talking, not without talking to anybody, but as a totally fresh pair of eyes.
 
 [00:18:34] Norm: Yeah,
 
@@ -354,7 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:19:02] Norm: but it's it's not just about reviewing takes and picking out the best take from your perspective as an editor, but also what she says she reviews like the the minutes before takes begin and the minutes after just to feel the energy on set and what's said between the actors, between the directors and the crew, just so that's how she absorbs. The tone,
 
-[00:19:22] Adam: and if you're if you're curious about this process at all, I strongly recommend you try filming something on your phone, a few shots that you lay out. Okay, I need this, this, this, this, and then try cutting them together in in in iMovie. Just  incredibly simple, and it'll give you this gargantuan amount of respect for editors because the the amount of of finesse you can have in the pacing of a story just by choosing between one frame and the next frame for cutting, and the way a set of cuts pace together, and when you take a series of shots and you find a way to cut them together that you don't notice the cuts are happening, but you're just experiencing a story. Holy cow! That is it's  [unclear: magic / magical].
+[00:19:22] Adam: and if you're curious about this process at all, I strongly recommend you try filming something on your phone, a few shots that you lay out. Okay, I need this, and then try cutting them together in iMovie. Just incredibly simple, and it'll give you this gargantuan amount of respect for editors because the amount of finesse you can have in the pacing of a story just by choosing between one frame and the next frame for cutting, and the way a set of cuts pace together, and when you take a series of shots and you find a way to cut them together that you don't notice the cuts are happening, but you're just experiencing a story. Holy cow! That is it's [unclear: magic / magical]
 
 [00:20:07] Will: Yeah,
 
@@ -384,19 +384,19 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:20:30] Norm: Yes.
 
-[00:20:31] Will: It's no, but it's a spectacular documentary, and it explains, like, it explains. It's it's almost like film school 100. Like like you're. It explains both editing history, like like why we no longer do establishing shots in the when somebody like when somebody changes venue in the '70s, you would always do an establish like in all the presidents men when Woodward and Bernstein go into the Washington Post, you have an exterior shot of the front door of the Washington Post that says the Washington Post there. We don't do that anymore because people know what a newsroom looks like, and if you see, say, Lois Lane and Clark Kent in a Superman movie sitting in the Daily Planet newsroom, we all know that that's a newsroom. It's a bunch of desks with computers on them and phones and like we they don't have to explain. Hey, the guys have returned to the to the newsroom anymore. Stuff like that, stuff like how you do cross cuts and stuff like that. All all of the things that it's kind of it's another thing like letting right. It's a thing that once you once you once you understand it and see how it happens, you'll see it everywhere and you'll be able to appreciate when it's awesome.
+[00:20:31] Will: It's no, but it's a spectacular documentary, and it explains. It's almost like film school 100. Like you're. It explains both editing history, like why we no longer do establishing shots in the when somebody like when somebody changes venue in the '70s, you would always do an establish like in all the presidents men when Woodward and Bernstein go into the Washington Post, you have an exterior shot of the front door of the Washington Post that says the Washington Post there. We don't do that anymore because people know what a newsroom looks like, and if you see, say, Lois Lane and Clark Kent in a Superman movie sitting in the Daily Planet newsroom, we all know that that's a newsroom. It's a bunch of desks with computers on them and phones and like we they don't have to explain. Hey, the guys have returned to the newsroom anymore. Stuff like that, stuff like how you do cross cuts and stuff like that. All all of the things that it's kind of it's another thing like letting right. It's a thing that once you understand it and see how it happens, you'll see it everywhere and you'll be able to appreciate when it's awesome.
 
-[00:21:32] Adam: It's totally true. And so, yeah, I was talking to the post supervisor, the the guy who'll be overseeing all the cutting of this show, came on to the set for the first few days, and we spent a lot of time talking. We share a lot of cultural commonalities. He's just about my age, from the same part of the country, from the East Coast, New York tri-state area, and that gave us a little bit of a shorthand with each other. But I also handed him my sketchbook and said, " Spend a couple of hours just flipping through the sketchbook. This will give you an idea of the way I approach my ideas and the way I approach what I'm working on, and that might be germane to how we how we do graphics in post. And if you want to scan any of this stuff, we can use that too.
+[00:21:32] Adam: It's totally true. And so, yeah, I was talking to the post supervisor, the guy who'll be overseeing all the cutting of this show, came on to the set for the first few days, and we spent a lot of time talking. We share a lot of cultural commonalities. He's just about my age, from the same part of the country, from the East Coast, New York tri-state area, and that gave us a little bit of a shorthand with each other. But I also handed him my sketchbook and said, " Spend a couple of hours just flipping through the sketchbook. This will give you an idea of the way I approach my ideas and the way I approach what I'm working on, and that might be germane to how we how we do graphics in post. And if you want to scan any of this stuff, we can use that too.
 
 [00:22:15] Norm: It's just like for the film director going back to analog before. She went to edit Black Panther. She got a list of favorite films from Ryan Coogler, and was surprised by, oh wow, much darker, grittier films than I had expected. But it wasn't like edit this scene this way. It's like these are my favorite films. Oh, I now have a sense of what you're pulling from because it's all.
 
-[00:22:36] Adam: And that's a again, that's a really good director because, you don't want to say edit this film this way. You don't want to sit in the you you want to let the editor, show you something you didn't see about the footage you shot. You want to let the post people. We had this in the last couple seasons of MythBusters. We had a little extra dough in post, and Katie, the graphics supervisor at Beyond Productions, um, just got this incredible, uh, uh, charge to after the shows were cut. She got an extra week with each episode.
+[00:22:36] Adam: And that's a again, that's a really good director because, you don't want to say edit this film this way. You don't want to sit in the you want to let the editor, show you something you didn't see about the footage you shot. You want to let the post people. We had this in the last couple seasons of MythBusters. We had a little extra dough in post, and Katie, the graphics supervisor at Beyond Productions just got this incredible charge to after the shows were cut. She got an extra week with each episode.
 
 [00:23:10] Will: Is that when they were doing like the dotted lines [unclear: ∅ / and stuff]? Uh huh. It was so good to
 
-[00:23:13] Adam: layer in all that super graphics, and it was it it. Added so much dimensionality. That stuff is expensive. Yeah, it's hard to do. It's hard to find people that can do it well. There's animation. There's graphics. All this stuff around it. But when you really get to spend time layering that in, you just you make better you make better stories.
+[00:23:13] Adam: layer in all that super graphics, and it was it. Added so much dimensionality. That stuff is expensive. Yeah, it's hard to do. It's hard to find people that can do it well. There's animation. There's graphics. All this stuff around it. But when you really get to spend time layering that in, you just you make better stories.
 
-[00:23:31] Norm: It's one of the reasons that like shows like No Reservations when when Bourdain was doing was so good because they took that very seriously and every episode was like edited and shot differently and they experimented with the formats.
+[00:23:31] Norm: It's one of the reasons that like shows like No Reservations when Bourdain was doing was so good because they took that very seriously and every episode was like edited and shot differently and they experimented with the formats.
 
 [00:23:42] Adam: And you felt the Guillermo del Toro. I I asked him, " How do you run a an art department with 75 people? How do you tell each one of them what to draw? How is that possible? " And he said, " You got to give everyone a completely free rein within a very narrow bandwidth. " And it's a great way to talk about working with a team because you want people's ideas. You want them to bring their creativity and their point of view to your project. It's going to make it better when you have that diversity, all those diverse viewpoints.
 
@@ -430,7 +430,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:25:32] Norm: I wish it was like a localization where like they took the Japanese and they translated it back.
 
-[00:25:37] Will: Oh, I um, you, I think you were the one who told me that the the the not Janet on the good place in the second season.
+[00:25:37] Will: Oh, I you, I think you were the one who told me that the not Janet on the good place in the second season.
 
 [00:25:44] Adam: Oh, bad Janet.
 
@@ -464,7 +464,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:26:23] Norm: I'm not sure.
 
-[00:26:25] Adam: I think that it's look. I I think of editing. Look, I've done stop motion animation. I've done it enough to know that I that I could do it if you forced me to. But it's a very specific gene pool of people who need to animate. We've met a lot of them through Tippett, et cetera, and I know that's not my gene pool. And same with editing. I've done it. I've learned enough about it to have genuine, deep respect for the practitioners of of it at a high level. And it's not my gene pool. But like, I can really understand being a director. Steven Soderbergh shoots his own movies, and I totally get that.
+[00:26:25] Adam: I think that it's look. I think of editing. Look, I've done stop motion animation. I've done it enough to know that I could do it if you forced me to. But it's a very specific gene pool of people who need to animate. We've met a lot of them through Tippett, et cetera, and I know that's not my gene pool. And same with editing. I've done it. I've learned enough about it to have genuine, deep respect for the practitioners of it at a high level. And it's not my gene pool. But like, I can really understand being a director. Steven Soderbergh shoots his own movies, and I totally get that.
 
 [00:27:05] Will: I can see that.
 
@@ -472,11 +472,11 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:27:13] Unknown speaker: Yeah,
 
-[00:27:13] Will: I, I just, I just like I know enough about editing from editing videos on the internet to know that I can hack something together and make it look okay.
+[00:27:13] Will: I just like I know enough about editing from editing videos on the internet to know that I can hack something together and make it look okay.
 
 [00:27:13] Adam: Mm-hmm.
 
-[00:27:13] Will: But there's a big difference between that and and making something that. Just evokes emotion with your cuts
+[00:27:13] Will: But there's a big difference between that and making something that. Just evokes emotion with your cuts
 
 [00:27:13] Adam: Yes.
 
@@ -484,7 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:27:31] Adam: It really is.
 
-[00:27:31] Norm: I’ll give a recommendation. There's a great editing blog called Art of the Cut, and the guy who runs it has great access to a lot of a lot of big editors. He actually compiled all these interviews into a book that you can find on Amazon. I think also called Art of the Cut, Things like I learned that when Steven Spielberg was directing The Post, he was doing The Post and Ready Player One at the same time, editing both on the same editing team, which is great for them because totally they get to take a step back.
+[00:27:31] Norm: I’ll give a recommendation. There's a great editing blog called Art of the Cut, and the guy who runs it has great access to a lot of big editors. He actually compiled all these interviews into a book that you can find on Amazon. I think also called Art of the Cut, Things like I learned that when Steven Spielberg was directing The Post, he was doing The Post and Ready Player One at the same time, editing both on the same editing team, which is great for them because totally they get to take a step back.
 
 [00:27:59] Adam: Oh wow!
 
@@ -492,7 +492,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:28:01] Adam: Wow.
 
-[00:28:02] Will: Have you Have you watched all the Presidents Men and then followed it up with The Post?
+[00:28:02] Will: Have you watched all the Presidents Men and then followed it up with The Post?
 
 [00:28:02] Adam: No.
 
@@ -510,7 +510,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:28:28] Will: Okay, so the documentary, the editing documentary is cutting edge. Anything else?
 
-[00:28:35] Adam: Has Tony, has Tony Zhou ever done a thing on editing? He must have done a thing on editing in Every Frame a Painting. I’m just not calling [unclear: one / the one / anyone] up to my head.
+[00:28:35] Adam: Has Tony Zhou ever done a thing on editing? He must have done a thing on editing in Every Frame a Painting. I’m just not calling [unclear: one / the one / anyone] up to my head.
 
 [00:28:42] Norm: [unclear: Yeah, yeah / Yeah].
 
@@ -520,13 +520,13 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:28:52] Adam: And I seem to remember I couldn't remember if it was Tony or not. I forgot to go look it up when I got home. But there's a there is an online analysis of a long scene between Jimmy Stewart and a psychiatrist. I think
 
-[00:29:06] Norm: yes, when he's in the institution, and it's the last time you see Midge. I think she walks out from the institution, and then he he talks about how he's obsessed.
+[00:29:06] Norm: yes, when he's in the institution, and it's the last time you see Midge. I think she walks out from the institution, and then he talks about how he's obsessed.
 
 [00:29:17] Adam: But, but this this whole scene is involves all these camera angles, and Hitchcock is doing all of the storytelling by the choice of angles and the way he's cutting and pacing the scene. And I was trying, I was watching at Foreign Cinema last night, and trying [unclear: ∅ / to] remember who had done a piece because I wanted to go watch that again.
 
 [00:29:31] Will: It's distracting when they play a movie that's too good at Foreign Cinema.
 
-[00:29:35] Adam: The the we've gone there. I mean, I eat there probably once a month, either dinner or breakfast.
+[00:29:35] Adam: The we've gone there. I mean, I eat there probably once a month, either dinner or breakfast.
 
 [00:29:41] Will: Wow, they do breakfast now?
 
@@ -580,7 +580,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:31:22] Adam: Oh my god!
 
-[00:31:22] Norm: And went on a 15-minute explanation about the restaurant scene, and then and then the glowing the green, and then the male gaze, and like and it was an easy way to go back and forth.
+[00:31:22] Norm: And went on a 15-minute explanation about the restaurant scene, and then the glowing the green, and then the male gaze, and like and it was an easy way to go back and forth.
 
 [00:31:58] Will: Wow.
 
@@ -594,7 +594,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:32:26] Adam: yeah.
 
-[00:32:26] Will: I, I, um, I had the exact opposite experience. I watched Star Trek Discovery on the plane,
+[00:32:26] Will: I had the exact opposite experience. I watched Star Trek Discovery on the plane,
 
 [00:32:26] Adam: yeah,
 
@@ -602,15 +602,15 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:32:35] Norm: The TV show?
 
-[00:32:35] Will: The TV show, and I think you told me it starts slow and then it gets okay, and that's that's accurate. That's all. That's all I got. It's I got no feedback other than that. It's okay.
+[00:32:35] Will: The TV show, and I think you told me it starts slow and then it gets okay, and that's accurate. That's all. That's all I got. It's I got no feedback other than that. It's okay.
 
 [00:32:46] Adam: That's it.
 
 [00:32:47] Will: Yeah. Um.
 
-[00:32:50] Adam: Wow. All right, that was that was awesome. Thank you for that.
+[00:32:50] Adam: Wow. All right, that was awesome. Thank you for that.
 
-[00:32:51] Will: No, no, no, okay. Here's here's my here's my here's my analysis of the first 10 episodes of Star Trek Discovery.
+[00:32:51] Will: No, no, no, okay. Here's my analysis of the first 10 episodes of Star Trek Discovery.
 
 [00:32:58] Norm: There are only 10 episodes.
 
@@ -618,7 +618,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:32:59] Norm: Okay,
 
-[00:32:59] Will: and there's two new ones now. Um, it is an interesting premise with some really. I have some real problems with the early character development. They introduce characters solely for you to hate, and then redeem them over the next like two episodes of each after the introduction of the character. And it doesn't, unlike every other Trek, which starts out with, " Hey, here's a crew that is a unified, cohesive team." This one starts, and this is maybe a spoiler, but it happens in the first like 30 minutes with a mutiny, which doesn't seem very Roddenberry-esque. [unclear: Plot wise,]
+[00:32:59] Will: and there's two new ones now. It is an interesting premise with some really. I have some real problems with the early character development. They introduce characters solely for you to hate, and then redeem them over the next like two episodes of each after the introduction of the character. And it doesn't, unlike every other Trek, which starts out with, " Hey, here's a crew that is a unified, cohesive team." This one starts, and this is maybe a spoiler, but it happens in the first like 30 minutes with a mutiny, which doesn't seem very Roddenberry-esque. [unclear: Plot wise,]
 
 [00:33:31] Norm: it’s not
 
@@ -632,11 +632,11 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:33:52] Adam: Older than that,
 
-[00:33:53] Will: yeah, Run Silent, Run Deep. A little more tense, a little bit less. You know, let's send the new kid down into the bowels to die.
+[00:33:53] Will: yeah, Run Silent, Run Deep. A little more tense, a little bit less. Let's send the new kid down into the bowels to die.
 
 [00:33:53] Adam: Wow,
 
-[00:33:53] Will: it's it and and gets kind of intense, and then deals with some some philosophical stuff that isn't entirely vapid.
+[00:33:53] Will: it's it and gets kind of intense, and then deals with some some philosophical stuff that isn't entirely vapid.
 
 [00:34:09] Adam: Speaking of submarine movies, the star of one of the great ones, Crimson Tide.
 
@@ -684,7 +684,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:35:24] Norm: Lex Luthor, come on, Superman.
 
-[00:35:25] Will: Yeah, you know what? I’m going to go ahead and tell you those early Superman movies when you go back and watch them now. They're they're they're not as good as you remember them being.
+[00:35:25] Will: Yeah, you know what? I’m going to go ahead and tell you those early Superman movies when you go back and watch them now. They're not as good as you remember them being.
 
 [00:35:33] Adam: He does get a great rhetorical flourish in the first Superman movie, where he says, " Because he wants to detonate some nuclear explosives and drop California into the Pacific Ocean, he says, 'It's okay, Superman. We all have our faults. Mine's in California.' I always like that joke. I got that joke when the movie came out. I got that joke. It made me feel good.
 
@@ -692,7 +692,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:35:59] Norm: Pulled it off.
 
-[00:36:00] Adam: Um, but Gene Hackman also comes out of comes out of that 1970s. I I feel like he's a direct result of the Cassavetes Revolution, where in the early '70s Hollywood started casting what they thought of as ugly people, like Dustin Hoffman,
+[00:36:00] Adam: But Gene Hackman also comes out of that 1970s. I feel like he's a direct result of the Cassavetes Revolution, where in the early '70s Hollywood started casting what they thought of as ugly people, like Dustin Hoffman,
 
 [00:36:16] Will: [unclear: in these / Yeah, the uglies].
 
@@ -724,11 +724,11 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:36:56] Adam: yeah. Runaway Jury is a John Grisham film, but wait, which one is Runaway Jury?
 
-[00:37:00] Norm: Runaway Jury is the one where they they load the jury, and John Cusack and I believe Rachel Weisz are in on it to get him on the jury.
+[00:37:00] Norm: Runaway Jury is the one where they load the jury, and John Cusack and I believe Rachel Weisz are in on it to get him on the jury.
 
 [00:37:07] Will: That's a hell of a cast.
 
-[00:37:08] Norm: You know, to to to make the right call, and and and Gene Hackman plays like the agent, the operative who you know behind the scenes tries to load the jury and and get the defense. Ah. And then Dustin Hoffman is the the good-hearted you know prosecutor.
+[00:37:08] Norm: To make the right call, and Gene Hackman plays like the agent, the operative who you know behind the scenes tries to load the jury and get the defense. Ah. And then Dustin Hoffman is the good-hearted you know prosecutor.
 
 [00:37:25] Will: So the secret of John Grisham novels is that there are three good ones. There's the firm made into a okay movie with Tom Cruise.
 
@@ -754,7 +754,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:38:03] Adam: Yeah, yeah, yeah, yeah.
 
-[00:38:03] Will: That's that's my that's. Send your comments to norman@tested.com.
+[00:38:03] Will: That's my that's. Send your comments to norman@tested.com.
 
 [00:38:03] Adam: Is the Rainmaker Grisham?
 
@@ -780,7 +780,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:38:33] Will: I always wondered why you had a radiator in the shop because it's always cold as hell here.
 
-[00:38:36] Adam: We made so they'd shot in a they'd shot in a a landmark courtroom in New Orleans, and then they replicated that courtroom on Treasure Island for a bunch of extra scenes. And when they did the 13 radiators that they that were in the original courtroom, it was it was cheaper to have us build them from scratch than it was to ship like 1,800 pounds of radiators from wherever they were around the country.
+[00:38:36] Adam: We made so they'd shot in a landmark courtroom in New Orleans, and then they replicated that courtroom on Treasure Island for a bunch of extra scenes. And when they did the 13 radiators that they that were in the original courtroom, it was cheaper to have us build them from scratch than it was to ship like 1,800 pounds of radiators from wherever they were around the country.
 
 [00:38:36] Will: Wow. Well, I guess that's I mean no better place to stop that
 
@@ -790,7 +790,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:39:10] Norm: To fake heat..
 
-[00:39:11] Will: And so, it, it just to be clear, it was cold when I was there. It's really, really cold now. It's throw some water, boiling water, up in the air, and it turns into into snow.
+[00:39:11] Will: And so, it just to be clear, it was cold when I was there. It's really, really cold now. It's throw some water, boiling water, up in the air, and it turns into into snow.
 
 [00:39:19] Adam: Also, let's please stop throwing boiling water at each other. Apparently, every year, like dozens of people are harmed and burnt by boiling water being thrown at each other in cold climates trying to get YouTube videos.
 
@@ -812,7 +812,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:39:43] Adam: Sure.
 
-[00:39:43] Will: Maybe if if you're someplace it's really cold, you don't have to go out of the house. Don't go out. Tape up your windows and turn on the heater extra high. And look, I got into a car, and the person who's driving was like, " Hey, can you rub your mitten on the inside of the window so I can see out of the rearview mirror on the side?" And I was like, " Wait, this that I'm the frost that's on the inside of the window that I'm rubbing off is is the the water from your breath
+[00:39:43] Will: Maybe if you're someplace it's really cold, you don't have to go out of the house. Don't go out. Tape up your windows and turn on the heater extra high. And look, I got into a car, and the person who's driving was like, " Hey, can you rub your mitten on the inside of the window so I can see out of the rearview mirror on the side?" And I was like, " Wait, this that I'm the frost that's on the inside of the window that I'm rubbing off is is the the water from your breath
 
 [00:39:43] Adam: right
 

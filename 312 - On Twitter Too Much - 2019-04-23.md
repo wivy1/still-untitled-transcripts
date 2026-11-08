@@ -28,7 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:00:58] Adam: Sorry,
 
-[00:00:58] Michael Green: simply no. It's mostly for them. I just, you know, come on, they're better people. Like. And we were on a very long line together, but then we started the words " Blade Runner" were uttered, and we had something to talk about.
+[00:00:58] Michael Green: simply no. It's mostly for them. I just come on, they're better people. Like. And we were on a very long line together, but then we started the words " Blade Runner" were uttered, and we had something to talk about.
 
 [00:01:10] Adam: You introduced yourself to me, and I know Neil Gaiman very well. So it was like it was a really that was actually a really fun line.
 
@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:01:23] Adam: from a long time ago, and so welcome to San Francisco.
 
-[00:01:28] Michael Green: Thank you. I haven't been here in a while. I love it. I went to college up in the Bay Area, and I never i i it's a city that I always have a fondness for, but don't feel I get well enough. And every time I'm here, I'm like, why don't we come here more often?
+[00:01:28] Michael Green: Thank you. I haven't been here in a while. I love it. I went to college up in the Bay Area, and I never i it's a city that I always have a fondness for, but don't feel I get well enough. And every time I'm here, I'm like, why don't we come here more often?
 
 [00:01:40] Adam: Yeah,
 
@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:03:45] Norm: Yeah,
 
-[00:03:46] Adam: and for the longest time, if you ejected on the ground, you had only like a 50-50 chance of living through that because the parachutes weren't built to eject from from the ground.
+[00:03:46] Adam: and for the longest time, if you ejected on the ground, you had only like a 50-50 chance of living through that because the parachutes weren't built to eject from the ground.
 
 [00:04:01] Michael Green: Huh.
 
@@ -104,13 +104,13 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:04:25] Adam: Really,
 
-[00:04:25] Norm: on the on the in the two seater, and
+[00:04:25] Norm: on the in the two seater, and
 
 [00:04:29] Michael Green: did he make it?
 
 [00:04:29] Norm: Yeah, I think he made it. Yeah.
 
-[00:04:31] Michael Green: Okay. Good. So we can we can laugh at the story.
+[00:04:31] Michael Green: Okay. Good. So we can laugh at the story.
 
 [00:04:33] Norm: Yes.
 
@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:05:29] Michael Green: so he can like
 
-[00:05:29] Adam: Well, no, and there's a slot at the floor where he can chuck in and actually operate the yoke of the plane. And there's a handle on one of the aileron cables on the on the on the tail fin, so the the the gunner can actually potentially fly the plane with a handle on a cable and a tiny little. It is again, it is better than death. Right, right, that's what this is.
+[00:05:29] Adam: Well, no, and there's a slot at the floor where he can chuck in and actually operate the yoke of the plane. And there's a handle on one of the aileron cables on the tail fin, so the gunner can actually potentially fly the plane with a handle on a cable and a tiny little. It is again, it is better than death. Right, right, that's what this is.
 
 [00:05:51] Norm: But and also on a swivel seat.
 
@@ -158,9 +158,9 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:06:13] Unknown speaker (Michael Green or Adam): [unclear: let’s just a little younger than me. Fine / Let’s just, I’m, it’s fine],
 
-[00:06:14] Adam: yeah. Um, but of an age where. It must have been crazy to get the call to write Blade Runner 2049.
+[00:06:14] Adam: yeah. But of an age where. It must have been crazy to get the call to write Blade Runner 2049.
 
-[00:06:22] Michael Green: Oh yeah, we're we're jumping into that.
+[00:06:22] Michael Green: Oh yeah, we're jumping into that.
 
 [00:06:23] Adam: Yes,
 
@@ -170,39 +170,39 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:06:25] Adam: This is the elephant in the room that I wanted to talk about.
 
-[00:06:27] Michael Green: It's fine. No, no, it's okay. There are certain places I go, and it's like we're going to be talking Marvel, and then there are others. I'm going to Adam Savage's cave. We're going to be talking about Blade Runner. Yes, I remember it very distinctly because I had met Ridley prior. We had discussed another project that the timing wasn't right, and then a few weeks later, it was. I mean, the word I don't remember the wording. I remember short email from from my film agent and Jason Spitz, who'll be pleased that I mentioned him, and and just the words Blade Runner there, and like you know, it was blurry. I'm like, what are they going to do an anime version, and they want me to like translate it, or and would you want to talk about that? And my my thoughts were, well, that's playing with fire, and then my second thought was, well, that's playing with fire,
+[00:06:27] Michael Green: It's fine. No, no, it's okay. There are certain places I go, and it's like we're going to be talking Marvel, and then there are others. I'm going to Adam Savage's cave. We're going to be talking about Blade Runner. Yes, I remember it very distinctly because I had met Ridley prior. We had discussed another project that the timing wasn't right, and then a few weeks later, it was. I mean, the word I don't remember the wording. I remember short email from my film agent and Jason Spitz, who'll be pleased that I mentioned him, and just the words Blade Runner there, and like you know, it was blurry. I'm like, what are they going to do an anime version, and they want me to like translate it, or and would you want to talk about that? And my thoughts were, well, that's playing with fire, and then my second thought was, well, that's playing with fire,
 
 [00:07:12] Adam: right?
 
-[00:07:12] Michael Green: And and yeah, so I I couldn't say yes quickly enough and got to go and you know just have a discussion and. They'd been talking about an idea for a while with the original writer Hampton Fancher, who I only got to know much later in the process when the movie was done. Now we're now—
+[00:07:12] Michael Green: And yeah, so I I couldn't say yes quickly enough and got to go and you know just have a discussion and. They'd been talking about an idea for a while with the original writer Hampton Fancher, who I only got to know much later in the process when the movie was done. Now we're now—
 
 [00:07:30] Adam: Oh, fascinating.
 
-[00:07:30] Michael Green: Yeah, no, you want a fascinating conversation. Next time you are in New York, you go to Brooklyn and you go and meet with Hampton Fancher. I will I will help you meet him because there are fewer people who are more improbable and delightful and sweet and just fascinating than that man.
+[00:07:30] Michael Green: Yeah, no, you want a fascinating conversation. Next time you are in New York, you go to Brooklyn and you go and meet with Hampton Fancher. I will help you meet him because there are fewer people who are more improbable and delightful and sweet and just fascinating than that man.
 
 [00:07:47] Adam: He comes across that in all the documentaries I've ever seen. He
 
-[00:07:50] Michael Green: yeah, there's a documentary about him, and he deserves a documentary. He's just unlikely, and his life is bonkers, and and you know he's elliptical, but it's lovely, and like you know everyone everyone says the same thing when they go and meet him in his place is like oh the sarong, it's like that's right you go there and he's wearing a sarong and like
+[00:07:50] Michael Green: yeah, there's a documentary about him, and he deserves a documentary. He's just unlikely, and his life is bonkers, and you know he's elliptical, but it's lovely, and like you know everyone everyone says the same thing when they go and meet him in his place is like oh the sarong, it's like that's right you go there and he's wearing a sarong and like
 
 [00:08:08] Adam: A little like Rick Rubin.
 
-[00:08:08] Michael Green: yeah and and like a and a Hawaiian shirt that's like got a binder clip holding it together, and all around is all this wonderful art and like you know and um and he's lovely love that guy anyway so he had spent some time with Ridley, kind of daydreaming about what something could be, and he wrote up a treatment that. Had some, I'll use Hampton's words. He said we were we were looking in the dirt for seeds, and he thinks and he'd say he and I would say he found some very very fertile seeds and, but they needed someone to, you know, to find to to water and grow and you know turn into the into a screenplay and find the story in the through line and enrich it all out and um, yeah I I they'd spoken to a couple of people but just uh it's it's weird to say the reason I'm kind of like it's I have trouble sticking the landing on this part of the conversation because it comes down to and Ridley liked what I had to say and it's you know it's a strange thing because at some point you know you meet, you know, you're talking to the man and um I get asked that question a lot like so what's it like like working with a gentleman like that and you know what it comes down to is at some point you have to um forget that his name is Ridley Scott and talk to him like he's a person like I have to you know talk to you like you're just Adam not Adam Savage who I watched thousands of hours of television um. And get in there because what what they you know he needed someone to talk with about it.
+[00:08:08] Michael Green: yeah and like a and a Hawaiian shirt that's like got a binder clip holding it together, and all around is all this wonderful art and like you know and he's lovely love that guy anyway so he had spent some time with Ridley, kind of daydreaming about what something could be, and he wrote up a treatment that. Had some, I'll use Hampton's words. He said we were looking in the dirt for seeds, and he thinks and he'd say he and I would say he found some very very fertile seeds and, but they needed someone to, you know, to find to water and grow and you know turn into the into a screenplay and find the story in the through line and enrich it all out and um, yeah I I they'd spoken to a couple of people but just it's weird to say the reason I'm kind of like it's I have trouble sticking the landing on this part of the conversation because it comes down to and Ridley liked what I had to say and it's you know it's a strange thing because at some point you know you meet you're talking to the man and I get asked that question a lot like so what's it like working with a gentleman like that and you know what it comes down to is at some point you have to forget that his name is Ridley Scott and talk to him like he's a person like I have to you know talk to you like you're just Adam not Adam Savage who I watched thousands of hours of television. And get in there because what they you know he needed someone to talk with about it.
 
-[00:09:29] Adam: And I heard almost the identical thing. Damon Lindelof is a friend, and Damon said the same thing about working with him. It was like, you know, he got all the he said he got the fanboy stuff out of the way. in about two minutes.
+[00:09:29] Adam: And I heard almost the identical thing. Damon Lindelof is a friend, and Damon said the same thing about working with him. It was like he got all the he said he got the fanboy stuff out of the way. in about two minutes.
 
 [00:09:40] Unknown speaker (Michael Green or Adam): Get it out of the way. Because he has
 
 [00:09:42] Adam: no interest in it.
 
-[00:09:43] Michael Green: I'll even say one of the many lovely things about Ridley is like when you when you sit and you meet with him in his beautiful offices and the coffee comes, he'll pour you a cup of coffee. He's like, I want a cup. He will pour it for you. And I think it's it's nothing he does on purpose, but like the effect of it is like I am going to now. Can we be done? Like get it over with. It's like we're now going to have a conversation where I need someone to write for me. Are you someone who who I can talk with? And um, hey, we got on very well and uh, hashed out a story for Blade Runner.
+[00:09:43] Michael Green: I'll even say one of the many lovely things about Ridley is like when you sit and you meet with him in his beautiful offices and the coffee comes, he'll pour you a cup of coffee. He's like, I want a cup. He will pour it for you. And I think it's nothing he does on purpose, but the effect of it is like I am going to now. Can we be done? Like get it over with. It's like we're now going to have a conversation where I need someone to write for me. Are you someone who who I can talk with? And hey, we got on very well and hashed out a story for Blade Runner.
 
 [00:10:11] Adam: I have a question. I'm curious if in the process of working with Ridley on the script for 2049, if there were aspects of Blade Runner that became illuminate the original that became illuminated for you in ways you didn't expect.
 
-[00:10:23] Michael Green: Illuminated ruined all those things. Well, one thing you get to ask a lot about a process, and you know, obviously, I'm hearing his version of things. Now it's it's it's a legendary movie for a lot of reasons, and I think we all love it for many of those reasons. But you're hearing one indelible opinion,
+[00:10:23] Michael Green: Illuminated ruined all those things. Well, one thing you get to ask a lot about a process, and obviously, I'm hearing his version of things. Now it's a legendary movie for a lot of reasons, and I think we all love it for many of those reasons. But you're hearing one indelible opinion,
 
 [00:10:40] Adam: sure.
 
-[00:10:40] Michael Green: So because I I'm one of the people in very strange position where I've heard the same story from Harrison Ford's perspective too, and and they don't line up. But I it's just one of those truth is subjectivity. Like they're all true. Every every story is true from one angle or another. But yeah, what you realize, like you know, you really start getting back to that sophomore seminar stuff about authorial intent and doesn't mean anything because there are things he Ridley believes about that movie to be true or not true that you cannot convince him otherwise, but you can't say for certain,
+[00:10:40] Michael Green: So because I I'm one of the people in very strange position where I've heard the same story from Harrison Ford's perspective too, and they don't line up. But I it's just one of those truth is subjectivity. Like they're all true. Every every story is true from one angle or another. But yeah, what you realize, like you really start getting back to that sophomore seminar stuff about authorial intent and doesn't mean anything because there are things he Ridley believes about that movie to be true or not true that you cannot convince him otherwise, but you can't say for certain,
 
 [00:11:13] Adam: right?
 
@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:11:18] Adam: So oh, you had to take them on. of course.
 
-[00:11:19] Michael Green: I have to take those things on, and well. You know, my my joke about Blade Runner is you know Rick Deckard he's Schrodinger's cop, like he has to be both replicant and human in every moment because you can't just it's not one shouldn't decide.
+[00:11:19] Michael Green: I have to take those things on, and well. You know, my joke about Blade Runner is you know Rick Deckard he's Schrodinger's cop, like he has to be both replicant and human in every moment because you can't just it's not one shouldn't decide.
 
 [00:11:35] Adam: Well, so this actually brings up an interesting point because I I remember the first time I saw 2049, I was lucky enough because I had visited the set that they I got to see it in a very small Dolby small theater down there in L A. And I remember thinking,
 
@@ -238,7 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:12:23] Adam: just to set the expectations. right away.
 
-[00:12:24] Michael Green: You know, well you. You have to. You go into it thinking, okay, what are the things we all love about Blade Runner? What are we thinking about Blade Runner? Okay, so, you know, at core, it's about. You didn't want to go and just try to recreate the is he or isn't he?
+[00:12:24] Michael Green: Well you. You have to. You go into it thinking, okay, what are the things we all love about Blade Runner? What are we thinking about Blade Runner? Okay, so at core, it's about. You didn't want to go and just try to recreate the is he or isn't he?
 
 [00:12:37] Adam: Right.
 
@@ -246,11 +246,11 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:12:51] Adam: Yeah.
 
-[00:12:51] Michael Green: And I think we have a few of those that people can be wondering like, oh, was this this or is it that? Um. But but yet the idea of just planting the flag of let's start by saying, wait, you thought this was going to be another Rick Deckard and like no, he is a replicant. Boom. Now what happens?
+[00:12:51] Michael Green: And I think we have a few of those that people can be wondering like, oh, was this or is it that? But yet the idea of just planting the flag of let's start by saying, wait, you thought this was going to be another Rick Deckard and like no, he is a replicant. Boom. Now what happens?
 
 [00:13:09] Adam: Right.
 
-[00:13:09] Michael Green: Because then I thought, okay, now we have a chance to take him on an arc. And it was it was something that was was a harder sell. I mean, when I came in and told the studio Alcon like it took and Ridley for a long time, it was just, can we tell the story you're interested in telling without doing that? So we have and and a lot of very passionate discussion, but we did land on that. Uh. And I feel like it was an important thing to do because you know we were telling a different story. It was within the world of, but you don't want to just do karaoke of things you love.
+[00:13:09] Michael Green: Because then I thought, okay, now we have a chance to take him on an arc. And it was something that was was a harder sell. I mean, when I came in and told the studio Alcon like it took and Ridley for a long time, it was just, can we tell the story you're interested in telling without doing that? So we have and a lot of very passionate discussion, but we did land on that. And I feel like it was an important thing to do because you know we were telling a different story. It was within the world of, but you don't want to just do karaoke of things you love.
 
 [00:13:37] Adam: No,
 
@@ -284,15 +284,15 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:14:56] Michael Green: may well be. As I say, all of these things have feature. Where do you land on that?
 
-[00:15:01] Norm: I think on that side as well as a mirror for for for K and his desires.
+[00:15:01] Norm: I think on that side as well as a mirror for K and his desires.
 
-[00:15:09] Michael Green: And it's funny, you know, I, I argue with this, not, I, Denis and I discussed this a lot. I always felt like I wanted her to be real, and therefore I'm, you know, but but I couldn't. But the the story had to allow her to be both, you know. That is there a an epochal moment in her coding where she becomes something she wasn't, or is it all fantasy, or does it matter?
+[00:15:09] Michael Green: And it's funny I, I argue with this, not, I, Denis and I discussed this a lot. I always felt like I wanted her to be real, and therefore I'm but I couldn't. But the story had to allow her to be both, you know. That is there a an epochal moment in her coding where she becomes something she wasn't, or is it all fantasy, or does it matter?
 
-[00:15:30] Adam: You know, and I think that that you know Francis Bacon, the painter. Talks about how every artist moves towards solving the problem they've tasked themselves with, and they they move towards solving that problem, and they never end up solving the initial problem they thought they were going to solve. That's that's kind of the point of the whole exercise.
+[00:15:30] Adam: And I think that that you know Francis Bacon, the painter. Talks about how every artist moves towards solving the problem they've tasked themselves with, and they move towards solving that problem, and they never end up solving the initial problem they thought they were going to solve. That's kind of the point of the whole exercise.
 
 [00:15:48] Michael Green: That's sort of like sometimes you start a screenplay with a line of dialogue that eventually gets cut. You're like, oh, I get the whole. You have a tuning fork of line of dialogue. Really, I'll write a whole movie to suspend this one thing, and then you get rid of it.
 
-[00:16:01] Adam: The the the the the stairway to heaven scene from Almost Famous. Do you know about this?
+[00:16:01] Adam: The stairway to heaven scene from Almost Famous. Do you know about this?
 
 [00:16:05] Michael Green: No, remind me.
 
@@ -300,17 +300,17 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:16:08] Michael Green: oh no, that I have no idea.
 
-[00:16:09] Adam: It's a famous part of the writing process. Is there's a there's a scene in which Frances McDormand and Patrick Fugit. He wants to show his mom that rock music can have depth, and so he plays her stairway to heaven. It's in its entirety, and it's a scene written into the script, written as Cameron Crowe said, into all 50 drafts of the script, where they sit, right? The camera watches and plays all five minutes of the song. Unbroken, just with the looks on their faces, and he said, " If you'd asked me all the way through production till the end of post, what film, what scene would not get cut? I would say that scene, and in the end, he had to cut it. But in the DVD, because they didn't get rights to the song, so what he does in the DVD, he says, 'Go get yourself your copy of 'Stairway to Heaven' and start playing it 
+[00:16:09] Adam: It's a famous part of the writing process. Is there's a scene in which Frances McDormand and Patrick Fugit. He wants to show his mom that rock music can have depth, and so he plays her stairway to heaven. It's in its entirety, and it's a scene written into the script, written as Cameron Crowe said, into all 50 drafts of the script, where they sit, right? The camera watches and plays all five minutes of the song. Unbroken, just with the looks on their faces, and he said, " If you'd asked me all the way through production till the end of post, what film, what scene would not get cut? I would say that scene, and in the end, he had to cut it. But in the DVD, because they didn't get rights to the song, so what he does in the DVD, he says, 'Go get yourself your copy of 'Stairway to Heaven' and start playing it
 
 [00:16:09] Unknown speaker (Michael Green or Adam): Right.
 
 [00:16:09] Adam: right when we blink this dot, and you, and then you can watch the scene they shot.'
 
-[00:16:57] Michael Green: Right, that's fantastic. That makes me so happy. Yeah, there's always things where you're like, I will stand over this piece with a samurai sword, and anyone who dares try, and then you're in the editing room going like, Get that shit out of here. What are you doing? Because you're a different person in the editing room. Is when you're writing. It's funny. I realize we're talking about Blade Runner, and I might be one of the least qualified people to talk about 2049 because when you're done with something, like there, there comes a point of psychological disenfranchisement with it, where like right now, I have so many active stories in my head of things I'm working on right now that are just those are the problems my brain's trying to solve.
+[00:16:57] Michael Green: Right, that's fantastic. That makes me so happy. Yeah, there's always things where you're like, I will stand over this piece with a samurai sword, and anyone who dares try, and then you're in the editing room going like, Get that shit out of here. What are you doing? Because you're a different person in the editing room. Is when you're writing. It's funny. I realize we're talking about Blade Runner, and I might be one of the least qualified people to talk about 2049 because when you're done with something, like there comes a point of psychological disenfranchisement with it, where like right now, I have so many active stories in my head of things I'm working on right now that are just those are the problems my brain's trying to solve.
 
 [00:17:31] Adam: Those are the voices in your head,
 
-[00:17:31] Michael Green: and that one, like you know, it's. It is not unfair to say that I've never seen 2049. I've watched it,
+[00:17:31] Michael Green: and that one, like it's. It is not unfair to say that I've never seen 2049. I've watched it,
 
 [00:17:40] Adam: right?
 
@@ -318,15 +318,15 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:17:41] Adam: right.
 
-[00:17:41] Michael Green: But the closest I've come was like there was one screening we went to where we're doing a panel, and I walked into the theater for the last like three minutes, and I actually like sunk into maybe 30 seconds or a minute of it and felt something, and I was like, " Oh, that worked." And like, and that was it. And the rest is like like the closest is. I'll turn on the TV and it's on HBO, and like a scene comes on. I'm like, " Oh, that's a pretty Deakins shot." I remember, I remember being there for that one, but like I still, and yeah, the dump file on it is just a survival mechanism. Otherwise, you can just keep playing it out or thinking what I could have done.
+[00:17:41] Michael Green: But the closest I've come was like there was one screening we went to where we're doing a panel, and I walked into the theater for the last like three minutes, and I actually like sunk into maybe 30 seconds or a minute of it and felt something, and I was like, " Oh, that worked." And that was it. And the rest is like the closest is. I'll turn on the TV and it's on HBO, and a scene comes on. I'm like, " Oh, that's a pretty Deakins shot." I remember being there for that one, but like I still, and yeah, the dump file on it is just a survival mechanism. Otherwise, you can just keep playing it out or thinking what I could have done.
 
-[00:18:15] Norm: So that's the material, but your relationship with that film is in the the years that leading up to and the making of, and I think you wrote a whole like your journey.
+[00:18:15] Norm: So that's the material, but your relationship with that film is in the years that leading up to and the making of, and I think you wrote a whole like your journey.
 
-[00:18:23] Michael Green: I did. I I actually took some decent notes, which I rarely do. I'm very lazy about it about journaling. But I I it was so bizarre being on that. Like you went out to Budapest and you saw it, and like I was there in prep before they started filming, and I realized it was like three years to the day from the first time I started. Pitching on it, and it was very emotional. So I just found myself like I would email myself notes about just what this was, and then when the movie was coming out, I called the studio. I'm like, I might want to like write this up. Do you care? And they're like, we could like to read it first. And they said, sure, publish that. That's great. And yeah, but it's it is it's the process of letting go. And I think after seeing it at that Dolby screening when it was it was done, I'd seen cuts, I'd seen dailies. You know, I used to watch dailies first thing in the morning. Wake up at like six in the morning. My kids would come down and like it's the most secure movie in the world. And my then seven year old daughter would pop on my lap and go, " What's Robot Boy doing today?" And I'd say, " Remember, just don't tell your friends." But you know, today he's going to shoot some people.
+[00:18:23] Michael Green: I did. I actually took some decent notes, which I rarely do. I'm very lazy about it about journaling. But I I it was so bizarre being on that. Like you went out to Budapest and you saw it, and like I was there in prep before they started filming, and I realized it was like three years to the day from the first time I started. Pitching on it, and it was very emotional. So I just found myself like I would email myself notes about just what this was, and then when the movie was coming out, I called the studio. I'm like, I might want to like write this up. Do you care? And they're like, we could like to read it first. And they said, sure, publish that. That's great. And yeah, but it's it is it's the process of letting go. And I think after seeing it at that Dolby screening when it was done, I'd seen cuts, I'd seen dailies. I used to watch dailies first thing in the morning. Wake up at like six in the morning. My kids would come down and like it's the most secure movie in the world. And my then seven year old daughter would pop on my lap and go, " What's Robot Boy doing today?" And I'd say, " Remember, just don't tell your friends." But today he's going to shoot some people.
 
-[00:20:19] Adam: You you used a turn of phrase when we were talking on Twitter Twitter DMs a few weeks ago where you said I said I really loved Blade Runner 2049 and you said I'm really happy with how it turned out. Um, and I realized
+[00:20:19] Adam: You used a turn of phrase when we were talking on Twitter Twitter DMs a few weeks ago where you said I really loved Blade Runner 2049 and you said I'm really happy with how it turned out. And I realized
 
-[00:20:33] Michael Green: that's that that's that thing.
+[00:20:33] Michael Green: that's that thing.
 
 [00:20:34] Adam: It's a very specific thing because you hand this over, and what you hand over could also get. Butchered before
 
@@ -334,21 +334,21 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:20:53] Adam: right?
 
-[00:20:53] Michael Green: Because it's director's medium, and that's the wonderful thing about it. So sometimes, you know, when you're working with someone masterful like Denis Villeneuve, that's great, you know.
+[00:20:53] Michael Green: Because it's director's medium, and that's the wonderful thing about it. So sometimes, you know, when you're working with someone masterful like Denis Villeneuve, that's great.
 
 [00:21:00] Adam: Right,
 
 [00:21:01] Unknown speaker (Adam or Michael Green): Right.
 
-[00:21:01] Michael Green: And he and I got on very well during development. You know, we spent a lot of time together. He's very patient with me. You know, we there was a lot of good back and forth, and in a way that it was a lot of trust on both parts.
+[00:21:01] Michael Green: And he and I got on very well during development. We spent a lot of time together. He's very patient with me. We there was a lot of good back and forth, and in a way that it was a lot of trust on both parts.
 
 [00:21:12] Adam: And that's rare.
 
-[00:21:12] Michael Green: It is rare, and he's he's just lovely. He's just one of the nicest people. And
+[00:21:12] Michael Green: It is rare, and he's just lovely. He's just one of the nicest people. And
 
 [00:21:18] Adam: I remember Richard LaGravenese talks about how surprised he was that Gilliam brought him into Fisher King, the whole process of shooting,
 
-[00:21:25] Michael Green: right? Some and no, but what was an interesting thing for me? So Denis and I got on very well, very hand in glove throughout writing and for a good year of development, and then came out and did some stuff for them during prep. But then time came for shooting, and the first few days of shooting, like my experiences are usually. Again, staying hand in glove, but and and it was this was a new one because it was a very positive moment where I realized, ah, he's moved past needing me, and I realized every time I would be talking with him, he was being polite, like he was being very nice and chatty. But I could tell, like, oh, he does, he's done.
+[00:21:25] Michael Green: right? Some and no, but what was an interesting thing for me? So Denis and I got on very well, very hand in glove throughout writing and for a good year of development, and then came out and did some stuff for them during prep. But then time came for shooting, and the first few days of shooting, like my experiences are usually. Again, staying hand in glove, but and it was this was a new one because it was a very positive moment where I realized, ah, he's moved past needing me, and I realized every time I would be talking with him, he was being polite, like he was being very nice and chatty. But I could tell oh, he does, he's done.
 
 [00:21:56] Adam: Wow.
 
@@ -356,15 +356,15 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:22:03] Adam: Yeah.
 
-[00:22:03] Michael Green: Ask questions if say say something, see something. I mean, writer on set, like when there's a certain a concern, there there are absolutely times and ways to voice that. Um, but I also knew, like, I'd seen a bunch of his movies. This guy,
+[00:22:03] Michael Green: Ask questions if say say something, see something. I mean, writer on set, like when there's a certain a concern, there are absolutely times and ways to voice that. But I also knew I'd seen a bunch of his movies. This guy,
 
 [00:22:16] Adam: yeah,
 
-[00:22:16] Michael Green: I I knew he had it in his teeth a year prior. So all I had to do was let him do that, and it would be wonderful.
+[00:22:16] Michael Green: I knew he had it in his teeth a year prior. So all I had to do was let him do that, and it would be wonderful.
 
 [00:22:23] Adam: Yeah.
 
-[00:22:23] Michael Green: Um, but while I was there, I was going to be as involved as I could. But sometimes being involved means just get the fuck out of the way. Can I say?
+[00:22:23] Michael Green: But while I was there, I was going to be as involved as I could. But sometimes being involved means just get the fuck out of the way. Can I say?
 
 [00:22:30] Norm: Yeah. So yeah,
 
@@ -372,7 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:22:33] Adam: can take it.
 
-[00:22:33] Michael Green: My son is here. He's like, Daddy says what? Um. Uh. So uh, but yeah, it's it. So it did turn out great, and it turned out great for oh the because of the efforts of a lot of people. But the making of things was like, for the large part, I was done. I mean, they came to me a few times during it and said, " Hey, need some fixes here. We're trying this, doing this. Can you give us an alternate on that? We're worried about this. Can you give us a secondary scene so we can shoot that as a parachute for this? Like all that fun stuff." But my work was done.
+[00:22:33] Michael Green: My son is here. He's like, Daddy says what? So but yeah, it's it. So it did turn out great, and it turned out great for oh the because of the efforts of a lot of people. But the making of things was like, for the large part, I was done. I mean, they came to me a few times during it and said, " Hey, need some fixes here. We're trying this, doing this. Can you give us an alternate on that? We're worried about this. Can you give us a secondary scene so we can shoot that as a parachute for this? Like all that fun stuff." But my work was done.
 
 [00:23:00] Adam: Yeah,
 
@@ -384,7 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:23:20] Adam: What are you? I'm wondering what it feels like from your perspective because you're the one enjoying adapting, taking an adaptation and letting it stretch out for a bunch more hours than you've normally been.
 
-[00:23:32] Michael Green: You know, they're they're they're different mediums. So you just the goals are different. One, you're trying to fill up more space. You know, one, you're looking for like what's the ongoing tale, and one, it's how can we blow out the story and tell everything we have to say in a bit of time. I don't know if I have anything specific. Like unique to say on this subject that I'm sure other writers will say on great podcasts that I can recommend. John August and Chris, me—, Craig Mazin script notes. You know, I'll say this because I did have an interesting experience recently where I'm helping some writers. I'm overseeing a story, that historical story that they brought to us, and we were thinking, great, that's an amazing. Like at first, I thought, is it a movie? And like, no, no, we want to do this as a series. And they told me how they want to, and I'm helping them develop it out. And a series of circumstances occurred where we suddenly thought, rather than like everything we were doing was how is this going to be six years? How are we going to tell an ongoing tale? You know, maybe it's five, maybe it's seven, but you're really thinking how are we going to expand out the story? Where we thought, you know what? What if we did it as two years? Like it is not a miniseries, it is not an ongoing series. It's this new thing that that's the length it wants to be. Like we realized it wanted to be 16 hours with you know some time in between the two, and it that is neither.
+[00:23:32] Michael Green: They're different mediums. So you just the goals are different. One, you're trying to fill up more space. One, you're looking for like what's the ongoing tale, and one, it's how can we blow out the story and tell everything we have to say in a bit of time. I don't know if I have anything specific. Like unique to say on this subject that I'm sure other writers will say on great podcasts that I can recommend. John August and Chris, me—, Craig Mazin script notes. I'll say this because I did have an interesting experience recently where I'm helping some writers. I'm overseeing a story, that historical story that they brought to us, and we were thinking, great, that's an amazing. Like at first, I thought, is it a movie? And like, no, no, we want to do this as a series. And they told me how they want to, and I'm helping them develop it out. And a series of circumstances occurred where we suddenly thought, rather than like everything we were doing was how is this going to be six years? How are we going to tell an ongoing tale? Maybe it's five, maybe it's seven, but you're really thinking how are we going to expand out the story? Where we thought, you know what? What if we did it as two years? Like it is not a miniseries, it is not an ongoing series. It's this new thing that that's the length it wants to be. Like we realized it wanted to be 16 hours with you know some time in between the two, and it that is neither.
 
 [00:24:42] Adam: Yeah, that's a middle ground.
 
@@ -392,11 +392,11 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:24:44] Adam: Yeah,
 
-[00:24:44] Michael Green: it's a new thing that's just like crawling out from the muck and saying, and and we probably wouldn't be the first ones to do it if we did it that way, but why not? Because you're you have this new time where not only are people trying things, but you have places like a Netflix where they don't need to recoup their investment by having more episodes. They their whole state of intent is we're just looking for interesting things to make people want to come and spend their money on the subscription service. So, given the right host, that may work. We might find another host says, you know, we'd really like it to be series, and we'll go right back to that. But it's a great creative moment where you can just think, we have this story. I have this idea. What does it want to be?
+[00:24:44] Michael Green: it's a new thing that's just like crawling out from the muck and saying, and we probably wouldn't be the first ones to do it if we did it that way, but why not? Because you're you have this new time where not only are people trying things, but you have places like a Netflix where they don't need to recoup their investment by having more episodes. They their whole state of intent is we're just looking for interesting things to make people want to come and spend their money on the subscription service. So, given the right host, that may work. We might find another host says we'd really like it to be series, and we'll go right back to that. But it's a great creative moment where you can just think, we have this story. I have this idea. What does it want to be?
 
 [00:25:23] Adam: Yeah,
 
-[00:25:23] Michael Green: like you used to have to think like, How do we smash it into that box? You know, if you had a genre idea, great. How do you turn it into two cops trying to solve magic crimes? Right, because that was what network television would say. You know, it's well, it's either a soap or a procedural. Those are the genres.
+[00:25:23] Michael Green: like you used to have to think like, How do we smash it into that box? You know, if you had a genre idea, great. How do you turn it into two cops trying to solve magic crimes? Right, because that was what network television would say. It's well, it's either a soap or a procedural. Those are the genres.
 
 [00:25:36] Adam: Right.
 
@@ -404,11 +404,11 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:25:50] Adam: I find myself wondering if you might write a scene and then go, " Oh, I wrote a scene for the feature version, but I— have more time.
 
-[00:25:55] Michael Green: No, you definitely have that. I mean, I've written television scripts. I'm like, all right, that's that. You can't put that many short scenes in television script because, you know, you just need time in spaces for two people to talk.
+[00:25:55] Michael Green: No, you definitely have that. I mean, I've written television scripts. I'm like, all right, that's that. You can't put that many short scenes in television script because you just need time in spaces for two people to talk.
 
 [00:26:06] Adam: Right.
 
-[00:26:06] Michael Green: Um. Yeah. Wait, I had something occurred to me that was almost witty. I almost had a witticism. Um, it’s gone. It’s gone. It’s gone,
+[00:26:06] Michael Green: Um. Yeah. Wait, I had something occurred to me that was almost witty. I almost had a witticism. It’s gone. It’s gone. It’s gone,
 
 [00:26:18] Adam: I'm sorry.
 
@@ -418,15 +418,15 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:26:34] Adam: Yeah, that checks out.
 
-[00:26:34] Michael Green: No, I try to. I mean, you're usually juggling a couple things. No, you know what? I am happiest when we're making something. When when we're taking an idea and actualizing it into a script, or we're taking a script and actualizing it into a cut. You know, or we're shooting something, or we're producing something like just making stuff with your hands. But I guess not with your hands because I don't know how to do that. Like I can't draw. Really, I cannot. I cannot draw. Fun fact: Ridley Scott paints like a Dutch master.
+[00:26:34] Michael Green: No, I try to. I mean, you're usually juggling a couple things. No, you know what? I am happiest when we're making something. When we're taking an idea and actualizing it into a script, or we're taking a script and actualizing it into a cut. Or we're shooting something, or we're producing something like just making stuff with your hands. But I guess not with your hands because I don't know how to do that. Like I can't draw. Really, I cannot. I cannot draw. Fun fact: Ridley Scott paints like a Dutch master.
 
-[00:27:03] Adam: I am. I love his drawings. I I think I recently.
+[00:27:03] Adam: I am. I love his drawings. I think I recently.
 
 [00:27:07] Michael Green: But he paints. Have you ever seen his paintings?
 
 [00:27:08] Adam: No. Oh, I didn't realize he painted.
 
-[00:27:10] Michael Green: He paints like with every movie you see, the world is deprived to like museum quality paintings. He's and and the funny thing is if you ask him about he goes I hate fucking painting because what it means is I have time for it.
+[00:27:10] Michael Green: He paints like with every movie you see, the world is deprived to like museum quality paintings. He's and the funny thing is if you ask him about he goes I hate fucking painting because what it means is I have time for it.
 
 [00:27:21] Adam: Right. Right. Right.
 
@@ -434,11 +434,11 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:27:23] Unknown speaker (Norm or Michael Green): Yeah.
 
-[00:27:23] Michael Green: But I've seen I've seen some of the paintings.
+[00:27:23] Michael Green: But I've seen some of the paintings.
 
 [00:27:25] Adam: I love his line. I mean, I've been a fan of his storyboards forever because he loves Moebius more than almost any other living human.
 
-[00:27:32] Michael Green: I have stolen many of his sketches because when you when you're talking to him, if you say something, when you say something he likes, and he just starts sketching it, and if you move quickly, they can be yours. Probably the best one I have because I have a lot of great Alien ones. I've got great Blade Runner ones. We spent because I worked for them on what became Alien Covenant, and and like in the early days of Blade Runner, he just kept sketching eyes, like eyeballs, like eyeballs and pyramids. And I'm like, this is the greatest! Give me all the eyeballs and pyramids. But at one point, we were doing some story, and he was really bored. I could tell because he was sketching me, and then he slid it over and said, " That's you if you were skinny." And then wait, there's a punchline I can deliver now because that was already funny enough. And a couple months ago, I finally went on the diet I should have gone, and I actually lost some weight, and it looked like me.
+[00:27:32] Michael Green: I have stolen many of his sketches because when you when you're talking to him, if you say something, when you say something he likes, and he just starts sketching it, and if you move quickly, they can be yours. Probably the best one I have because I have a lot of great Alien ones. I've got great Blade Runner ones. We spent because I worked for them on what became Alien Covenant, and in the early days of Blade Runner, he just kept sketching eyes, like eyeballs and pyramids. And I'm like, this is the greatest! Give me all the eyeballs and pyramids. But at one point, we were doing some story, and he was really bored. I could tell because he was sketching me, and then he slid it over and said, " That's you if you were skinny." And then wait, there's a punchline I can deliver now because that was already funny enough. And a couple months ago, I finally went on the diet I should have gone, and I actually lost some weight, and it looked like me.
 
 [00:28:25] Adam: He was right.
 
@@ -458,7 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:28:44] Norm: Do you have time to enjoy content? Enjoy things that you don't write. Enjoy things.
 
-[00:28:47] Michael Green: I enjoy the hell out of things I don't write. Yeah, I hate things. Never watch anything I write. Yeah, no. Um. Uh. I. I always uh watch in opposition to what I'm doing. So if I'm writing a drama, I'm watching comedy.
+[00:28:47] Michael Green: I enjoy the hell out of things I don't write. Yeah, I hate things. Never watch anything I write. Yeah, no. I. I always watch in opposition to what I'm doing. So if I'm writing a drama, I'm watching comedy.
 
 [00:28:57] Norm: What are you enjoying right now?
 
@@ -466,11 +466,11 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:29:02] Norm: a Hulu. It's a
 
-[00:29:03] Michael Green: Hulu show, PEN15. If you write it out, it says the word penis. Uh.
+[00:29:03] Michael Green: Hulu show, PEN15. If you write it out, it says the word penis.
 
 [00:29:06] Adam: Oh, that one. Yes.
 
-[00:29:06] Michael Green: It's just delightful. Um. Catastrophe just ended, and Rob Delaney and Sharon Horgan, like it's just
+[00:29:06] Michael Green: It's just delightful. Catastrophe just ended, and Rob Delaney and Sharon Horgan, like it's just
 
 [00:29:12] Adam: those two
 
@@ -478,9 +478,9 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:29:14] Adam: Yeah.
 
-[00:29:14] Michael Green: Uh. It stuck the landing so beautifully. I was so touched by it, and I laughed my guts out.
+[00:29:14] Michael Green: It stuck the landing so beautifully. I was so touched by it, and I laughed my guts out.
 
-[00:29:19] Adam: The second season really bothered me. The the fight there was
+[00:29:19] Adam: The second season really bothered me. The fight there was
 
 [00:29:23] Michael Green: oh the fight yeah
 
@@ -488,13 +488,13 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:29:23] Michael Green: divisive,
 
-[00:29:24] Adam: the fighting uh just it was too disturbing to me. So I I just I love the way that it went along
+[00:29:24] Adam: the fighting just it was too disturbing to me. So I I just I love the way that it went along
 
 [00:29:30] Michael Green: it's do you watch a show like that to escape or to represent you know Right, right and it's tough I
 
 [00:29:36] Adam: yeah I found it very stressful
 
-[00:29:38] Michael Green: um. I think I enjoyed it because my wife and I were just loving each other so much at the time. We're like, oh, look at these poor people. We, I know, always that makes sound like we're not in a good way. We're, uh, I'm lucky enough to be in a marriage where I can enjoy watching other couples fight. How's that? Broad City just ended beautifully. I was really touched by that. I don't know. I just there are a lot of half hours. I mean, there's some every time I watch half hour, I'm jealous because you know when you're breaking hour television, you're always like you get to the midpoint, you're like, oh, we could be done now. And it's funny enough, I did just start sketching out a single camera half hour that I would love to do. So, not that they're any easier, they're harder for many, many different reasons. But I haven't done one, and I'm always curious about like learning a new form. Like that's kind of the fun of, like, what haven't I done? What's the what's how can I challenge? You know, what's the puzzle I haven't solved?
+[00:29:38] Michael Green: I think I enjoyed it because my wife and I were just loving each other so much at the time. We're like, oh, look at these poor people. We, I know, always that makes sound like we're not in a good way. We're I'm lucky enough to be in a marriage where I can enjoy watching other couples fight. How's that? Broad City just ended beautifully. I was really touched by that. I don't know. I just there are a lot of half hours. I mean, there's some every time I watch half hour, I'm jealous because you know when you're breaking hour television, you're always like you get to the midpoint, you're like, oh, we could be done now. And it's funny enough, I did just start sketching out a single camera half hour that I would love to do. So, not that they're any easier, they're harder for many, many different reasons. But I haven't done one, and I'm always curious about like learning a new form. Like that's kind of the fun of what haven't I done? What's the what's how can I challenge? You know, what's the puzzle I haven't solved?
 
 [00:30:27] Adam: Right, because every one of these is a different. Right, it's all about
 
@@ -506,11 +506,11 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:30:41] Adam: Right.
 
-[00:30:41] Michael Green: But like this is a different way of communication, you know. Feature script is a different way of communicating than a television script is a different way of communicating with. And I love comic scripts because you're basically writing a love letter to an artist. You're talking to one person, and you know you can call them up on the phone and say, " How do you like being communicated with?" Or you— Or you're writing to their strengths, and you can you can you don't have to edit yourself if you want to describe something a lot, or you can just say, " Batman strikes a pose," and you know.
+[00:30:41] Michael Green: But like this is a different way of communication. Feature script is a different way of communicating than a television script is a different way of communicating with. And I love comic scripts because you're basically writing a love letter to an artist. You're talking to one person, and you know you can call them up on the phone and say, " How do you like being communicated with?" Or you— Or you're writing to their strengths, and you can you don't have to edit yourself if you want to describe something a lot, or you can just say, " Batman strikes a pose," and you know.
 
 [00:31:05] Adam: There and there are aspects to that, like the early Frank Miller collaborations with people like Bill Sienkiewicz, the Elektra Assassin series, one of those, the unbelievable collaboration between a vision and an.
 
-[00:31:18] Norm: Well, and Neil Gaiman, I think, said, related by his wife, that comics as is the only medium that he can think of that you can have silence and force the the reader to engage with silence in the way that you can't with audio with video because you look at an empty panel or it
+[00:31:18] Norm: Well, and Neil Gaiman, I think, said, related by his wife, that comics as is the only medium that he can think of that you can have silence and force the reader to engage with silence in the way that you can't with audio with video because you look at an empty panel or it
 
 [00:31:36] Michael Green: can still be interesting.
 
@@ -528,11 +528,11 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:31:57] Adam: Fabulous.
 
-[00:31:57] Michael Green: Yeah, I'm doing it with Mike Johnson, my longtime friend and comic collaborator. Mike Johnson is this wonderful guy. We went to college together, and he was the only person I knew who, other than my roommate, who read comics. So, like, he was the guy. Like everyone, you know, most people, it was about like God. It was mostly trying. I was in the sciences at the time and realized that that is probably not where my brain is. And you know, just trying to figure out academic stuff. And like, here's the one person who's like, you know, we just trade Batman books and you know, talk about Sandman at the time. Like, and and then we got out of college and we kept talking about comics and I started writing my first one. And the same, I was doing Superman, Batman. And I was on like the third issue I was doing, and I and my first show that I was running got picked up to series, and I realized I was going to start missing deadlines. So I said, " Hey, instead of reading all these comic scripts that I'm writing, telling me what you think because I always sent them stuff, why don't you help me write them?" And he's gone on; he's written more Star Trek comics than anyone else out there. And so when
+[00:31:57] Michael Green: Yeah, I'm doing it with Mike Johnson, my longtime friend and comic collaborator. Mike Johnson is this wonderful guy. We went to college together, and he was the only person I knew who, other than my roommate, who read comics. So he was the guy. Like everyone most people, it was about like God. It was mostly trying. I was in the sciences at the time and realized that that is probably not where my brain is. And just trying to figure out academic stuff. And like, here's the one person who's like we just trade Batman books and talk about Sandman at the time. Like, and then we got out of college and we kept talking about comics and I started writing my first one. And the same, I was doing Superman, Batman. And I was on like the third issue I was doing, and I and my first show that I was running got picked up to series, and I realized I was going to start missing deadlines. So I said, " Hey, instead of reading all these comic scripts that I'm writing, telling me what you think because I always sent them stuff, why don't you help me write them?" And he's gone on; he's written more Star Trek comics than anyone else out there. And so when
 
 [00:32:55] Adam: how awesome,
 
-[00:32:55] Michael Green: yeah, oh, he's great. I mean, he's got he's got shelves of books, you know, at your local comic store. And so when they said Blade Runner comics, I said, " Let me call Mike." And so yeah, where you we're having a good time doing those. Just got the the second book. I think I just got pencils, and that's always that's the fun. The reason it's doing comics is you write something out, you know, you talk about it, and then some artist sends you these beautiful pages.
+[00:32:55] Michael Green: yeah, oh, he's great. I mean, he's got shelves of books at your local comic store. And so when they said Blade Runner comics, I said, " Let me call Mike." And so yeah, where you we're having a good time doing those. Just got the second book. I think I just got pencils, and that's always that's the fun. The reason it's doing comics is you write something out you talk about it, and then some artist sends you these beautiful pages.
 
 [00:33:17] Norm: It's like a pen pal relationship.
 
@@ -548,9 +548,9 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:33:50] Michael Green: Come on.
 
-[00:33:51] Adam: It was um it was actually walking onto the covenant set, which was the second time I had met and conversed with Ridley, and having him walk in and go, " Good morning, Adam," and my head exploded.
+[00:33:51] Adam: It was actually walking onto the covenant set, which was the second time I had met and conversed with Ridley, and having him walk in and go, " Good morning, Adam," and my head exploded.
 
-[00:34:03] Michael Green: You know, I I had one of those recently. Harrison Ford knows me by he called me Michael Green, like as if it's one word. Which is, I'm like, as nicknames go, I'm like Harrison Ford knows me. All right, that's pretty good.
+[00:34:03] Michael Green: I had one of those recently. Harrison Ford knows me by he called me Michael Green, like as if it's one word. Which is, I'm like, as nicknames go, I'm like Harrison Ford knows me. All right, that's pretty good.
 
 [00:34:16] Adam: Have you noticed, by the way, what an amazing impression of Harrison Ford Mark Hamill does?
 
@@ -558,7 +558,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:34:23] Adam: I saw Mark at a conference recently. He was at a conference recently, and in his stories about Star Wars. It's like he kept on referring. Yeah, you,
 
-[00:34:31] Norm: you do, you do, you
+[00:34:31] Norm: you do, you
 
 [00:34:32] Adam: kid.
 
@@ -598,7 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:35:40] Unknown speaker (Adam, Norm or Michael Green): It’s true. It’s true.
 
-[00:35:40] Michael Green: and talk about my the least interesting thing to me is me and my career. So now it's like, where were we? Yeah, when once it's out of my hand, whether it's a script, whether it's a cut, what, you know, after I finished a sound mix on an episode, I can't look at that anymore. My my personal way of relaying it, and maybe this is inappropriate, and you can cut it as well. It's it's sort of like watching an ex on their like honeymoon. You know, it's like you want them to be happy, all the best to you, I don't need to see it. 
+[00:35:40] Michael Green: and talk about my the least interesting thing to me is me and my career. So now it's like, where were we? Yeah, when once it's out of my hand, whether it's a script, whether it's a cut, what, you know, after I finished a sound mix on an episode, I can't look at that anymore. My personal way of relaying it, and maybe this is inappropriate, and you can cut it as well. It's sort of like watching an ex on their like honeymoon. It's like you want them to be happy, all the best to you, I don't need to see it.
 
 [00:35:40] Unknown speaker (Adam or Michael Green): That’s
 
@@ -606,15 +606,15 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:36:09] Adam: Totally get that,
 
-[00:36:09] Michael Green: but no, like, and if it's a movie I've worked on, and you know, like, you watch it, you have that relationship, and then at some point you say goodbye, and maybe in a couple decades I will go back and be able to watch 2049 and like actually experience it,
+[00:36:09] Michael Green: but no and if it's a movie I've worked on, and you watch it, you have that relationship, and then at some point you say goodbye, and maybe in a couple decades I will go back and be able to watch 2049 and like actually experience it,
 
 [00:36:23] Adam: Yeah. Yeah.
 
-[00:36:24] Michael Green: and I look forward to it because I. I've heard it's good, but yeah, no, nothing, and anything I've ever worked on that's taken over by someone else, like even shows that I spent time on that were glorious, and you just move on, you know. And after doing a few seasons, if they're on in the house, it's nails on a chalkboard.
+[00:36:24] Michael Green: and I look forward to it because I. I've heard it's good, but yeah, no, nothing, and anything I've ever worked on that's taken over by someone else, like even shows that I spent time on that were glorious, and you just move on. And after doing a few seasons, if they're on in the house, it's nails on a chalkboard.
 
 [00:36:40] Adam: Wow,
 
-[00:36:40] Michael Green: it's so strange, it's it's it's just idiosyncratic for me. I mean,
+[00:36:40] Michael Green: it's so strange, it's just idiosyncratic for me. I mean,
 
 [00:36:45] Adam: totally makes sense though.
 
@@ -624,19 +624,19 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:36:50] Norm: Yes, just for the day. Watch a thing, enjoy it, and then like, oh, I enjoyed that.
 
-[00:36:54] Michael Green: Yeah, I just couldn't. I mean, I I think I I turned on TV and like a Smallville episode I'd written was on, and it was a good 11 years later, and I'm watching it, and I see a scene, and I'm like, kind of trying to like just give myself like just sit here for three minutes, dream a little zen about it, and something just sounded wrong, and I had to open up my laptop, and I realized, oh right, there was an onset change on that line, and it was just like it, and like just don't do this. It's not good for you. It doesn't help. You're not in a better mood. You know, like my rule is generally when it comes to The intake and outtake, like of how I spend my time, and like with with art, is um, does it make you write more, faster, better? Like, just don't do things that so like looking at old things doesn't make me feel better, write better. Like, I don't learn from.
+[00:36:54] Michael Green: Yeah, I just couldn't. I mean, I I think I I turned on TV and like a Smallville episode I'd written was on, and it was a good 11 years later, and I'm watching it, and I see a scene, and I'm like, kind of trying to like just give myself like just sit here for three minutes, dream a little zen about it, and something just sounded wrong, and I had to open up my laptop, and I realized, oh right, there was an onset change on that line, and it was just like it, and like just don't do this. It's not good for you. It doesn't help. You're not in a better mood. Like my rule is generally when it comes to The intake and outtake, like of how I spend my time, and with art, is does it make you write more, faster, better? Like, just don't do things that so looking at old things doesn't make me feel better, write better. Like, I don't learn from.
 
 [00:37:37] Adam: That's a really great axiom
 
-[00:37:38] Michael Green: too. So like you know, I I always um chide my staff writers for if I see them on Twitter because I'm like, oh, you're on Twitter? Are you? Where's the scene I'm expecting? You know, um, or where's that book that you said you wanted to read, or the movie? You know, you keep telling me you want to write a pilot. You could. It's a you know is but if you told me that being on Twitter, like okay, I for me, my excuse is, I get out my political anxiety, and it frees me for the rest of the day to not think about it.
+[00:37:38] Michael Green: too. So like I I always chide my staff writers for if I see them on Twitter because I'm like, oh, you're on Twitter? Are you? Where's the scene I'm expecting? Or where's that book that you said you wanted to read, or the movie? You keep telling me you want to write a pilot. You could. It's a you know is but if you told me that being on Twitter, like okay, I for me, my excuse is, I get out my political anxiety, and it frees me for the rest of the day to not think about it.
 
 [00:38:05] Adam: Yeah,
 
-[00:38:05] Michael Green: um, at least that's what I tell myself.
+[00:38:05] Michael Green: At least that's what I tell myself.
 
 [00:38:08] Adam: Michael Chabon uses a program that disconnects him from the internet for an allotted period of time, and unless he restarts his computer, which he said is just past the shame threshold required to keep him.
 
-[00:38:19] Michael Green: A good friend of mine just told me he took Twitter off his phone. So it's just like you know he he keeps it exclusively on his iPad, which he routinely only looks at in the morning and at night. Which to me means while he's pooping.
+[00:38:19] Michael Green: A good friend of mine just told me he took Twitter off his phone. So it's just like you know he keeps it exclusively on his iPad, which he routinely only looks at in the morning and at night. Which to me means while he's pooping.
 
 [00:38:34] Adam: Twitter is great while you're pooping,
 
@@ -674,7 +674,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:39:36] Michael Green: Do you know what you're building next?
 
-[00:39:37] Adam: I do. I have a I have a long list, but I think I'm going to start off in a kind of a comforting place with the one-day builds. That's all I'm going to say.
+[00:39:37] Adam: I do. I have a long list, but I think I'm going to start off in a kind of a comforting place with the one-day builds. That's all I'm going to say.
 
 [00:39:45] Michael Green: That's all he's going to say. I'll ask you offline. Okay.
 

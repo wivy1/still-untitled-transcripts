@@ -28,7 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:00:54] Adam: Thanks for the macro view.
 
-[00:00:56] Will: Yeah, I like to take the the high level view. This isn't, so Norm. This is your first time on Alcatraz.
+[00:00:56] Will: Yeah, I like to take the high level view. This isn't, so Norm. This is your first time on Alcatraz.
 
 [00:01:00] Norm: That's right. For listeners out there who are just listening to the podcast or watching the video, we are on Alcatraz right now,
 
@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:02:03] Will: Okay.
 
-[00:02:04] Adam: I I personally have never ridden a trolley car,
+[00:02:04] Adam: I personally have never ridden a trolley car,
 
 [00:02:07] Norm: cable car. Yeah.
 
@@ -82,7 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:02:34] Will: Right.
 
-[00:02:34] Adam: In 2003, in the first season of MythBusters, when we were still doing urban legends, we tested the Alcatraz escape, and that really is one of the episodes I'm most proud of, even after all these years, because it was it was almost like a sea change for us, because we were originally hired talent on MythBusters, and we learned how to. Host this show and then write it and produce it on the job, and in those days, you know, my producer said we're going to escape from Alcatraz. So the first thing I did was I found that you could download the entire FBI report on the escape, and the FBI devoted tremendous resources to finding Frank Morris and the Anglin brothers. So there's 1,600 pages
+[00:02:34] Adam: In 2003, in the first season of MythBusters, when we were still doing urban legends, we tested the Alcatraz escape, and that really is one of the episodes I'm most proud of, even after all these years, because it was almost like a sea change for us, because we were originally hired talent on MythBusters, and we learned how to. Host this show and then write it and produce it on the job, and in those days, you know, my producer said we're going to escape from Alcatraz. So the first thing I did was I found that you could download the entire FBI report on the escape, and the FBI devoted tremendous resources to finding Frank Morris and the Anglin brothers. So there's 1,600 pages
 
 [00:02:34] Norm: Wow.
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:05:46] Will: Does he not know how to canoe?
 
-[00:05:47] Adam: No, he's no, he's just literally doing this.
+[00:05:47] Adam: No, he's just literally doing this.
 
 [00:05:47] Will: He's going in circles.
 
@@ -130,13 +130,13 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:06:41] Will: Summertime when it's warm. April,
 
-[00:06:42] Adam: May. It wasn't warm, but the the the innovation the the thing that we came up with was if you're on Alcatraz and you're watching the tides, you know that that the ebb tide in San Francisco Bay is diabolical. It's almost four knots. So if you're going to try and get anywhere, you're going to have to use that tide. So we didn't try to paddle anywhere but north. And we were aimed for Sausalito and ended up at Horseshoe Bay at the north end of the Golden Gate Bridge, and we made it in I think 51 minutes flat.
+[00:06:42] Adam: May. It wasn't warm, but the innovation the thing that we came up with was if you're on Alcatraz and you're watching the tides, you know that that the ebb tide in San Francisco Bay is diabolical. It's almost four knots. So if you're going to try and get anywhere, you're going to have to use that tide. So we didn't try to paddle anywhere but north. And we were aimed for Sausalito and ended up at Horseshoe Bay at the north end of the Golden Gate Bridge, and we made it in I think 51 minutes flat.
 
 [00:06:42] Will: Oh wow!
 
 [00:06:42] Adam: It was not that difficult.
 
-[00:07:17] Will: Wow. So so, um, did you have three people on the raft?
+[00:07:17] Will: Wow. So so did you have three people on the raft?
 
 [00:07:21] Adam: We did. We had me and Jamie and young intern Will.
 
@@ -166,9 +166,9 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:07:49] Unknown speaker: That's okay.
 
-[00:07:49] Will: What what was the? Did you climb through the hole in the cell?
+[00:07:49] Will: What was the? Did you climb through the hole in the cell?
 
-[00:08:01] Adam: I did. They—actually, so we inspected the the cells here that the guys were in. The hole that they carved to get out is still there. And they let us climb through those holes.
+[00:08:01] Adam: I did. They—actually, so we inspected the cells here that the guys were in. The hole that they carved to get out is still there. And they let us climb through those holes.
 
 [00:08:01] Will: Wow!
 
@@ -180,15 +180,15 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:08:30] Will: I saw that episode.
 
-[00:08:30] Adam: But they put they put Jamie and I in adjacent cells, Frank Morris and one of the Anglin brothers' cells, and we each tried to squirm out, and we both made it. I'm not sure if Jamie would make it today, but the trick is you got to put one arm through first, and then there's a point at which you're fully committed.
+[00:08:30] Adam: But they put Jamie and I in adjacent cells, Frank Morris and one of the Anglin brothers' cells, and we each tried to squirm out, and we both made it. I'm not sure if Jamie would make it today, but the trick is you got to put one arm through first, and then there's a point at which you're fully committed.
 
 [00:08:52] Will: There's no going back.
 
 [00:08:53] Adam: Literally, there's no going back, and you better not be claustrophobic. It's awful, and I'm not claustrophobic, and it was pretty awful.
 
-[00:08:59] Will: So you you climb through, and you have to make a real hard right turn.
+[00:08:59] Will: So you climb through, and you have to make a real hard right turn.
 
-[00:09:01] Adam: You you no, there's space behind the jail was built for escape. When you look at how they got out, it is like behind every cell is a five foot walkway of plumbing.
+[00:09:01] Adam: You no, there's space behind the jail was built for escape. When you look at how they got out, it is like behind every cell is a five foot walkway of plumbing.
 
 [00:09:01] Will: Hey, I know what that is. It's the wet wall,
 
@@ -204,7 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:10:47] Will: Explain the Bay Model.
 
-[00:10:48] Adam: U.S. Army Corps of Engineers built a scale model of the Bay. That is, it's scale in X Y dimension. In Z dimension, I think it's multiplied by 10, so that the effects of the water moving in and out of the Bay can be magnified and monitored. But we were able to. Drop objects off of Alcatraz in the bay model, and as the tide ebbed and flowed, we were able to actually match some of the patterns of the found artifacts from the escape and where they landed. And the fact is, is if if they got washed out to the ocean, they would have ended up south of Monterey. It's very peculiar to me that we didn't find any parts of the real raft or of their clothes or or or paddles or anything. Everything that we have was left behind by them. They left behind a paddle. They left behind one of their pontoons. But I can't imagine, after reading extensively about those three, that they could have avoided the law for the ensuing decades.
+[00:10:48] Adam: U.S. Army Corps of Engineers built a scale model of the Bay. That is, it's scale in X Y dimension. In Z dimension, I think it's multiplied by 10, so that the effects of the water moving in and out of the Bay can be magnified and monitored. But we were able to. Drop objects off of Alcatraz in the bay model, and as the tide ebbed and flowed, we were able to actually match some of the patterns of the found artifacts from the escape and where they landed. And the fact is, is if they got washed out to the ocean, they would have ended up south of Monterey. It's very peculiar to me that we didn't find any parts of the real raft or of their clothes or paddles or anything. Everything that we have was left behind by them. They left behind a paddle. They left behind one of their pontoons. But I can't imagine, after reading extensively about those three, that they could have avoided the law for the ensuing decades.
 
 [00:11:48] Norm: A loss at sea. Right.
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:12:33] Norm: If you were to do it again, which how would you do it differently, or would you?
 
-[00:12:37] Adam: This is that's a great question. Um, One of the things that comes up every season that we do MythBusters, uh, that we've been doing MythBusters, is we think about stuff we'd like to revisit. And, uh, a couple of years ago, when we started doing the show with just Jamie and I, after Kari, Grant and Tory left, we we started thinking, " Well, what if there maybe there's some myths that are really old that we could radically improve upon," and I, this, And the end of the story sounds like I'm tooting our horn, but we actually wouldn't have changed most of our methodologies in radical ways that we think would yield a very different result. And Alcatraz, as far as I'm concerned, is as robust an experiment as we've ever conducted. I was—I mean, how much fun is it? You get to enter the water of San Francisco Bay in the exact possible raft, and that raft hung from our ceiling for years until we set fire to it with the Confederate rocket test,
+[00:12:37] Adam: This is that's a great question. One of the things that comes up every season that we do MythBusters that we've been doing MythBusters, is we think about stuff we'd like to revisit. And a couple of years ago, when we started doing the show with just Jamie and I, after Kari, Grant and Tory left, we started thinking, " Well, what if there maybe there's some myths that are really old that we could radically improve upon," and I, this, And the end of the story sounds like I'm tooting our horn, but we actually wouldn't have changed most of our methodologies in radical ways that we think would yield a very different result. And Alcatraz, as far as I'm concerned, is as robust an experiment as we've ever conducted. I was—I mean, how much fun is it? You get to enter the water of San Francisco Bay in the exact possible raft, and that raft hung from our ceiling for years until we set fire to it with the Confederate rocket test,
 
 [00:13:31] Will: as one does.
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:15:05] Adam: What's that?
 
-[00:15:05] Will: When anger, when when when when they get the grown-up control panel.
+[00:15:05] Will: When anger, when they get the grown-up control panel.
 
 [00:15:05] Adam: Yes.
 
@@ -296,13 +296,13 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:15:21] Norm: I want to run outside with green green smoke.
 
-[00:15:23] Will: That's that's the next one in the little green balls. I thought about making something to bring out with us, filled
+[00:15:23] Will: That's the next one in the little green balls. I thought about making something to bring out with us, filled
 
 [00:15:27] Norm: with jello. Yeah, that's a good prop replica to do the green.
 
 [00:15:29] Will: Oh yes,
 
-[00:15:30] Adam: nah. You know, I've actually held the original bomb from The Rock. It's in the planet.
+[00:15:30] Adam: nah. I've actually held the original bomb from The Rock. It's in the planet.
 
 [00:15:30] Will: Of course you have.
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:15:55] Unknown speaker: That's right.
 
-[00:15:58] Adam: What's your What's your favorite Alcatraz film?
+[00:15:58] Adam: What's your favorite Alcatraz film?
 
 [00:16:00] Will: It's The Rock.
 
@@ -348,13 +348,13 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:16:21] Adam: well, if you have a fetish, will it's time to come clean.
 
-[00:16:23] Will: No, no, no. I'm, I'm, I'm just
+[00:16:23] Will: No, no, no. I'm just
 
 [00:16:25] Adam: Chained Heat
 
 [00:16:25] Norm: or prison scenes.
 
-[00:16:27] Will: It's it's. I was gonna go with Natural Born Killers, but okay.
+[00:16:27] Will: It's. I was gonna go with Natural Born Killers, but okay.
 
 [00:16:30] Norm: Oh, I love the prison escape from Grand Budapest Hotel.
 
@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:16:49] Will: What if you expand it to bank robberies?
 
-[00:16:56] Adam: If you expand it to bank robberies, I think one of the best heist films ever made is the recent one with Jason Statham called. What? The the the heist
+[00:16:56] Adam: If you expand it to bank robberies, I think one of the best heist films ever made is the recent one with Jason Statham called. What? The heist
 
 [00:17:05] Norm: It’s based on the true one. No, it's true story.
 
@@ -388,7 +388,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:17:07] Adam: What is that film called? The Jason Statham.
 
-[00:17:10] Norm: You know, we would normally
+[00:17:10] Norm: We would normally
 
 [00:17:10] Unknown speaker: The Bank Job.
 
@@ -432,7 +432,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:18:04] Adam: Do you have a favorite heist film?
 
-[00:18:08] Will: I, um, man, probably the Heat.
+[00:18:08] Will: I man, probably the Heat.
 
 [00:18:08] Adam: Heat.
 
@@ -452,29 +452,29 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:18:39] Adam: Like I was so whoa at that point. That fantastic moment.
 
-[00:18:44] Will: Well, that whole that whole thing when that goes bad, it goes bad in such explosive flurry fury. Oh yeah, you can't help but love that movie.
+[00:18:44] Will: Well, that whole thing when that goes bad, it goes bad in such explosive flurry fury. Oh yeah, you can't help but love that movie.
 
 [00:18:52] Unknown speaker: It's so sad.
 
-[00:18:52] Adam: I know, and when when when when and what's her name? Ashley Judd
+[00:18:52] Adam: I know, and when and what's her name? Ashley Judd
 
 [00:18:52] Unknown speaker: Ashley Judd.
 
-[00:18:52] Adam: is there on the balcony and she does the the the motion for I fold.
+[00:18:52] Adam: is there on the balcony and she does the motion for I fold.
 
 [00:19:00] Will: No go.
 
 [00:19:02] Adam: The blackjack motion. Oh, heartbreaking.
 
-[00:19:03] Will: Well, and the the I think what was at the time the only scene ever between De Niro and Al Pacino.
+[00:19:03] Will: Well, and the I think what was at the time the only scene ever between De Niro and Al Pacino.
 
 [00:19:03] Adam: Yeah.
 
-[00:19:03] Will: And it's that whole movie. You kind of don't realize it. But they're they're they're it's bouncing back and forth between the two perspectives,
+[00:19:03] Will: And it's that whole movie. You kind of don't realize it. But they're it's bouncing back and forth between the two perspectives,
 
 [00:19:03] Adam: Yeah.
 
-[00:19:03] Will: and then they they come together at the airport and that air the airport scene when they're standing I think at the baffles at the end of what looks like LAX
+[00:19:03] Will: and then they come together at the airport and that air the airport scene when they're standing I think at the baffles at the end of what looks like LAX
 
 [00:19:03] Adam: yeah
 
@@ -498,7 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:19:44] Will: what was on it Creedence
 
-[00:19:44] Adam: I have no idea but the the my cameraman Soz and I did stretch it out to see how what the distance of a tape cassette was of a 60 minute tape cassette was and it wasn't as far as I thought it was like 450 feet
+[00:19:44] Adam: I have no idea but the my cameraman Soz and I did stretch it out to see how what the distance of a tape cassette was of a 60 minute tape cassette was and it wasn't as far as I thought it was like 450 feet
 
 [00:19:57] Will: that's a lot
 
@@ -510,13 +510,13 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:20:03] Will: okay okay and Norm any other Do we feel like we've mined the Alcatraz topic entirely Yeah.
 
-[00:20:09] Norm: no I remember I remember the Rock being filmed.
+[00:20:09] Norm: no I remember the Rock being filmed.
 
 [00:20:12] Will: Really?
 
 [00:20:12] Norm: When I was in middle school, and all the kids were getting excited because they were going to blow up Alcatraz, but they were filming that last explosion scene.
 
-[00:20:18] Adam: Oh, right, right, right. Where Nick Cage is like, yeah, doing the the the prostration of.
+[00:20:18] Adam: Oh, right, right, right. Where Nick Cage is like, yeah, doing the prostration of.
 
 [00:20:24] Norm: It was a real point of pride.
 
@@ -546,7 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:21:13] Will: my Sean Connery? What's your Sean? What's your favorite Sean Connery?
 
-[00:21:18] Adam: My favorite Sean Connery starts with Never Say Never Again and moves into moves into the Rock. I love that Bond film.
+[00:21:18] Adam: My favorite Sean Connery starts with Never Say Never Again and moves into the Rock. I love that Bond film.
 
 [00:21:18] Will: Thunderball.
 
@@ -578,7 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:22:03] Adam: Check out those robots. They are amazing.
 
-[00:22:06] Will: They they are based on living designs like salamanders and snakes and cats and I can't remember what the fourth one was. And then also, there's a tour starting right over there on our left, your right, that will explain why some buildings survive earthquakes and some buildings don't. And I have been assured that it is super cool and will go on for the rest of the evening. So,
+[00:22:06] Will: They are based on living designs like salamanders and snakes and cats and I can't remember what the fourth one was. And then also, there's a tour starting right over there on our left, your right, that will explain why some buildings survive earthquakes and some buildings don't. And I have been assured that it is super cool and will go on for the rest of the evening. So,
 
 [00:22:27] Norm: and we'll be back in a little bit.
 

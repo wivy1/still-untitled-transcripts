@@ -24,7 +24,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:00:18] Will: Adam seems low though.
 
-[00:00:19] Adam: Uh, one two one two one two.
+[00:00:19] Adam: One two.
 
 [00:00:20] Norm: No, that's his headphones. We're good.
 
@@ -46,7 +46,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:00:27] Norm: Why?
 
-[00:00:28] Adam: We we show the work on Tested.
+[00:00:28] Adam: We show the work on Tested.
 
 [00:00:30] Will: Okay. Okay. We make we all make mistakes. That's that's the moral of the story
 
@@ -68,7 +68,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:00:47] Will: This seems like a thing that we're going to spend a fair amount of time talking about because I'm going to. I expect to see this movie at least once more and probably twice.
 
-[00:00:54] Adam: I I just saw it two nights ago with Kishore and I'm definitely going again. Maybe even next week when I'm in New York.
+[00:00:54] Adam: I just saw it two nights ago with Kishore and I'm definitely going again. Maybe even next week when I'm in New York.
 
 [00:01:01] Norm: So a little bit of housekeeping. As we're recording this, Endgame, Avengers Endgame has just come out. It's been opening weekend, but we're releasing this one week later. So hopefully, most of you out there have had a chance to see the movie once or twice. We will be doing some spoiler-free impressions very quickly because there's so much to talk about.
 
@@ -78,7 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:01:27] Adam: Uh huh.
 
-[00:01:27] Will: Because like they they they
+[00:01:27] Will: Because like they
 
 [00:01:29] Adam: Okay.
 
@@ -88,7 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:01:49] Will: 1,000 theaters.
 
-[00:01:50] Norm: And and for that one, it made $250 million.
+[00:01:50] Norm: And for that one, it made $250 million.
 
 [00:01:52] Adam: Yeah.
 
@@ -98,7 +98,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:02:04] Norm: bonkers.
 
-[00:02:04] Will: And and then they opened anyway. It made a boatload of money. We don't care about money. How'd you like the movie, guys? You think it was okay. You want to think people should go watch it?
+[00:02:04] Will: And then they opened anyway. It made a boatload of money. We don't care about money. How'd you like the movie, guys? You think it was okay. You want to think people should go watch it?
 
 [00:02:12] Adam: I think people should go watch it. If you haven't seen it, you should definitely go see it. You don't necessarily need to see the other films to enjoy this film, but boy, it helps.
 
@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:02:27] Adam: Julia does too. Often at the beginning of Act Three, it's usually the Act Three action sequence in which my wife falls asleep.
 
-[00:02:33] Will: Your wife and my wife very similar because that is exactly Gina's like. The first half of Thor Ragnarok is amazing, and then as soon as they get to the part on the bridge, she's like. Um, so we watched. Let's see, we watched Civil War, Ragnarok, and
+[00:02:33] Will: Your wife and my wife very similar because that is exactly Gina's like. The first half of Thor Ragnarok is amazing, and then as soon as they get to the part on the bridge, she's like. So we watched. Let's see, we watched Civil War, Ragnarok, and
 
 [00:02:51] Norm: Infinity War,
 
@@ -114,7 +114,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:02:57] Norm: right?
 
-[00:02:57] Will: But I think that's a pretty good lead in. Because that gives you the backstory, lets you know what's going on with the Avengers, lets you know what's going on with Thor and the Hulk, and then you then you roll into the Infinity War business.
+[00:02:57] Will: But I think that's a pretty good lead in. Because that gives you the backstory, lets you know what's going on with the Avengers, lets you know what's going on with Thor and the Hulk, and then you roll into the Infinity War business.
 
 [00:03:07] Adam: Well, Julia and I went and saw Captain Marvel, which we loved. She loved. It was the first act three. She didn't fall asleep during. And then we came home and we were so jazzed of that version of the Marvel of the MCU that we immediately came home and watched guard over the next several days. We watched Guardians One and Two and Ragnarok and then, in fact, Infinity War. And then I also watched Civil War in the prep.
 
@@ -126,7 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:03:34] Adam: Oh,
 
-[00:03:34] Norm: I think the the right. Will did the right preparation. I think the Russo brothers did this. This is their fourth Marvel movie. They did Winter Soldier, then Civil War, then Infinity War Part One, or Infinity War, and then End Game. What I was going to say is that you're exactly right. Like, you don't need to see everyone. You get the most benefit out of seeing everyone. And what I really appreciated about End Game is that it felt like a different movie from an Infinity War. When Marvel and Kevin Feige. Announce Infinity War. The idea they announced it originally as part one, part two,
+[00:03:34] Norm: I think the right. Will did the right preparation. I think the Russo brothers did this. This is their fourth Marvel movie. They did Winter Soldier, then Civil War, then Infinity War Part One, or Infinity War, and then End Game. What I was going to say is that you're exactly right. Like, you don't need to see everyone. You get the most benefit out of seeing everyone. And what I really appreciated about End Game is that it felt like a different movie from an Infinity War. When Marvel and Kevin Feige. Announce Infinity War. The idea they announced it originally as part one, part two,
 
 [00:04:05] Adam: Mm hmm.
 
@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:04:47] Norm: Yes,
 
-[00:04:47] Will: I think it's my favorite Avengers. I love the first one. Second one, we we all know where how I feel about the second one.
+[00:04:47] Will: I think it's my favorite Avengers. I love the first one. Second one, we all know where how I feel about the second one.
 
 [00:04:51] Adam: Ultron,
 
@@ -154,7 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:04:54] Norm: Hey, there were good callbacks too.
 
-[00:04:55] Will: Yeah, it's it's so so. The thing about this film is. Like they said, they were going to put a bow on the whole MCU up to this point,
+[00:04:55] Will: Yeah, it's so so. The thing about this film is. Like they said, they were going to put a bow on the whole MCU up to this point,
 
 [00:05:04] Adam: and they really did.
 
@@ -168,15 +168,15 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:05:14] Will: Yeah.
 
-[00:05:15] Adam: And Also, like I really approve. So we'll get to spoilers. We're still talking impressions, but I thought that the way in which they put a bow on the entire MCU, all 21 films plus this one, was really well done. And I know the word the phrase " fan service" gets bandied around both as an explanatory phrase, but also as an insulting phrase. Sometimes, I thought this was a great example of them. You know, I could see them sitting around in a room, Feige and his team, going, " All right, well, we really want to we want to hit these marks, but we don't want it to feel like we're just hitting them just to hit them." And it really didn't. It really felt like
+[00:05:15] Adam: And Also, like I really approve. So we'll get to spoilers. We're still talking impressions, but I thought that the way in which they put a bow on the entire MCU, all 21 films plus this one, was really well done. And I know the word the phrase " fan service" gets bandied around both as an explanatory phrase, but also as an insulting phrase. Sometimes, I thought this was a great example of them. I could see them sitting around in a room, Feige and his team, going, " All right, well, we really want to we want to hit these marks, but we don't want it to feel like we're just hitting them just to hit them." And it really didn't. It really felt like
 
 [00:05:52] Norm: there were culminations. They were earned.
 
 [00:05:53] Adam: yeah, we were getting full arcs,
 
-[00:05:55] Will: and the fan service the fan service felt entirely earned and and and was lovely and and and felt impactful in a way that it often. Doesn't
+[00:05:55] Will: and the fan service felt entirely earned and was lovely and felt impactful in a way that it often. Doesn't
 
-[00:06:04] Adam: I also? This was the first time I cosplayed to a film screening. I put on my my Civil War Captain America suit.
+[00:06:04] Adam: I also? This was the first time I cosplayed to a film screening. I put on my Civil War Captain America suit.
 
 [00:06:12] Will: The best Captain America suit.
 
@@ -184,9 +184,9 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:06:24] Will: Okay.
 
-[00:06:24] Adam: But and then Kishore also came out with me, and he wore his he wore his Infinity War Captain America suit.
+[00:06:24] Adam: But and then Kishore also came out with me, and he wore his Infinity War Captain America suit.
 
-[00:06:30] Will: So, so somebody asked me on Twitter if they needed to see Captain Marvel before they see End Game. I think the it it doesn't hurt like the
+[00:06:30] Will: So, so somebody asked me on Twitter if they needed to see Captain Marvel before they see End Game. I think the it doesn't hurt like the
 
 [00:06:40] Adam: it certainly doesn't hurt.
 
@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:06:44] Adam: Yeah.
 
-[00:06:44] Will: But like that third act turn when when no doubt comes on and she's just like, it's so good. It's so good.
+[00:06:44] Will: But like that third act turn when no doubt comes on and she's just like, it's so good. It's so good.
 
 [00:06:52] Norm: But to answer the question. It does also work after End Game as a nice background story as well.
 
@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:07:21] Adam: yeah,
 
-[00:07:21] Norm: Tom Holland. They cast Black Panther before Ryan Coogler was brought in, before Oh, wow, Spiderman Homecoming. So they they created those characters in a vacuum. With Captain Marvel, they knew they were going to do a Captain Marvel movie, but the backstory hadn't been written.
+[00:07:21] Norm: Tom Holland. They cast Black Panther before Ryan Coogler was brought in, before Oh, wow, Spiderman Homecoming. So they created those characters in a vacuum. With Captain Marvel, they knew they were going to do a Captain Marvel movie, but the backstory hadn't been written.
 
 [00:07:37] Adam: Fascinating.
 
@@ -216,7 +216,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:07:45] Will: knew what I just said. She knew she’s an ultimate badass.
 
-[00:07:47] Norm: So almost so also if you if you if you watch that movie in reverse, the release Endgame first, then Captain Marvel, you actually get to see Brie Larson become the character more.
+[00:07:47] Norm: So almost so also if you watch that movie in reverse, the release Endgame first, then Captain Marvel, you actually get to see Brie Larson become the character more.
 
 [00:07:57] Adam: Right.
 
@@ -228,11 +228,11 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:08:08] Norm: yeah,
 
-[00:08:08] Will: than in Captain Marvel, and they they talked about that. It was it was really fascinating. It was interesting because they also made it clear that the actors, the performers, are allowed to own a lot of the look and feel of the characters,
+[00:08:08] Will: than in Captain Marvel, and they talked about that. It was really fascinating. It was interesting because they also made it clear that the actors, the performers, are allowed to own a lot of the look and feel of the characters,
 
 [00:08:17] Norm: right?
 
-[00:08:17] Will: So things like how they're styled and and and
+[00:08:17] Will: So things like how they're styled and
 
 [00:08:24] Adam: Oh, neat.
 
@@ -240,7 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:08:26] Norm: They'll make a suggestion. Hey, maybe you should have a beard in this next one.
 
-[00:08:28] Adam: I remember was as I was watching Infinity War again. I was remembering reading that the Russo brothers, when they brought in all the all the Wakanda cast for the big battle, they were they said upfront to the cast, " Hey, we weren't on set for Black Panther, so we're going to rely on you guys as the canon repository of what these battles might look like, how these folks might behave. You got to help us build this action correctly.
+[00:08:28] Adam: I remember was as I was watching Infinity War again. I was remembering reading that the Russo brothers, when they brought in all the Wakanda cast for the big battle, they were they said upfront to the cast, " Hey, we weren't on set for Black Panther, so we're going to rely on you guys as the canon repository of what these battles might look like, how these folks might behave. You got to help us build this action correctly.
 
 [00:08:51] Norm: That's awesome.
 
@@ -252,7 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:09:21] Adam: right
 
-[00:09:21] Norm: to hold a character and hold their emotion, the the emotional journey.
+[00:09:21] Norm: to hold a character and hold their emotion, the emotional journey.
 
 [00:09:25] Adam: That's really good direction,
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:10:05] Will: Say the words. Wow.
 
-[00:10:06] Adam: Yeah, they they. I also heard. Did I hear that they shot a Death scene for Paul Rudd, knowing that he might spoil it.
+[00:10:06] Adam: Yeah, they. I also heard. Did I hear that they shot a Death scene for Paul Rudd, knowing that he might spoil it.
 
 [00:10:13] Will: They shot death scenes for a ton of people, apparently.
 
@@ -280,11 +280,11 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:10:19] Norm: all right. Are we ready?
 
-[00:10:20] Will: I got one more big takeaway, and then I'll then we can go. the The thing that amazed me, going back and watching the first Iron Man, you know, 20 years, 10 years ago, a lifetime or two ago at this point, feels like. And then this movie is how, how the look and feel, with a few notable exceptions, has of those characters has remained really, really. It feels like part of a continuity, despite the fact that they've had you know five directors, seven directors doing Iron Man in different movies, and you know different costumers and different different set designers. It all feels contiguous in a way that I would when they started doing this. It was one of the things we talked about. You know, is it even possible for them to maintain a look and feel and style across a decade
+[00:10:20] Will: I got one more big takeaway, and then I'll then we can go. the thing that amazed me, going back and watching the first Iron Man 20 years, 10 years ago, a lifetime or two ago at this point, feels like. And then this movie is how, how the look and feel, with a few notable exceptions, has of those characters has remained really, really. It feels like part of a continuity, despite the fact that they've had you know five directors, seven directors doing Iron Man in different movies, and you know different costumers and different different set designers. It all feels contiguous in a way that I would when they started doing this. It was one of the things we talked about. Is it even possible for them to maintain a look and feel and style across a decade
 
 [00:11:01] Adam: And that's.
 
-[00:11:01] Will: and these characters? And they they they did it.
+[00:11:01] Will: and these characters? And they did it.
 
 [00:11:03] Adam: It’s amazing. They totally did it. I came away from the film having so you. It's often written when you write about great producers, people like Gale Anne Hurd and you know Kevin Feige, and you articles come out about them. There's often a phrase in the article says like, " Not many people know what a producer really does." But then you look at a film like Endgame, and you realize that Feige and his team conceptualized this, and I'm sure they gave themselves a lot of outs along the way of ways in which this might not go the way they planned, and yet, holy shit, it really did go the way they planned as a full arc 22 film.
 
@@ -292,7 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:11:42] Adam: 22 films. I think I did the math last night. Something like $4.5 billion worth of film making.
 
-[00:11:48] Will: Yeah. So, so the theater that I went to see this in Japan Town because that's where I could get tickets on on Friday afternoon after it opened. They had a sign on the door as you walked out that said, " Hey, don't talk about the film until you're out of the lobby."
+[00:11:48] Will: Yeah. So, so the theater that I went to see this in Japan Town because that's where I could get tickets on Friday afternoon after it opened. They had a sign on the door as you walked out that said, " Hey, don't talk about the film until you're out of the lobby."
 
 [00:11:59] Adam: Nice,
 
@@ -326,7 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:12:45] Adam: Yeah.
 
-[00:12:45] Will: But it goes from being super serious. They release the tension with a little bit of levity, and then it's back to super serious. And it's it's it's really.
+[00:12:45] Will: But it goes from being super serious. They release the tension with a little bit of levity, and then it's back to super serious. And it's really.
 
 [00:12:51] Adam: Really?
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:13:04] Norm: extra, extra.
 
-[00:13:05] Adam: I got to say. So that's that's that's all there is to it. In New York on Wednesday, I'm just going to go see a matinee in the IMAX.
+[00:13:05] Adam: I got to say. So that's all there is to it. In New York on Wednesday, I'm just going to go see a matinee in the IMAX.
 
 [00:13:10] Will: Yeah. There you go.
 
@@ -384,7 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:14:31] Will: Right,
 
-[00:14:31] Norm: it's in Missouri. It's on a farm. It's not in space. It's about the impact the the snap had on the real world.
+[00:14:31] Norm: it's in Missouri. It's on a farm. It's not in space. It's about the impact the snap had on the real world.
 
 [00:14:40] Adam: Everybody else, but again, so right, so Clint's teaching his daughter. She goes to pick up the arrow. He turns around. His daughter's gone. His whole family's gone. And you see, you realize that you're watching the moment of the snap. And
 
@@ -396,7 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:14:54] Adam: so choked up.
 
-[00:14:55] Will: So, so that at that moment, I was like, oh, right. The people who got snapped are the lucky ones here, because like the mental anguish on you as a normal human. You know, assuming you're not a superhero.
+[00:14:55] Will: So, so that at that moment, I was like, oh, right. The people who got snapped are the lucky ones here, because like the mental anguish on you as a normal human. Assuming you're not a superhero.
 
 [00:15:02] Adam: Yeah.
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:15:22] Adam: Yeah,
 
-[00:15:22] Will: it's it's intense,
+[00:15:22] Will: it's intense,
 
 [00:15:23] Adam: and they really made that after all the fire and bombast of Infinity War with the snap.
 
@@ -428,7 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:16:24] Adam: Exactly. So again, that followed by the next scene was
 
-[00:16:28] Norm: Tony Stark, which is him and Nebula on the the Benatar, and he is teaching her how to play some football.
+[00:16:28] Norm: Tony Stark, which is him and Nebula on the Benatar, and he is teaching her how to play some football.
 
 [00:16:37] Adam: Yeah, Dukes. We used to. So I grew up. That's what we called it in Westchester County in the '70s. We called it Duke's football. You folded up a triangle and you shot it.
 
@@ -444,17 +444,17 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:16:59] Norm: and also she wins, and she graciously wins, and that's not something that she. Has experience with when Tony Stark puts his hand on fair game, you won. She's like, well, no, no. This is I'm not. I don't get this.
 
-[00:17:11] Adam: She's she's used to someone stepping on her face.
+[00:17:11] Adam: She's used to someone stepping on her face.
 
-[00:17:14] Will: Exactly. And it's like, yeah, it's, it's.
+[00:17:14] Will: Exactly. And it's like, yeah, it's.
 
-[00:17:16] Norm: And in a movie where yes, it's different from before because Infinity War because it's about the core Avengers. It's about Tony Stark, Iron Man, Thor, Black Widow, Hawkeye. The secondary characters they only had a few to so and Hulk to to work with. Nebula stands out.
+[00:17:16] Norm: And in a movie where yes, it's different from before because Infinity War because it's about the core Avengers. It's about Tony Stark, Iron Man, Thor, Black Widow, Hawkeye. The secondary characters they only had a few to so and Hulk to work with. Nebula stands out.
 
 [00:17:30] Adam: The actress whose name is
 
 [00:17:32] Norm: Karen Gillan.
 
-[00:17:32] Adam: Karen Gillan. Her performance of Nebula is fantastic, and in both of the films with Nebula and Gamora, their their arc is really moving.
+[00:17:32] Adam: Karen Gillan. Her performance of Nebula is fantastic, and in both of the films with Nebula and Gamora, their arc is really moving.
 
 [00:17:43] Will: I mean, yeah, they go from a complete, yes, and and this this film actually highlights the arc that they have
 
@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:18:10] Will: He's gaunt.
 
-[00:18:11] Adam: Yeah, yeah, he's the the gaunt. That's all CG. I'm assuming.
+[00:18:11] Adam: Yeah, yeah, he's the gaunt. That's all CG. I'm assuming.
 
 [00:18:15] Norm: I think so. I think so.
 
@@ -486,15 +486,15 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:18:22] Norm: Beautiful piece of writing when she gives defers the food to him when she puts him in the chair. He talks about when he dozes off one last time. Yeah, it's it tells you things are real.
 
-[00:18:32] Will: Well, and and like so, my expectation as a viewer coming into this movie is that people are going to die. A lot of people are going to die,
+[00:18:32] Will: Well, and like so, my expectation as a viewer coming into this movie is that people are going to die. A lot of people are going to die,
 
 [00:18:39] Adam: right?
 
-[00:18:40] Will: And that you know, at least Cap and Tony Stark, based on the meta commentary about who's coming back and all that, are are something bad's going to happen to one or both,
+[00:18:40] Will: And that at least Cap and Tony Stark, based on the meta commentary about who's coming back and all that, are something bad's going to happen to one or both,
 
 [00:18:47] Adam: right?
 
-[00:18:48] Will: And you expect that they're going to do the early the early death like they did with Idris Elba and Loki and
+[00:18:48] Will: And you expect that they're going to do the early death like they did with Idris Elba and Loki and
 
 [00:18:54] Adam: I wasn't even thinking about that that it might be the early death. I kind of.
 
@@ -502,13 +502,13 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:19:03] Adam: right.
 
-[00:19:03] Will: Right. there anyway. Um. So okay. So you go from there.
+[00:19:03] Will: Right. there anyway. So okay. So you go from there.
 
 [00:19:06] Norm: Captain Marvel saves them.
 
 [00:19:07] Will: Yeah.
 
-[00:19:08] Norm: And so the stinger credit scene from Captain Marvel, where she pops up, um, and says, " Where's Fury?" That's not actually in the movie.
+[00:19:08] Norm: And so the stinger credit scene from Captain Marvel, where she pops up and says, " Where's Fury?" That's not actually in the movie.
 
 [00:19:16] Adam: No.
 
@@ -522,9 +522,9 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:19:24] Norm: Relatively quickly.
 
-[00:19:25] Adam: Yeah. Um. And it's again super emotional.
+[00:19:25] Adam: Yeah. And it's again super emotional.
 
-[00:19:29] Will: It's it's it's intense. Yeah.
+[00:19:29] Will: It's intense. Yeah.
 
 [00:19:30] Norm: Well, it's the first time that they get together. The scene that you're talking about is when they're at the table when Tony Stark has the IV. He's gaunt, and he
 
@@ -532,15 +532,15 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:19:43] Norm: No, that's
 
-[00:19:44] Will: because because there's a moment where I sat there and I was like, " Oh man, Scarlett Johansson's had a bad bad. "
+[00:19:44] Will: because there's a moment where I sat there and I was like, " Oh man, Scarlett Johansson's had a bad bad. "
 
 [00:19:49] Adam: Scarlett Johansson also.
 
 [00:19:50] Will: Oh, that's after the time skip. Okay.
 
-[00:19:51] Adam: Scarlett Johansson, by the way, also in both Infinity War and Endgame, does the best acting of. Her acting across the whole series, I think she shows all this wonderful that wonderful complexity of of Nat's character.
+[00:19:51] Adam: Scarlett Johansson, by the way, also in both Infinity War and Endgame, does the best acting of. Her acting across the whole series, I think she shows all this wonderful that wonderful complexity of Nat's character.
 
-[00:20:04] Will: I think I think that there's like Winter Soldier. She's excellent. Like there's a moment that she becomes a fully fledged character in Winter Soldier, and and this is the culmination of that.
+[00:20:04] Will: I think that there's like Winter Soldier. She's excellent. Like there's a moment that she becomes a fully fledged character in Winter Soldier, and this is the culmination of that.
 
 [00:20:14] Adam: Yeah, I agree. I agree, and I like the way they shot her with less obvious makeup. They made her look a little plainer, which is sort of I think stood in for
 
@@ -548,7 +548,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:20:24] Adam: the level of exhaustion she had, kind of holding a lot of this stuff together.
 
-[00:20:27] Will: It's very clear that the weight of hey, we we met like actually they're all carrying that weight in different ways. Like you look at how how Cap is going out and trying to make the world a better place because that's what he does.
+[00:20:27] Will: It's very clear that the weight of hey, we met like actually they're all carrying that weight in different ways. Like you look at how how Cap is going out and trying to make the world a better place because that's what he does.
 
 [00:20:36] Adam: Yeah,
 
@@ -566,7 +566,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:21:00] Adam: And Tony's really pissed at Cap. And I thought that that denouement that that discussion between them was really intense and felt really real.
 
-[00:21:08] Will: Yeah, I mean, it's well that's resolving the the stuff that started with Civil War, right? Yeah, with the Sokovia business
+[00:21:08] Will: Yeah, I mean, it's well that's resolving the stuff that started with Civil War, right? Yeah, with the Sokovia business
 
 [00:21:14] Norm: and Ultron
 
@@ -594,7 +594,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:21:37] Adam: right? Yeah, fat Thor.
 
-[00:21:41] Will: Hold on, hold on. Okay, so so they cut off they cut off his head.
+[00:21:41] Will: Hold on. Okay, so so they cut off his head.
 
 [00:21:44] Adam: They cut off his head.
 
@@ -606,13 +606,13 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:21:55] Adam: No.
 
-[00:21:55] Will: Um, like, like, what does it open with that cap support session?
+[00:21:55] Will: What does it open with that cap support session?
 
 [00:21:58] Norm: Yeah,
 
 [00:21:59] Adam: yeah, and it the way they laid it out too. There's a meta. There's a meta commentary going on when you do the jump to five years later because it cuts to black, and then the word five, and then the word years, and then the word later, and it's really slow. That is the Russos playing on your second guessing expectations,
 
-[00:22:21] Norm: and and they reconcile
+[00:22:21] Norm: and they reconcile
 
 [00:22:22] Will: the timeline. I didn't know there was a timeskip.
 
@@ -642,7 +642,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:22:52] Norm: Cap and Black Widow have their moment. Cap running the support group is a callback to Falcon running the support group in the VA. That's a continuation that that relationship, even though he's not there anymore. Then Ant Man comes back. Surprise, San Francisco.
 
-[00:23:05] Will: So that was the that was the that was the the thing at the end of Ant Man and Wasp is that
+[00:23:05] Will: So that was the thing at the end of Ant Man and Wasp is that
 
 [00:23:10] Adam: he disappears into the
 
@@ -656,23 +656,23 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:23:20] Norm: And Activating the retrieval protocol.
 
-[00:23:21] Will: It's it's really the only Deus Ex Machina in the in the in the movie.
+[00:23:21] Will: It's really the only Deus Ex Machina in the movie.
 
-[00:23:25] Norm: Kind of, kind of.
+[00:23:25] Norm: Kind of.
 
 [00:23:25] Will: Even for a time travel movie, it's really saying something.
 
 [00:23:29] Norm: Yeah.
 
-[00:23:29] Will: Um. So okay. So that that whole sequence with Scott
+[00:23:29] Will: So okay. So that that whole sequence with Scott
 
 [00:23:31] Adam: is true. This is true. I keep I've been watching a lot of movies lately that violate Pixar's axiom that it's fine to use a coincidence to get your character into trouble, but it's never okay to use one to get them out.
 
 [00:23:41] Norm: Yeah.
 
-[00:23:42] Adam: And the the Marvel the MCU has been pretty good about that.
+[00:23:42] Adam: And the Marvel the MCU has been pretty good about that.
 
-[00:23:44] Norm: In San Francisco, they have the the memorials, the names of everyone. That's a lot of Easter egggy names from production crew.
+[00:23:44] Norm: In San Francisco, they have the memorials, the names of everyone. That's a lot of Easter egggy names from production crew.
 
 [00:23:51] Adam: Oh, was it
 
@@ -684,9 +684,9 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:24:02] Adam: Oh, nice!
 
-[00:24:03] Norm: A little bit. You have a cameo from Ken Jeong, Ken Jeong, the comedian.
+[00:24:03] Norm: A little bit. You have a cameo from Ken Jeong, the comedian.
 
-[00:24:07] Will: Yeah, really? Oh, he was the he was the guard.
+[00:24:07] Will: Yeah, really? Oh, he was the guard.
 
 [00:24:09] Norm: Yeah. Yeah.
 
@@ -708,7 +708,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:24:29] Will: I could imagine.
 
-[00:24:29] Adam: I also thought that those. I Paul Rudd's a wonderful actor. Um, I was talking to a director recently who's cast him, and I was like, " Isn't it fun? Like how good he looks at 50?" And the director was like, " Paul Rudd is way handsomer than anyone I think has quite realized. Yeah. Like he's such a good actor, though. The way he delivers that scene is amazing.
+[00:24:29] Adam: I also thought that those. I Paul Rudd's a wonderful actor. I was talking to a director recently who's cast him, and I was like, " Isn't it fun? Like how good he looks at 50?" And the director was like, " Paul Rudd is way handsomer than anyone I think has quite realized. Yeah. Like he's such a good actor, though. The way he delivers that scene is amazing.
 
 [00:24:52] Will: And he, like. This is a movie full of really incredible performances in an incredible ensemble cast.
 
@@ -728,7 +728,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:25:32] Norm: to go back.
 
-[00:25:36] Will: Who would have thought that Tony's the one that can move on, right? Of all of them, because he's he's the one that has consistently held on to the the loving embrace around the what does he says in in Ultron the the the shield of armor around the world.
+[00:25:36] Will: Who would have thought that Tony's the one that can move on, right? Of all of them, because he's the one that has consistently held on to the loving embrace around the what does he says in Ultron the shield of armor around the world.
 
 [00:25:48] Adam: Yeah,
 
@@ -750,11 +750,11 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:26:28] Norm: save what they've lost and give up what he's gotten.
 
-[00:26:31] Will: So, so there's two things that happen with this. He, yeah, he's he's not willing to go back in time and change time. It’s before they established the time travel rules, which I think was my favorite, like non huge scene in the movie,
+[00:26:31] Will: So, so there's two things that happen with this. He, yeah, he's not willing to go back in time and change time. It’s before they established the time travel rules, which I think was my favorite, like non huge scene in the movie,
 
 [00:26:44] Adam: was really good.
 
-[00:26:44] Will: Um, but but he, yeah, it's it's it's it's he's done with that life. He he burned pepper too many times, and they fast forward. I mean, later on, they come back, and he can't he can't let it go. He figures it out. He fixes it.
+[00:26:44] Will: But he, yeah, it's he's done with that life. He burned pepper too many times, and they fast forward. I mean, later on, they come back, and he can't let it go. He figures it out. He fixes it.
 
 [00:26:58] Norm: Well, she says,
 
@@ -764,7 +764,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:27:06] Will: oh, from the ship,
 
-[00:27:07] Adam: and she says, 'You are not on that ship.' And you know, I'm getting chills as I describe it. You know, she knows it's the only thing he can do.
+[00:27:07] Adam: and she says, 'You are not on that ship.' And I'm getting chills as I describe it. She knows it's the only thing he can do.
 
 [00:27:16] Will: Yeah,
 
@@ -778,7 +778,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:27:29] Adam: Also, by the way, I just want to state like, Gwyneth Paltrow is doing terrible things for the world with Goop and the snake oil that she sells. But I love Pepper Potts.
 
-[00:27:40] Will: Well, she she's the she's the original Marvel girlfriend, and she's the most Marvel girl. Like, I understand why Natalie Portman doesn't come back and be Thor's girlfriend anymore. Um, I understand why. Uh, what's her name? Liz. Who was who's Bruce Banner? Who played Bruce Banner's girlfriend in the in the first Hulk? Liv Tyler.
+[00:27:40] Will: Well, she she's the original Marvel girlfriend, and she's the most Marvel girl. Like, I understand why Natalie Portman doesn't come back and be Thor's girlfriend anymore. I understand why. What's her name? Liz. Who was who's Bruce Banner? Who played Bruce Banner's girlfriend in the first Hulk? Liv Tyler.
 
 [00:27:57] Adam: Liv Tyler,
 
@@ -812,11 +812,11 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:28:51] Norm: yeah,
 
-[00:28:53] Will: yeah, but but like this this like I miss. I miss the fight between Bruce Banner and the Hulk. Like I like yeah. I miss I miss the I miss Bruce Banner waking up after a few years on Sakaar, being like, " What the hell's going on, man?"
+[00:28:53] Will: yeah, but this like I miss. I miss the fight between Bruce Banner and the Hulk. Like I like yeah. I miss the I miss Bruce Banner waking up after a few years on Sakaar, being like, " What the hell's going on, man?"
 
 [00:29:09] Norm: We've seen that.
 
-[00:29:11] Will: I know, I know, I know. I mean, it's good growth for the characters, and and I think they played it right. I think they played it exactly right. I look, I'll take more Mark Ruffalo as Bruce Banner slash the Hulk any day.
+[00:29:11] Will: I know. I mean, it's good growth for the characters, and I think they played it right. I think they played it exactly right. I look, I'll take more Mark Ruffalo as Bruce Banner slash the Hulk any day.
 
 [00:29:21] Adam: Exactly.
 
@@ -844,7 +844,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:30:20] Will: or Thor
 
-[00:30:21] Adam: or Thor, yes, yes, right. Especially when in in in actually with Thor in in Infinity War when he's like, you don't seem like you're okay, and Thor's like, no, I'm totally fine.
+[00:30:21] Adam: or Thor, yes, yes, right. Especially when in actually with Thor in Infinity War when he's like, you don't seem like you're okay, and Thor's like, no, I'm totally fine.
 
 [00:30:32] Will: You're like, this is all I have left.
 
@@ -870,23 +870,23 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:31:09] Norm: nice little moment
 
-[00:31:10] Will: that, like, as a father of a six year old, that is right, right in right in the wheelhouse right now.
+[00:31:10] Will: that as a father of a six year old, that is right, right in right in the wheelhouse right now.
 
 [00:31:14] Norm: Yep, perfect. Tugging those heartstrings.
 
 [00:31:16] Will: Dad feels
 
-[00:31:16] Norm: they need a team. You got a team figured out, right? You get a great comedy moment of like War Machine landing the taco with with Ant Man.
+[00:31:16] Norm: they need a team. You got a team figured out, right? You get a great comedy moment of like War Machine landing the taco with Ant Man.
 
 [00:31:24] Adam: You also get this line. Wait a minute. So you are telling me Back to Future? Back to the Future was just bullshit.
 
-[00:31:29] Will: Like, like, so, so the the dial that that is right up there with like the the hammer in Ultron, the hammer scene in Ultron, where they're all trying to lift the hammer.
+[00:31:29] Will: so, so the the dial that that is right up there with like the hammer in Ultron, the hammer scene in Ultron, where they're all trying to lift the hammer.
 
 [00:31:40] Adam: Okay, so yeah, go ahead.
 
 [00:31:40] Will: We'll get to that. We'll get to that. But like all of those moments where you just see the superheroes being people and doing people things are kind of my favorite parts of these movies that are about a lot of punching
 
-[00:31:52] Adam: and well, and you remember that Joss Whedon talked extensively about how hard he fought to keep. The scene in in
+[00:31:52] Adam: and well, and you remember that Joss Whedon talked extensively about how hard he fought to keep. The scene in
 
 [00:32:00] Norm: Age of Ultron,
 
@@ -896,7 +896,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:32:04] Adam: that it was a breath that the film needed, and I think it's a testament that the films have so many of those breaths within them. Because yeah, watching, I love, I find it so devastating and awesome when Black Widow says to Cap, " Do you really think you can punch your way out of this?"
 
-[00:32:20] Will: That's that's a the the the Captain America and Tony so competitive that they have to compete over how much wood they can chop. When there's no chance Tony wins,
+[00:32:20] Will: That's a the Captain America and Tony so competitive that they have to compete over how much wood they can chop. When there's no chance Tony wins,
 
 [00:32:29] Norm: put on the suit. Put on the suit.
 
@@ -904,7 +904,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:32:31] Norm: put on the suit.
 
-[00:32:32] Will: All of that, like it's it's it's those moments that make these movies. If you don't have those movies moments, these movies aren't good.
+[00:32:32] Will: All of that, like it's those moments that make these movies. If you don't have those movies moments, these movies aren't good.
 
 [00:32:38] Adam: Yeah,
 
@@ -916,7 +916,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:32:48] Norm: That's right.
 
-[00:33:58] Will: You have incredibly smart characters. You have Shuri. You have Banner. You have Tony. You have Tom Holland, Peter Parker. All of these geniuses. You also have the knuckleheads, and and the knuckleheads make it good. You know, it's all balance.
+[00:33:58] Will: You have incredibly smart characters. You have Shuri. You have Banner. You have Tony. You have Tom Holland, Peter Parker. All of these geniuses. You also have the knuckleheads, and the knuckleheads make it good. It's all balance.
 
 [00:34:11] Norm: Well, speaking of knuckleheads, they need to build a team. They go to New Asgard. The Easter egg here is that New Asgard is set in Norway.
 
@@ -952,7 +952,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:34:47] Norm: Yes. I think she's
 
-[00:34:48] Will: the Valkyrie now. Probably. Okay. But but I mean, so in Ragnarok they called her Angry Girl. They called her Scrapper One Four Seven. I think.
+[00:34:48] Will: the Valkyrie now. Probably. Okay. But I mean, so in Ragnarok they called her Angry Girl. They called her Scrapper One Four Seven. I think.
 
 [00:34:57] Norm: Yeah,
 
@@ -966,9 +966,9 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:35:10] Norm: So, so Thor, Thor, Meek, and Korg.
 
-[00:35:12] Will: So, okay, Fat Thor. I, I, I think Fat Thor is cheap. Like just generally, like I, it's a good laugh. I laughed in the theater, but I think, hey, guy fucked up saving the universe and is broken and is and is drinking himself to death in the same way that Valkyrie was doing it in Ragnarok. Make him fat. Kind of a cheap shot.
+[00:35:12] Will: So, okay, Fat Thor. I think Fat Thor is cheap. Like just generally, like I, it's a good laugh. I laughed in the theater, but I think, hey, guy fucked up saving the universe and is broken and is drinking himself to death in the same way that Valkyrie was doing it in Ragnarok. Make him fat. Kind of a cheap shot.
 
-[00:35:32] Adam: I, I, I, I laughed out loud. Look, Chris Hemsworth is amazing at playing the the the slightly less intelligent heroic character. And oh yeah, actually going back to Infinity War, the moment when he shows up and Drax is like a handsome muscular man, and he's and Chris is like I'm a hand, I'm a muscular. He's like they're one sandwich away from fat.
+[00:35:32] Adam: I laughed out loud. Look, Chris Hemsworth is amazing at playing the slightly less intelligent heroic character. And oh yeah, actually going back to Infinity War, the moment when he shows up and Drax is like a handsome muscular man, and he's and Chris is like I'm a hand, I'm a muscular. He's like they're one sandwich away from fat.
 
 [00:35:55] Will: That's another one of those good. That's another one of those human moments.
 
@@ -994,7 +994,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:36:22] Norm: That's right,
 
-[00:36:22] Will: magic Spanx. Hey, you know you have a thing.
+[00:36:22] Will: magic Spanx. Hey you have a thing.
 
 [00:36:25] Norm: He grabbed the hammer and he got braided beard.
 
@@ -1020,7 +1020,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:36:44] Adam: They’re yelling at the—.
 
-[00:36:44] Will: The Cinemax is out. Do you have the is the like like you you get you get that he has not taken the loss to the end.
+[00:36:44] Will: The Cinemax is out. Do you have the is the like you get that he has not taken the loss to the end.
 
 [00:36:53] Adam: No.
 
@@ -1028,7 +1028,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:37:03] Will: No,
 
-[00:37:03] Norm: they, you know, they have heart to heart moment,
+[00:37:03] Norm: they they have heart to heart moment,
 
 [00:37:08] Adam: and so explain to me, I somehow something I missed about that scene. I might have been looking away or something, but so Banner says, " Take your hand off me," right?
 
@@ -1090,7 +1090,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:38:30] Norm: it doesn't matter what you do as long as the stones are in place. If the stones are in place, time will reconcile itself. Accept it, deal with it. That's yeah.
 
-[00:38:41] Will: I love, I love, love, love that they say Back to the Future rules are bullshit, and then they completely do the Back to the Future thing and put all the people in their pasts where they have to like avoid interacting with their past selves. It's it's absolutely lovely.
+[00:38:41] Will: I love that they say Back to the Future rules are bullshit, and then they completely do the Back to the Future thing and put all the people in their pasts where they have to like avoid interacting with their past selves. It's absolutely lovely.
 
 [00:38:53] Adam: I thought it was hilarious. Again, this is part of what we were talking about—the walk down memory lane of all the Marvel films. I thought it was hilarious to go spend so much time with. Cap in what I think is my least favorite of Captain America's uniforms, the Avengers uniform,
 
@@ -1136,7 +1136,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:39:53] Norm: he’s gotta hung the shield up though.
 
-[00:39:54] Will: the the sequence with the Ant Man. Getting old and young and old and young establishes that they can make people any age they want.
+[00:39:54] Will: the sequence with the Ant Man. Getting old and young and old and young establishes that they can make people any age they want.
 
 [00:40:01] Norm: Right.
 
@@ -1178,11 +1178,11 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:40:52] Norm: And that's what makes him earn the Soul Stone.
 
-[00:40:57] Will: Well, this is this is the moment too that I that reinforced the. Oh right, the people who got snapped were the lucky ones in this whole thing, because the people who were left behind are going to be irreparably damaged, even if everybody snapped back.
+[00:40:57] Will: Well, this is the moment too that I that reinforced the. Oh right, the people who got snapped were the lucky ones in this whole thing, because the people who were left behind are going to be irreparably damaged, even if everybody snapped back.
 
 [00:41:07] Adam: Yeah,
 
-[00:41:07] Will: from a five-year five-year absence.
+[00:41:07] Will: from a five-year absence.
 
 [00:41:12] Norm: You have some great closure. They go back to 1970s. You have your Stan Lee cameo,
 
@@ -1194,7 +1194,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:41:20] Norm: which John Slattery playing Howard Stark.
 
-[00:41:22] Adam: Lovely scene, a lovely scene, and the young of I mean, the the the digital aging and de aging has gotten so refined. I mean, Sam Jackson, literally in 20 years, when our kids' kids will start watching these films, they're going to be confused about when Captain Marvel came out.
+[00:41:22] Adam: Lovely scene, a lovely scene, and the young of I mean, the digital aging and de aging has gotten so refined. I mean, Sam Jackson, literally in 20 years, when our kids' kids will start watching these films, they're going to be confused about when Captain Marvel came out.
 
 [00:41:42] Will: It was made in 1996,
 
@@ -1224,7 +1224,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:42:35] Will: Right, she's amazing. Love her. She's amazing. She's like got five scenes. She's amazing.
 
-[00:42:39] Adam: And then Get Shorty and the Thomas Crown Affair. She's oh my god, no, she's she's an amazing actress. And you're right.
+[00:42:39] Adam: And then Get Shorty and the Thomas Crown Affair. She's oh my god, no, she's an amazing actress. And you're right.
 
 [00:42:45] Norm: So
 
@@ -1236,7 +1236,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:42:56] Norm: cut short. Thanos comes. Big battle. All right. Now we can talk about the final battle.
 
-[00:43:00] Will: This, yeah, like so up until this point, surprisingly not very punchy movie. Like we we used to. I remember when.
+[00:43:00] Will: This, yeah, like so up until this point, surprisingly not very punchy movie. Like we used to. I remember when.
 
 [00:43:07] Adam: Yeah. No, a lot of stor—, a lot of groundwork being laid
 
@@ -1256,11 +1256,11 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:43:26] Norm: I haven't seen enough movie yet.
 
-[00:43:28] Will: So I felt like when when they hacked into Nebula and were like seeing through her the other Nebula eyes.
+[00:43:28] Will: So I felt like when they hacked into Nebula and were like seeing through her the other Nebula eyes.
 
 [00:43:32] Adam: that really so upset me. I mean, I really, it's a great plot twist.
 
-[00:43:36] Will: Oh, it's it's it's very good. I didn't see it coming at all, and and I felt like I felt like we were reaching the climax at that point. I felt like we we were there, right? I felt like that was the movie. Anyway,
+[00:43:36] Will: Oh, it's very good. I didn't see it coming at all, and I felt like we were reaching the climax at that point. I felt like we were there, right? I felt like that was the movie. Anyway,
 
 [00:43:44] Adam: my favorite part of the final battle is Cap picking up Thor's hammer.
 
@@ -1274,7 +1274,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:44:18] Norm: Yeah,
 
-[00:44:18] Adam: I like it. In in in Ultron, when Cap, when they're all trying to move the hammer, and Cap moves it ever so slightly, and Thor looks concerned
+[00:44:18] Adam: I like it. In Ultron, when Cap, when they're all trying to move the hammer, and Cap moves it ever so slightly, and Thor looks concerned
 
 [00:44:28] Norm: like I'm not worthy. I'm not worthy. Asgard is doomed.
 
@@ -1302,19 +1302,19 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:45:08] Adam: Yeah.
 
-[00:45:08] Will: But yeah, they and then then they hit the they hit the the the he does the snap and it wrecks him. Right. It's bad for the Hulk.
+[00:45:08] Will: But yeah, they and then they hit the he does the snap and it wrecks him. Right. It's bad for the Hulk.
 
 [00:45:16] Adam: Right. Yeah. Right. Yeah.
 
 [00:45:18] Will: Like it's that that that is a
 
-[00:45:19] Norm: you know he did say it's mostly gamma radiation which was canonical since in the Avengers 2012 he is brought in to search for the stone
+[00:45:19] Norm: He did say it's mostly gamma radiation which was canonical since in the Avengers 2012 he is brought in to search for the stone
 
-[00:45:27] Adam: right because he’s the expert in gamma radiation oh right right right well done um
+[00:45:27] Adam: right because he’s the expert in gamma radiation oh right right right well done
 
-[00:45:31] Will: I just I was I was I expected that to be a point that somebody died
+[00:45:31] Will: I just I was I expected that to be a point that somebody died
 
-[00:45:35] Adam: oh interesting yeah um
+[00:45:35] Adam: oh interesting yeah
 
 [00:45:37] Norm: so big fight the big three walk up there's a great little montage which calls back to the first time they fought each other in the forest
 
@@ -1344,11 +1344,11 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:46:09] Adam: Totally.
 
-[00:46:09] Norm: Overwhelmed when when he stands alone against the forces of Thanos, and it's one against the infinite.
+[00:46:09] Norm: Overwhelmed when he stands alone against the forces of Thanos, and it's one against the infinite.
 
 [00:46:17] Will: You talk about Cap.
 
-[00:46:18] Norm: Cap. Yes, and then you hear you hear the static. You hear Sam.
+[00:46:18] Norm: Cap. Yes, and then you hear the static. You hear Sam.
 
 [00:46:22] Adam: I'm getting. I'm getting choked up.
 
@@ -1360,7 +1360,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:46:52] Adam: Oh,
 
-[00:46:52] Norm: and they're almost like ghostly, and and it's almost like this is it a vision or something?
+[00:46:52] Norm: and they're almost like ghostly, and it's almost like this is it a vision or something?
 
 [00:46:58] Adam: Right, but in that
 
@@ -1432,13 +1432,13 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:49:04] Will: Yeah,
 
-[00:49:04] Norm: they get set up this little mission to set up the the van.
+[00:49:04] Norm: they get set up this little mission to set up the van.
 
 [00:49:07] Adam: Oh yeah, the van.
 
 [00:49:08] Norm: And there's a, they're so cute. There's this wonderful moment where Cap's like, " Someone get to the van," and then Wasp turns the Ant Man goes, " We're on it, Cap." And she's the one who gave him shit in Ant Man: The Wasp for calling him Cap.
 
-[00:49:18] Will: For, for, yeah.
+[00:49:18] Will: For, yeah.
 
 [00:49:18] Norm: Who calls him Cap? He goes. That's what we call him. And she does it, and they look at each other and like, " Oh, we're doing it now."
 
@@ -1492,11 +1492,11 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:51:04] Will: yeah, that's amazing.
 
-[00:51:06] Adam: Yeah, and you know, so moving. I, I, I was afraid we were going to lose Cap. I was.
+[00:51:06] Adam: Yeah, and so moving. I was afraid we were going to lose Cap. I was.
 
 [00:51:17] Will: I'm so glad Cap got the happy ending.
 
-[00:51:18] Adam: I'm so glad Cap got the happy ending. The older Cap coming back from the mission blew my mind. The the aging of Chris Evans for that was some of the best, actually the best aging I have ever seen.
+[00:51:18] Adam: I'm so glad Cap got the happy ending. The older Cap coming back from the mission blew my mind. The aging of Chris Evans for that was some of the best, actually the best aging I have ever seen.
 
 [00:51:30] Will: Yeah, it was really good.
 
@@ -1526,7 +1526,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:52:11] Will: Really clear. Okay.
 
-[00:52:11] Adam: Um, we will talk about this film again.
+[00:52:11] Adam: We will talk about this film again.
 
 [00:52:13] Will: Oh my god,
 
@@ -1536,7 +1536,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:52:20] Adam: we'd love to know your comments also about some of your favorite.
 
-[00:52:24] Will: I want to know what what the moment was like after. Is it like the theater, art theater had big signs said " Get the fuck out after the movie."
+[00:52:24] Will: I want to know what the moment was like after. Is it like the theater, art theater had big signs said " Get the fuck out after the movie."
 
 [00:52:30] Adam: Right.
 

@@ -16,19 +16,19 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:00:42] Will: It's always a good morning these days.
 
-[00:00:44] Adam: Ah, you know, there is yes, it is always a good morning. We are well. We are in the last few weeks of production on MythBusters. This is the big announcement. I guess we're starting right off with it. And my schedule is ludicrous. This moment,
+[00:00:44] Adam: Ah there is yes, it is always a good morning. We are well. We are in the last few weeks of production on MythBusters. This is the big announcement. I guess we're starting right off with it. And my schedule is ludicrous. This moment,
 
 [00:01:00] Will: yeah, it's pretty busy, and
 
 [00:01:00] Adam: I know it's usually ludicrous, but right now it's even more than normal.
 
-[00:01:04] Will: We said this a long time ago, and people who came to the podcast late have never heard it. When Norm and I started working on Tested with you guys in 2012, we thought we were pretty busy up until that point, and then we we got a good grasp of what your schedule is like on an annual basis. And I, I don't, I honestly like now I understand why people have to have people that help them know where to be.
+[00:01:04] Will: We said this a long time ago, and people who came to the podcast late have never heard it. When Norm and I started working on Tested with you guys in 2012, we thought we were pretty busy up until that point, and then we got a good grasp of what your schedule is like on an annual basis. And I, I don't, I honestly like now I understand why people have to have people that help them know where to be.
 
 [00:01:26] Adam: Why you need a team? Yeah.
 
 [00:01:27] Will: Yeah. Why you need a team of people? Because because you guys are you you your time is booked on weekdays. Anytime you're outside of your house, basically.
 
-[00:01:35] Adam: Yeah, yeah, it's true. I mean, and to to to put in in some perspective, I don't think that I fly a lot, but I'm wrong. I I I have my kids. I split custody with my kids with their mom week week right, and I genuinely managed to not have to travel. On the weeks that I have the boys, so over those 25 weeks a year that I don't have the boys, I still fly about 100,000 miles a year.
+[00:01:35] Adam: Yeah, yeah, it's true. I mean, and to put in some perspective, I don't think that I fly a lot, but I'm wrong. I have my kids. I split custody with my kids with their mom week week right, and I genuinely managed to not have to travel. On the weeks that I have the boys, so over those 25 weeks a year that I don't have the boys, I still fly about 100,000 miles a year.
 
 [00:02:04] Norm: Wow! Just in those weeks.
 
@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:02:11] Will: It’s a lot. Vacations. Yeah, that's 40 cross countries.
 
-[00:02:14] Adam: It's it it works out to something close to that. I mean, you know, we were in Abu Dhabi this summer, and
+[00:02:14] Adam: It's it works out to something close to that. I mean we were in Abu Dhabi this summer, and
 
 [00:02:19] Norm: hey, we try not burying the lead, but let's talk about that Star Wars trailer.
 
@@ -60,13 +60,13 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:03:41] Adam: I showed you guys the phone footage.
 
-[00:03:45] Will: Oh yeah, yeah. You showed us two angles because you showed us the the.
+[00:03:45] Will: Oh yeah, yeah. You showed us two angles because you showed us the.
 
 [00:03:50] Adam: Yeah
 
-[00:03:50] Will: , there's a shot. There's like a two-thirds isometric, and then there's one from the side. The the one from the side was unbelievable.
+[00:03:50] Will: there's a shot. There's like a two-thirds isometric, and then there's one from the side. The one from the side was unbelievable.
 
-[00:03:57] Adam: Yeah, it really. We didn't even expect that that would. I know, I know, it's awful. I'm so sorry.
+[00:03:57] Adam: Yeah, it really. We didn't even expect that that would. I know, it's awful. I'm so sorry.
 
 [00:04:02] Norm: I'm so sorry.
 
@@ -78,7 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:04:15] Will: of MythBusters. What, I mean, at this point you have a team that you've worked with now for a really, really long time.
 
-[00:04:23] Adam: Some of them have been with us as long as 12 years, and I think you know the the the shortest timer is like seven years. Oh. So this is a family. It is a family, and it is an incredible, incredible crew. And I might have said this before, but it's also a small crew. We're only about 19, 20 people in San Francisco, and if you walk on the set of most television shows, it's like 70 or 80 people on that set. So we really like it intimate and Quiet and, like I said, it's family in every sense of the word. We've all seen each other at our best. Yeah. And we have all seen each other at our worst.
+[00:04:23] Adam: Some of them have been with us as long as 12 years, and I think you know the shortest timer is like seven years. Oh. So this is a family. It is a family, and it is an incredible, incredible crew. And I might have said this before, but it's also a small crew. We're only about 19, 20 people in San Francisco, and if you walk on the set of most television shows, it's like 70 or 80 people on that set. So we really like it intimate and Quiet and, like I said, it's family in every sense of the word. We've all seen each other at our best. Yeah. And we have all seen each other at our worst.
 
 [00:04:58] Will: Well, and and I mean, I have to imagine that that has to be. I mean, it's emotional anytime you you wrap something up after a long period of time.
 
@@ -86,11 +86,11 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:05:09] Will: but the like just just the people is the thing that that that I got I get upset about.
 
-[00:05:15] Adam: Yeah, well, you know, one thing is Jamie and I do extracurricular stuff. We've done some stuff for corporations. Uh, the fact is, is whenever we do, um, we try and hire our people to do it, and most of the time we're successful. And I, I truly hope to keep as many of these folks busy in the next year as I can Uh, because I work incredibly well with this group. And one of the things we say to clients is, if you'd like this video to be done in the time frame that we want to do it in, because it's very tight, um, you got to hire our crew because our crew knows exactly how to work with us.
+[00:05:15] Adam: Yeah, well one thing is Jamie and I do extracurricular stuff. We've done some stuff for corporations. The fact is, is whenever we do we try and hire our people to do it, and most of the time we're successful. And I, I truly hope to keep as many of these folks busy in the next year as I can because I work incredibly well with this group. And one of the things we say to clients is, if you'd like this video to be done in the time frame that we want to do it in, because it's very tight you got to hire our crew because our crew knows exactly how to work with us.
 
 [00:05:51] Norm: So how do you feel though? I mean, how do you feel looking back? You've had a few weeks to digest. and go through the interviews.
 
-[00:05:58] Adam: I've had months to deal with this, and to be honest, up until about a week ago, I was really, really suffering. I went through all the stages of grief. I said this in the EW article, but I mean seriously, like food didn't taste as good, and coming in here to noodle around in the shop was just unsatisfying. You know, we went through this whole post Comic Con destruction here, where it took me about three months to get the shop clean, and I genuinely was grief stricken, semi-depressed on that front. And it, you know, I, I've wrapping that last sequence last week, and the announcement finally being made really, I think, provided the catharsis that turned the corner for me to feel a lot lighter about it. It is great to finally be able to talk about it openly. The outpouring of Of MythBuster love on Twitter. Twitter and social media has been incredible and humbling. I mean, all these people saying you got my kid interested in STEM. I'm an engineer because of you guys. Holy crap! You know that's that that stuff is just. I don't know what to do with it except put it in my pocket and be glad that we had that interaction with people. You know?
+[00:05:58] Adam: I've had months to deal with this, and to be honest, up until about a week ago, I was really, really suffering. I went through all the stages of grief. I said this in the EW article, but I mean seriously, like food didn't taste as good, and coming in here to noodle around in the shop was just unsatisfying. We went through this whole post Comic Con destruction here, where it took me about three months to get the shop clean, and I genuinely was grief stricken, semi-depressed on that front. And it I, I've wrapping that last sequence last week, and the announcement finally being made really, I think, provided the catharsis that turned the corner for me to feel a lot lighter about it. It is great to finally be able to talk about it openly. The outpouring of MythBuster love on Twitter. Twitter and social media has been incredible and humbling. I mean, all these people saying you got my kid interested in STEM. I'm an engineer because of you guys. Holy crap! You know that's that that stuff is just. I don't know what to do with it except put it in my pocket and be glad that we had that interaction with people. You know?
 
 [00:07:11] Norm: And I don't think you're gonna say thank you, right?
 
@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:07:23] Norm: , right. And you're not gonna feel that until you know you have guys like Jason Reitman who love MythBusters and informs how they think, critically think, but could be 10, 15 years from now before the next you know batch of astronauts.
 
-[00:07:36] Adam: Yeah, you know, and it's parents come up and we've become sort of. I've said this before, but I think we've become sort of patron saints of autism spectrum disorder. You know, I do the signings at Maker Faire. I'm sorry, I didn't go last year. But whenever I do those signings. There's parents who come up and say your show is the only thing my kid slows down for, and it showed them that there was a possibility. And again, this isn't this is so far outside our original mission that is astonishing. So I love this show. I love making this show. I i i will miss making it. I really am excited about the next the next stage. And one of the great things about the the Twitter feed, my Twitter responses is a lot of people are saying exactly what I'm thinking, which is they're saying can't wait to see what happens on Tested next year,
+[00:07:36] Adam: Yeah and it's parents come up and we've become sort of. I've said this before, but I think we've become sort of patron saints of autism spectrum disorder. I do the signings at Maker Faire. I'm sorry, I didn't go last year. But whenever I do those signings. There's parents who come up and say your show is the only thing my kid slows down for, and it showed them that there was a possibility. And again, this isn't this is so far outside our original mission that is astonishing. So I love this show. I love making this show. I will miss making it. I really am excited about the next stage. And one of the great things about the Twitter feed, my Twitter responses is a lot of people are saying exactly what I'm thinking, which is they're saying can't wait to see what happens on Tested next year,
 
 [00:08:29] Unknown speaker: Me too.
 
@@ -128,27 +128,27 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:09:39] Will: Okay.
 
-[00:09:31] Adam: I mean, I don't know that it's ever going to come up again. I don't know if Discovery, you know, I don't know what's going to happen, but I can't stop collecting myths. And it's not like I'm going to start to reboot MythBusters because I'm not. We're we're we're finished with this show. But it's still in my nature. Every time I see a news story that has something testable in it, to put that on a list, and so it still goes on. Four things went on in the last few days.
+[00:09:31] Adam: I mean, I don't know that it's ever going to come up again. I don't know if Discovery I don't know what's going to happen, but I can't stop collecting myths. And it's not like I'm going to start to reboot MythBusters because I'm not. We're finished with this show. But it's still in my nature. Every time I see a news story that has something testable in it, to put that on a list, and so it still goes on. Four things went on in the last few days.
 
 [00:10:07] Norm: I think there's a place for that.
 
 [00:10:08] Adam: There is a place for that. Look, if someone else starts to make a Mythbusters show, I've got a lot of ideas for them.
 
-[00:10:13] Will: When you when you do the Christmas special, you know,
+[00:10:13] Will: When you do the Christmas special
 
 [00:10:16] Adam: with the little Gary Coleman Chewbacca,
 
-[00:10:18] Will: right? And and and then Jamie gets buried in rubble under the building, and the whole family has to wait at the side. I think that may be the Brady now special.
+[00:10:18] Will: right? And then Jamie gets buried in rubble under the building, and the whole family has to wait at the side. I think that may be the Brady now special.
 
 [00:10:26] Adam: Now, speaking of burying the lead, we are going to talk about the Star Wars trailer. But I have to tell you a story.
 
 [00:10:32] Will: Okay, I love stories.
 
-[00:10:34] Adam: You will. You'll just. You're not prepared for how intense the story is. Um,
+[00:10:34] Adam: You will. You'll just. You're not prepared for how intense the story is.
 
 [00:10:39] Will: I'll set my phone to silent.
 
-[00:10:40] Adam: So, uh, I have been doing Mythbusters for 14 years. One of my favorite things we've been doing on this show over the years is the driving stuff. I was not a great driver when we started doing Mythbusters. I was semi distracted. I Just didn't I didn't pay enough attention, and MythBusters has turned me into a bona fide stunt driver.
+[00:10:40] Adam: So I have been doing Mythbusters for 14 years. One of my favorite things we've been doing on this show over the years is the driving stuff. I was not a great driver when we started doing Mythbusters. I was semi distracted. I Just didn't I didn't pay enough attention, and MythBusters has turned me into a bona fide stunt driver.
 
 [00:11:01] Will: You guys have done a literal few dozen amazing car stunts.
 
@@ -164,13 +164,13 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:11:32] Adam: What was the question?
 
-[00:11:33] Norm: How much does your brain? I mean, when you say you weren't a good driver beforehand and afterward, it like you put in some context how much actually it takes to to learn to be a good driver.
+[00:11:33] Norm: How much does your brain? I mean, when you say you weren't a good driver beforehand and afterward, it like you put in some context how much actually it takes to learn to be a good driver.
 
-[00:11:43] Adam: Well, you know, it's it's iterative, like any skill. So you get you get good at things and you learn to internalize them. Probably. Until a couple of days ago, the best example of this was I was back east with my wife, and we were driving through Westchester County in the winter, and I hit a patch of black ice, and the car started skidding, and I don't think my heart rate raised even a beat as I slowly guided the car back onto the road.
+[00:11:43] Adam: Well it's iterative, like any skill. So you get good at things and you learn to internalize them. Probably. Until a couple of days ago, the best example of this was I was back east with my wife, and we were driving through Westchester County in the winter, and I hit a patch of black ice, and the car started skidding, and I don't think my heart rate raised even a beat as I slowly guided the car back onto the road.
 
 [00:12:13] Norm: Just like Glenn,
 
-[00:12:13] Adam: and it's just like, you know, no problem. Two days later, my wife had to go. Stop aiming for the black ice. Oh, because I found it really fun. But you know, all the oversteer, understeer stuff that I've learned just made that a trivial thing to deal with. A couple of days ago, I am driving back from. Where were we? We drove somewhere with the boys and the dogs, and we were driving back in my Land Cruiser.
+[00:12:13] Adam: and it's just like no problem. Two days later, my wife had to go. Stop aiming for the black ice. Oh, because I found it really fun. But all the oversteer, understeer stuff that I've learned just made that a trivial thing to deal with. A couple of days ago, I am driving back from. Where were we? We drove somewhere with the boys and the dogs, and we were driving back in my Land Cruiser.
 
 [00:12:44] Will: It's a lot of people in the Land Cruiser.
 
@@ -240,11 +240,11 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:15:44] Will: Thing one or thing two?
 
-[00:15:45] Adam: Uh, thing one.
+[00:15:45] Adam: Thing one.
 
 [00:15:46] Will: Oh yeah.
 
-[00:15:47] Adam: Um. I didn't. Here's what. Here's where it showed. Where it showed was that I couldn't get to sleep that night. I didn't get to sleep until about two a.m. in the hotel in Vegas. I had to fly that evening to Las Vegas to do an appearance. Yesterday, this all happened on Sunday. Wow. And
+[00:15:47] Adam: I didn't. Here's what. Here's where it showed. Where it showed was that I couldn't get to sleep that night. I didn't get to sleep until about two a.m. in the hotel in Vegas. I had to fly that evening to Las Vegas to do an appearance. Yesterday, this all happened on Sunday. Wow. And
 
 [00:16:06] Will: were you just replaying it in your head over and over again?
 
@@ -278,7 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:17:10] Adam: . Because this was going to happen. This is like I saw the bolt. The bolt was absolutely sheared. It's a it's 1982, so it's a 24 year old.
 
-[00:17:19] Will: Yeah, it could have it could have happened when you're coming in off Skyline or something really windy.
+[00:17:19] Will: Yeah, it could have happened when you're coming in off Skyline or something really windy.
 
 [00:17:22] Adam: 34 year old bolt.
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:19:05] Will: Yeah.
 
-[00:19:05] Adam: Um. I don't know.
+[00:19:05] Adam: I don't know.
 
 [00:19:06] Will: I've got a. I've got a pair. I've got four for the Kabuki at four o'clock on Friday.
 
@@ -350,7 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:19:15] Will: Four o'clock in the afternoon.
 
-[00:19:17] Norm: For sure. Oh, Friday. Got it, got it. The
+[00:19:17] Norm: For sure. Oh, Friday. Got it. The
 
 [00:19:18] Will: first show is on Thursday.
 
@@ -362,7 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:19:23] Norm: Oh
 
-[00:19:23] Adam: . For like three days. Uh. So I'll have to work that out. Um. But.
+[00:19:23] Adam: For like three days. So I'll have to work that out. But.
 
 [00:19:28] Norm: I'll assume yes.
 
@@ -380,11 +380,11 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:19:51] Adam: Well, what they're saying is the final.
 
-[00:19:52] Norm: What they're saying, I believe it. Uh, it doesn't feel like a final theatrical trailer because. Like the other trailers before, while you're seeing a lot of visual elements, it doesn't tell you anything about the story that you didn't already know No.
+[00:19:52] Norm: What they're saying, I believe it. It doesn't feel like a final theatrical trailer because. Like the other trailers before, while you're seeing a lot of visual elements, it doesn't tell you anything about the story that you didn't already know No.
 
 [00:20:06] Adam: Well, well, the girl seems to be more prominent.
 
-[00:20:09] Norm: Yes. So I know some people out there will not want to hear too much spoiler. We can we can have like
+[00:20:09] Norm: Yes. So I know some people out there will not want to hear too much spoiler. We can have like
 
 [00:20:14] Adam: about what we're assuming.
 
@@ -394,7 +394,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:20:16] Will: I was going in cold. Thanks guys.
 
-[00:20:18] Norm: Well, you watched the trailer. We made you watch the trailer. What were your like just without describing what's in the trailer or something? What were your feelings? Um.
+[00:20:18] Norm: Well, you watched the trailer. We made you watch the trailer. What were your like just without describing what's in the trailer or something? What were your feelings?
 
 [00:20:26] Adam: Oh God,
 
@@ -404,7 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:20:29] Will: shut up and take my money. I want to see this right now.
 
-[00:20:32] Adam: Um. I remind myself that I was excited at the episode one trailer.
+[00:20:32] Adam: I remind myself that I was excited at the episode one trailer.
 
 [00:20:36] Will: It was a really good trailer.
 
@@ -412,11 +412,11 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:20:39] Norm: No, it wasn't.
 
-[00:20:39] Will: when the when the when the when the things come over the grassy hill and you're like, oh, there's going to be a huge fight. It's going to be outside on grass. It can be like hoth, but outside. I want to see the and then
+[00:20:39] Will: when the things come over the grassy hill and you're like, oh, there's going to be a huge fight. It's going to be outside on grass. It can be like hoth, but outside. I want to see the and then
 
 [00:20:48] Norm: there's a lot of Jar Jar in that trailer also.
 
-[00:20:50] Adam: Oh yeah. Well, anyway, um, I got Misty. I got Misty. It felt great. I'm really excited about. I'm just really excited. I feel like I'm seeing exactly what Abrams does, which was pay homage and to modernize the the franchise. And he is the you know all you have to do is watch eight millimeter. No,
+[00:20:50] Adam: Oh yeah. Well, anyway I got Misty. I got Misty. It felt great. I'm really excited about. I'm just really excited. I feel like I'm seeing exactly what Abrams does, which was pay homage and to modernize the franchise. And he is the you know all you have to do is watch eight millimeter. No,
 
 [00:21:12] Will: eight millimeter. Don't watch eight millimeter.
 
@@ -426,13 +426,13 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:21:23] Adam: Hey, Mom! He is bottle fed and vat grown on Spielberg and Lucas, and has retained, I think, their abilities of framing, and I mean framing in the wide scale and love of adventurous storytelling. And so I just I have the highest hopes for this.
 
-[00:21:41] Will: It made me think. It made me think. So we won't get into specifics yet. We'll talk about it in a minute. It made me think about the original trilogy from a different perspective. Hmm. So I I thought, what would you know these events that we all have watched hundreds of times probably and are. Intimately familiar with, look like to some poor schmo on you know Coruscant or or well Endor probably those guys the Endor genocide is yeah is well established in the literature.
+[00:21:41] Will: It made me think. It made me think. So we won't get into specifics yet. We'll talk about it in a minute. It made me think about the original trilogy from a different perspective. Hmm. So I I thought, what would you know these events that we all have watched hundreds of times probably and are. Intimately familiar with, look like to some poor schmo on you know Coruscant or well Endor probably those guys the Endor genocide is yeah is well established in the literature.
 
 [00:22:10] Adam: Yeah, that
 
 [00:22:12] Norm: moon has the moon they're all gravitational wells.
 
-[00:22:15] Will: Bad bad things happen when a Death Star explodes in low orbit over your over your planet.
+[00:22:15] Will: Bad bad things happen when a Death Star explodes in low orbit over your planet.
 
 [00:22:19] Adam: I would imagine.
 
@@ -470,17 +470,17 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:23:08] Norm: two in R2,
 
-[00:23:09] Adam: you you kind of imagine. looking at it-
+[00:23:09] Adam: you kind of imagine. looking at it-
 
 [00:23:13] Norm: There's in the teaser trailer, and I believe in the trailer, there's a brief shot of a fire at night, and you see R2
 
 [00:23:20] Adam: and a hand reaches out his cloak, a mechanical hand,
 
-[00:23:20] Norm: and you assume that's you assume that's Luke. So he's also not on the movie poster.
+[00:23:20] Norm: and you assume that's Luke. So he's also not on the movie poster.
 
 [00:23:27] Will: Well, is he? There are several masked characters Norm.
 
-[00:23:29] Norm: He says he's obviously he. Mark Hamill has said on on Instagram he is not Kylo Ren
+[00:23:29] Norm: He says he's obviously he. Mark Hamill has said on Instagram he is not Kylo Ren
 
 [00:23:34] Will: because clearly in the lead up to a marketing for a J J Abrams film, no one's ever lied.
 
@@ -488,9 +488,9 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:23:42] Will: They've never put a character in one costume and had another character do the voice.
 
-[00:23:45] Norm: They've in in captions in Vanity Fair. Yes, it's very clear. Adam Driver is Kylo Ren. Okay, so where's Luke? The obviously the Han Solo and and little Princess Leia relationship and every their their appearances, and I think Han Solo has the best line in the trailer.
+[00:23:45] Norm: They've in captions in Vanity Fair. Yes, it's very clear. Adam Driver is Kylo Ren. Okay, so where's Luke? The obviously the Han Solo and little Princess Leia relationship and every their appearances, and I think Han Solo has the best line in the trailer.
 
-[00:24:02] Will: I think that's the the important most important thing from the trailer. Is all true. Is the it's all true?
+[00:24:02] Will: I think that's the important most important thing from the trailer. Is all true. Is the it's all true?
 
 [00:24:06] Adam: Right you realize it's become mythology over the last 30 years.
 
@@ -498,11 +498,11 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:24:18] Adam: right?
 
-[00:24:18] Will: And then there's 40 years, basically 35 years, and all of the stuff that happened that we know about the the Jedi fight at the end of Episode Four,
+[00:24:18] Will: And then there's 40 years, basically 35 years, and all of the stuff that happened that we know about the Jedi fight at the end of Episode Four,
 
 [00:24:27] Adam: right?
 
-[00:24:27] Will: The the the Bespin fight. There were no witnesses.
+[00:24:27] Will: The Bespin fight. There were no witnesses.
 
 [00:24:31] Adam: Those are all isolated Jedi incidents.
 
@@ -514,15 +514,15 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:24:40] Adam: right?
 
-[00:24:40] Will: In in the in Mos Eisley.
+[00:24:40] Will: In the in Mos Eisley.
 
-[00:24:43] Adam: Exactly. Exactly. So that's it's it's really exciting. Yeah,
+[00:24:43] Adam: Exactly. Exactly. So that's it's really exciting. Yeah,
 
-[00:24:47] Norm: the trailer or the poster, because there was a theatrical poster, which I'm not the biggest fan of. It's not a Drew Struzan, um, but it has Kylo Ren with his crosshilt lightsaber and Daisy Ridley's character, which I don't exactly remember her name. I think I believe it's Rey, but she has her staff, and they're lined together.
+[00:24:47] Norm: the trailer or the poster, because there was a theatrical poster, which I'm not the biggest fan of. It's not a Drew Struzan but it has Kylo Ren with his crosshilt lightsaber and Daisy Ridley's character, which I don't exactly remember her name. I think I believe it's Rey, but she has her staff, and they're lined together.
 
 [00:25:06] Adam: Yeah.
 
-[00:25:06] Norm: So. I know in the the extended universe doesn't exist in this new movie trilogy, but in the extended universe there was a set of twins. There, I believe, Han and Leia had twins, and they both had force powers, and it was a big part of that story. Oh, and so this could be paying it could be paying homage to that. I don't know.
+[00:25:06] Norm: So. I know in the extended universe doesn't exist in this new movie trilogy, but in the extended universe there was a set of twins. There, I believe, Han and Leia had twins, and they both had force powers, and it was a big part of that story. Oh, and so this could be paying it could be paying homage to that. I don't know.
 
 [00:25:30] Will: I wouldn't hold my breath.
 
@@ -530,7 +530,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:25:39] Adam: I get the feeling that Luke might be the Yoda,
 
-[00:25:41] Norm: or the Yoda or the Spock. Right, where where in 2009, you know, we knew Leonard Nimoy was part of the movie, but his his appearance in it was a surprise. It was in the middle of the movie, and he connects everything together. And what I love about and we're talking about Star Trek in this context is they didn't have to kill Spock
+[00:25:41] Norm: or the Yoda or the Spock. Right, where in 2009 we knew Leonard Nimoy was part of the movie, but his his appearance in it was a surprise. It was in the middle of the movie, and he connects everything together. And what I love about and we're talking about Star Trek in this context is they didn't have to kill Spock
 
 [00:25:58] Adam: right
 
@@ -538,13 +538,13 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:26:00] Unknown speaker: for that matter,
 
-[00:26:00] Norm: or or Kirk and in Spock, Leonard Nimoy, you know, rest in peace. He got. His character got to live on in that universe, just in the background. I love that he got he got to walk off into the sunset for some.
+[00:26:00] Norm: or Kirk and in Spock, Leonard Nimoy rest in peace. He got. His character got to live on in that universe, just in the background. I love that he got to walk off into the sunset for some.
 
 [00:26:12] Adam: Yeah.
 
 [00:26:12] Norm: I don't know if that's going to happen here.
 
-[00:26:14] Adam: Well, I don't know either. I also i I found myself loving the shot of Han and Chewie with their arms up, lowering their arms. This is a classic American cinema shot in which your heroes think they're in trouble, but they end up meeting an old friend.
+[00:26:14] Adam: Well, I don't know either. I also i found myself loving the shot of Han and Chewie with their arms up, lowering their arms. This is a classic American cinema shot in which your heroes think they're in trouble, but they end up meeting an old friend.
 
 [00:26:32] Norm: Yeah.
 
@@ -552,7 +552,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:26:39] Norm: Is it Billy Dee?
 
-[00:26:39] Adam: Seven. Oh no, no, no! I, I, I, my, my, my fantasy is that it's Carrie Fisher. Like the film's going to take great. So you imagine from a screenwriting standpoint, Larry Kasdan, and I love you. You imagine from a screenwriting standpoint that you've got to expend a certain amount of energy getting to Han, and then Leia, Han, Leia, and Luke are all reveals. I don't think you just start out knowing about.
+[00:26:39] Adam: Seven. Oh no, no, no! I, my fantasy is that it's Carrie Fisher. Like the film's going to take great. So you imagine from a screenwriting standpoint, Larry Kasdan, and I love you. You imagine from a screenwriting standpoint that you've got to expend a certain amount of energy getting to Han, and then Leia, Han, Leia, and Luke are all reveals. I don't think you just start out knowing about.
 
 [00:27:05] Will: I mean, that's the thing. It's Act One is all. What's happened in the 20 years since?
 
@@ -564,11 +564,11 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:27:17] Norm: For all intents and purposes, they are special appearances, guest appearances. We can't. The new trilogy is not going to be about Luke Han and Leia.
 
-[00:27:24] Adam: Also, by the way, I I I have I have no special knowledge on this front. Neither
+[00:27:24] Adam: Also, by the way, I I I have no special knowledge on this front. Neither
 
 [00:27:30] Norm: none of us do.
 
-[00:27:30] Adam: Yeah. Um, I the the things that I've heard from behind the scenes are merely qualitative things, like friends of mine at Lucasfilm who are saying it's awesome.
+[00:27:30] Adam: Yeah. I the things that I've heard from behind the scenes are merely qualitative things, like friends of mine at Lucasfilm who are saying it's awesome.
 
 [00:27:40] Norm: Yeah. God. My theory is that Adam Driver is redeemed.
 
@@ -578,7 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:27:59] Adam: right? I mean, it's pretty. I think I love the way he holds that lightsaber—the kind of aggressive way he's holding it every time it goes on. It's not like. A more elegant age. This is more like I'm going to slice you in half, motherfucker.
 
-[00:28:12] Will: But then, but then you also see Rey, looking incredibly angry. Yeah, like she's shooting a blaster and looking super, super pissed. So, I mean,
+[00:28:12] Will: But then you also see Rey, looking incredibly angry. Yeah, like she's shooting a blaster and looking super, super pissed. So, I mean,
 
 [00:28:22] Adam: I also think that she's. I also found myself wondering that that structure you see her climbing on in the beginning of the trailer looks an awful like a lot like the structure Obi Wan was on in Star Wars when he disables the Death Star tractor beam.
 
@@ -598,7 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:28:51] Will: If what's his name is there,
 
-[00:28:55] Adam: there is a there is a parody Twitter feed that is only tweeting quotes from Dune, except wherever the word spice is, they've added the word. Pumpkin
+[00:28:55] Adam: there is a parody Twitter feed that is only tweeting quotes from Dune, except wherever the word spice is, they've added the word. Pumpkin
 
 [00:29:08] Norm: spice.
 
@@ -608,7 +608,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:29:18] Will: Oh, yeah, that's good.
 
-[00:29:19] Adam: It's the it's the pumpkin spice that allows them to do what they do.
+[00:29:19] Adam: It's the pumpkin spice that allows them to do what they do.
 
 [00:29:24] Norm: And having, if you watch the movie, you hear in that voice, "
 
@@ -622,7 +622,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:29:45] Adam: Well, hopefully, he's more interesting than El Diablo.
 
-[00:29:47] Will: Okay, so, but I am just saying, there is always there is always a low level bad guy, and then there is the big bad.
+[00:29:47] Will: Okay, so, but I am just saying, there is always a low level bad guy, and then there is the big bad.
 
 [00:29:54] Norm: You don't hire Adam Driver to not be complex.
 
@@ -652,7 +652,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:31:04] Will: yeah, yeah, Duel of the Fates is incredible,
 
-[00:31:06] Adam: John. John Williams is just the master. The master. It's like when you start to when you start to make a list of iconic movie soundtrack themes, and you realize they're all John's. I mean, but they-
+[00:31:06] Adam: John. John Williams is just the master. The master. It's like when you start to make a list of iconic movie soundtrack themes, and you realize they're all John's. I mean, but they-
 
 [00:31:19] Will: the knock against John Williams is they kind of all sound the same.
 
@@ -678,7 +678,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:31:41] Adam: Close Encounters is still amazing.
 
-[00:31:43] Will: I, you know, I haven't watched that in about 20 years. I need to go back to it again.
+[00:31:43] Will: I I haven't watched that in about 20 years. I need to go back to it again.
 
 [00:31:46] Adam: It's fantastic.
 
@@ -750,7 +750,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:33:51] Adam: Right, right, right.
 
-[00:33:51] Norm: It's Goonies. It's Super Eight. You know, it's it's ragtag team of people from different places coming together and then having an impact on the world,
+[00:33:51] Norm: It's Goonies. It's Super Eight. It's ragtag team of people from different places coming together and then having an impact on the world,
 
 [00:33:59] Will: which is the best of Star Wars.
 
@@ -760,15 +760,15 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:34:06] Adam: Exactly.
 
-[00:34:06] Norm: over the over the new Death Star.
+[00:34:06] Norm: over the new Death Star.
 
-[00:34:07] Will: John Boyega is riding in the basket of of Daisy Ridley Ridley's bicycle.
+[00:34:07] Will: John Boyega is riding in the basket of Daisy Ridley Ridley's bicycle.
 
 [00:34:13] Norm: The last thing I will say about speculation. Is if you look at the original cast announcement, there's one person that they announced in the cast that has not appeared in anything.
 
 [00:34:24] Adam: Oh, who is that?
 
-[00:34:26] Norm: I don't even want to say it. Even I think by saying it, I think we'll say well. But if you if you if you want to think about it, you can look at the original press releases for like
+[00:34:26] Norm: I don't even want to say it. Even I think by saying it, I think we'll say well. But if you want to think about it, you can look at the original press releases for like
 
 [00:34:34] Adam: What a tease.
 
@@ -776,9 +776,9 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:34:36] Adam: Oh yeah, no, I know you will.
 
-[00:34:37] Norm: Yeah, John Boyega, Daisy Ridley, the newcomers, and then there's like a cast photo. Remember that classic black and white photo where they're all at the round table and stuff like that. And people people forgotten that they announced a cast member that has not, and it's not Donald Gleeson. Um,
+[00:34:37] Norm: Yeah, John Boyega, Daisy Ridley, the newcomers, and then there's like a cast photo. Remember that classic black and white photo where they're all at the round table and stuff like that. And people people forgotten that they announced a cast member that has not, and it's not Donald Gleeson.
 
-[00:34:52] Adam: all right, all right.
+[00:34:52] Adam: all right.
 
 [00:34:53] Will: If you haven't seen it, somebody Medley Weaver went back and recut
 
@@ -786,9 +786,9 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:34:58] Will: footage from the original trilogy using the same voiceover techniques as is used in the Force Awakens trailer
 
-[00:35:05] Norm: and and um soundtrack.
+[00:35:05] Norm: and soundtrack.
 
-[00:35:07] Will: Yeah, and soundtrack. It is it is fabulous.
+[00:35:07] Will: Yeah, and soundtrack. It is fabulous.
 
 [00:35:10] Adam: All right
 
@@ -796,7 +796,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:35:12] Norm: I will totally do that
 
-[00:35:12] Will: . Um, if you search for, there's an IO9 story that's called " This Force Awakens style trailer with the original trilogy footage gives us thrills." Chills,
+[00:35:12] Will: If you search for, there's an IO9 story that's called " This Force Awakens style trailer with the original trilogy footage gives us thrills." Chills,
 
 [00:35:19] Adam: chills,
 
@@ -814,7 +814,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:35:33] Will: I think it's a good idea.
 
-[00:35:34] Adam: Specific questions about MythBusters ending. You know, I'd love to answer the answer your question.
+[00:35:34] Adam: Specific questions about MythBusters ending. I'd love to answer the answer your question.
 
 [00:35:39] Will: It probably won't be next week.
 
@@ -834,7 +834,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:35:48] Adam: Yes.
 
-[00:35:48] Will: Yeah, we recorded this this morning.
+[00:35:48] Will: Yeah, we recorded this morning.
 
 [00:35:50] Norm: We did. This is like real time.
 

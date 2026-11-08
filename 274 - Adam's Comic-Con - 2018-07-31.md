@@ -30,7 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:01:08] Will: Oh, wow!
 
-[00:01:08] Adam: I I actually interviewed the deputy director of the space station, Robyn Gatens, who's also known as the Empress of ECLSS, which is she oversees the environmental control systems of the of the space station. And my friend astronaut Cady Coleman.
+[00:01:08] Adam: I actually interviewed the deputy director of the space station, Robyn Gatens, who's also known as the Empress of ECLSS, which is she oversees the environmental control systems of the space station. And my friend astronaut Cady Coleman.
 
 [00:01:25] Will: Oh, awesome!
 
@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:01:59] Will: Into low Earth orbit. Yeah. It's amazing.
 
-[00:02:01] Adam: It's totally awesome. It was really inspiring. It's a it's a terrific conference, and it really is all about how to utilize the resource of this incredible scientific laboratory in low Earth orbit, and what we can do, and how we can use it as a stepping stone, both for planetary exploration, solar system exploration, but also better understanding what goes on down here.
+[00:02:01] Adam: It's totally awesome. It was really inspiring. It's a terrific conference, and it really is all about how to utilize the resource of this incredible scientific laboratory in low Earth orbit, and what we can do, and how we can use it as a stepping stone, both for planetary exploration, solar system exploration, but also better understanding what goes on down here.
 
 [00:02:22] Norm: Because the station itself, it is a stepping stone. That's not the end game.
 
@@ -62,7 +62,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:02:55] Adam: and we would have attempted to bring 10 times more stuff than we needed in terms of weight, right? Like all of that." In in situ resource allocation that they utilization that they hope to do on Mars that they're going to learn on the Moon and learn on asteroids building rocket fuel in space in situ, it's an invaluable resource. It's really really cool.
 
-[00:03:16] Will: I mean, if you think about it, when when the shuttle program, like in the in the heat of the shuttle program, we still didn't really know if you could build if you could grow plants in zero gravity, right? We didn't know what would happen when you put put seeds in in dirt in zero gravity. Seed. we didn't know what we like. Yeah,
+[00:03:16] Will: I mean, if you think about it, when the shuttle program, like in the heat of the shuttle program, we still didn't really know if you could build if you could grow plants in zero gravity, right? We didn't know what would happen when you put put seeds in dirt in zero gravity. Seed. we didn't know what we like. Yeah,
 
 [00:03:31] Adam: and now it turns out that when you're growing tissue, you can, very different things happen in microgravity than they do under gravity. You're no longer crushing subsequent layers under the layers that you're growing, and all of a sudden, all sorts of brand new things become possible.
 
@@ -84,7 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:04:51] Will: It's really cool.
 
-[00:04:52] Adam: That was really neat. So I am still dressed for this, and since Mel and I are working on the on a cockpit thing we're working on here in the in the shop,
+[00:04:52] Adam: That was really neat. So I am still dressed for this, and since Mel and I are working on the on a cockpit thing we're working on here in the shop,
 
 [00:05:00] Norm: Secret project.
 
@@ -154,11 +154,11 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:07:03] Norm: Perfect.
 
-[00:07:03] Adam: And and I'm hanging out with thing two. And this big—is it Luigi or Mario?
+[00:07:03] Adam: And I'm hanging out with thing two. And this big—is it Luigi or Mario?
 
 [00:07:11] Norm: Mario,
 
-[00:07:11] Adam: Mario. This big Mario comes over, and the the hat with the big mustache and the big costume,
+[00:07:11] Adam: Mario. This big Mario comes over, and the hat with the big mustache and the big costume,
 
 [00:07:17] Norm: cosplaying. Wow.
 
@@ -238,11 +238,11 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:10:05] Adam: I can't let go of this. I am holding a spring steel, battle ready, full tang, a Boromir sword, hand built by the amazing and incomparable Peter Lyon, sword master at Weta Workshop, and this was effectively Weta Workshop's birthday present to me.
 
-[00:10:22] Will: So this is this is essentially a replica of the hero Boromir sword.
+[00:10:22] Will: So this is essentially a replica of the hero Boromir sword.
 
 [00:10:26] Adam: It's a replica of the hero Boromir sword, and it is in every way a real sword. It is sharp as a razor. It is like until the advent of guns, anyone in history would have wanted this sword.
 
-[00:10:36] Will: So, so you've had you you have a history of handing me things and watching my reaction to them and being amused by them.
+[00:10:36] Will: So, so you've had you have a history of handing me things and watching my reaction to them and being amused by them.
 
 [00:10:42] Adam: Yes.
 
@@ -262,11 +262,11 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:11:05] Adam: Your wrist has a tremendous amount of action. On it, and it feels very natural, like an extension of your body. It's totally amazing. I'm so obsessed with this object right now.
 
-[00:11:15] Will: So I fenced a little bit in college, just for fun, and like it doesn't even feel like those swords that are like practicing, working swords. Like it is, it is like that is clearly a thing that is made for lopping bits off of people.
+[00:11:15] Will: So I fenced a little bit in college, just for fun, and it doesn't even feel like those swords that are like practicing, working swords. Like it is like that is clearly a thing that is made for lopping bits off of people.
 
 [00:11:29] Adam: That's what my wife said when I handed her the sword. She goes, " Oh, I could totally take off someone's head with this."
 
-[00:11:32] Will: Have you have you done like you need to do like a video of you around the house doing like common household tasks with it, like slicing a cucumber?
+[00:11:32] Will: Have you done like you need to do a video of you around the house doing like common household tasks with it, like slicing a cucumber?
 
 [00:11:39] Adam: Oh my god, you're totally right. Yeah, we totally have to do that.
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:11:56] Norm: we've shown this in videos before. He has a shelf where he has the hero ones that he made for the film,
 
-[00:12:02] Adam: and and so he showed us some of its qualities, and he said to Joey, " Here, go ahead and grab the end." And so Joey grabbed the end and did this to it. He if I can't look. Anyway, yeah, it it's spring steel, so it bends on a—it bends.
+[00:12:02] Adam: and so he showed us some of its qualities, and he said to Joey, " Here, go ahead and grab the end." And so Joey grabbed the end and did this to it. He if I can't look. Anyway, yeah, it it's spring steel, so it bends on a—it bends.
 
 [00:12:15] Norm: Oh wow!
 
@@ -310,13 +310,13 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:13:12] Norm: What? In his youth,
 
-[00:13:13] Will: in his youth, yeah, like he's he's had many, he's had a great many fascinating jobs. You should let him tell the story. It's very good.
+[00:13:13] Will: in his youth, yeah, like he's had many, he's had a great many fascinating jobs. You should let him tell the story. It's very good.
 
-[00:13:19] Adam: That's like um on the on the Syfy Wire podcast I did last year, Jonathan Frakes revealed that he played Captain America at malls, as a as a thing in his early 20s. Yeah,
+[00:13:19] Adam: That's like on the Syfy Wire podcast I did last year, Jonathan Frakes revealed that he played Captain America at malls, as a thing in his early 20s. Yeah,
 
 [00:13:32] Will: pre-bear, I guess. Yeah, yeah,
 
-[00:13:34] Adam: yeah. So Comic Con was Comic Con was phenomenal.
+[00:13:34] Adam: yeah. So Comic Con was phenomenal.
 
 [00:13:37] Will: The photos from the Totoro, I can't wait to see the video from this.
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:14:13] Norm: just different takes on them.
 
-[00:14:15] Adam: So good, and everyone, I mean, that was that was one of my favorite moments at Comic Con because we all had this shared experience of making this character, most of us in different ways, and then performing that character and seeing its seeing people's response to it, which is it's so invigorating to be in that costume and see people's response.
+[00:14:15] Adam: So good, and everyone, I mean, that was one of my favorite moments at Comic Con because we all had this shared experience of making this character, most of us in different ways, and then performing that character and seeing its seeing people's response to it, which is it's so invigorating to be in that costume and see people's response.
 
 [00:14:36] Will: How did everybody have the same? A similar kind of setup because I know you have a screen in there so you can see out with the camera.
 
@@ -356,7 +356,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:14:57] Will: Okay,
 
-[00:14:57] Adam: rings of rattan, camera under the leaf, but even the sister one to that, the the camera was in the nose, not under the leaf, and it had a slightly different internal construction.
+[00:14:57] Adam: rings of rattan, camera under the leaf, but even the sister one to that, the camera was in the nose, not under the leaf, and it had a slightly different internal construction.
 
 [00:15:06] Will: Did you guys come? Did you do a video where you kind of compared building notes? You talked about okay,
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:15:11] Will: awesome,
 
-[00:15:12] Adam: and and the hospitality of Nerdist is. To be shouted out because Nerdist gave us a space to go have this meetup. Kyle Hill was fantastic.
+[00:15:12] Adam: and the hospitality of Nerdist is. To be shouted out because Nerdist gave us a space to go have this meetup. Kyle Hill was fantastic.
 
 [00:15:22] Norm: An Air conditioned space
 
@@ -374,7 +374,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:15:42] Adam: It's amazing. And FONCO FON Davis built one. I contributed a little R2-D2 head to it. It was.
 
-[00:15:49] Norm: A lot of our friends in the builder community, you know, from Mike McMaster, Tom Spina,
+[00:15:49] Norm: A lot of our friends in the builder community from Mike McMaster, Tom Spina,
 
 [00:15:53] Adam: Gordon Tarpley,
 
@@ -382,7 +382,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:15:54] Adam: yeah,
 
-[00:15:55] Norm: and really creative takes. Like when we think, okay, we're going to build a a costume essentially for a kid who's in a wheelchair and it's Star Wars theme. Like we all jumped to X wing and Tie fighter
+[00:15:55] Norm: and really creative takes. Like when we think, okay, we're going to build a costume essentially for a kid who's in a wheelchair and it's Star Wars theme. Like we all jumped to X wing and Tie fighter
 
 [00:16:08] Will: Millennium Falcon, yeah,
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:17:19] Will: That's so cool.
 
-[00:17:20] Adam: It was really thrilling. What else? There's so much, so much. I mean, obviously, we covered it with a bunch of Tested videos, and I did my cosplay walk in the Wiley Post suit just somewhere around here.
+[00:17:20] Adam: It was really thrilling. What else? There's so much. I mean, obviously, we covered it with a bunch of Tested videos, and I did my cosplay walk in the Wiley Post suit just somewhere around here.
 
 [00:17:31] Will: That those pictures, wow.
 
@@ -424,19 +424,19 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:17:48] Adam: It truly is.
 
-[00:17:49] Norm: You're going, you're going, you're going. You don't realize how tired you are, and then the moment you mentally realize you're done, and your feet goes up, you're out for a couple hours.
+[00:17:49] Norm: You're going. You don't realize how tired you are, and then the moment you mentally realize you're done, and your feet goes up, you're out for a couple hours.
 
-[00:17:57] Will: I mean, it's it's one of the only places I've ever slept. Like I I don't usually sleep on planes.
+[00:17:57] Will: I mean, it's one of the only places I've ever slept. Like I I don't usually sleep on planes.
 
 [00:18:01] Adam: Yeah.
 
-[00:18:01] Will: Um, just not the right size for it. But coming back from Comic Con almost always is a sleep on planes day.
+[00:18:01] Will: Just not the right size for it. But coming back from Comic Con almost always is a sleep on planes day.
 
 [00:18:06] Adam: Yeah.
 
 [00:18:06] Will: Even though it's just a two hour flight.
 
-[00:18:08] Adam: Um, I will tell you my favorite celebrity sighting of Comic Con.
+[00:18:08] Adam: I will tell you my favorite celebrity sighting of Comic Con.
 
 [00:18:11] Will: Yes.
 
@@ -460,7 +460,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:19:34] Will: This is good though. Yeah,
 
-[00:19:36] Adam: but Star Trek crew is a great crew. But it's a it's a that's a big organization matriculation machine.
+[00:19:36] Adam: but Star Trek crew is a great crew. But it's a that's a big organization matriculation machine.
 
 [00:19:41] Will: They have an HR department.
 
@@ -482,9 +482,9 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:19:59] Norm: Yeah.
 
-[00:19:59] Adam: I met I met somebody who made some of my favorite objects, Jason Freeny.
+[00:19:59] Adam: I met somebody who made some of my favorite objects, Jason Freeny.
 
-[00:20:06] Norm: Mm-hmm, mm-hmm.
+[00:20:06] Norm: Mm-hmm.
 
 [00:20:06] Adam: Amazing! That was really awesome to finally get to gush at him about how much I love his work. Oh, you picked me up a Guillermo del Toro action figure.
 
@@ -546,11 +546,11 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:21:28] Norm: cutaways yeah
 
-[00:21:29] Will: I remember when they did the when they did the QMx what Enterprise D I guess
+[00:21:29] Will: I remember when they did the QMx what Enterprise D I guess
 
 [00:21:34] Norm: yeah
 
-[00:21:34] Will: we like that was that was the conversation was how do you make those those those narrow nacelles
+[00:21:34] Will: we like that was the conversation was how do you make those those those narrow nacelles
 
 [00:21:40] Norm: yeah totally Weta is doing resin kits oh man when we visited them in January they said this is a direct credit to you Adam but you had a conversation with their collectibles and model making team David Tremont Leonard and Jules and about a Chappie
 
@@ -576,7 +576,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:23:01] Will: Treebeard was a CG character purely, yeah, presumably right.
 
-[00:23:05] Adam: And this this this sculpture was like four and a half to five feet tall.
+[00:23:05] Adam: And this sculpture was like four and a half to five feet tall.
 
 [00:23:09] Norm: Went you know from here to that light
 
@@ -616,7 +616,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:24:03] Will: The mustache on that one kid is really astounding.
 
-[00:24:05] Adam: The the the, we have footage of the audience response to the trailer, and unfortunately, the footage reveals the volume at about half of what it really was in the room.
+[00:24:05] Adam: The, we have footage of the audience response to the trailer, and unfortunately, the footage reveals the volume at about half of what it really was in the room.
 
 [00:24:16] Will: The trailer was very good. You showed me. I got to see an early cut before you guys left for Comic Con.
 
@@ -636,11 +636,11 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:25:08] Will: That's awesome.
 
-[00:25:09] Adam: Yeah, I love, I love going to Comic Con.
+[00:25:09] Adam: Yeah, I love going to Comic Con.
 
 [00:25:12] Norm: Did you come back and watch all the movie trailers?
 
-[00:25:14] Will: No, I'm not. I'm, I'm, I'm living the Joey life now.
+[00:25:14] Will: No, I'm not. I'm living the Joey life now.
 
 [00:25:16] Adam: Oh yeah, no, me too.
 
@@ -662,7 +662,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:25:53] Will: Gareth Edwards sorry trailer for his Godzilla movie was one of the all time great trailers. Like it's the one with the halo jump. The guys are in the plane. They jump out. There's the red smoke falling. You see them fall between the cloud layers, and then at the very end, you see the hint of the spikes on San Francisco.
 
-[00:26:11] Norm: This evokes that a lot in terms of things in fog, seeing outlines of things, just barely feeling the the scope and the scale of these giant monsters.
+[00:26:11] Norm: This evokes that a lot in terms of things in fog, seeing outlines of things, just barely feeling the scope and the scale of these giant monsters.
 
 [00:26:19] Adam: But it feels like about three times as big as that movie.
 
@@ -722,13 +722,13 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:27:23] Adam: I know you're yelling at the screen right now, telling us what the movie's called.
 
-[00:27:26] Norm: It's it's not blindness, but it's oh god.
+[00:27:26] Norm: It's not blindness, but it's oh god.
 
 [00:27:31] Will: While you're looking it up, I want to shout something out. My wife took our daughter to see a screening of Ponyo on like their summer kids movie series at the Drafthouse yesterday morning.
 
 [00:27:40] Adam: Yeah.
 
-[00:27:40] Will: So they they take one of the smaller theaters, fill it up with kids. The normal Drafthouse rules are off, so like people can talk and because you have a bunch of kids there.
+[00:27:40] Will: So they take one of the smaller theaters, fill it up with kids. The normal Drafthouse rules are off, so like people can talk and because you have a bunch of kids there.
 
 [00:27:48] Adam: Yeah.
 
@@ -784,7 +784,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:29:08] Adam: Holding us back.
 
-[00:29:08] Will: Not the patriarchy. That does not sound great. But um. This is a good show, guys. Thanks for see you all next week. I guess
+[00:29:08] Will: Not the patriarchy. That does not sound great. But. This is a good show, guys. Thanks for see you all next week. I guess
 
 [00:29:15] Adam: see you all next week.
 

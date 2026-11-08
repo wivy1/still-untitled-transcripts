@@ -58,29 +58,29 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:01:30] Joe: That's right.
 
-[00:01:30] Adam: And the thing is, is that you, you, you are a scientist, and you have a lab in Mission Bay. But the thing that I love talking about all things with you is that while you're while you have a specialty, you're also a very wide ranging generalist.
+[00:01:30] Adam: And the thing is, is that you are a scientist, and you have a lab in Mission Bay. But the thing that I love talking about all things with you is that while you're while you have a specialty, you're also a very wide ranging generalist.
 
 [00:01:46] Joe: Yeah, absolutely. I mean, I I admire the scientists that can really drill down and work on one little thing for 40 years. I mean, there's an important place for those kind of people, but I just get interested in a lot of different things. You know, if someone sends me a dead corvid. I'm gonna work on it.
 
 [00:02:02] Adam: That's exactly my thing. I love dead cor— I actually i love live corvids, but if I can find an old dead one, I certainly will remount it.
 
-[00:02:08] Will: It's it's really funny you say that because the common wisdom. I'm I'm a little younger than you guys, I think. But when I was an undergraduate, I got a biochemistry degree, and my advisor was like, " Hey, what are you gonna do with this? I was like, maybe I'll go to med school. I don't know. Maybe I'll get a master’s. He's like, " Well, look, you have to decide now because, like, if you're gonna go, if you don't bother with a master's, you're just gonna end up sucking pipettes someplace." I was like, " This is incredibly frank advice from a college professor," and I was like, " I really like learning a lot, a little bit about a lot of stuff." He's like, " Well, then don't go into hard science. You need to go go to business school, get an MBA or something like that." What
+[00:02:08] Will: It's really funny you say that because the common wisdom. I'm a little younger than you guys, I think. But when I was an undergraduate, I got a biochemistry degree, and my advisor was like, " Hey, what are you gonna do with this? I was like, maybe I'll go to med school. I don't know. Maybe I'll get a master’s. He's like, " Well, look, you have to decide now because if you're gonna go, if you don't bother with a master's, you're just gonna end up sucking pipettes someplace." I was like, " This is incredibly frank advice from a college professor," and I was like, " I really like learning a lot, a little bit about a lot of stuff." He's like, " Well, then don't go into hard science. You need to go go to business school, get an MBA or something like that." What
 
 [00:02:39] Adam: terrible advice!
 
-[00:02:40] Will: And and yeah, like his his whole the whole approach of everything I got as an undergraduate was look, you need to figure out what you're gonna do and then devote 30 or 40 years to that and really dig in.
+[00:02:40] Will: And yeah, like his his whole the whole approach of everything I got as an undergraduate was look, you need to figure out what you're gonna do and then devote 30 or 40 years to that and really dig in.
 
-[00:02:50] Joe: Yeah, I really find that to be a sort of bad attitude. I mean, there's a lot of people who are generalists and want to do a lot of different things and explore a lot of different areas of science, and you know, you shouldn't try and put those people in a box and make everybody work on something for 40 years. There are those people who can do that and focus on one tiny thing for their entire career. That's great. We're lucky to have them.
+[00:02:50] Joe: Yeah, I really find that to be a sort of bad attitude. I mean, there's a lot of people who are generalists and want to do a lot of different things and explore a lot of different areas of science, and you shouldn't try and put those people in a box and make everybody work on something for 40 years. There are those people who can do that and focus on one tiny thing for their entire career. That's great. We're lucky to have them.
 
 [00:03:10] Will: Yeah,
 
 [00:03:10] Joe: I'm not one of them.
 
-[00:03:11] Adam: But but let's also this from a philosophical standpoint. It's quite interesting because a lot of the quote scientific debate online occurs between people who are scientists saying science gets fuzzier the closer you look at it. The lines that science tries to taxonomically taxonomically draw between things, which are great for broad categories, become really useless when you drill down. The categories for gender and sex, for instance, are hotly debated. And in science itself, like when we hired experts on MythBusters, our worst experts were the ones who were super expert in one field. They couldn't help us extrapolate that to the three other fields we had to encompass in a in a testing scenario.
+[00:03:11] Adam: But let's also this from a philosophical standpoint. It's quite interesting because a lot of the quote scientific debate online occurs between people who are scientists saying science gets fuzzier the closer you look at it. The lines that science tries to taxonomically taxonomically draw between things, which are great for broad categories, become really useless when you drill down. The categories for gender and sex, for instance, are hotly debated. And in science itself, like when we hired experts on MythBusters, our worst experts were the ones who were super expert in one field. They couldn't help us extrapolate that to the three other fields we had to encompass in a testing scenario.
 
-[00:03:57] Joe: Yeah, sure. You know, I I just like having fun. You know, there's going to be fun things to work on. Something that interests me or catches my attention, I'm just going to do it because I I find it interesting. Want to Go where my curiosity goes, and that's what I tell my students. Right, you know, if you are not having fun coming in here and doing this, you are not chasing your own passion or curiosity. You shouldn't be here.
+[00:03:57] Joe: Yeah, sure. I just like having fun. There's going to be fun things to work on. Something that interests me or catches my attention, I'm just going to do it because I I find it interesting. Want to Go where my curiosity goes, and that's what I tell my students. Right, you know, if you are not having fun coming in here and doing this, you are not chasing your own passion or curiosity. You shouldn't be here.
 
-[00:04:17] Will: I mean, that was the one good piece of advice my advisor gave me. In fairness, he was like, " Look, find something you think is fun. Go do that for 40 years." So, anyway, yeah, it's the but finding the thing that's fun is the important part. It seems like to me, the people I know who work in science, whether it's in private or private industry or in public labs, are are people who are driven by gaining that knowledge.
+[00:04:17] Will: I mean, that was the one good piece of advice my advisor gave me. In fairness, he was like, " Look, find something you think is fun. Go do that for 40 years." So, anyway, yeah, it's the but finding the thing that's fun is the important part. It seems like to me, the people I know who work in science, whether it's in private or private industry or in public labs, are people who are driven by gaining that knowledge.
 
 [00:04:38] Joe: Yeah, have I ever told you about the snakes?
 
@@ -88,7 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:04:43] Will: This is a very Hannibal Lecter way to start a sentence.
 
-[00:04:46] Joe: So, you know, most people, you know, how do they think about a project? You know, they think of some scientific idea, they get out of a journal, they write a grant, they try and get funding for that thing. You know, and that's the way it usually goes. One time, I received a letter in the mail. How many times you get a project in a letter in the mail?
+[00:04:46] Joe: So most people, you know, how do they think about a project? They think of some scientific idea, they get out of a journal, they write a grant, they try and get funding for that thing. And that's the way it usually goes. One time, I received a letter in the mail. How many times you get a project in a letter in the mail?
 
 [00:05:00] Unknown (Adam or Will): Yeah.
 
@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:05:32] Adam: IBD.
 
-[00:05:34] Joe: And I thought, okay, that's weird. I'm going to put it back in the envelope. But you know, that envelope stayed on my desk for a while, and then eventually, I opened the envelope back up. I called a veterinarian. Have you ever heard of like, you know, IBD? Is that inflammatory bowel disease of a reptile? I mean, that's weird. Don't they eat just like once a year?
+[00:05:34] Joe: And I thought, okay, that's weird. I'm going to put it back in the envelope. But you know, that envelope stayed on my desk for a while, and then eventually, I opened the envelope back up. I called a veterinarian. Have you ever heard of like IBD? Is that inflammatory bowel disease of a reptile? I mean, that's weird. Don't they eat just like once a year?
 
 [00:05:49] Unknown (Adam or Will): Yeah.
 
@@ -110,13 +110,13 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:05:59] Unknown (Adam or Will): Yeah.
 
-[00:05:59] Joe: It turns out that they do this thing called stargazing, where they they they point their heads at the sky and they wave gently back and forth
+[00:05:59] Joe: It turns out that they do this thing called stargazing, where they point their heads at the sky and they wave gently back and forth
 
 [00:06:07] Adam: Wow.
 
 [00:06:07] Joe: until they die.
 
-[00:06:09] Will: Whoa. Wow. So it it induces a behavioral change that's sufficient enough to. Kill them.
+[00:06:09] Will: Whoa. Wow. So it induces a behavioral change that's sufficient enough to. Kill them.
 
 [00:06:14] Adam: It makes them the audience member of an air supply concert.
 
@@ -172,11 +172,11 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:07:18] Adam: I love the simplest possible.
 
-[00:07:22] Joe: And then, so I got down to a bunch of searches where you know it'd be like this guy going, you know, some guy in Texas. Hey, y'all, take a look at my snake. It's doing this weird thing with his head, and you know, it's the classic stargazing thing. You're like, oh my god, that's it.
+[00:07:22] Joe: And then, so I got down to a bunch of searches where you know it'd be like this guy going some guy in Texas. Hey, y'all, take a look at my snake. It's doing this weird thing with his head, and it's the classic stargazing thing. You're like, oh my god, that's it.
 
 [00:07:36] Will: Sorry, buddy.
 
-[00:07:36] Joe: And then there was another one. I remember one distinctly. I'm going to paraphrase, not the exact thing, but it was like, Hey, this is Chad at XXXSnakeCharmer.com, and you know, Elsie here's just been acting weird lately. You know, she does this thing with her head, and like, oh my god, that's it. So it's everywhere. Yeah, we find tons of it. We got you know.
+[00:07:36] Joe: And then there was another one. I remember one distinctly. I'm going to paraphrase, not the exact thing, but it was like, Hey, this is Chad at XXXSnakeCharmer.com, and Elsie here's just been acting weird lately. She does this thing with her head, and like, oh my god, that's it. So it's everywhere. Yeah, we find tons of it. We got you know.
 
 [00:07:58] Will: So, so then you send a note to these people, and you're like, Hey, your snake is
 
@@ -190,7 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:08:12] Adam: Oh, there you go.
 
-[00:08:14] Joe: Because you know, They eventually take them to the vet,
+[00:08:14] Joe: Because They eventually take them to the vet,
 
 [00:08:15] Unknown (Joe or Will): Okay.
 
@@ -204,7 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:08:47] Adam: Is it zoonosis? Can you catch it by eating them?
 
-[00:08:49] Joe: And you know, apparently, you can get a sort of a finder's fee in Florida for killing Burmese pythons in the Everglades.
+[00:08:49] Joe: And apparently, you can get a sort of a finder's fee in Florida for killing Burmese pythons in the Everglades.
 
 [00:08:55] Adam: Oh, right.
 
@@ -218,7 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:09:25] Joe: So instead of just kind of guessing, like okay, I think it has the flu, or I think it has adenovirus, or something like this, and you go test for that one thing that you think it's there, we have to discover what's new here. So, in essence, what we do is we just sequence the bejesus out of everything. So sequencing technology, reading the nucleic acid, the DNA, the RNA, the stuff of life, that's gotten really, really cheap. I mean, super cheap. In fact, like
 
-[00:09:50] Will: what what is super cheap?
+[00:09:50] Will: what is super cheap?
 
 [00:09:52] Joe: The cost has decreased about 50,000 fold in the last 10 years.
 
@@ -242,13 +242,13 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:10:22] Joe: So we sequenced the bejesus about all these snakes. Lo and behold, there's a new virus in there, like totally new virus, and it's a relative. The cool thing about it, it's called an arenavirus. It's a relative of the largest family of human hemorrhagic fever viruses.
 
-[00:10:39] Adam: Like like Ebola.
+[00:10:39] Adam: Like Ebola.
 
-[00:10:40] Joe: Well, Ebola is a hemorrhagic fever virus, but it's not the largest family. People, you know, Ebola gets all the love and all the scary stuff, but arenavirus, which unfortunately has many different names of different types in different parts of the world, kills way more people by hemorrhagic fever than Ebola. So it goes by the names of Lassa fever,
+[00:10:40] Joe: Well, Ebola is a hemorrhagic fever virus, but it's not the largest family. People Ebola gets all the love and all the scary stuff, but arenavirus, which unfortunately has many different names of different types in different parts of the world, kills way more people by hemorrhagic fever than Ebola. So it goes by the names of Lassa fever,
 
 [00:10:55] Unknown (Adam, Joe, or Will): Oh,
 
-[00:10:55] Joe: Machupo, Junin, and many other names, and and but they're all arenaviruses. If they had one name, they would get the more the better respect.
+[00:10:55] Joe: Machupo, Junin, and many other names, and but they're all arenaviruses. If they had one name, they would get the more the better respect.
 
 [00:11:06] Will: Look, it's a good name goes a long way. When you're naming,
 
@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:11:10] Joe: Yeah.
 
-[00:11:10] Adam: So when you're when you're crunching the sequencing,
+[00:11:10] Adam: So when you're crunching the sequencing,
 
 [00:11:13] Joe: Yeah. How do you find out what's in there?
 
@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:11:17] Unknown (Adam or Joe): Absolutely.
 
-[00:11:17] Joe: Well, There's a there's a bigger problem. How do you how do you know what's snake and what's not snake?
+[00:11:17] Joe: Well, There's a bigger problem. How do you know what's snake and what's not snake?
 
 [00:11:22] Will: Right. That was where I was. Yeah.
 
@@ -278,11 +278,11 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:11:32] Adam: Yeah.
 
-[00:11:32] Joe: And they've got you know the Steinhardt Aquarium there, like some really great snakes, and our our friends down there, you know, were offered to take a little blood sample from one of their red-tailed boas. I'm trying to remember the boa's name. I think it was Balthazar.
+[00:11:32] Joe: And they've got you know the Steinhardt Aquarium there, like some really great snakes, and our friends down there were offered to take a little blood sample from one of their red-tailed boas. I'm trying to remember the boa's name. I think it was Balthazar.
 
 [00:11:50] Adam: That sounds like a good boa constrictor name.
 
-[00:11:51] Joe: And so we we sequenced that red-tailed boa, which was not sick, not doing any of the head grazing thing. And by the way, this disease for zoos and aquariums, big deal. If they get a snake that does the head wavy thing, they kill every snake in the facility.
+[00:11:51] Joe: And so we sequenced that red-tailed boa, which was not sick, not doing any of the head grazing thing. And by the way, this disease for zoos and aquariums, big deal. If they get a snake that does the head wavy thing, they kill every snake in the facility.
 
 [00:12:05] Adam: Right, right. That's like mad cow disease.
 
@@ -298,7 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:12:39] Adam: Okay, but there's more than one kind of boa, so if there's a separate boa than a red tail, those two genomes are going to be different enough where the sequence might think one part of one snake is not snake, right?
 
-[00:12:50] Joe: Yeah, but you know, just like us and chimpanzees, it's like 99. I mean, you could use pretty much any boa, and it'll match.
+[00:12:50] Joe: Yeah, but just like us and chimpanzees, it's like 99. I mean, you could use pretty much any boa, and it'll match.
 
 [00:12:56] Adam: I see. So you could use any boa.
 
@@ -308,7 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:13:03] Adam: Okay.
 
-[00:13:03] Joe: All right, so we scorched earth, sequenced the boa, and and then we ask, what's what's snake, what's not snake, and then you're left with only like you know a tiny amount of data because most of it's snake, and in that data now we search across. All known viruses and every other infectious disease, and look for distant matches, so really fuzzy matching.
+[00:13:03] Joe: All right, so we scorched earth, sequenced the boa, and then we ask, what's what's snake, what's not snake, and then you're left with only like you know a tiny amount of data because most of it's snake, and in that data now we search across. All known viruses and every other infectious disease, and look for distant matches, so really fuzzy matching.
 
 [00:13:23] Adam: And some of the stuff you're filtering out are things like the gut biome and mites that live on its scales and stuff like that.
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:13:44] Joe: Absolutely, you know, that's a really important point. There's arguments over this right now. So there's a microbiome in your gut. There's a microbiome in your lungs, on your skin. There's no damn microbiome in your central nervous system.
 
-[00:13:53] Will: Or or—
+[00:13:53] Will: Or—
 
 [00:13:54] Joe: No, we've looked.
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:14:00] Will: Okay.
 
-[00:14:01] Joe: It's really good. People who argue otherwise, you know, I question them.
+[00:14:01] Joe: It's really good. People who argue otherwise I question them.
 
 [00:14:04] Will: But there's not some like weird thing like glial cells have different biomes because they were evolved from some different bath or anything like that.
 
@@ -350,7 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:14:13] Will: Okay.
 
-[00:14:14] Joe: So we find this thing, and then we match it against all the viruses, and we get this distant hit. Like, oh, this might be arenavirus. But here's the here's the kicker, right? So we're not done yet. Yeah. We sequence this arenavirus. Great, super cool. It's a new virus, but its coat protein, the outside of the protein, isn't arenavirus. It's something else, and its closest family that it maps to is yes, Ebola.
+[00:14:14] Joe: So we find this thing, and then we match it against all the viruses, and we get this distant hit. Like, oh, this might be arenavirus. But here's the kicker, right? So we're not done yet. Yeah. We sequence this arenavirus. Great, super cool. It's a new virus, but its coat protein, the outside of the protein, isn't arenavirus. It's something else, and its closest family that it maps to is yes, Ebola.
 
 [00:14:38] Will: Oh.
 
@@ -366,9 +366,9 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:15:03] Will: Well, does this give us a hint at where these viruses came from and how they jumped to people?
 
-[00:15:07] Joe: Well, now isn't that interesting? Okay. Because we've sequenced a lot of these arenaviruses now, and there's a lot of them in snakes. A much bigger diversity of them than we've ever seen in the the mammal ones that cause hemorrhagic fever. Which suggests, if you look at the differences between them, sort of geologic timescales, because these things were in dinosaurs.
+[00:15:07] Joe: Well, now isn't that interesting? Okay. Because we've sequenced a lot of these arenaviruses now, and there's a lot of them in snakes. A much bigger diversity of them than we've ever seen in the mammal ones that cause hemorrhagic fever. Which suggests, if you look at the differences between them, sort of geologic timescales, because these things were in dinosaurs.
 
-[00:15:27] Will: Because just to be clear, the the hemorrhagic fevers are bad viruses for human hosts because they kill us too quick, right? And that’s right, that’s right, right.
+[00:15:27] Will: Because just to be clear, the hemorrhagic fevers are bad viruses for human hosts because they kill us too quick, right? And that’s right, right.
 
 [00:15:34] Joe: So it suggests that the boa and the python are not actually the reservoir.
 
@@ -408,11 +408,11 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:16:36] Adam: So we don't know where we don't know what the carrier is necessarily.
 
-[00:16:39] Joe: The reservoir for Ebola virus still remains unclear. There's a lot of people working on it. A lot of speculation, and there's evidence, you know, circumstantial evidence that does support the bat, but you know, I'm not so sure.
+[00:16:39] Joe: The reservoir for Ebola virus still remains unclear. There's a lot of people working on it. A lot of speculation, and there's evidence circumstantial evidence that does support the bat, but I'm not so sure.
 
 [00:16:51] Adam: Fascinating.
 
-[00:16:52] Will: It's. I mean, this stuff. Okay, so this all started with a letter from somebody who was worried that their that their emotional support was going okay. Okay,
+[00:16:52] Will: It's. I mean, this stuff. Okay, so this all started with a letter from somebody who was worried that their emotional support was going okay. Okay,
 
 [00:16:59] Joe: go on.
 
@@ -424,7 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:17:12] Joe: Or I guess it's this.
 
-[00:17:13] Will: Yeah, it's probably it could be this or this or this. Let's try this cream and see what works.
+[00:17:13] Will: Yeah, it's probably it could be this or this. Let's try this cream and see what works.
 
 [00:17:16] Joe: Yeah. How about let's not guess?
 
@@ -450,7 +450,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:17:41] Joe: No.
 
-[00:17:41] Adam: Meyer Sound are the guys that made the the the the PA systems for The Grateful Dead, and they basically invented amazing technologies for being able to let everyone in a a giant outdoor arena hear the sound all at the correct time.
+[00:17:41] Adam: Meyer Sound are the guys that made the PA systems for The Grateful Dead, and they basically invented amazing technologies for being able to let everyone in a giant outdoor arena hear the sound all at the correct time.
 
 [00:17:57] Will: That's why Shoreline sounds good,
 
@@ -468,17 +468,17 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:19:00] Adam: But that's you reminded me of John Meyer. You said we just look for the data. Why, why waste your time with all this other stuff?
 
-[00:19:06] Joe: We do the same thing for human patients. You know, someone comes in and has some bad thing, and you can't figure out what it is. Instead of taking the sort of candidate approach and guessing what might be there, you just sequence the bejesus out of everything. Look, every pathogen has DNA or RNA, with the exception of a prion, and we're not going to talk about prions.
+[00:19:06] Joe: We do the same thing for human patients. Someone comes in and has some bad thing, and you can't figure out what it is. Instead of taking the sort of candidate approach and guessing what might be there, you just sequence the bejesus out of everything. Look, every pathogen has DNA or RNA, with the exception of a prion, and we're not going to talk about prions.
 
-[00:19:23] Will: So you know, okay, don't eat sheep brains.
+[00:19:23] Will: So okay, don't eat sheep brains.
 
-[00:19:25] Joe: Exactly. Yeah, good idea. And so you can just let the data tell you what's there, and it's very, you know, in this way, you can find a lot of surprising things. We can talk about some human patients too.
+[00:19:25] Joe: Exactly. Yeah, good idea. And so you can just let the data tell you what's there, and it's very in this way, you can find a lot of surprising things. We can talk about some human patients too.
 
 [00:19:34] Adam: Well, but you said that we hadn't yet even talked about prions.
 
 [00:19:37] Will: Yeah, well, you promised a good part.
 
-[00:19:39] Joe: All right, so you know, the end of the snake stories. Mr. Larry's still fine. Now we know what causes IBD. Zoos and you know, aquariums and all that stuff.
+[00:19:39] Joe: All right, so you know, the end of the snake stories. Mr. Larry's still fine. Now we know what causes IBD. Zoos and aquariums and all that stuff.
 
 [00:19:48] Adam: Do we know how it's transmitted?
 
@@ -486,9 +486,9 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:19:56] Will: No, of course not.
 
-[00:19:56] Joe: No, so there's these things called Koch's postulates, where you know to prove it causes a disease, you got to take the pure organism and you got to inject it into a healthy organism and recapitulate the disease, and you know that's stuck with us for years and years and years, and so we still have to do that. So we actually prepared a large amount of the virus because we could grow it. Actually, how do you grow a new virus like that?
+[00:19:56] Joe: No, so there's these things called Koch's postulates, where you know to prove it causes a disease, you got to take the pure organism and you got to inject it into a healthy organism and recapitulate the disease, and you know that's stuck with us for years and so we still have to do that. So we actually prepared a large amount of the virus because we could grow it. Actually, how do you grow a new virus like that?
 
-[00:20:18] Will: I mean, this is this is a yeah. How would you do it? We usually use something alive, right? So you get a live live matter
+[00:20:18] Will: I mean, this is a yeah. How would you do it? We usually use something alive, right? So you get a live live matter
 
 [00:20:24] Joe: Let’s assume we’re at UCSF and you cannot bring live boas into the facility.
 
@@ -500,13 +500,13 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:20:40] Adam: I visited the parasitology lab, and there's a lot of wonderful things over there.
 
-[00:20:43] Will: ticks, ticks galore in there. Yeah, okay, so no, how do you how do you grow?
+[00:20:43] Will: ticks, ticks galore in there. Yeah, okay, so no, how do you grow?
 
 [00:20:48] Joe: So usually you find cells that you can grow it in.
 
 [00:20:50] Will: Okay,
 
-[00:20:50] Joe: so what cells? Well, snake cells. So you know, there's a catalog called the ATCC catalog of organisms, and you can, you know, American Type Culture Collection. You open it up and you go to snakes, and it turns out you can buy viper heart cells.
+[00:20:50] Joe: so what cells? Well, snake cells. So there's a catalog called the ATCC catalog of organisms, and you can, you know, American Type Culture Collection. You open it up and you go to snakes, and it turns out you can buy viper heart cells.
 
 [00:21:03] Will: Oh,
 
@@ -522,17 +522,17 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:21:10] Joe: Viper heart. You can buy a turtle, some kind of turtle cell line, and that's about it. It was no boa constrictor cell line.
 
-[00:21:16] Will: So is there a better catalog for for snake cells?
+[00:21:16] Will: So is there a better catalog for snake cells?
 
-[00:21:18] Joe: Interesting. You know, again, work the veterinarian network. Called up vets and said, " Look, if you're going to put down any snakes for cancer, give me a call, because you want a cancer cell line, because cancer cell lines are immortal; they never die.
+[00:21:18] Joe: Interesting. Again, work the veterinarian network. Called up vets and said, " Look, if you're going to put down any snakes for cancer, give me a call, because you want a cancer cell line, because cancer cell lines are immortal; they never die.
 
 [00:21:31] Will: Right, right, right. Oh,
 
 [00:21:31] Adam: fascinating. Right, right, right.
 
-[00:21:32] Will: But the the cell otherwise works the same as yeah, well, there's
+[00:21:32] Will: But the cell otherwise works the same as yeah, well, there's
 
-[00:21:36] Joe: [unclear cell fragment], but you know, for a virus, they don't care.
+[00:21:36] Joe: [unclear cell fragment] but for a virus, they don't care.
 
 [00:21:38] Will: Yeah, you don't. Yeah, you don't see that.
 
@@ -572,7 +572,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:23:06] Joe: So it’s like Pulp Fiction,
 
-[00:23:07] Will: straight to the chest. Like you put the marker. He is he is the hypodermic in the cabinet back there.
+[00:23:07] Will: straight to the chest. Like you put the marker. He is the hypodermic in the cabinet back there.
 
 [00:23:12] Adam: Next time I bring an [unclear snake phrase] to your house, I'll give it a shot.
 
@@ -628,17 +628,17 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:24:25] Adam: yeah, yeah, yeah. Of course.
 
-[00:24:25] Joe: And then you find the part where, like, you know, it's like really beating. And then you get so one person then has to hold the tube. Imagine it's a tube and hold the heart in one place. So the heart moves around in there.
+[00:24:25] Joe: And then you find the part where, like it's like really beating. And then you get so one person then has to hold the tube. Imagine it's a tube and hold the heart in one place. So the heart moves around in there.
 
 [00:24:38] Adam: Yeah.
 
-[00:24:38] Joe: And so you you you kind of squeeze it like a sausage with the heart in the middle.
+[00:24:38] Joe: And so you kind of squeeze it like a sausage with the heart in the middle.
 
 [00:24:43] Will: This is it's a good thing that snakes sleep at this point.
 
 [00:24:45] Adam: Dungeon master in history. What do you roll for the cardiac puncture? It's a triple 20.
 
-[00:24:54] Joe: So you hold the tube on both sides, and then the person like takes the syringe and has to like then inject it in the in the heart. Now, so we we brought this we brought the vial of virus which we prepared very carefully at UCSF and packaged in protective stuff and everything. We brought it to this really cool room where we're doing all this, and and the and the.
+[00:24:54] Joe: So you hold the tube on both sides, and then the person like takes the syringe and has to like then inject it in the heart. Now, so we brought this we brought the vial of virus which we prepared very carefully at UCSF and packaged in protective stuff and everything. We brought it to this really cool room where we're doing all this, and the.
 
 [00:25:15] Will: Are you wearing like bunny suits or anything, or is it just masks and shields?
 
@@ -646,17 +646,17 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:25:19] Will: Okay,
 
-[00:25:19] Joe: and that's that's it. And the lab technician is going to do the injection. So lots of other people are holding different parts of the snake. She pulls out the virus in the syringe, and then she turns and she goes flick. You know when you flick the end of the needle to like get the air bubble out.
+[00:25:19] Joe: and that's it. And the lab technician is going to do the injection. So lots of other people are holding different parts of the snake. She pulls out the virus in the syringe, and then she turns and she goes flick. You know when you flick the end of the needle to like get the air bubble out.
 
-[00:25:36] Will: I I that seems bad.
+[00:25:36] Will: I that seems bad.
 
-[00:25:38] Unknown (Joe or Will): I almost I almost [unclear: crapped] my pants.
+[00:25:38] Unknown (Joe or Will): I almost [unclear: crapped] my pants.
 
 [00:25:40] Adam: No, that's cool. Who knows? This is
 
 [00:25:41] Joe: that's she just flicked 1 billion viral particles into the air.
 
-[00:25:44] Adam: That's the that's the shift between Act One and Act Two of the scariest movie. Yeah, yeah.
+[00:25:44] Adam: That's the shift between Act One and Act Two of the scariest movie. Yeah, yeah.
 
 [00:25:50] Will: I've seen the Hot Zone. I know how this works.
 
@@ -676,7 +676,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:26:07] Joe: We're not there yet.
 
-[00:26:07] Will: The cooler full of heads, but you know, let's keep going.
+[00:26:07] Will: The cooler full of heads, but let's keep going.
 
 [00:26:11] Joe: She puts the needle in the heart, and then you know it's in the heart because you can see kind of the blood and the needle pulse up and down.
 
@@ -690,13 +690,13 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:26:28] Joe: Yeah, and it turned out so a bunch of the snakes died in the same way that the disease. So
 
-[00:26:33] Will: it can it can pass the blood barrier and all that.
+[00:26:33] Will: it can pass the blood barrier and all that.
 
 [00:26:35] Joe: Oh yeah. No problem. I mean, there was viruses throughout the whole snake.
 
 [00:26:39] Will: So did you find out a way? Did you find out the mechanism that the virus gets into the snakes in the first place? Is just any kind of environmental?
 
-[00:26:45] Joe: Well, we tested, you know, like saliva and feces, and all. It's everywhere.
+[00:26:45] Joe: Well, we tested like saliva and feces, and all. It's everywhere.
 
 [00:26:49] Will: Okay.
 
@@ -708,11 +708,11 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:26:56] Adam: Right. Right.
 
-[00:26:56] Joe: Just because you find a virus, something you know, association is not causality.
+[00:26:56] Joe: Just because you find a virus, something association is not causality.
 
 [00:27:00] Adam: It's a good place to start looking.
 
-[00:27:02] Joe: It's a good place to start looking. Is the association okay? Well, the next the next kind of wacky idea that came to us in this crazy project was okay. Well, you know, it's got Ebola coat protein. What would happen if we took actual Ebola and try to grow it in our JK snake cells?
+[00:27:02] Joe: It's a good place to start looking. Is the association okay? Well, the next kind of wacky idea that came to us in this crazy project was okay. Well it's got Ebola coat protein. What would happen if we took actual Ebola and try to grow it in our JK snake cells?
 
 [00:27:20] Will: Oh, will it grow in the snake cells? Yeah,
 
@@ -742,11 +742,11 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:28:11] Unknown (Adam or Will): Yeah.
 
-[00:28:11] Joe: And and then they have JK cells. They put them on there, and then they're going to come back the next day and see what happens. Okay, so the next day, the HeLa cells are decimated. They're like dead.
+[00:28:11] Joe: And then they have JK cells. They put them on there, and then they're going to come back the next day and see what happens. Okay, so the next day, the HeLa cells are decimated. They're like dead.
 
 [00:28:21] Adam: Right.
 
-[00:28:21] Joe: JK cells growing happiest clams like nothing happened. So, looked like the experiment failed because they should have. You know, I thought things would have been infected. They would have died.
+[00:28:21] Joe: JK cells growing happiest clams like nothing happened. So, looked like the experiment failed because they should have. I thought things would have been infected. They would have died.
 
 [00:28:30] Adam: Right.
 
@@ -766,7 +766,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:28:53] Will: It gets better.
 
-[00:28:55] Joe: All right. So that's interesting. It means that snake cells on themselves are competent to handle Ebola. Oh, and we sequenced the Ebola that came out of there. Because what if? What if the virus mutated and it had to jump through some, you know, mutational hoops to get into the cell? Oh,
+[00:28:55] Joe: All right. So that's interesting. It means that snake cells on themselves are competent to handle Ebola. Oh, and we sequenced the Ebola that came out of there. Because what if? What if the virus mutated and it had to jump through some mutational hoops to get into the cell? Oh,
 
 [00:29:09] Unknown (Adam or Will): right, right, right. And it's no longer infectious to humans.
 
@@ -784,19 +784,19 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:29:38] Joe: Hmm. All right. So then, the next crazy experiment idea was okay. Well, that worked. No, so this is the wacky proposal. So I said, " All right, USAMRIID friends, what would it take for you to actually infect a live python in the BSL four
 
-[00:29:58] Will: With with with a real wild type?
+[00:29:58] Will: With a real wild type?
 
 [00:30:01] Adam: By the way, we can tell you exactly how to hold it down.
 
-[00:30:04] Will: I assume I assume you don't tell them the process before they say yes, right?
+[00:30:04] Will: I assume you don't tell them the process before they say yes, right?
 
-[00:30:09] Joe: So well, you know, it's a lengthy process. It turns out, turns out that you know, if you really want to do this experiment, and we're submitting a paper on how to do such an experiment right now, you need a lot of protective gear, and you need to work through a lot of what the military calls fault scenarios.
+[00:30:09] Joe: So well it's a lengthy process. It turns out that you know, if you really want to do this experiment, and we're submitting a paper on how to do such an experiment right now, you need a lot of protective gear, and you need to work through a lot of what the military calls fault scenarios.
 
 [00:30:25] Will: What happens? So,
 
-[00:30:26] Joe: like, you know, you can imagine some of the conference calls. Like, so let's work through fault scenario number five. We come in, and there's a hole in the cage, and the snake is gone.
+[00:30:26] Joe: like you can imagine some of the conference calls. Like, so let's work through fault scenario number five. We come in, and there's a hole in the cage, and the snake is gone.
 
-[00:30:34] Will: So now you have an Ebola-infected, you know,
+[00:30:34] Will: So now you have an Ebola-infected
 
 [00:30:37] Joe: constrictor in the facility.
 
@@ -804,9 +804,9 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:30:40] Adam: a wildly muscular escape artist.
 
-[00:30:43] Will: Right. Do the do the do the incinerator vents.
+[00:30:43] Will: Right. Do the incinerator vents.
 
-[00:30:47] Joe: This is this is this is you could. This is a great science fiction novel.
+[00:30:47] Joe: This is you could. This is a great science fiction novel.
 
 [00:30:50] Will: I don't. Doesn't sound like much like science fiction.
 
@@ -818,7 +818,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:30:58] Adam: Yeah.
 
-[00:30:58] Joe: And first one, but the other, my other response is, why is there, why is there a freaking hole in the cage?
+[00:30:58] Joe: And first one, but the other, my other response is, why is there a freaking hole in the cage?
 
 [00:31:03] Adam: Well, how about we get cages with no holes?
 
@@ -828,13 +828,13 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:31:08] Adam: Fault scenario six is tapping the end of the needle.
 
-[00:31:10] Will: Yeah, yeah. Seven is some guy has his hand in the in the snake's mouth, and the gloves are all poked, right?
+[00:31:10] Will: Yeah, yeah. Seven is some guy has his hand in the snake's mouth, and the gloves are all poked, right?
 
 [00:31:17] Joe: Right. Absolutely.
 
 [00:31:17] Will: Poked through the gloves.
 
-[00:31:19] Joe: It turns out you you know to do this experiment, you have to put special wire cages over the air vents.
+[00:31:19] Joe: It turns out you know to do this experiment, you have to put special wire cages over the air vents.
 
 [00:31:24] Will: Oh, right, right.
 
@@ -842,7 +842,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:31:26] Will: Yeah, yeah.
 
-[00:31:26] Joe: And you have to get the sort of chain, you know, chainmail gloves to go over your regular gloves. You are already in a spacesuit in there,
+[00:31:26] Joe: And you have to get the sort of chain chainmail gloves to go over your regular gloves. You are already in a spacesuit in there,
 
 [00:31:34] Adam: right?
 
@@ -860,7 +860,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:31:42] Will: Okay.
 
-[00:31:42] Joe: So we're actually writing up a paper on how to do this experiment. You know, we don't have the final scientific results yet. We're still waiting on it, but you know, snakes were put in the in the BSL four. They were infected, and then they were euthanized and frozen down, and the analysis has not yet been done.
+[00:31:42] Joe: So we're actually writing up a paper on how to do this experiment. We don't have the final scientific results yet. We're still waiting on it, but snakes were put in the BSL four. They were infected, and then they were euthanized and frozen down, and the analysis has not yet been done.
 
 [00:31:58] Adam: Wow.
 
@@ -868,7 +868,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:32:00] Will: Yeah,
 
-[00:32:00] Joe: but you know, just to just to be able to to do the experiment.
+[00:32:00] Joe: but just to be able to do the experiment.
 
 [00:32:04] Will: That's pretty rad.
 
@@ -906,11 +906,11 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:32:54] Adam: What could go wrong?
 
-[00:32:55] Joe: Exactly. So they breed weird color morphs, and they they sell them for lots of money, and they bring in like wild snakes, and they and and they. Have these? Basically, there are reports of some of these facilities that have like 10,000 snakes in them.
+[00:32:55] Joe: Exactly. So they breed weird color morphs, and they sell them for lots of money, and they bring in like wild snakes, and they. Have these? Basically, there are reports of some of these facilities that have like 10,000 snakes in them.
 
 [00:33:09] Adam: Oh my god!
 
-[00:33:09] Joe: Okay, and so you know, I'm thinking this could be ground zero. It'd be really interesting. So we actually got samples from you know certain facilities like this, and including people who worked with such facilities or gave snakes to such facilities and back and forth. And what we discovered is just a huge kingdom of these viruses. Not only that, because they're putting them in close proximity, viruses that probably were on other sides of the world are mixing together in the same pool and
+[00:33:09] Joe: Okay, and so I'm thinking this could be ground zero. It'd be really interesting. So we actually got samples from you know certain facilities like this, and including people who worked with such facilities or gave snakes to such facilities and back and forth. And what we discovered is just a huge kingdom of these viruses. Not only that, because they're putting them in close proximity, viruses that probably were on other sides of the world are mixing together in the same pool and
 
 [00:33:36] Adam: forming like
 
@@ -930,7 +930,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:34:07] Unknown (Adam, Joe, or Will): No,
 
-[00:34:07] Will: the larger question is, does okay? You you figured out what the virus is. You figured out it's related to these other viruses. We know kind of a lot about, but not all all the things that we want to know about them. Obviously,
+[00:34:07] Will: the larger question is, does okay? You figured out what the virus is. You figured out it's related to these other viruses. We know kind of a lot about, but not all all the things that we want to know about them. Obviously,
 
 [00:34:17] Joe: sure.
 
@@ -938,7 +938,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:34:26] Joe: Yeah, there's not a big pharma market for making drugs for snakes.
 
-[00:34:28] Will: I mean, I assume so. But but if the drugs for the snakes fix the drugs for the you know the drugs for the humans, it's the same drugs.
+[00:34:28] Will: I mean, I assume so. But if the drugs for the snakes fix the drugs for the you know the drugs for the humans, it's the same drugs.
 
 [00:34:33] Unknown (Adam or Joe): That’s a great idea.
 
@@ -968,7 +968,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:35:08] Adam: Absolutely horrifying.
 
-[00:35:09] Joe: It was a bad day, but you know you could use this as a model for drug screening because you could use it in a safer way than the the hot agent. So you have a point. I would agree with that.
+[00:35:09] Joe: It was a bad day, but you know you could use this as a model for drug screening because you could use it in a safer way than the hot agent. So you have a point. I would agree with that.
 
 [00:35:19] Adam: You must be chomping at the bit, though, to do the final analysis.
 
@@ -994,11 +994,11 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:36:21] Joe: with a normal grant procedure and so on. So having a little flexibility and freedom to pursue your curiosity is really important.
 
-[00:36:28] Adam: You're basically you're basically an established lab who's also a lot like a grad student.
+[00:36:28] Adam: You're basically an established lab who's also a lot like a grad student.
 
 [00:36:34] Joe: Yeah, absolutely. I like I would I wish I could always be a grad student. The best part of my life.
 
-[00:38:14] Will: Like the core of what you do is sequencing. You you guys do a lot of sequencing, right?
+[00:38:14] Will: Like the core of what you do is sequencing. You guys do a lot of sequencing, right?
 
 [00:38:18] Joe: Yeah, we do a ton of sequencing. I mean, my lab works on many different things, as you can tell. Yeah, we work on malaria, Plasmodium falciparum, which isn't a virus. We work on drug development for that. We work on basic biology. We work on various viruses. We work on people problems.
 
@@ -1018,7 +1018,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:38:50] Will: yeah. Like, look, this is shock radio. This is what we do now.
 
-[00:38:53] Joe: I'll have to do it without pictures or slides. This will be a challenge for me. All right. So you know, this all started with a a 74 old woman here in San Francisco that came to the Chinese hospital with what looked like a UTI infection. She had a little altered mental status. They gave her a Z pack, sent her on her way. But then a couple days later, she has complete blindness in one eye, but no wound, just. Vision stopped in one eye.
+[00:38:53] Joe: I'll have to do it without pictures or slides. This will be a challenge for me. All right. So you know, this all started with a 74 old woman here in San Francisco that came to the Chinese hospital with what looked like a UTI infection. She had a little altered mental status. They gave her a Z pack, sent her on her way. But then a couple days later, she has complete blindness in one eye, but no wound, just. Vision stopped in one eye.
 
 [00:39:13] Unknown (Adam or Will): Wow.
 
@@ -1026,7 +1026,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:39:43] Unknown (Adam or Will): Wow.
 
-[00:39:43] Joe: They hit the emergency red button. They throw her on $150,000 of antibiotics, basically, you know, anti parasitics, anti TB, antibacterials. I mean, you name it, just boom. And they do an MRI, and the MRI looks as like a grenade went off in her brain.
+[00:39:43] Joe: They hit the emergency red button. They throw her on $150,000 of antibiotics, basically anti parasitics, anti TB, antibacterials. I mean, you name it, just boom. And they do an MRI, and the MRI looks as like a grenade went off in her brain.
 
 [00:40:00] Unknown (Adam or Will): Whoa.
 
@@ -1042,7 +1042,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:40:36] Will: That’s just describing what happened.
 
-[00:40:38] Joe: Yeah, it's just like okay, bunch of stuff died. And so we, you know, even though we couldn't save the patient in this case, it's still important us to know what happened because you know what happened that was so fast. And you know, it's also true that 50 or 60%, depending where you're at, of encephalitis is what she had. You know, infection of the brain or inflammation goes completely undiagnosed, even at UCSF. Although that number is going down now because we're doing all this technology. And so we sequence the bejesus out of it. Same game. Now the game is okay. Separate what's human genome from non-human genome, and then look at what's non-human genome. And then we compare that to the world's collection of organisms, and the organism that pops the top of the list is called Balamuthia. I'd never heard of this. What the hell is that? Never looked at it. And it turns out it's neither virus nor bacteria nor a fungus.
+[00:40:38] Joe: Yeah, it's just like okay, bunch of stuff died. And so we even though we couldn't save the patient in this case, it's still important us to know what happened because you know what happened that was so fast. And it's also true that 50 or 60%, depending where you're at, of encephalitis is what she had. Infection of the brain or inflammation goes completely undiagnosed, even at UCSF. Although that number is going down now because we're doing all this technology. And so we sequence the bejesus out of it. Same game. Now the game is okay. Separate what's human genome from non-human genome, and then look at what's non-human genome. And then we compare that to the world's collection of organisms, and the organism that pops the top of the list is called Balamuthia. I'd never heard of this. What the hell is that? Never looked at it. And it turns out it's neither virus nor bacteria nor a fungus.
 
 [00:41:31] Will: Is it an amoeba?
 
@@ -1054,7 +1054,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:41:46] Adam: evil cousin, it is
 
-[00:41:48] Joe: because Naegleria at least you know, okay, warm lakes up the nose. I know how to prevent that. No one knows where Balamuthia comes from.
+[00:41:48] Joe: because Naegleria at least okay, warm lakes up the nose. I know how to prevent that. No one knows where Balamuthia comes from.
 
 [00:41:54] Adam: They still haven’t isolated it.
 
@@ -1084,7 +1084,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:42:25] Adam: Exactly.
 
-[00:42:25] Joe: And so, and when you tested her left, the vitreous fluid in her left eye, it had Balamuthia. So the the vision loss in the left eye was likely the thing.
+[00:42:25] Joe: And so, and when you tested her left, the vitreous fluid in her left eye, it had Balamuthia. So the vision loss in the left eye was likely the thing.
 
 [00:42:33] Adam: Wow.
 
@@ -1100,13 +1100,13 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:42:49] Adam: Whoa.
 
-[00:42:49] Joe: And and so you know that that might be the end of it. You know, there's not a lot. There's only a few hundred cases of Balamuthia ever reported, and that's probably because they're underdiagnosed.
+[00:42:49] Joe: And so you know that that might be the end of it. There's not a lot. There's only a few hundred cases of Balamuthia ever reported, and that's probably because they're underdiagnosed.
 
 [00:43:00] Will: So it's probably
 
 [00:43:02] Joe: there's no diagnostic for it. Yeah. No one, you can't send out for it. No one has a test for it.
 
-[00:43:05] Will: It's like perfectly bad luck on both sides of the of the.
+[00:43:05] Will: It's like perfectly bad luck on both sides of the.
 
 [00:43:09] Joe: Yeah. How much more that 50% of unknown encephalitis though could be things like That they just don't have a test for it. I got another one coming up for you.
 
@@ -1138,7 +1138,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:43:39] Adam: Every episode.
 
-[00:43:41] Joe: So you ask where the science ends? Well, so in that's a case like, all right, well, we could just close the book there. It's Balamuthia. We can fold it up and go home. But but look, there is no medication for this. But what if there's something on the shelf, off the shelf today, like an approved drug? So we set up what's called a high throughput screen. You have basically grow balamuthium in the lab. A lot of trepidation about
+[00:43:41] Joe: So you ask where the science ends? Well, so in that's a case like, all right, well, we could just close the book there. It's Balamuthia. We can fold it up and go home. But look, there is no medication for this. But what if there's something on the shelf, off the shelf today, like an approved drug? So we set up what's called a high throughput screen. You have basically grow balamuthium in the lab. A lot of trepidation about
 
 [00:44:03] Will: that. Probably no clips on that one. Yeah,
 
@@ -1146,7 +1146,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:44:07] Will: Yeah. God. Hat you? Oh no! The sneeze of doom.
 
-[00:44:14] Joe: And and then we. We basically there's about you know 2,700 drugs that are either European or U.S. approved, and we threw them at it. And basically, there was one an old UTI drug,
+[00:44:14] Joe: And then we. We basically there's about you know 2,700 drugs that are either European or U.S. approved, and we threw them at it. And basically, there was one an old UTI drug,
 
 [00:44:25] Will: Hmm.
 
@@ -1158,11 +1158,11 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:44:31] Unknown (Joe or Will): Yeah.
 
-[00:44:31] Joe: No one bothered to do it. So we we actually just put that out there, just published it.
+[00:44:31] Joe: No one bothered to do it. So we actually just put that out there, just published it.
 
 [00:44:35] Will: That's awesome.
 
-[00:44:36] Joe: But that's sort of you know, and maybe someday somebody will try that drug in the context of an infection because if you're diagnosed with Balamuthia, it's a death sentence.
+[00:44:36] Joe: But that's sort of and maybe someday somebody will try that drug in the context of an infection because if you're diagnosed with Balamuthia, it's a death sentence.
 
 [00:44:43] Will: Yeah.
 
@@ -1172,7 +1172,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:44:45] Joe: It's the same with Naegleria. It's very high death rate.
 
-[00:44:47] Will: It's it's always it was always shocking to me the amoeba stuff that like the thing that you go out to ponds as a fifth grader to find and bring back to the classroom and look under the microscope also will eat your brain. Yeah,
+[00:44:47] Will: It's always it was always shocking to me the amoeba stuff that like the thing that you go out to ponds as a fifth grader to find and bring back to the classroom and look under the microscope also will eat your brain. Yeah,
 
 [00:44:57] Joe: yeah. If you put that up your nose,
 
@@ -1188,13 +1188,13 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:45:09] Will: Yeah. Happy. Yeah. Exactly. Yeah,
 
-[00:45:12] Joe: you know it's funny. We, you know, now and then we get calls from people doing science fiction movies and stuff like that for consults and ask about this idea and and a lot of them want to pitch us ideas where a scientist trying to do something actually does something bad that creates something horrible like I am Legends a scientist trying to make a virus to cure cancer accidentally makes zombies
+[00:45:12] Joe: It's funny. We now and then we get calls from people doing science fiction movies and stuff like that for consults and ask about this idea and a lot of them want to pitch us ideas where a scientist trying to do something actually does something bad that creates something horrible like I am Legends a scientist trying to make a virus to cure cancer accidentally makes zombies
 
 [00:45:33] Will: right
 
 [00:45:33] Joe: right and my argument there is why why does it have to be the scientist scientist is a good guy isn't curing cancer not a bad thing why are you making a scientist why was that you know nature comes up with some evil shit
 
-[00:45:46] Adam: well this is a friend of mine who was in bioengineering at MIT said we were we were belly aching about the scaremongering about GMOs and he was like GM we've been genetically modifying food since we've been human that's what's arguably made us human and by the way humans are really shitty bioengineers if you want a great bioengineer try a virus
+[00:45:46] Adam: well this is a friend of mine who was in bioengineering at MIT said we were belly aching about the scaremongering about GMOs and he was like GM we've been genetically modifying food since we've been human that's what's arguably made us human and by the way humans are really shitty bioengineers if you want a great bioengineer try a virus
 
 [00:46:08] Joe: yeah yeah nature's got this down they're
 
@@ -1204,7 +1204,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:46:17] Adam: Yeah.
 
-[00:46:17] Joe: This guy was a construction worker, immigrated from Nicaragua, works in construction, and came into our clinics here in general again, San Francisco, with double vision and headache. So, double vision is always a concern because you know your cranial nerves are the things that control your motion, the eyeball motion. And if you have meningitis, so infection, you know, infection of the covering of the brain, it can knock out cranial nerves, and then your eyes don't turn the right way. So that was a concern there. They did a lumbar puncture, take a little CSF, cerebral spinal fluid, and count how many cells are in there. Usually, it's zero to five. This guy has hundreds of cells, so there's something inflammatory going on in there. And based on his history and his MRIs and everything, they're like, all right, there's got to be TB. So they put him on TB drugs for tuberculosis. They all come with steroids. That's important to manage the inflammation. But steroids, anybody who takes steroids like prednisone feels better. For a while, and this guy feels better for a while, and they wean him off the steroids, and he gets much worse. He starts vomiting, and his face is numb, and he starts ringing the ears. So they put him back on steroids, and put him back on the TB meds. And you must be not taking your meds—that's what's wrong. You're non-compliant. So they make him come in after work and take his meds in front of a nurse every day.
+[00:46:17] Joe: This guy was a construction worker, immigrated from Nicaragua, works in construction, and came into our clinics here in general again, San Francisco, with double vision and headache. So, double vision is always a concern because you know your cranial nerves are the things that control your motion, the eyeball motion. And if you have meningitis, so infection infection of the covering of the brain, it can knock out cranial nerves, and then your eyes don't turn the right way. So that was a concern there. They did a lumbar puncture, take a little CSF, cerebral spinal fluid, and count how many cells are in there. Usually, it's zero to five. This guy has hundreds of cells, so there's something inflammatory going on in there. And based on his history and his MRIs and everything, they're like, all right, there's got to be TB. So they put him on TB drugs for tuberculosis. They all come with steroids. That's important to manage the inflammation. But steroids, anybody who takes steroids like prednisone feels better. For a while, and this guy feels better for a while, and they wean him off the steroids, and he gets much worse. He starts vomiting, and his face is numb, and he starts ringing the ears. So they put him back on steroids, and put him back on the TB meds. And you must be not taking your meds—that's what's wrong. You're non-compliant. So they make him come in after work and take his meds in front of a nurse every day.
 
 [00:47:33] Adam: Wow,
 
@@ -1218,7 +1218,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:47:58] Joe: And his glucose was undetectable, and which is you know a sort of a [unclear] sort of situation. So, same game. Take the CSF, sequence the bejesus out of it. Ask what's not human. And we did that, separated it all out. Any guesses? So this is, you know, if you are in grand rounds, you are like, okay, doctor's thoughts.
 
-[00:48:19] Adam: I I have no degree to speak of.
+[00:48:19] Adam: I have no degree to speak of.
 
 [00:48:22] Will: So where was he? Where was he before?
 
@@ -1250,7 +1250,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:48:49] Will: I have no idea. So I am not a doctor.
 
-[00:48:52] Joe: So he has thousands and thousands and thousands of reads, reads pieces of DNA sequence that mapped only one thing, and it was pork tapeworms.
+[00:48:52] Joe: So he has thousands and thousands of reads, reads pieces of DNA sequence that mapped only one thing, and it was pork tapeworms.
 
 [00:49:04] Will: Oh God,
 
@@ -1262,7 +1262,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:49:09] Joe: Well, let's let's backtrack. How do you get a tapeworm, which everybody thinks about in their gut, in your brain? Do you know?
 
-[00:49:14] Will: Yeah. Yeah, you eat them, and then they get in your blood. They lay eggs in your bloodstream, or something, and then the the eggs attach to the wall of blood vessels, and they burrow through the blood vessels into the muscles.
+[00:49:14] Will: Yeah. Yeah, you eat them, and then they get in your blood. They lay eggs in your bloodstream, or something, and then the eggs attach to the wall of blood vessels, and they burrow through the blood vessels into the muscles.
 
 [00:49:25] Joe: Wow.
 
@@ -1272,7 +1272,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:49:30] Will: I read a lot of Wikipedia, Joe.
 
-[00:49:32] Joe: But but let's get it. Let's let's get let's drill down here and get more granular.
+[00:49:32] Joe: But let's get it. Let's let's get let's drill down here and get more granular.
 
 [00:49:35] Will: Okay.
 
@@ -1300,7 +1300,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:50:05] Adam: Yeah. I remember someone telling me. I remember describing to someone how toxoplasmosis you catch from cat feces, and they're like, " How would you ever get in contact with cat feces? Cat feces?" And I'm like, " Clearly, you've never lived with a cat.
 
-[00:50:17] Will: Next time, next time, my daughter asks why she has to wash her hands before dinner, or why she shouldn't pick her nose. We're going to load up this episode of still untitled the Adam Savage project, and she's going to have an afternoon with Uncle Joe.
+[00:50:17] Will: Next time, my daughter asks why she has to wash her hands before dinner, or why she shouldn't pick her nose. We're going to load up this episode of still untitled the Adam Savage project, and she's going to have an afternoon with Uncle Joe.
 
 [00:50:29] Joe: But this is really a great situation here because you've got good news. There's great drugs. Albendazole, and maybe not a great drug, but it's an effective drug
 
@@ -1310,7 +1310,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:50:40] Will: Well, that's good. Didn’t you—
 
-[00:50:41] Joe: absolutely treatable. And so, you know, imagine the discussion with the patient, and I wasn't there, but I can imagine it too. I've got good news and bad news. Which do you want first?
+[00:50:41] Joe: absolutely treatable. And so imagine the discussion with the patient, and I wasn't there, but I can imagine it too. I've got good news and bad news. Which do you want first?
 
 [00:50:50] Adam: Oh, you always ask for the good news first.
 
@@ -1320,7 +1320,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:50:57] Joe: As we speak.
 
-[00:50:58] Adam: But you will be fine. Like the the drugs will actually kill them all.
+[00:50:58] Adam: But you will be fine. Like the drugs will actually kill them all.
 
 [00:51:01] Joe: Absolutely. Now, usually this disease, which is called neurocysticercosis, because it makes cysts in the Brain neurocysticercosis, which is infection by pork tapeworms, usually MRIs catch this because you can see the cyst. It usually looks like a hollow hole in the brain.
 
@@ -1330,11 +1330,11 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:51:23] Will: Wow!
 
-[00:51:23] Joe: You can see the worms physically on MRI from the there. And fatal cases, it'll be like Swiss cheese. You know, they just eat the whole brain. But in this guy, the worms never seemed to mature to like full size. You know, giant size worms, and so there were no cysts and visible on any of his MRIs. But you know, hundreds of thousands of dollars of treatment, a year of essentially being on the wrong drug.
+[00:51:23] Joe: You can see the worms physically on MRI from the there. And fatal cases, it'll be like Swiss cheese. They just eat the whole brain. But in this guy, the worms never seemed to mature to like full size. Giant size worms, and so there were no cysts and visible on any of his MRIs. But hundreds of thousands of dollars of treatment, a year of essentially being on the wrong drug.
 
 [00:51:46] Will: This guy's having his brain eaten.
 
-[00:51:48] Joe: With yeah, and and because they didn't have the data, right? The data told you what was wrong.
+[00:51:48] Joe: With yeah, and because they didn't have the data, right? The data told you what was wrong.
 
 [00:51:54] Will: Yeah,
 
@@ -1344,13 +1344,13 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:51:58] Joe: just actually figure it out from the data, unbiased, hypothesis-free.
 
-[00:52:03] Will: When $1,000 for the for the for the to do the the genome sequencing seems expensive, until you think about what the other 35 tests that somebody would get.
+[00:52:03] Will: When $1,000 for the to do the genome sequencing seems expensive, until you think about what the other 35 tests that somebody would get.
 
 [00:52:10] Joe: The Balamuthia patient, her hospital bill was well north of $1 million.
 
 [00:52:15] Will: Yeah.
 
-[00:52:15] Joe: Wow. And you know, $150,000 of antibiotics, none of which work against amoebas.
+[00:52:15] Joe: Wow. And$150,000 of antibiotics, none of which work against amoebas.
 
 [00:52:20] Will: Mm hmm.
 
@@ -1366,7 +1366,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:52:44] Adam: Wow.
 
-[00:52:44] Joe: I'm sure lots of others will in the future because this is catching on really quick. But like it's it's it goes from bench to bedside now. Like you can actually do it. It's not just in the laboratory anymore.
+[00:52:44] Joe: I'm sure lots of others will in the future because this is catching on really quick. But like it's it goes from bench to bedside now. Like you can actually do it. It's not just in the laboratory anymore.
 
 [00:52:55] Adam: Now I'm curious about how nervous you are, or how yeah, how scared you are of viruses in the permafrost and organisms deep within our permafrost. Starting to come out because of climate change.
 
@@ -1376,13 +1376,13 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:53:13] Will: Yeah,
 
-[00:53:14] Joe: yeah. You know, it's unclear what ancient viruses what they'll look like or if they'll be if they'll have to go through an adaptation. You know, if the organisms around them have changed, they'll have to change too.
+[00:53:14] Joe: yeah. It's unclear what ancient viruses what they'll look like or if they'll be if they'll have to go through an adaptation. You know, if the organisms around them have changed, they'll have to change too.
 
 [00:53:23] Will: Right.
 
-[00:53:23] Joe: And so, you know, the science fiction story of the 1 million-year-old virus thawing and then, you know, immediately being able to infect a human—I'm not so sure about that.
+[00:53:23] Joe: And so, you know, the science fiction story of the 1 million-year-old virus thawing and then immediately being able to infect a human—I'm not so sure about that.
 
-[00:53:33] Adam: After, after, so this is the the big philosophical question. Do you end up feeling? I look at the tenacity of these organisms, and that fascinates me. And it it joins this other part of fascination I have for extremophiles that, like, you look at the most hostile places on Earth, and you're going to find it teeming with life.
+[00:53:33] Adam: After, after, so this is the big philosophical question. Do you end up feeling? I look at the tenacity of these organisms, and that fascinates me. And it joins this other part of fascination I have for extremophiles that you look at the most hostile places on Earth, and you're going to find it teeming with life.
 
 [00:53:53] Joe: Yep.
 
@@ -1404,7 +1404,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:54:10] Adam: Oh yeah.
 
-[00:54:10] Joe: So I mean, you know, we just did a we just did a little short survey in Uganda not recently of just kids with fever without malaria. We plucked a few new viruses right off the tree, right off the bat from mosquito-borne virus. You do not have to look far or thaw 50,000-year-old ice to find some evil stuff.
+[00:54:10] Joe: So I mean we just did a little short survey in Uganda not recently of just kids with fever without malaria. We plucked a few new viruses right off the tree, right off the bat from mosquito-borne virus. You do not have to look far or thaw 50,000-year-old ice to find some evil stuff.
 
 [00:54:27] Adam: Wow.
 
@@ -1412,7 +1412,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:54:33] Adam: Right.
 
-[00:54:33] Joe: Go in the jungles, you know, some remote islands in the Philippines or in the middle of Central Africa or the Mekong River.
+[00:54:33] Joe: Go in the jungles some remote islands in the Philippines or in the middle of Central Africa or the Mekong River.
 
 [00:54:39] Will: So we should cut down all the jungles.
 
@@ -1434,13 +1434,13 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:55:33] Joe: Give me a call next time.
 
-[00:55:34] Will: Yeah, I might. It's still it's still there. It just doesn't show anymore.
+[00:55:34] Will: Yeah, I might. It's still there. It just doesn't show anymore.
 
 [00:55:38] Adam: We're gonna have to get five people to hold Will down.
 
 [00:55:39] Will: First, you have to find my heart. It's three sizes too small, and no.
 
-[00:55:45] Joe: I mean, there's there's amazing reservoirs just on human bodies. I mean, the stuff that hides out in eyeballs is amazing. So we we have a whole project where we you know tap eyeballs to see what's inside them.
+[00:55:45] Joe: I mean, there's there's amazing reservoirs just on human bodies. I mean, the stuff that hides out in eyeballs is amazing. So we have a whole project where we you know tap eyeballs to see what's inside them.
 
 [00:55:54] Will: That sounds great. I'm totally gonna come to your cocktail parties.
 
@@ -1486,7 +1486,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:57:15] Adam: What is asymmetric heterochromia?
 
-[00:57:16] Joe: Because they're two different colors. So they they were both brown to begin with.
+[00:57:16] Joe: Because they're two different colors. So they were both brown to begin with.
 
 [00:57:19] Adam: Right.
 
@@ -1544,7 +1544,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:59:01] Adam: It's avascular.
 
-[00:59:02] Joe: Well, it's got it's got fluid flow and stuff, but the immune cells don't go there.
+[00:59:02] Joe: Well, it's got fluid flow and stuff, but the immune cells don't go there.
 
 [00:59:04] Unknown (Adam or Will): Right.
 
@@ -1554,7 +1554,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:59:16] Will: That's exciting.
 
-[00:59:17] Joe: Oh, but wait—is that true or not? I mean, that's kind of an outrageous proposition. You're saying that the virus was replicating for 21 years in this guy's eyeball. Well, it turns out we can actually prove it. So we took the virus out, we sequenced his whole genome, and because those viruses that you know the the replication machinery for those viruses make errors with a predefined frequency.
+[00:59:17] Joe: Oh, but wait—is that true or not? I mean, that's kind of an outrageous proposition. You're saying that the virus was replicating for 21 years in this guy's eyeball. Well, it turns out we can actually prove it. So we took the virus out, we sequenced his whole genome, and because those viruses that you know the replication machinery for those viruses make errors with a predefined frequency.
 
 [00:59:37] Will: Oh, yeah. How long they've been there?
 
@@ -1586,31 +1586,31 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [01:00:11] Will: So what is that like 20,000 generations or millions of generations?
 
-[01:00:14] Joe: Lots and lots and lots.
+[01:00:14] Joe: Lots and lots.
 
 [01:00:15] Will: That's amazing.
 
-[01:00:16] Joe: So he's, you know, luckily we tested his tears, not shedding rubella. So I don't think like he's walking around like shedding rubella. But you know, it's interesting to think that you know all these people from Europe, boys mainly that have uveitis, are all doing the experiment in their eyes.
+[01:00:16] Joe: So he's luckily we tested his tears, not shedding rubella. So I don't think like he's walking around like shedding rubella. But it's interesting to think that you know all these people from Europe, boys mainly that have uveitis, are all doing the experiment in their eyes.
 
 [01:00:32] Will: Festered hellholes.
 
-[01:00:33] Joe: That's right, and you know, you want to write a science fiction book about the virus that now nobody is immune to.
+[01:00:33] Joe: That's right, and you want to write a science fiction book about the virus that now nobody is immune to.
 
 [01:00:38] Will: Wow, Christoph Waltz weeps rubella.
 
-[01:00:41] Adam: So I was I was talking to we were doing an episode on whips Indiana Jones's whips, and I called up Neal Stephenson. We were the science fiction author,
+[01:00:41] Adam: So I was talking to we were doing an episode on whips Indiana Jones's whips, and I called up Neal Stephenson. We were the science fiction author,
 
 [01:00:52] Joe: yeah, sure.
 
-[01:00:52] Adam: And we were talking about something else, but I met. He's like, " What are you working on?" And I said, " We're about to. I'm about to get the high speed shot of a." Tip of the whip breaking the speed of sound, non-trivial from a methodological standpoint, and we did it. And he was like, " Oh," he said, " I did some, I did a bunch of research on whips for my last book." And the thing is, is when Neal tells you he's done a lot of research, it's been a dive, right? And he ends up finding the first guy to figure out that the speed of sound is a thing that can be broken, and he's this French scientist from the 1920s. And it all begins in the end of World War Two, where there are no more trucks. Sorry, the end of World War One. There is no trucks left in Europe. They've all been utilized for the war effort, and people still have to move commerce. So they start reintroducing horse-driven teams to drag large vehicles to drag trucks effectively, but they no longer have buggy whips or anything. So they they start using what's left, which is in the factories. They find that copper grounding braided copper grounding straps make terrific whips. So, this guy comes in in the '20s to this French doctor, and what he's he's got an irritation in his eye. And when the doctor looks really close, what he finds is these microscopic metal cylinders embedded in the lens of his eye.
+[01:00:52] Adam: And we were talking about something else, but I met. He's like, " What are you working on?" And I said, " We're about to. I'm about to get the high speed shot of a." Tip of the whip breaking the speed of sound, non-trivial from a methodological standpoint, and we did it. And he was like, " Oh," he said, " I did some, I did a bunch of research on whips for my last book." And the thing is, is when Neal tells you he's done a lot of research, it's been a dive, right? And he ends up finding the first guy to figure out that the speed of sound is a thing that can be broken, and he's this French scientist from the 1920s. And it all begins in the end of World War Two, where there are no more trucks. Sorry, the end of World War One. There is no trucks left in Europe. They've all been utilized for the war effort, and people still have to move commerce. So they start reintroducing horse-driven teams to drag large vehicles to drag trucks effectively, but they no longer have buggy whips or anything. So they start using what's left, which is in the factories. They find that copper grounding braided copper grounding straps make terrific whips. So, this guy comes in the '20s to this French doctor, and what he's got an irritation in his eye. And when the doctor looks really close, what he finds is these microscopic metal cylinders embedded in the lens of his eye.
 
 [01:02:16] Unknown (Joe or Will): What?
 
-[01:02:16] Adam: And he asks all these different things, and none of it none of it reaches reaches any conclusion. But then a few years later, someone else comes in with the same exact condition, and then he starts to triangulate their two histories, and they were both truck drivers in Europe right after World War One. And it turns out what he what he he was the one that figured out that the tip of a whip breaks the speed of sound because as that copper as that braided copper grounding strap breaks the speed of sound, it exceeds the tensile strength of the copper, sending tiny, tiny, microscopic shards of copper in every direction, including into the eye of the guy.
+[01:02:16] Adam: And he asks all these different things, and none of it reaches reaches any conclusion. But then a few years later, someone else comes in with the same exact condition, and then he starts to triangulate their two histories, and they were both truck drivers in Europe right after World War One. And it turns out what he was the one that figured out that the tip of a whip breaks the speed of sound because as that copper as that braided copper grounding strap breaks the speed of sound, it exceeds the tensile strength of the copper, sending tiny, tiny, microscopic shards of copper in every direction, including into the eye of the guy.
 
 [01:02:55] Joe: That is nuts.
 
-[01:02:56] Adam: Totally nuts, and then he actually manages. Neal sent me; he had he had to have this French or German paper translated that had never been translated. Then he found a scientist who had actually used in the '20s chemical flashes to isolate and show that the tip of a whip breaks the speed of sound. This magnificent methodology to do it.
+[01:02:56] Adam: Totally nuts, and then he actually manages. Neal sent me; he had to have this French or German paper translated that had never been translated. Then he found a scientist who had actually used in the '20s chemical flashes to isolate and show that the tip of a whip breaks the speed of sound. This magnificent methodology to do it.
 
 [01:03:20] Joe: Yeah. Wow. That's cool.
 
@@ -1622,11 +1622,11 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [01:03:31] Joe: Yeah, sure.
 
-[01:03:31] Will: What do you think about like the commercial DNA sequencing stuff? I mean, there’s been a lot of lot of people talking about that because they caught what the California Strangler guy
+[01:03:31] Will: What do you think about like the commercial DNA sequencing stuff? I mean, there’s been a lot of people talking about that because they caught what the California Strangler guy
 
 [01:03:41] Joe: through Ancestry,
 
-[01:03:42] Will: yeah, through Ancestry and stuff like like like is this a good thing? I mean, when I asked my doctor about DNA tests, he's like, " Don't we're good? You know, the 23andMe doesn't provide any actionable information or whatever on
+[01:03:42] Will: yeah, through Ancestry and stuff like is this a good thing? I mean, when I asked my doctor about DNA tests, he's like, " Don't we're good? You know, the 23andMe doesn't provide any actionable information or whatever on
 
 [01:03:54] Adam: well. Now it turns out that even if you or I, as white, relatively European males, even if we don't get sequenced, so many. Of us have been sequenced, you could find us.
 
@@ -1636,7 +1636,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [01:04:05] Adam: We can be inferred.
 
-[01:04:06] Joe: You can be inferred. So you know, I mean, depending on your genetic makeup and what you've inherited, there might be disease-related mutations of interest to you. The ancestry might be of interest to you. I think it is fascinating to look at one's ancestry. You know, there are more and more cancers that are actionable or susceptibilities. You know, whether you know a 1% more chance of getting diabetes is going to matter to you or not? Probably not. But there are lots of other things in there that might be of interest. And the more we learn, and the more we collect, and link genotype to phenotype, the more actionable.
+[01:04:06] Joe: You can be inferred. So I mean, depending on your genetic makeup and what you've inherited, there might be disease-related mutations of interest to you. The ancestry might be of interest to you. I think it is fascinating to look at one's ancestry. There are more and more cancers that are actionable or susceptibilities. You know, whether you know a 1% more chance of getting diabetes is going to matter to you or not? Probably not. But there are lots of other things in there that might be of interest. And the more we learn, and the more we collect, and link genotype to phenotype, the more actionable.
 
 [01:04:41] Will: You should explain genotype to phenotype.
 
@@ -1644,27 +1644,27 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [01:04:50] Will: Okay.
 
-[01:04:50] Joe: So the more linking of that, the better the information becomes. So we're at the early days, obviously, but as you know, millions of people get sequenced and their clinical data gets linked to those records, then we learn. Oh wait, this this combination of 5 or 15 things. Really is important.
+[01:04:50] Joe: So the more linking of that, the better the information becomes. So we're at the early days, obviously, but as you know, millions of people get sequenced and their clinical data gets linked to those records, then we learn. Oh wait, this combination of 5 or 15 things. Really is important.
 
 [01:05:06] Adam: To a certain extent, you’re helping build the large database.
 
-[01:05:09] Joe: Absolutely, you got to build the database to begin this. Now, you know, I think, from my own interest, the actionable stuff is the stuff that isn't you that's in you.
+[01:05:09] Joe: Absolutely, you got to build the database to begin this. Now I think, from my own interest, the actionable stuff is the stuff that isn't you that's in you.
 
 [01:05:16] Will: Right, right, right,
 
-[01:05:18] Joe: right. That's the interesting part. We can get at that really quick without any interpretation. You know, Balamuthia in the brain—that's pretty clear.
+[01:05:18] Joe: right. That's the interesting part. We can get at that really quick without any interpretation. Balamuthia in the brain—that's pretty clear.
 
-[01:05:22] Will: No privacy implications from from scanning the Balamuthia in the brain, right?
+[01:05:22] Will: No privacy implications from scanning the Balamuthia in the brain, right?
 
 [01:05:27] Joe: Well, it's not human. It's not yours.
 
 [01:05:28] Will: Exactly. Go nuts.
 
-[01:05:29] Joe: So, actually, that brings me to the next idea, right? So, the bigger idea here is okay. Instead of just doing it in our, you know, our, you know, UCSF and major institutions like this, what if we could do something bigger? So, that's what I'm doing at the Chan Zuckerberg Biohub, which is where I'm co-president, and I also have my lab at UCSF. We, together with the Chan Zuckerberg Initiative, which is a separate organization, have built a new software platform called IDseq. And so, here's the deal: the sequencing is getting cheap. I mentioned that a few times. You can do sequencing almost anywhere. You can these sequencers are are pretty affordable, and you can get it done. But the compute Really hard, really expensive, and getting more expensive as time goes on.
+[01:05:29] Joe: So, actually, that brings me to the next idea, right? So, the bigger idea here is okay. Instead of just doing it in our UCSF and major institutions like this, what if we could do something bigger? So, that's what I'm doing at the Chan Zuckerberg Biohub, which is where I'm co-president, and I also have my lab at UCSF. We, together with the Chan Zuckerberg Initiative, which is a separate organization, have built a new software platform called IDseq. And so, here's the deal: the sequencing is getting cheap. I mentioned that a few times. You can do sequencing almost anywhere. You can these sequencers are pretty affordable, and you can get it done. But the compute Really hard, really expensive, and getting more expensive as time goes on.
 
-[01:06:09] Will: Cool. I mean, as a technologist, you know, I've learned that things get more technology gets less expensive as time goes on, right? So
+[01:06:09] Will: Cool. I mean, as a technologist I've learned that things get more technology gets less expensive as time goes on, right? So
 
-[01:06:17] Joe: yeah, that's certainly true for sequencing, where the the the the cheaper you know the cheap sequence is accelerating at a rate much faster than Moore's law,
+[01:06:17] Joe: yeah, that's certainly true for sequencing, where the cheaper you know the cheap sequence is accelerating at a rate much faster than Moore's law,
 
 [01:06:25] Will: right?
 
@@ -1686,11 +1686,11 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [01:06:45] Will: Okay.
 
-[01:06:46] Joe: So that means the compute, you know, you can't
+[01:06:46] Joe: So that means the compute you can't
 
 [01:06:48] Will: And also Moore’s law is slowing down.
 
-[01:06:49] Joe: Yeah, you can get this sequencer into you know into Bangladesh and and Dhaka or something like this and do the sequence, but you can't analyze it. You not everybody has a giant server farm with thousands of CPUs on premises, and so Well, let's just take that out of the equation. Let's eliminate that barrier. So the IDseq platform is an open-source, free platform in the cloud that will allow anybody in one of these microbiology labs, like in the middle of Bangladesh or something like this, to sequence cases, meningitis, or disease surveillance. Like, what is happening in my country? I've seen a spike of encephalitis. We'll sequence that, upload it to the cloud. All the compute is done for you. The separating of the human from the bugs and the identification and all this.
+[01:06:49] Joe: Yeah, you can get this sequencer into you know into Bangladesh and Dhaka or something like this and do the sequence, but you can't analyze it. You not everybody has a giant server farm with thousands of CPUs on premises, and so Well, let's just take that out of the equation. Let's eliminate that barrier. So the IDseq platform is an open-source, free platform in the cloud that will allow anybody in one of these microbiology labs, like in the middle of Bangladesh or something like this, to sequence cases, meningitis, or disease surveillance. Like, what is happening in my country? I've seen a spike of encephalitis. We'll sequence that, upload it to the cloud. All the compute is done for you. The separating of the human from the bugs and the identification and all this.
 
 [01:07:31] Unknown (Adam or Will): Oh, neat! Wow.
 
@@ -1700,7 +1700,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [01:07:33] Joe: That we have lots of these locations around the world doing this. Then what you are creating is basically an emerging or new pathogen intelligence platform. It's a surveillance system.
 
-[01:07:45] Will: It's it's like a you put sensors all over the world,
+[01:07:45] Will: It's like a you put sensors all over the world,
 
 [01:07:49] Joe: yeah. And it would be, and if people are doing this all the time, there would be a real-time molecular layer pathogen sequencing. Why did it take a year to figure out that Zika had made the jump all the way over to South America?
 
@@ -1722,7 +1722,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [01:08:32] Joe: I want to spin up a whole bunch of these sites around the world and create this sort of, you know, this global dashboard that isn't just field reports or published papers or newspaper articles, which is what most dashboards are today, but a real-time molecular dashboard.
 
-[01:08:44] Will: It's like it's like a weather satellite for what's going on in biomes.
+[01:08:44] Will: It's like a weather satellite for what's going on in biomes.
 
 [01:08:47] Joe: I want the big. I want the big board.
 
@@ -1742,7 +1742,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [01:09:00] Will: That's really really cool, Joe.
 
-[01:09:02] Joe: So that's that's the big—
+[01:09:02] Joe: So that's the big—
 
 [01:09:03] Adam: Joe, I thank you for being.
 
@@ -1782,7 +1782,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [01:09:45] Adam: Yeah, somebody will take care of that.
 
-[01:09:46] Will: Probably Norm. I don't know. We'll see you guys next week. Thanks for thanks for coming by, Joe. Thanks for watching, everybody.
+[01:09:46] Will: Probably Norm. I don't know. We'll see you guys next week. Thanks for coming by, Joe. Thanks for watching, everybody.
 
 [01:09:50] Joe: Thanks for having me.
 

@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:00:57] Adam: All right. So I haven't been on the internet yet today.
 
-[00:00:59] Will: I woke up to a bunch of Twitter messages saying. Hey, Will, Norm, Adam, have you guys have you guys seen this? It's really good, and it turns out
+[00:00:59] Will: I woke up to a bunch of Twitter messages saying. Hey, Will, Norm, Adam, have you guys seen this? It's really good, and it turns out
 
 [00:01:06] Adam: it is really good. This is the trailer for the Martian, Ridley Scott's version of Andy Weir's book, starring Matt Damon, Donald Glover, Jessica Chastain, Kristen Wiig, Jeff Daniels, Kate Mara, Chiwetel Ejiofor, who I never knew how his name was pronounced, but in my head it was Chiwetel Ejiofor, and it turns out
 
@@ -38,7 +38,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:01:30] Norm: world.
 
-[00:01:32] Adam: I thought I thought if I ever met him, I'd insult him by pronouncing it that way. Nope, that turns out to be exactly as it's spelled.
+[00:01:32] Adam: I thought if I ever met him, I'd insult him by pronouncing it that way. Nope, that turns out to be exactly as it's spelled.
 
 [00:01:37] Will: As somebody who has a name that is worth commenting on every time you introduce yourself to someone,
 
@@ -62,7 +62,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:01:56] Will: really,
 
-[00:01:56] Adam: he's first of all, Children of Men. If you haven't seen it, it's it's it's Cuarón who did.
+[00:01:56] Adam: he's first of all, Children of Men. If you haven't seen it, it's Cuarón who did.
 
 [00:02:01] Norm: Yeah.
 
@@ -80,7 +80,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:02:26] Unknown speaker: I felt like that for the longest time.
 
-[00:02:26] Adam: but I was on a plane on a on a cross country flight, and I had the time, so I watched it. And I must tell you, it's not as brutal. It's not as brutalist as I remembered from the first time, and Chiwetel Ejiofor is amazing.
+[00:02:26] Adam: but I was on a plane on a cross country flight, and I had the time, so I watched it. And I must tell you, it's not as brutal. It's not as brutalist as I remembered from the first time, and Chiwetel Ejiofor is amazing.
 
 [00:02:47] Norm: Julianne Moore.
 
@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:03:51] Adam: yeah,
 
-[00:03:51] Norm: literally, it says in the trailer that that first opening line in trailer, it's about the world coming together for one man's survival. Now we've talked about The Martian a bunch. Um, to
+[00:03:51] Norm: literally, it says in the trailer that that first opening line in trailer, it's about the world coming together for one man's survival. Now we've talked about The Martian a bunch. To
 
 [00:04:00] Adam: show, do we reveal the talking room here?
 
@@ -118,11 +118,11 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:04:08] Adam: Yes, so finally, we reached out to Andy Weir, who's local, and we had him on the talking room, and we talk extensively about The Martian. We talk a bit about the film because it was just starting; literally, it started production a week before I interviewed him. So he was he hadn't visited the set yet. Of course, there is that famous photo of him in Budapest with Matt Damon on the set. He hadn't done that yet. It's very exciting. I mean, we all read the book; we're all totally obsessed with it. And I know that like a tremendous number of tested readers and viewers went and read the book based on our recommendation. The trailer is phenomenal.
 
-[00:04:47] Will: I am going in cold. I am taking the Joey Fameli approach to this one, and I saw those initial screens from EW, the grabs of the suits. I was like, " Okay, I am good. I know I am going to go see this movie. There is no amount of trailer watching that's going to convince me I should or should not. Yeah, I'll be there first night, midnight, you know, with bells on." Um,
+[00:04:47] Will: I am going in cold. I am taking the Joey Fameli approach to this one, and I saw those initial screens from EW, the grabs of the suits. I was like, " Okay, I am good. I know I am going to go see this movie. There is no amount of trailer watching that's going to convince me I should or should not. Yeah, I'll be there first night, midnight, you know, with bells on."
 
-[00:05:07] Norm: so it is. You know, we've had three years now of like kind of quote unquote hard science space movies with Gravity, Interstellar, and kind of think feel like it feels like it's all culminating to The Martian.
+[00:05:07] Norm: so it is. We've had three years now of like kind of quote unquote hard science space movies with Gravity, Interstellar, and kind of think feel like it feels like it's all culminating to The Martian.
 
-[00:05:19] Adam: Well, and so when when you said the anti gravity, I mean, what's funny is that between Interstellar and Gravity, I actually vastly preferred Gravity, even though it's far less rooted in hard science. I mean, Gravity plays so fast and loose, right, with physics,
+[00:05:19] Adam: Well, and so when you said the anti gravity, I mean, what's funny is that between Interstellar and Gravity, I actually vastly preferred Gravity, even though it's far less rooted in hard science. I mean, Gravity plays so fast and loose, right, with physics,
 
 [00:05:37] Will: orbital mechanics,
 
@@ -132,11 +132,11 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:05:44] Norm: All right, so Adam, I presume you mean to say that unlike Gravity, Interstellar had this kind of reverence to science that well permeated throughout the film
 
-[00:05:52] Adam: It permeated throughout all the press materials about it, and Gravity too talked extensively about wanting to make a very realistic movie about space. The thing that Gravity got right. So let's understand. We we understand how deeply Interstellar was committed to getting interesting and accurate visualizations of black hole event horizons, etc., and where they cheated a little bit.
+[00:05:52] Adam: It permeated throughout all the press materials about it, and Gravity too talked extensively about wanting to make a very realistic movie about space. The thing that Gravity got right. So let's understand. We understand how deeply Interstellar was committed to getting interesting and accurate visualizations of black hole event horizons, etc., and where they cheated a little bit.
 
 [00:06:13] Norm: Relativity
 
-[00:06:14] Adam: and honest about it. Yes, and Gravity. You know, Chris Hadfield told me that Gravity really does is the first film he saw that really gets you to feel what it's like to be on a spacewalk and look down and see Earth.
+[00:06:14] Adam: and honest about it. Yes, and Gravity. Chris Hadfield told me that Gravity really does is the first film he saw that really gets you to feel what it's like to be on a spacewalk and look down and see Earth.
 
 [00:06:27] Unknown speaker: Yeah.
 
@@ -168,7 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:07:54] Will: Yes.
 
-[00:07:54] Adam: Very fascinating. Plus, a very a workaday sort of You know, you can see there is a quick release on his right for potentially, I guess, removing part of the suit. And in the book, he's constantly taking the suits off and putting them back on, and then using the extra suits he has left over from the other astronauts to deal with various problems he has.
+[00:07:54] Adam: Very fascinating. Plus, a very a workaday sort of you can see there is a quick release on his right for potentially, I guess, removing part of the suit. And in the book, he's constantly taking the suits off and putting them back on, and then using the extra suits he has left over from the other astronauts to deal with various problems he has.
 
 [00:08:15] Will: He parts them out; it's amazing.
 
@@ -182,7 +182,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:08:50] Adam: Oh, as if shot by one of the astronauts.
 
-[00:08:52] Norm: Yes, like here is a tour. You know, here is Mark Watney giving you the tour of of their spaceship and introducing you to the crew with the social media. You know, the the tagging that goes along with that, which is it's it's fantastic, and that. Isn't going to be part of the movie, I think. So that's you can watch.
+[00:08:52] Norm: Yes, like here is a tour. Here is Mark Watney giving you the tour of their spaceship and introducing you to the crew with the social media. You know, the tagging that goes along with that, which is it's fantastic, and that. Isn't going to be part of the movie, I think. So that's you can watch.
 
 [00:09:08] Will: Yeah, that stuff looks amazing.
 
@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:09:58] Will: It's a big giant book.
 
-[00:09:59] Adam: Yeah, yeah, yeah. No, that's I. I'm still a hard copy guy. I I love reading. I've tried to read. I listen to audiobooks. Especially since I've got a bunch of commuting this week for MythBusters, I have a book that I'm reading. I'm reading the new book by the guy who wrote Clockers, and his name is escaping me, but it's called Samaritan, The Samaritan, and it's really, really wonderful and intense, and I'm enjoying it. But with Neal's book, it's awesome. It's all about having it in the hand.
+[00:09:59] Adam: Yeah, yeah, yeah. No, that's I. I'm still a hard copy guy. I love reading. I've tried to read. I listen to audiobooks. Especially since I've got a bunch of commuting this week for MythBusters, I have a book that I'm reading. I'm reading the new book by the guy who wrote Clockers, and his name is escaping me, but it's called Samaritan, The Samaritan, and it's really, really wonderful and intense, and I'm enjoying it. But with Neal's book, it's awesome. It's all about having it in the hand.
 
 [00:10:29] Will: This is, I mean, I I'm a little bit more than halfway through. It is right up there with Snow Crash and Victorian Age and Cryptonomicon and Anathem
 
@@ -226,13 +226,13 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:10:49] Adam: So plan accordingly. For one, welcome our new robot overlords. Is that your what you took away from DARPA?
 
-[00:10:55] Will: I okay. So we should we should explain what this is first. Yes. Every few years, DARPA issues challenges.
+[00:10:55] Will: I okay. So we should explain what this is first. Yes. Every few years, DARPA issues challenges.
 
 [00:10:59] Adam: DARPA is
 
 [00:10:59] Will: the Defense Advanced Research Projects Administration.
 
-[00:11:03] Norm: Yes. It's the U.S. military's research and their their moonshots division.
+[00:11:03] Norm: Yes. It's the U.S. military's research and their moonshots division.
 
 [00:11:08] Will: It's their think tank, kind of. Yeah,
 
@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:11:32] Adam: It was an amazing success that actually Google stepped in and generated Google's autonomous car division based on the two winners of that DARPA challenge.
 
-[00:11:43] Will: Lots. So, so they do two sides. First, they offer a very large prize. It's like a $2 million or $3 million prize pool, depending on the challenge. But they also fund researchers at universities and and even private companies give issue grants to work to work toward these goals. So, the idea, I think, is that you get a lot of brains working on it on in different directions, and there's some that some people that rolled into this with like $12,000 robots, some people that rolled into this with $2 million robots. Some people that loaned rolled into this with software that they'd written for loaner robots from Boston Dynamics,
+[00:11:43] Will: Lots. So, so they do two sides. First, they offer a very large prize. It's like a $2 million or $3 million prize pool, depending on the challenge. But they also fund researchers at universities and even private companies give issue grants to work toward these goals. So, the idea, I think, is that you get a lot of brains working on it on in different directions, and there's some that some people that rolled into this with like $12,000 robots, some people that rolled into this with $2 million robots. Some people that loaned rolled into this with software that they'd written for loaner robots from Boston Dynamics,
 
 [00:12:13] Norm: right?
 
@@ -274,11 +274,11 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:12:57] Norm: To the Fukushima,
 
-[00:12:58] Will: like literally the one of the the challenges we wanted to set up a Fukushima like situation because there was
+[00:12:58] Will: like literally the one of the challenges we wanted to set up a Fukushima like situation because there was
 
 [00:13:03] Adam: shoot. Okay, that's awesome. I didn't know.
 
-[00:13:05] Will: No, no, it's good. It's good. They they they set up the Fukushima situation. So that, because there was a situation where there was a valve deep in the power plant where it was
+[00:13:05] Will: No, no, it's good. It's good. They set up the Fukushima situation. So that, because there was a situation where there was a valve deep in the power plant where it was
 
 [00:13:13] Norm: Right.
 
@@ -294,7 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:13:24] Norm: Wow.
 
-[00:13:24] Will: So these robots have to ride in a like a four wheel. It's it's it's a Polaris like mule type thing, you know, like a four wheel golf cart, a fancy off road golf cart.
+[00:13:24] Will: So these robots have to ride in a like a four wheel. It's a Polaris like mule type thing like a four wheel golf cart, a fancy off road golf cart.
 
 [00:13:35] Adam: Yeah.
 
@@ -302,13 +302,13 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:13:40] Adam: Oh.
 
-[00:13:41] Will: Walk over to a door, open the door, go through the door, flip a breaker, pull a lever, turn a valve, cut a hole, maybe put some some plugs, like move a wire from one socket to another, and then egress over either over rubble or clearing a path through some rubble. There's two choices there, and then climb some stairs and get out. Each obstacle they pass, they get a point, and they can choose to use the the off road vehicle, or they can choose to just walk. There's a time limit of an hour, so each obstacle you pass, you get a point.
+[00:13:41] Will: Walk over to a door, open the door, go through the door, flip a breaker, pull a lever, turn a valve, cut a hole, maybe put some some plugs, like move a wire from one socket to another, and then egress over either over rubble or clearing a path through some rubble. There's two choices there, and then climb some stairs and get out. Each obstacle they pass, they get a point, and they can choose to use the off road vehicle, or they can choose to just walk. There's a time limit of an hour, so each obstacle you pass, you get a point.
 
 [00:14:15] Adam: Contest,
 
-[00:14:15] Will: oh, it's amazing! You get a point, and and the tiebreakers are done by time. Yeah. So, absolutely fascinating this whole experience,
+[00:14:15] Will: oh, it's amazing! You get a point, and the tiebreakers are done by time. Yeah. So, absolutely fascinating this whole experience,
 
-[00:14:23] Norm: which is it's amazing because you know when you you think about the challenges that we put humans through, like in popular culture, American like the Ninja Warrior TV show,
+[00:14:23] Norm: which is it's amazing because you know when you think about the challenges that we put humans through, like in popular culture, American like the Ninja Warrior TV show,
 
 [00:14:28] Unknown speaker: Right.
 
@@ -328,11 +328,11 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:15:32] Will: the arch of your foot serving as both a shock absorber and a rebound mechanism, so stores energy and then pushes it back up into the leg. Like the reason our bipedal walking is efficient is because the base of our brain basically does an incredible amount of math without any conscious thought whatsoever.
 
-[00:15:49] Norm: Yeah, and the robots, you know, they they are most of them were bipedal. The ones you know developed by Boston Dynamics because they are built to interact with our world because the world is made for us.
+[00:15:49] Norm: Yeah, and the robots they are most of them were bipedal. The ones you know developed by Boston Dynamics because they are built to interact with our world because the world is made for us.
 
 [00:16:01] Adam: Now, the ones this a lot of. Sorry, go ahead.
 
-[00:16:03] Norm: Oh no, but then the ones that were you know quadrupeds or more innovative designs. They have different challenges too, because they need to manage their limb control. You know, four limbs working with each other, and there's just so much, so much. It's all in the software,
+[00:16:03] Norm: Oh no, but then the ones that were you know quadrupeds or more innovative designs. They have different challenges too, because they need to manage their limb control. Four limbs working with each other, and there's just so much. It's all in the software,
 
 [00:16:18] Adam: and it's still really difficult. So, I mean, I would have thought that some sort of centaur-like robot might be a very ideal, a four-legged with upright and two arms would be a very ideal sort of form factor.
 
@@ -340,15 +340,15 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:16:52] Adam: So did did did you watch a lot of robots fall over?
 
-[00:16:54] Will: So the other, I was going to say, the other important thing about this is these aren't autonomous robots. They're not fully autonomous. Right, right, right. They're kind of most of them. It seemed like are remote controlled with limited autonomy. So instead of saying you know go to this door and open it, you say, okay, here's the handle. Here's here's where the door is. The door. Opens inward to the right. Right. The handles at three feet above. You know, you paint the handle with a mouse. Right. You reach out, grab it. You turn it down 90 degrees, rotate it down through 90 degrees, and then push. Right. And that opens the door. Um, so so they're kind of remote controlled, but kind of not. Like the the driver would maybe say, okay, here's where you should put your feet within within these constraints. Right. Does that look good to the software? And then the software would model it out and be like, I think we can do that. They'd say go, and then it would execute that series of actions. Right. Um, kind of like the way Curiosity and and like the Mars rovers work without the time lag of of sending light to Mars.
+[00:16:54] Will: So the other, I was going to say, the other important thing about this is these aren't autonomous robots. They're not fully autonomous. Right, right, right. They're kind of most of them. It seemed like are remote controlled with limited autonomy. So instead of saying you know go to this door and open it, you say, okay, here's the handle. Here's here's where the door is. The door. Opens inward to the right. Right. The handles at three feet above. You paint the handle with a mouse. Right. You reach out, grab it. You turn it down 90 degrees, rotate it down through 90 degrees, and then push. Right. And that opens the door. so so they're kind of remote controlled, but kind of not. Like the driver would maybe say, okay, here's where you should put your feet within within these constraints. Right. Does that look good to the software? And then the software would model it out and be like, I think we can do that. They'd say go, and then it would execute that series of actions. Right. Kind of like the way Curiosity and like the Mars rovers work without the time lag of sending light to Mars.
 
 [00:17:49] Norm: Let's answer your question.
 
-[00:17:49] Will: So to answer your question, yes, lots of robots fell over. $2 million crunch like a tree. Ah. Um. They
+[00:17:49] Will: So to answer your question, yes, lots of robots fell over. $2 million crunch like a tree. Ah. They
 
 [00:17:57] Adam: did anybody succeed at the challenge?
 
-[00:17:59] Norm: The winner was a South Korean team. It wasn't one of the Atlas robots, and I think they had one point higher than the Atlas robot, which is the the Boston Dynamics one, owned by Google. Google and Boston Dynamics didn't actually compete. They just Donated some of their robots.
+[00:17:59] Norm: The winner was a South Korean team. It wasn't one of the Atlas robots, and I think they had one point higher than the Atlas robot, which is the Boston Dynamics one, owned by Google. Google and Boston Dynamics didn't actually compete. They just Donated some of their robots.
 
 [00:18:13] Adam: They loaned their robots to software.
 
@@ -356,11 +356,11 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:18:19] Adam: Oh, fascinating.
 
-[00:18:19] Will: Um, and each of those, we we talked to one of those teams. We have a video coming with them. I think we talked to team IHMC. Is that right?
+[00:18:19] Will: And each of those, we talked to one of those teams. We have a video coming with them. I think we talked to team IHMC. Is that right?
 
 [00:18:27] Norm: Yeah, from Florida Institute
 
-[00:18:28] Will: from Florida Institute of Technology. Yeah, and they they basically ran through, um, like what they could and couldn't do. So they couldn't tack anything onto the hardware. The hardware was closed system for them.
+[00:18:28] Will: from Florida Institute of Technology. Yeah, and they basically ran through like what they could and couldn't do. So they couldn't tack anything onto the hardware. The hardware was closed system for them.
 
 [00:18:39] Adam: Huh.
 
@@ -368,15 +368,15 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:18:44] Adam: Oh wow!
 
-[00:18:44] Will: So like like the interesting thing about this is there's all the stuff that we think about doing.
+[00:18:44] Will: So like the interesting thing about this is there's all the stuff that we think about doing.
 
 [00:18:50] Adam: They couldn't come up with different hands or graspers.
 
-[00:18:53] Will: I don't know if they could adjust graspers. He said the guy that we talked to said that they had a black. It's possible different people had different different setups. Restrictions on them. Like we we didn't get to talk to a whole lot of the people who are making the teams because they were obviously really busy all weekend.
+[00:18:53] Will: I don't know if they could adjust graspers. He said the guy that we talked to said that they had a black. It's possible different people had different different setups. Restrictions on them. Like we didn't get to talk to a whole lot of the people who are making the teams because they were obviously really busy all weekend.
 
 [00:19:05] Adam: Right.
 
-[00:19:05] Will: Um. But but yeah. So like. One of them, to give you an idea of what happens, one of them had a problem where it came up to the it had to turn a valve. One of the things they had to do was turn a valve, as at Fukushima. When you think about what the things that you do when you turn a valve, it's a hard valve. It's like a nine-inch diameter. You're gonna subconsciously think, okay, I have to turn this to the left. I should move my right foot out a little bit, shift my weight a little bit to the right, and I'm gonna wrench over with my shoulders.
+[00:19:05] Will: But yeah. So like. One of them, to give you an idea of what happens, one of them had a problem where it came up to the it had to turn a valve. One of the things they had to do was turn a valve, as at Fukushima. When you think about what the things that you do when you turn a valve, it's a hard valve. It's like a nine-inch diameter. You're gonna subconsciously think, okay, I have to turn this to the left. I should move my right foot out a little bit, shift my weight a little bit to the right, and I'm gonna wrench over with my shoulders.
 
 [00:19:33] Adam: Right.
 
@@ -388,7 +388,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:19:43] Adam: Right.
 
-[00:19:43] Will: Like you know, they they would the the way that they the ways that they failed were way more interesting than the ways that they succeeded because they would they would for example try to climb out of the out of the four wheel drive the the ATV and they would just they looked like they were doing to be doing really well and then one of the feet would be not quite exactly where the robot thought it was gonna be
+[00:19:43] Will: Like they would the way that they the ways that they failed were way more interesting than the ways that they succeeded because they would for example try to climb out of the four wheel drive the ATV and they would just they looked like they were doing to be doing really well and then one of the feet would be not quite exactly where the robot thought it was gonna be
 
 [00:20:03] Adam: Right.
 
@@ -396,7 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:20:05] Adam: fascinating
 
-[00:20:05] Will: right $2 million right on its side so. It was it was absolutely fascinating. There were a ton of other cool robots there as well. This was at the L.A. County Fairgrounds at Fairplex.
+[00:20:05] Will: right $2 million right on its side so. It was absolutely fascinating. There were a ton of other cool robots there as well. This was at the L.A. County Fairgrounds at Fairplex.
 
 [00:20:15] Adam: Oh, okay.
 
@@ -428,17 +428,17 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:21:30] Norm: Same thing applies to the robot companies when you're watching a video and the robot's doing performing incredibly, like this incredible feat of balance and speed. They did that a lot of times.
 
-[00:21:42] Will: Yeah. Well, and it's all stuff that, like, the machine, like, again, it's impossible to overestimate the importance of stuff that the human brain does subconsciously.
+[00:21:42] Will: Yeah. Well, and it's all stuff that the machine again, it's impossible to overestimate the importance of stuff that the human brain does subconsciously.
 
 [00:21:52] Adam: Right.
 
-[00:21:52] Will: You know, is that a is that is there a little dip in the road there? You don't even notice that, but when you put your foot on it, you feel it on the bottom of your foot, and you adjust your gait accordingly.
+[00:21:52] Will: Is that a is that is there a little dip in the road there? You don't even notice that, but when you put your foot on it, you feel it on the bottom of your foot, and you adjust your gait accordingly.
 
 [00:22:00] Adam: So can I ask a question?
 
 [00:22:01] Will: Yeah, of course.
 
-[00:22:01] Adam: Within the field of Robotics like this of moving. I know that there are, I guess, on the broadest scale. My understanding is that there's two approaches, and they're generally referred to as bottom up and top down. And that top down is the robot has sensors and the and the ability to sort of try and parse its entire environment and interact with every part of it. And bottom up is more like Genghis, one of the early six-legged bots built like an insect with a distributed nervous system, where the legs only know what the leg next to it is doing. But these simple set of instructions give it a tremendous amount of versatility in moving over a complex environment. Was there talk about different approaches to the AI of these robots?
+[00:22:01] Adam: Within the field of Robotics like this of moving. I know that there are, I guess, on the broadest scale. My understanding is that there's two approaches, and they're generally referred to as bottom up and top down. And that top down is the robot has sensors and the ability to sort of try and parse its entire environment and interact with every part of it. And bottom up is more like Genghis, one of the early six-legged bots built like an insect with a distributed nervous system, where the legs only know what the leg next to it is doing. But these simple set of instructions give it a tremendous amount of versatility in moving over a complex environment. Was there talk about different approaches to the AI of these robots?
 
 [00:22:49] Will: We didn't talk about bottom up versus top down, but it seemed like most of these were top down.
 
@@ -456,11 +456,11 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:23:09] Will: but the robot models. There's a model of the robot self in the robot, which is what you're talking about.
 
-[00:23:14] Adam: Yeah, and I mean, it just it. I remember, you know, some of the advances came that came out of the MIT Media Lab, the Pogo Stick robot and the Pogo Runner, which were the precursors to Boston Dynamics' kind of dynamism. Those come from instead of I'm going to program how a cheetah runs. I'm pretty sure that that Boston Dynamics Big Dog is operating on a much simpler set of instructions in terms of maintaining its balance that give it a curiously biological level of control.
+[00:23:14] Adam: Yeah, and I mean, it just it. I remember some of the advances came that came out of the MIT Media Lab, the Pogo Stick robot and the Pogo Runner, which were the precursors to Boston Dynamics' kind of dynamism. Those come from instead of I'm going to program how a cheetah runs. I'm pretty sure that that Boston Dynamics Big Dog is operating on a much simpler set of instructions in terms of maintaining its balance that give it a curiously biological level of control.
 
-[00:23:48] Will: Well, so when they did the Spot demo, where they ran Spot up and down the the apron in front of the the track, they showed a bunch of different gaits that Spot can do, which is which is kind of what you're talking about. So Spot could do normal horse gaits, like walk, trot, canter, gallop. All that stuff, but then it also did some stuff that I don't think exists in nature. Like it would do a two right right legs, two left legs, two right legs, two left legs.
+[00:23:48] Will: Well, so when they did the Spot demo, where they ran Spot up and down the apron in front of the track, they showed a bunch of different gaits that Spot can do, which is kind of what you're talking about. So Spot could do normal horse gaits, like walk, trot, canter, gallop. All that stuff, but then it also did some stuff that I don't think exists in nature. Like it would do a two right right legs, two left legs, two right legs, two left legs.
 
-[00:24:10] Norm: It's abstracted biomeetrics. Like they they start off with the influence of nature, whether it's you know the cheetah or the butterfly,
+[00:24:10] Norm: It's abstracted biomeetrics. Like they start off with the influence of nature, whether it's you know the cheetah or the butterfly,
 
 [00:24:17] Will: or diagonal pogo's or all sorts. Right, like it was.
 
@@ -468,7 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:24:31] Norm: Yes.
 
-[00:24:32] Adam: Um, mine shipped this morning.
+[00:24:32] Adam: Mine shipped this morning.
 
 [00:24:35] Norm: I also got my shipping notification.
 
@@ -480,23 +480,23 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:24:41] Norm: Oh, that's going to seem unfair.
 
-[00:24:41] Will: Um, a lot of people, a lot of people mentioned that video. Like it was funny because we walked around and talked to a bunch of
+[00:24:41] Will: A lot of people mentioned that video. Like it was funny because we walked around and talked to a bunch of
 
 [00:24:47] Adam: It's one of our most viewed videos.
 
 [00:24:47] Will: roboticists. It is
 
-[00:24:49] Norm: even like that, and the the researchers they had seen. Oh, really? They had been aware of. Oh yeah, the spider video.
+[00:24:49] Norm: even like that, and the researchers they had seen. Oh, really? They had been aware of. Oh yeah, the spider video.
 
-[00:24:55] Adam: So, um, right after I the the Robugtix folks reached out to me and said, " Oh, we're going to ship your spider in the next week," and at the moment they had emailed me. There was an article that was making the rounds about an open source prosthetic hand. They were showing it doing its various things.
+[00:24:55] Adam: So, um, right after I the Robugtix folks reached out to me and said, " Oh, we're going to ship your spider in the next week," and at the moment they had emailed me. There was an article that was making the rounds about an open source prosthetic hand. They were showing it doing its various things.
 
-[00:25:12] Will: Is this is this the one out of Johns Hopkins or something else?
+[00:25:12] Will: Is this the one out of Johns Hopkins or something else?
 
 [00:25:15] Adam: It might be. It's white.
 
 [00:25:16] Norm: No,
 
-[00:25:16] Adam: okay. Not this one. Okay. Okay. Okay. So this one was kind of interesting. Rather, it had gearing at the knuckles, so clearly a little a little worm drive rack and pinion gearing system out here to get. But it had a stationary thumb, like a lot of thing. But they showed someone tying a shoe with this. So,
+[00:25:16] Adam: okay. Not this one. Okay. Okay. Okay. So this one was kind of interesting. Rather, it had gearing at the knuckles, so clearly a little worm drive rack and pinion gearing system out here to get. But it had a stationary thumb, like a lot of thing. But they showed someone tying a shoe with this. So,
 
 [00:25:31] Unknown speaker: wow!
 
@@ -514,11 +514,11 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:26:54] Will: It can do. It can do spread fingers. It can do bend. The only one it can't do is bringing the thumb in. I think
 
-[00:27:00] Norm: is that right? The only thing, the only one it can't do is right between the thumb and the index finger that collapsing. It can't do, but They can map all those servos with you know invasive and some non-invasive procedures to, uh,
+[00:27:00] Norm: is that right? The only thing, the only one it can't do is right between the thumb and the index finger that collapsing. It can't do, but They can map all those servos with you know invasive and some non-invasive procedures to
 
 [00:27:12] Adam: Oh, fascinating.
 
-[00:27:00] Norm: to to amputees, um, and they've had some success with like a double amputee with two these arms performing simple tasks with training.
+[00:27:00] Norm: to amputees and they've had some success with like a double amputee with two these arms performing simple tasks with training.
 
 [00:27:22] Will: But both ways, so it's not just control; it's also feedback back.
 
@@ -534,17 +534,17 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:27:35] Will: It's a bunch of guys with broken hands.
 
-[00:27:37] Norm: Like it's it is a combination of you know integration of the newest servos and how they're developing servos technology, not just stuff that we buy off the shelf. Yeah. Like they're using servos are [unclear: six hundred thousand dollars] each. Right. On those on those robots.
+[00:27:37] Norm: Like it's it is a combination of you know integration of the newest servos and how they're developing servos technology, not just stuff that we buy off the shelf. Yeah. Like they're using servos are [unclear: six hundred thousand dollars] each. Right. On those robots.
 
-[00:27:50] Will: Well, the the the the APL guys were making their own motors. They said, which is amazing, right? They're doing all their own servos and stuff.
+[00:27:50] Will: Well, the APL guys were making their own motors. They said, which is amazing, right? They're doing all their own servos and stuff.
 
 [00:27:56] Adam: There's been a lot of wonderful advancement in high torque, small motor design over the past few years.
 
-[00:28:01] Will: Well, so the other interesting thing that came out of this whole this whole visit,
+[00:28:01] Will: Well, so the other interesting thing that came out of this whole visit,
 
 [00:28:05] Adam: yeah.
 
-[00:28:05] Will: Is that you know how the the evolution of smartphones and the rise of smartphones and cheap ARM processors and you know IPUs and all the stuff that comes with the cell cameras has driven development of VR and quadcopters and all that stuff. A lot of the folks that we talked to here were using quadcopter voltage regulators to control the motors in their robots because they do everything. They do all the same stuff. They're cheap and they're easy to get and they're reliable.
+[00:28:05] Will: Is that you know how the evolution of smartphones and the rise of smartphones and cheap ARM processors and you know IPUs and all the stuff that comes with the cell cameras has driven development of VR and quadcopters and all that stuff. A lot of the folks that we talked to here were using quadcopter voltage regulators to control the motors in their robots because they do everything. They do all the same stuff. They're cheap and they're easy to get and they're reliable.
 
 [00:28:33] Adam: That's really cool.
 
@@ -552,7 +552,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:28:36] Adam: Right? Right? Right.
 
-[00:28:36] Will: Yeah. It all comes out of the phones. It all started with the phones after you know 40 years of of you know computing.
+[00:28:36] Will: Yeah. It all comes out of the phones. It all started with the phones after you know 40 years of you know computing.
 
 [00:28:45] Adam: So when you went to at the end of the was it both days? Did you go Friday?
 
@@ -572,19 +572,19 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:29:20] Adam: Yeah.
 
-[00:29:20] Norm: When you just take away the the variability needed for an autonomous robot, lock it down like we've had in factories, those robots—the amount of precision and control that we get with those—is already it's amazing.
+[00:29:20] Norm: When you just take away the variability needed for an autonomous robot, lock it down like we've had in factories, those robots—the amount of precision and control that we get with those—is already it's amazing.
 
 [00:29:32] Adam: Right, as evidenced by the wonderful katana swinging robot versus that wonderful Japanese samurai.
 
-[00:29:39] Norm: And you know, putting them, putting cameras on them, putting whatever you want on them. So it's it's a combination of hardware and software.
+[00:29:39] Norm: And putting them, putting cameras on them, putting whatever you want on them. So it's a combination of hardware and software.
 
-[00:29:46] Will: Part part of me, like the the cynical internet, you know, chemtrails guy inside that lives deep inside all of us, wondered if this whole thing wasn't put on by DARPA just to to make everybody feel better about the murderous death robots that are out there.
+[00:29:46] Will: Part part of me, like the cynical internet chemtrails guy inside that lives deep inside all of us, wondered if this whole thing wasn't put on by DARPA just to make everybody feel better about the murderous death robots that are out there.
 
 [00:30:00] Unknown speaker: Yeah.
 
 [00:30:00] Adam: Apocalypse, the robot
 
-[00:30:01] Will: apocalypse. Exactly. I feel like like
+[00:30:01] Will: apocalypse. Exactly. I feel like
 
 [00:30:04] Adam: as long as Will Smith is on the case, I'll feel okay about it—the other Will Smith.
 
@@ -600,7 +600,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:30:19] Adam: Yeah,
 
-[00:30:19] Will: yeah. I thought I thought I was both impressed and amazed. Impressed at how far we've come, and amazed at how far we go. If you think back to like ASIMO and those early bipedal robots,
+[00:30:19] Will: yeah. I thought I was both impressed and amazed. Impressed at how far we've come, and amazed at how far we go. If you think back to like ASIMO and those early bipedal robots,
 
 [00:30:31] Adam: did you? So just think about ASIMO, right, in your head.
 
@@ -616,13 +616,13 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:30:58] Will: yeah. There's there's people building robots that have more natural stride, because it's more efficient, and they're able to do a walking bipedal robot on like 400 watts of draw, which is amazing.
 
-[00:31:06] Adam: And you know the the the whole right because walking is actually quite efficient when you're doing it. It's that that reverse pendulum falling, grabbing big toe.
+[00:31:06] Adam: And you know the whole right because walking is actually quite efficient when you're doing it. It's that that reverse pendulum falling, grabbing big toe.
 
 [00:31:16] Will: Your moment is always ahead of where you are.
 
-[00:31:18] Adam: It's pretty incredible. The breaking down the mechanics of walking, which has happened over the the the advances in understanding about what it means to walk over the past 20 years, because I've been working in robotics, you know, peripheral and directly over that time has been amazing.
+[00:31:18] Adam: It's pretty incredible. The breaking down the mechanics of walking, which has happened over the advances in understanding about what it means to walk over the past 20 years, because I've been working in robotics peripheral and directly over that time has been amazing.
 
-[00:31:35] Will: Just the the stuff that's happened with people understanding how the arch of your foot works,
+[00:31:35] Will: Just the stuff that's happened with people understanding how the arch of your foot works,
 
 [00:31:40] Adam: yeah,
 
@@ -636,7 +636,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:31:43] Will: we've all used for thousands and thousands of years. So, anyway,
 
-[00:31:45] Adam: have you guys, have you guys talked to Ken Goldberg over at Cal?
+[00:31:45] Adam: have you guys talked to Ken Goldberg over at Cal?
 
 [00:31:49] Will: No,
 

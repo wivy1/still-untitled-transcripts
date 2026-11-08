@@ -56,15 +56,15 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:01:20] Adam: Well, welcome to the cave. It seems like that's crazy that this is your first visit. Yeah. Because clearly we swim in the same waters.
 
-[00:01:27] Mark Rober: That's right. And and I will say, I think you said everyone says this, but coming in and seeing it in three dimensions, it's just next level. I've seen it on so many of your videos in 2D, but 3D is that's where it's at.
+[00:01:27] Mark Rober: That's right. And I will say, I think you said everyone says this, but coming in and seeing it in three dimensions, it's just next level. I've seen it on so many of your videos in 2D, but 3D is that's where it's at.
 
-[00:01:39] Adam: It's um, it's way more hoardery in 3D, isn't it?
+[00:01:39] Adam: It's way more hoardery in 3D, isn't it?
 
 [00:01:43] Mark Rober: Yes.
 
 [00:01:43] Adam: We're going through a difficult phase right now. You're coming at a point at which I'm getting rid of a lot of stuff, so you're gonna have to leave with some of these motorcycle helmets.
 
-[00:01:51] Mark Rober: Yeah, I will. I'm gonna take some, but it's it's like a beautiful type of hoardery. It's like an artistic hoardery.
+[00:01:51] Mark Rober: Yeah, I will. I'm gonna take some, but it's like a beautiful type of hoardery. It's like an artistic hoardery.
 
 [00:01:56] Norm: High functioning.
 
@@ -74,7 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:02:06] Mark Rober: The problem is, you got so much freaking cool stuff, right?
 
-[00:02:09] Adam: Um, I just came to a an interesting maker's perspective, however, in which I keep everything because everything I keep, I keep because it's got some level of interest, to me.
+[00:02:09] Adam: I just came to a an interesting maker's perspective, however, in which I keep everything because everything I keep because it's got some level of interest, to me.
 
 [00:02:21] Mark Rober: sparks joy,
 
@@ -100,15 +100,15 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:03:32] Adam: So like, I have two pianos, just their mechanics, the hammers and all the little linkages. I have two pianos worth of linkages, and it's like, I don't need those anymore. I haven't used them in the 25 years I've been storing them. Might as well let them go to someone who will use them.
 
-[00:03:47] Mark Rober: Yeah, I tend to be sort of a minimalist. So yeah, but but I love existing in spaces like this for short periods of time. Yeah.
+[00:03:47] Mark Rober: Yeah, I tend to be sort of a minimalist. So yeah, but I love existing in spaces like this for short periods of time. Yeah.
 
 [00:03:55] Adam: Yeah. Yeah. But what is your like? You save your hero pieces from your videos.
 
-[00:03:59] Mark Rober: Yeah, like I have like the world's largest. Nerf gun. World's largest. Super. So I do have those like in a storage. And we're we're kind of building a shop, and they will be in like the shop. But yeah, sometimes I will scrap a thing. Though we did one like a rock skipping robot made from like a what do you call those? Like you launch the
+[00:03:59] Mark Rober: Yeah, like I have like the world's largest. Nerf gun. World's largest. Super. So I do have those like in a storage. And we're kind of building a shop, and they will be in like the shop. But yeah, sometimes I will scrap a thing. Though we did one like a rock skipping robot made from like a what do you call those? Like you launch the
 
 [00:04:17] Adam: skeet shooter?
 
-[00:04:17] Mark Rober: Skeet shooter. Thank you. And some of them I'll just take down afterwards because it's like yeah, but but for the most part the big ones I'll save. Yeah.
+[00:04:17] Mark Rober: Skeet shooter. Thank you. And some of them I'll just take down afterwards because it's like yeah, but for the most part the big ones I'll save. Yeah.
 
 [00:04:26] Adam: Okay.
 
@@ -120,11 +120,11 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:04:46] Adam: Yes.
 
-[00:04:46] Norm: But this is this is a whole nother. Yeah,
+[00:04:46] Norm: But this is a whole nother. Yeah,
 
 [00:04:48] Mark Rober: yeah,
 
-[00:04:49] Adam: yeah. I you know it's funny. I I like talk to crowds and. I'll do appearances, like I'm sure you do,
+[00:04:49] Adam: yeah. I you know it's funny. I like talk to crowds and. I'll do appearances, like I'm sure you do,
 
 [00:04:55] Mark Rober: Yeah, sure.
 
@@ -136,7 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:05:23] Mark Rober: Yeah.
 
-[00:05:23] Adam: So I think I my my biggest problem as a writer when I'm trying to make a joke is that I don't set up my jokes enough. I suffer Chris Rock's admonition that you got to set your joke up really solid. So I got to work on that one.
+[00:05:23] Adam: So I think I my biggest problem as a writer when I'm trying to make a joke is that I don't set up my jokes enough. I suffer Chris Rock's admonition that you got to set your joke up really solid. So I got to work on that one.
 
 [00:05:37] Mark Rober: Yeah, I feel like there is something there. I think that is the truth of it. Like everyone has that experience. It's just like your problem is you just have made and have dealt with and have seen so much cool stuff that your junk drawer is just by definition much larger than everyone else's.
 
@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:05:55] Mark Rober: Yeah.
 
-[00:05:55] Adam: Can we talk about your your
+[00:05:55] Adam: Can we talk about your
 
 [00:05:56] Mark Rober: yeah? Let's talk
 
@@ -152,33 +152,33 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:05:59] Mark Rober: My proverbial junk drawer. Yeah.
 
-[00:06:01] Adam: You are you are matriculating from an itinerant television appearer
+[00:06:01] Adam: You are matriculating from an itinerant television appearer
 
 [00:06:05] Mark Rober: Mm-hmm.
 
-[00:06:05] Adam: to to a person with a show on television.
+[00:06:05] Adam: to a person with a show on television.
 
 [00:06:08] Mark Rober: Yeah.
 
 [00:06:09] Adam: Congratulations.
 
-[00:06:09] Mark Rober: Thank you. Thank you. Thank you. Yeah. So, uh, yeah, I mean, so I'm doing a show with Jimmy Kimmel, uh, called Revenge of the Nerd. That's the name of it. Which is that was Jimmy's idea. That's great, right? Because so the the point, the premise is we're pranking people who violate social norms. So people might have seen like my glitter bomb video, where yeah, someone stole a package off my porch that made me sad. So I was like, you know what? I'm an engineer. I could do something about this. So we get revenge on them when they steal the package. They open it. Four cameras recording them. Glitter, fart spray, the whole thing. So I told Jimmy, I was like, dude, because I've been on a show a few times. Like, let's prank one of your friends. Let me like come up with something. And he's like, man, our lawyers here suck. He's he's like, everything would be such a pain. Let's just make our own show together. So, uh, yeah, that was like a year ago, and it's just taken forever to like get things rolling. But it'll be on Discovery Channel, eight episodes launches probably this summer.
+[00:06:09] Mark Rober: Thank you. Thank you. Thank you. Yeah. So, uh, yeah, I mean, so I'm doing a show with Jimmy Kimmel called Revenge of the Nerd. That's the name of it. Which is that was Jimmy's idea. That's great, right? Because so the point, the premise is we're pranking people who violate social norms. So people might have seen like my glitter bomb video, where yeah, someone stole a package off my porch that made me sad. So I was like, you know what? I'm an engineer. I could do something about this. So we get revenge on them when they steal the package. They open it. Four cameras recording them. Glitter, fart spray, the whole thing. So I told Jimmy, I was like, dude, because I've been on a show a few times. Like, let's prank one of your friends. Let me like come up with something. And he's like, man, our lawyers here suck. He's like, everything would be such a pain. Let's just make our own show together. So, uh, yeah, that was like a year ago, and it's just taken forever to like get things rolling. But it'll be on Discovery Channel, eight episodes launches probably this summer.
 
 [00:07:07] Adam: Amazing! Congratulations!
 
-[00:07:09] Mark Rober: Thank you, thank you.
+[00:07:09] Mark Rober: Thank you.
 
-[00:07:10] Adam: It is, uh, we'll have to talk.
+[00:07:10] Adam: It is we'll have to talk.
 
-[00:07:12] Mark Rober: Yes, yes. So, so, so the thing is, is like you know, someone doesn't pick up their dog's poop. Uh, you know, we'll build a catapult. We'll launch the poop back at their house. This is people who are violating social norms.
+[00:07:12] Mark Rober: Yes, yes. So, so, so the thing is, is like someone doesn't pick up their dog's poop. We'll build a catapult. We'll launch the poop back at their house. This is people who are violating social norms.
 
 [00:07:23] Norm: Start the Larry David style like things that annoy you,
 
-[00:07:25] Mark Rober: things that annoy you, or like this one I'm really excited about, like uh, you know, not returning your grocery cart to like the little chamber where you're. So I should say we're gonna reward people who do the right thing. So if you do return your car, a drone comes down or something gives you $100.
+[00:07:25] Mark Rober: things that annoy you, or like this one I'm really excited about, like not returning your grocery cart to like the little chamber where you're. So I should say we're gonna reward people who do the right thing. So if you do return your car, a drone comes down or something gives you $100.
 
 [00:07:40] Adam: Oh, nice!
 
-[00:07:40] Mark Rober: But if you don't, then we'll have a bunch of remote control ones. And there's just so much here where, like, so one flavor is you, you kind of move it behind their car,
+[00:07:40] Mark Rober: But if you don't, then we'll have a bunch of remote control ones. And there's just so much here where so one flavor is you kind of move it behind their car,
 
 [00:07:50] Adam: yeah,
 
@@ -186,9 +186,9 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:07:55] Adam: keep moving it back.
 
-[00:07:56] Mark Rober: Or, or you have it like coming towards their car, like it looks like the wind. And then they're like, " Should I get out?" And then you stop it, and they're like, " Okay." And they put it in reverse, and then you just floor it.
+[00:07:56] Mark Rober: Or you have it like coming towards their car it looks like the wind. And then they're like, " Should I get out?" And then you stop it, and they're like, " Okay." And they put it in reverse, and then you just floor it.
 
-[00:08:07] Adam: You know, you're putting cameras all over the carts too, right? They're camera platforms.
+[00:08:07] Adam: You're putting cameras all over the carts too, right? They're camera platforms.
 
 [00:08:12] Mark Rober: Yeah, yeah, yeah. The what?
 
@@ -198,21 +198,21 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:08:17] Adam: you're gonna.
 
-[00:08:18] Mark Rober: And then and then they'll come out and they're like, " What the heck?" To get it, and then you just you have them chase it around, but it'll just be just faster than a human. So then it'll loop back and keep hitting their car. But another important part is like there'll be foam on the front of the carts because we want all this to be super harmless. Like I don't like a prank that's like messes up. So not only is it harmless, so everyone that allows you to cheer for it, but these are punks who are doing the wrong thing. So that'll further allows the audience at home to be like, I can get behind this.
+[00:08:18] Mark Rober: And then they'll come out and they're like, " What the heck?" To get it, and then you just you have them chase it around, but it'll just be just faster than a human. So then it'll loop back and keep hitting their car. But another important part is like there'll be foam on the front of the carts because we want all this to be super harmless. Like I don't like a prank that's like messes up. So not only is it harmless, so everyone that allows you to cheer for it, but these are punks who are doing the wrong thing. So that'll further allows the audience at home to be like, I can get behind this.
 
 [00:08:45] Adam: Well, you've answered one of the questions. One of the problems I have with prank shows is that they're frequently cruel.
 
 [00:08:50] Mark Rober: Yeah, that's right.
 
-[00:08:51] Adam: And I'm never interested in watching someone have a breakdown for for fake reasons. Like, I find that stressful.
+[00:08:51] Adam: And I'm never interested in watching someone have a breakdown for fake reasons. Like, I find that stressful.
 
-[00:08:58] Mark Rober: Yeah, yeah, yeah. And same with me. That's not my mo. I mean, even with the glitter bomb, you get a lot of people like, " Oh, you should put like." paint in that or like acid—I mean, obviously that's extreme—but it's like that's just not what I want to do. And even these people that do take it, like in general, I don't press charges. Like we come to an understanding. It's like, all right.
+[00:08:58] Mark Rober: Yeah, yeah, yeah. And same with me. That's not my mo. I mean, even with the glitter bomb, you get a lot of people like, " Oh, you should put like." paint in that or acid—I mean, obviously that's extreme—but it's like that's just not what I want to do. And even these people that do take it, like in general, I don't press charges. Like we come to an understanding. It's like, all right.
 
 [00:09:17] Norm: Well, they got glitter in their house. Yeah, yeah,
 
 [00:09:20] Mark Rober: they have fabulous payoff in other ways.
 
-[00:09:23] Adam: Do you have, um, have you had people willing to sign an appearance release?
+[00:09:23] Adam: Do you have have you had people willing to sign an appearance release?
 
 [00:09:28] Mark Rober: Yes.
 
@@ -220,7 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:09:28] Mark Rober: So if you see their faces unblurred, so in this one, I actually sent some of the footage beforehand to Jimmy, and he's like, " Dude, you need to get the the facial expressions on these are so great." He's like, " You you can't blur those." So one of his producers called them up and worked his magic. And somehow.
 
-[00:09:45] Adam: So years ago, uh, there was an article. I can't remember where what publication it was in, but it was by someone whose job was to get appearance releases for cops for the for the show, right? And they said specifically never hard. It was really not a hard part of their job because everyone looked at it as a silver lining in a shit deal—
+[00:09:45] Adam: So years ago there was an article. I can't remember where what publication it was in, but it was by someone whose job was to get appearance releases for cops for the show, right? And they said specifically never hard. It was really not a hard part of their job because everyone looked at it as a silver lining in a shit deal—
 
 [00:10:07] Norm: situation, right, right, right.
 
@@ -234,7 +234,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:10:20] Norm: any publicity. But they're pretty diligent on television. I mean, you guys did it too, right? Yeah.
 
-[00:10:25] Adam: Well, we always, I mean, so where we where we ended up with the difficulties was like like you, our ethos on MythBusters was never to make a fool out of anybody, right? Yeah. Which is why we never did an episode about dowsing, which is to hold a fork stick and look for water, which is totally bullshit, by the way. No one's dowsing's never survived double blind tests. I don't care if your grandpa's a dowser; he's he's he's not full of shit. He probably totally believes it, and people may pick up visual cues from the landscape about water, but it's not from the fork stick. That being said, in order to do an episode about dowsing, I'd have to have a control. I'd have to bring someone on, yeah, and I'd have to show them failing, and I'd make them a fool, and that's not. The narrative of MythBusters.
+[00:10:25] Adam: Well, we always, I mean, so where we ended up with the difficulties was like you, our ethos on MythBusters was never to make a fool out of anybody, right? Yeah. Which is why we never did an episode about dowsing, which is to hold a fork stick and look for water, which is totally bullshit, by the way. No one's dowsing's never survived double blind tests. I don't care if your grandpa's a dowser; he's not full of shit. He probably totally believes it, and people may pick up visual cues from the landscape about water, but it's not from the fork stick. That being said, in order to do an episode about dowsing, I'd have to have a control. I'd have to bring someone on, yeah, and I'd have to show them failing, and I'd make them a fool, and that's not. The narrative of MythBusters.
 
 [00:11:07] Mark Rober: I'm surprised that never came up in MythBusters in other ways. So things like astrology, I mean, just things like. that.
 
@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:11:16] Mark Rober: Yeah.
 
-[00:11:16] Adam: So we never did astrology or Bigfoot. We did pyramid power, and I still regret it. I'm sorry about pyramid power. Um, but yeah, we looked for things, and so at one point for one episode, and I'll be very circumspect about how I described this. For one episode, we brought in a quote expert who showed up and was so bad.
+[00:11:16] Adam: So we never did astrology or Bigfoot. We did pyramid power, and I still regret it. I'm sorry about pyramid power. But yeah, we looked for things, and so at one point for one episode, and I'll be very circumspect about how I described this. For one episode, we brought in a quote expert who showed up and was so bad.
 
 [00:11:36] Mark Rober: Yeah.
 
@@ -252,7 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:11:53] Norm: So while you're doing the show, you're still doing YouTube stuff too.
 
-[00:11:58] Mark Rober: Yeah, that's right. So my yeah, YouTube is still my first love, and I've pushed back on the TV thing like a lot. Because it's like you know, you have people when you have a channel that does well on YouTube. You have TV producers who come out of the woodwork.
+[00:11:58] Mark Rober: Yeah, that's right. So my yeah, YouTube is still my first love, and I've pushed back on the TV thing like a lot. Because it's like you have people when you have a channel that does well on YouTube. You have TV producers who come out of the woodwork.
 
 [00:12:11] Adam: Yeah,
 
@@ -268,15 +268,15 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:12:34] Adam: Because I think they have a lot of deep know-how storytelling, but also dealing with networks.
 
-[00:12:39] Mark Rober: Yeah, that's right, and also like, um, you know, I was able to get executive producer. But even with Jimmy, like, there's been a few things already that I'm like, Jimmy, I think it should be this way, and he's like, Yeah, of course, and he'll send an email, and yea, verily, it becomes that way, right? So having him in my corner is someone like a champion, and he gets it, like that makes it a little bit different. So it'll be exciting for me just to like see how it works. But again, YouTube is my first love. I plan on making my monthly videos still just as much because I plan mine out. Like I have all my videos for 2020, like really planned out.
+[00:12:39] Mark Rober: Yeah, that's right, and also like I was able to get executive producer. But even with Jimmy there's been a few things already that I'm like, Jimmy, I think it should be this way, and he's like, Yeah, of course, and he'll send an email, and yea, verily, it becomes that way, right? So having him in my corner is someone like a champion, and he gets it, like that makes it a little bit different. So it'll be exciting for me just to like see how it works. But again, YouTube is my first love. I plan on making my monthly videos still just as much because I plan mine out. Like I have all my videos for 2020, like really planned out.
 
 [00:13:05] Adam: Oh wow!
 
 [00:13:13] Mark Rober: Yeah, in different stages,
 
-[00:13:14] Adam: You are very, very, uh, forward thinking.
+[00:13:14] Adam: You are very, very forward thinking.
 
-[00:13:18] Mark Rober: Tomorrow, um, I'm I'm filming for my February 2021 video.
+[00:13:18] Mark Rober: Tomorrow I'm I'm filming for my February 2021 video.
 
 [00:13:24] Adam: Wow!
 
@@ -284,13 +284,13 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:13:30] Norm: Your first first love.
 
-[00:13:31] Mark Rober: That's right, my first first love at NASA. Uh, so so yeah, we'll film that. But yeah, I have I have all my videos planned out, and so they're in different stages, which is why I'm able hopefully to do some bigger stuff. Is you know, it just takes a long time for some of these builds, and
+[00:13:31] Mark Rober: That's right, my first first love at NASA. so so yeah, we'll film that. But yeah, I have all my videos planned out, and so they're in different stages, which is why I'm able hopefully to do some bigger stuff. Is you know, it just takes a long time for some of these builds, and
 
 [00:13:44] Adam: yeah,
 
 [00:13:44] Mark Rober: yeah,
 
-[00:13:45] Adam: and the television show is going to absorb your life like a sponge. I know, I know.
+[00:13:45] Adam: and the television show is going to absorb your life like a sponge. I know.
 
 [00:13:51] Mark Rober: It makes me so sad because I people keep promising that won't be the case, but there are people who are incentivized to tell me that, and so I trust you more than I trust them.
 
@@ -298,7 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:14:11] Mark Rober: Right.
 
-[00:14:11] Adam: I was, I, early in MythBusters tenure. I hired my first assistant, and to be frank, all the other MythBusters hosts made fun of me for having an assistant. But later, they all had assistants. Like you, you definitely need help with the infrastructure once you're branching out.
+[00:14:11] Adam: I was, I, early in MythBusters tenure. I hired my first assistant, and to be frank, all the other MythBusters hosts made fun of me for having an assistant. But later, they all had assistants. Like you definitely need help with the infrastructure once you're branching out.
 
 [00:14:29] Mark Rober: Yeah, and like so, example. What would they do? Like as an example,
 
@@ -306,9 +306,9 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:14:39] Mark Rober: Right.
 
-[00:14:39] Adam: like you know, it's not required that I screw 150 screws on this thing.
+[00:14:39] Adam: like it's not required that I screw 150 screws on this thing.
 
-[00:14:43] Mark Rober: Got it, got it, got it.
+[00:14:43] Mark Rober: Got it.
 
 [00:14:44] Adam: Or they could do research for me on other stuff, other projects, keep things burning.
 
@@ -320,9 +320,9 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:15:00] Adam: What do you want to happen? What's possible? What did you actually get?
 
-[00:15:04] Mark Rober: Right. I'm terrified. Like I'm excited, but also I'm like I'm fully aware this is a situation where it's like I have no idea what if I if I knew what I was signing myself up for, I probably wouldn't have done it. But it's just like. I need to do it.
+[00:15:04] Mark Rober: Right. I'm terrified. Like I'm excited, but also I'm like I'm fully aware this is a situation where it's like I have no idea what if I knew what I was signing myself up for, I probably wouldn't have done it. But it's just like. I need to do it.
 
-[00:15:17] Adam: Oh, oh, oh! I have I have such an important piece of advice.
+[00:15:17] Adam: Oh, oh, oh! I have such an important piece of advice.
 
 [00:15:19] Mark Rober: Okay, thank you.
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:15:39] Mark Rober: Right.
 
-[00:15:39] Adam: So that's a, the specific thing. In each video, you have a set of invisible algorithms that you hold it up to to see this is right. This show is a whole new beast,
+[00:15:39] Adam: So that's a, the specific thing. In each video, you have a set of invisible algorithms that you hold it up to see this is right. This show is a whole new beast,
 
 [00:15:49] Mark Rober: Yeah.
 
@@ -356,7 +356,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:16:28] Norm: that's what the editors are trained for. It's with the audience, right? Yeah.
 
-[00:16:31] Mark Rober: You know, they, they suspenseful. They build up suspense at a moment that wasn't suspenseful, and it felt artificial to me. And I'm just like, I'm terrified. And I, you know, I brought this up. Like, I need to have real control over the edit because I think that's part of the special sauce of like what I do with the channel. Like, I want to be part of that, and I'm terrified it's going to come across as like not my brand and feel like typical TV.
+[00:16:31] Mark Rober: They suspenseful. They build up suspense at a moment that wasn't suspenseful, and it felt artificial to me. And I'm just like, I'm terrified. And I I brought this up. Like, I need to have real control over the edit because I think that's part of the special sauce of like what I do with the channel. Like, I want to be part of that, and I'm terrified it's going to come across as like not my brand and feel like typical TV.
 
 [00:16:55] Adam: So the biggest advantage you have is that you've self produced all your stuff, right? So that you understand your pace, the character that you are. A lot of people showing up for their first television show have none of that groundwork, and what that all means is when you have a problem with the edit, you're not just saying this is wrong. You're going to be coming and going. Here's how we fix this.
 
@@ -382,11 +382,11 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:17:52] Mark Rober: Oh, really? So you would spend time in edit bay sometimes?
 
-[00:17:53] Adam: No, I don't. But I love. I I just I find the the the watching it come together.
+[00:17:53] Adam: No, I don't. But I love. I just I find the watching it come together.
 
 [00:18:00] Mark Rober: Sure, sure.
 
-[00:18:01] Adam: And then looking at that rough cut and figuring out ways it can be fixed because, like, I think the very first you know early on in Savage Builds, we just took the first day of building and roughed it out to kind of show discovery the way we were thinking about it and. It was a great test case because nothing happened in this assembly because it was like you know four hours cut down to 20 minutes,
+[00:18:01] Adam: And then looking at that rough cut and figuring out ways it can be fixed because I think the very first you know early on in Savage Builds, we just took the first day of building and roughed it out to kind of show discovery the way we were thinking about it and. It was a great test case because nothing happened in this assembly because it was like you know four hours cut down to 20 minutes,
 
 [00:18:24] Mark Rober: right?
 
@@ -404,15 +404,15 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:18:57] Norm: That's I think that's the fun part.
 
-[00:18:58] Mark Rober: Yeah, and so it's like you know I see this thing that YouTubers do sometimes. This is like a little bit of a soapbox for me, but it's like they have a little bit of success and they feel like, oh well, the script is I need to scale up and I need to now hire an editor and someone behind the camera and someone to write and and they need to make it bigger and bigger.
+[00:18:58] Mark Rober: Yeah, and so it's like you know I see this thing that YouTubers do sometimes. This is like a little bit of a soapbox for me, but it's like they have a little bit of success and they feel like, oh well, the script is I need to scale up and I need to now hire an editor and someone behind the camera and someone to write and they need to make it bigger and bigger.
 
 [00:19:12] Unknown speaker: Yeah. Mm-hmm.
 
-[00:19:17] Mark Rober: And it's like, for what? Like, what is your goal? If that's like really what you're going for, then you could. But it, to me, it's the equivalent of like cranking up the treadmill. It's exciting at first; you get to do these things. But at some point, the dopamine wears off, and now you're sprinting at this really fast pace, and like that's the definition of burnout. When you're running really fast and you're not, you're not, you're you're putting all this input in, and you're not getting the same output you were getting. So I'm like very protective about like I, I have a really small team. Like I just hired my first full time person, and like because I like this, like I'm protecting that little flame of creativity. And people are like, " Oh, you should write a book and do a podcast and go on tour." With respect, I know you've done.
+[00:19:17] Mark Rober: And it's like, for what? Like, what is your goal? If that's like really what you're going for, then you could. But it, to me, it's the equivalent of like cranking up the treadmill. It's exciting at first; you get to do these things. But at some point, the dopamine wears off, and now you're sprinting at this really fast pace, and like that's the definition of burnout. When you're running really fast and you're not, you're putting all this input in, and you're not getting the same output you were getting. So I'm like very protective about like I, I have a really small team. Like I just hired my first full time person, and because I this, like I'm protecting that little flame of creativity. And people are like, " Oh, you should write a book and do a podcast and go on tour." With respect, I know you've done.
 
 [00:20:02] Adam: I'm currently doing all three of those things, but yes,
 
-[00:20:04] Mark Rober: but I'm like, I'm like, no, like unless it's like a hell yes, it's like a no for me, and I really just you know because I have a family and stuff.
+[00:20:04] Mark Rober: but I'm like, no, like unless it's like a hell yes, it's like a no for me, and I really just you know because I have a family and stuff.
 
 [00:20:12] Adam: Yeah, well, that's so. The four years since I've been doing MythBusters has been a very slow. Accretion of our core team here, which has grown very slowly.
 
@@ -462,9 +462,9 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:21:34] Mark Rober: You know,
 
-[00:21:35] Adam: otherwise it's like a felony, right? Like it's real, it's real crime.
+[00:21:35] Adam: otherwise it's like a felony, right? Like it's real crime.
 
-[00:21:38] Mark Rober: Yeah, I mean, I don't want to go to too many details. I will say in this in this year, uh, for the glitter bomb, I I lawyered up pretty hard and got like several advice from like to know like if I'm crossing lines and I I mean everything we did, even subtle things were like was like by the book. So there's ways to do it.
+[00:21:38] Mark Rober: Yeah, I mean, I don't want to go to too many details. I will say in this year for the glitter bomb, I I lawyered up pretty hard and got like several advice from like to know like if I'm crossing lines and I I mean everything we did, even subtle things were like was like by the book. So there's ways to do it.
 
 [00:21:56] Adam: You know what's funny though about lawyers?
 
@@ -490,7 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:22:19] Mark Rober: because it's in the lawyer's incentive. It's misaligned incentives. They they're just going to say like no to everything.
 
-[00:22:24] Adam: You know, someone said this to me at the beginning of my divorce, 15, 18 years ago. They said, " Look, the problem about bringing lawyers into it, they have to be brought in, but lawyers operate within an adversarial system.
+[00:22:24] Adam: Someone said this to me at the beginning of my divorce, 15, 18 years ago. They said, " Look, the problem about bringing lawyers into it, they have to be brought in, but lawyers operate within an adversarial system.
 
 [00:22:37] Mark Rober: Yeah,
 
@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:23:16] Mark Rober: I'm totally using that.
 
-[00:23:20] Norm: What can you say about your your projects for us this year? I mean, it's still blowing my mind that you have 2020 all mapped out already. Yeah,
+[00:23:20] Norm: What can you say about your projects for us this year? I mean, it's still blowing my mind that you have 2020 all mapped out already. Yeah,
 
 [00:23:26] Adam: I'm sort of like, yeah, I feel a little shame.
 
@@ -544,11 +544,11 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:25:30] Adam: That's hilarious.
 
-[00:25:31] Mark Rober: So one video I'll tell you, this is likely my March video, is I'm making a robot that will set up a room full of dominoes, so like a gym full of dominoes. So you you you leave.
+[00:25:31] Mark Rober: So one video I'll tell you, this is likely my March video, is I'm making a robot that will set up a room full of dominoes, so like a gym full of dominoes. So you leave.
 
 [00:25:43] Adam: That's awesome.
 
-[00:25:43] Mark Rober: You turn, you turn off the lights. You come back in the morning, and it's like the gym is
+[00:25:43] Mark Rober: You turn off the lights. You come back in the morning, and it's like the gym is
 
 [00:25:46] Adam: so a Roomba that
 
@@ -574,11 +574,11 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:26:18] Mark Rober: less than that, and the precision you need, and like loading it, like how do you load it? That's a huge problem in and of itself.
 
-[00:26:24] Adam: You know, Numberphile, Matt Parker was here, and he'll be back again in January. But he was talking about flipping a coin 10,000 times, which he did to his family's great consternation one week. But we were talking about building a machine that could flip a coin 100,000 times, and I spent several days diagramming it out, only to conclude this is a gigantic problem. This is really hard to solve. Something that could flip a coin and then read its value and then recirculate and flip that coin again. Just that, is a—
+[00:26:24] Adam: Numberphile, Matt Parker was here, and he'll be back again in January. But he was talking about flipping a coin 10,000 times, which he did to his family's great consternation one week. But we were talking about building a machine that could flip a coin 100,000 times, and I spent several days diagramming it out, only to conclude this is a gigantic problem. This is really hard to solve. Something that could flip a coin and then read its value and then recirculate and flip that coin again. Just that, is a—
 
 [00:26:53] Mark Rober: yeah, yeah, that's interesting. You'd almost want to do it. Like, is it cheating to have it like colored so like optically you could see? Hey, that's red or blue.
 
-[00:27:00] Adam: That's not, That's not at all. But that's a great idea.
+[00:27:00] Adam: That's not at all. But that's a great idea.
 
 [00:27:02] Mark Rober: Yeah, because then because otherwise it's harder to read the difference.
 
@@ -592,7 +592,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:27:19] Adam: It doesn't. Actually, you could probably do it with multiple coins, but
 
-[00:27:23] Mark Rober: that doesn't necessarily. Yeah, yeah. So same issue here. It's the scale of it. And like even, and I'm guilty of this. When you told me that, I was like, I could do that. And then the more you talked about it, it was like, oh right,
+[00:27:23] Mark Rober: that doesn't necessarily. Yeah, yeah. So same issue here. It's the scale of it. And like even, and I'm guilty of this. When you told me that, I was like, I could do that. And then the more you talked about it was like, oh right,
 
 [00:27:34] Adam: no. So here's the one more wrinkle: is that when Matt did it, he wanted to find out how often it did heads or tails, and at 10,000 flips, a British pound coin, which is my favorite coin, actually landed on its edge 14 times out of 10,000 flips.
 
@@ -608,11 +608,11 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:28:07] Adam: but we still have to accommodate for it.
 
-[00:28:10] Mark Rober: Why? So I love this idea. What was what was the point of him doing this thing just to show empirically that?
+[00:28:10] Mark Rober: Why? So I love this idea. What was the point of him doing this thing just to show empirically that?
 
-[00:28:16] Adam: To show empirically the the split, but also to see how to look at Literally edge cases when it lands on its edge.
+[00:28:16] Adam: To show empirically the split, but also to see how to look at Literally edge cases when it lands on its edge.
 
-[00:28:23] Mark Rober: Literally, that's amazing. Yeah, so that's that's the thing with this one. So I built a one build was like a dartboard that gets a bullseye every time. Uses like a Vicon motion capture system, tracks the dart board moves in like 400 milliseconds. And up to this point, that had been like my most complex build. But honestly, that amazingly, even though that seems I think more complex to people, this domino thing is several times like up to an order of magnitude more complex because of the scale. And that's the challenge I need to figure out for the YouTube video.
+[00:28:23] Mark Rober: Literally, that's amazing. Yeah, so that's the thing with this one. So I built a one build was like a dartboard that gets a bullseye every time. Uses like a Vicon motion capture system, tracks the dart board moves in like 400 milliseconds. And up to this point, that had been like my most complex build. But honestly, that amazingly, even though that seems I think more complex to people, this domino thing is several times like up to an order of magnitude more complex because of the scale. And that's the challenge I need to figure out for the YouTube video.
 
 [00:28:53] Adam: Yeah, yeah.
 
@@ -652,25 +652,25 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:30:12] Adam: You're a STEAM communicator.
 
-[00:30:15] Mark Rober: Yeah, but yeah, yeah. I think like yeah. Generally, if like someone asks me on an airplane, I'll just be like, uh, I I do some science communication.
+[00:30:15] Mark Rober: Yeah, but yeah, yeah. I think like yeah. Generally, if like someone asks me on an airplane, I'll just be like I I do some science communication.
 
 [00:30:27] Adam: Yeah,
 
 [00:30:27] Mark Rober: like I won't even. I mean, sometimes if it gets into it, I'll say it, but like it's such a complicated thing to explain without sounding lame.
 
-[00:30:34] Adam: And it's a very it's a it's a there's a
+[00:30:34] Adam: And it's a very it's a there's a
 
 [00:30:37] Norm: whole bunch of
 
 [00:30:39] Adam: conversational trees that grow out of just the admission.
 
-[00:30:41] Mark Rober: yeah, but that's actually come back to once I said that to a dude on a plane who's sitting next to me, and it's like I I feel like they're obligated to ask me a follow up question if I say like oh I make YouTube videos, so I was like oh I just do like some science stuff, uh, and that was it, and then like, uh, a couple of people came up and had seen me on the flight, are like hey, could I have a picture, and then after that he's like, uh, oh, hold up what do you do
+[00:30:41] Mark Rober: yeah, but that's actually come back to once I said that to a dude on a plane who's sitting next to me, and it's like I I feel like they're obligated to ask me a follow up question if I say like oh I make YouTube videos, so I was like oh I just do like some science stuff and that was it, and then a couple of people came up and had seen me on the flight, are like hey, could I have a picture, and then after that he's like, uh, oh, hold up what do you do
 
 [00:31:06] Norm: science communication
 
 [00:31:07] Mark Rober: science communication baby
 
-[00:31:09] Adam: I um early in MythBusters I was asked to be Captain Nemo for the Coney Island Mermaid Parade, which is how they opened the beach at Far Rockaway every year in New York City, and Patti D'Arbanville of Sweet Lady D'Arbanville fame, Cat Stevens' song, and she was on, uh, uh, what was the Denis Leary Firefighting Show. It's not burn me. It's rescue me. Rescue me. Rescue me. Anyway, um, Patti D'Arbanville sitting in this rickshaw with me, being dragged through New York as part of the Mermaid Parade, and when people keep coming up to me at a certain point, and this was like that third season of MythBusters, she was like, "What the hell is that show again? You're on."
+[00:31:09] Adam: I early in MythBusters I was asked to be Captain Nemo for the Coney Island Mermaid Parade, which is how they opened the beach at Far Rockaway every year in New York City, and Patti D'Arbanville of Sweet Lady D'Arbanville fame, Cat Stevens' song, and she was on what was the Denis Leary Firefighting Show. It's not burn me. It's rescue me. Rescue me. Rescue me. Anyway Patti D'Arbanville sitting in this rickshaw with me, being dragged through New York as part of the Mermaid Parade, and when people keep coming up to me at a certain point, and this was like that third season of MythBusters, she was like, "What the hell is that show again? You're on."
 
 [00:31:52] Norm: Now I care.
 
@@ -680,9 +680,9 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:32:00] Mark Rober: Mm-hmm. Yep, like two or three weeks ago. Yeah.
 
-[00:32:02] Adam: Um, what did you do on the show?
+[00:32:02] Adam: What did you do on the show?
 
-[00:32:04] Mark Rober: Uh, We announced, uh, so this is my first time being on the couch, which is cool.
+[00:32:04] Mark Rober: We announced so this is my first time being on the couch, which is cool.
 
 [00:32:07] Adam: Congratulations.
 
@@ -690,7 +690,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:32:13] Adam: right. Right. No, you never get to sit on the couch.
 
-[00:32:16] Mark Rober: Yeah, so normally the times I've been on before, I have like a a bit, you know.
+[00:32:16] Mark Rober: Yeah, so normally the times I've been on before, I have like a bit.
 
 [00:32:20] Adam: You always have to sing for your supper.
 
@@ -698,7 +698,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:32:22] Adam: Even Gordon Ramsay has to go cook something. He doesn't get to sit on the couch.
 
-[00:32:25] Mark Rober: So this was like, uh, part of it was I'd wanted to come on earlier to do Team Trees stuff because you know we'd done the Team Trees, uh, to talk about it. So part of it, he, I got to talk partly about Team Trees because that was right as we just crossed the finish line, um, and then we also got to talk about the show announcing plus Glitter Bomb. So it's like those three things we kind of hit in succession. It was really fun. It was cool.
+[00:32:25] Mark Rober: So this was like part of it was I'd wanted to come on earlier to do Team Trees stuff because you know we'd done the Team Trees to talk about it. So part of it, he, I got to talk partly about Team Trees because that was right as we just crossed the finish line and then we also got to talk about the show announcing plus Glitter Bomb. So it's like those three things we kind of hit in succession. It was really fun. It was cool.
 
 [00:32:47] Adam: I have only been on Kimmel's show once. He slapped me in the face.
 
@@ -712,7 +712,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:32:55] Mark Rober: That's amazing.
 
-[00:32:55] Adam: So there's this very funny bit where, um, we're getting ready to go in the rehearsal and we're chatting about the White House press conference dinner because the year he hosted it was the year I got to actually go.
+[00:32:55] Adam: So there's this very funny bit where we're getting ready to go in the rehearsal and we're chatting about the White House press conference dinner because the year he hosted it was the year I got to actually go.
 
 [00:33:07] Mark Rober: Oh.
 
@@ -724,15 +724,15 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:33:32] Mark Rober: And how was the hit? Did he hold back?
 
-[00:33:34] Adam: Oh, it was a good hit, a good solid hit. No, no, no, he he really laid into it. I mean, he did not as hard as Jamie. Jamie's smack was much harder.
+[00:33:34] Adam: Oh, it was a good hit, a good solid hit. No, no, no, he really laid into it. I mean, he did not as hard as Jamie. Jamie's smack was much harder.
 
-[00:33:42] Mark Rober: That's amazing. Yeah, he is, uh, he's exactly as advert— Like I don't know. You you have experience meeting people like that a lot more than I do, and I'm sure some are like as advertised, and some are like, oh yeah, he's kind of a jerk. Uh,
+[00:33:42] Mark Rober: That's amazing. Yeah, he is he's exactly as advert— Like I don't know. You have experience meeting people like that a lot more than I do, and I'm sure some are like as advertised, and some are like, oh yeah, he's kind of a jerk.
 
 [00:33:55] Adam: it's a mixed bag.
 
-[00:33:56] Mark Rober: Jimmy though, he's like the real like exactly like you like walking up to his office and stuff. He knows all the security guards. He's fist bumping all of them. He's talking about their families. He's he's just like the real deal.
+[00:33:56] Mark Rober: Jimmy though, he's like the real like exactly like you like walking up to his office and stuff. He knows all the security guards. He's fist bumping all of them. He's talking about their families. He's just like the real deal.
 
-[00:34:07] Adam: Well, the thing I liked was the White House Press Correspondent Dinner is totally surreal. It's totally bizarre. The number of weird famous people from all these different avenues of the world. And so when I said to him, you know, I was there when you hosted it, he was like, " Oh, cool." And then you could see him think about it, and he goes. Wasn't it weird?
+[00:34:07] Adam: Well, the thing I liked was the White House Press Correspondent Dinner is totally surreal. It's totally bizarre. The number of weird famous people from all these different avenues of the world. And so when I said to him I was there when you hosted it, he was like, " Oh, cool." And then you could see him think about it, and he goes. Wasn't it weird?
 
 [00:34:26] Mark Rober: Even for him.
 
@@ -758,11 +758,11 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:34:42] Mark Rober: Charisma is charisma. Yeah,
 
-[00:34:43] Adam: we took a picture, and his his kids his apparently his kids were obsessed with MythBusters, which is like I can disagree with his politics, but that's not that's not bad. His kids watch the show, and then just before the picture, I told him I was diametrically opposed to everything he stood for. And he went great, and we took a picture.
+[00:34:43] Adam: we took a picture, and his his kids his apparently his kids were obsessed with MythBusters, which is like I can disagree with his politics, but that's not bad. His kids watch the show, and then just before the picture, I told him I was diametrically opposed to everything he stood for. And he went great, and we took a picture.
 
 [00:35:00] Mark Rober: Wow, that's amazing.
 
-[00:35:01] Adam: Um, so you're just starting pre production now,
+[00:35:01] Adam: So you're just starting pre production now,
 
 [00:35:05] Mark Rober: Mm-hmm.
 
@@ -770,23 +770,23 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:35:08] Mark Rober: Yeah, exactly.
 
-[00:35:08] Adam: Starting to yeah think about the possible. Are you are you are there items on your bucket list that you never thought you'd have the budget to do that you're now getting to explore?
+[00:35:08] Adam: Starting to yeah think about the possible. Are you are there items on your bucket list that you never thought you'd have the budget to do that you're now getting to explore?
 
-[00:35:18] Mark Rober: Yeah, there's like, um, again, I'm probably in a lot of trouble for this, but who cares? There's like, uh, one of the things is we're gonna do like I'm gonna kind of be like Ashton Kutcher in Punk'd, where he's like, we're gonna have like a Winnebago of, uh, sweet justice, where it'll kind of follow us wherever the prank is gonna be. It'll be there, and it's we're gonna we're gonna make it look like the Winnebago from Spaceballs, like really run down. But when you go inside, it's gonna be like super pimped out and super rad. You know, astronaut chairs and like a wall of TVs and like, uh, licorice dispensers from the roof. You push a button and like a Reese's Pieces catapult puts it right in my mouth. You know, just stupid ridiculous things. right?
+[00:35:18] Mark Rober: Yeah, there's like again, I'm probably in a lot of trouble for this, but who cares? There's like one of the things is we're gonna do like I'm gonna kind of be like Ashton Kutcher in Punk'd, where he's like, we're gonna have a Winnebago of sweet justice, where it'll kind of follow us wherever the prank is gonna be. It'll be there, and it's we're gonna make it look like the Winnebago from Spaceballs, like really run down. But when you go inside, it's gonna be like super pimped out and super rad. Astronaut chairs and a wall of TVs and like licorice dispensers from the roof. You push a button and like a Reese's Pieces catapult puts it right in my mouth. Just stupid ridiculous things. right?
 
 [00:36:00] Adam: I'm so into this. This is so awesome.
 
-[00:36:03] Mark Rober: And like that's kind of like I that that's I wouldn't get to do that. It's almost like a set. It's almost something like that. And I'm gonna work with like production or what do you call the people who like the set designers, and we'll like storyboard stuff. So that's gonna be like fun,
+[00:36:03] Mark Rober: And that's kind of like I that that's I wouldn't get to do that. It's almost like a set. It's almost something like that. And I'm gonna work with like production or what do you call the people who like the set designers, and we'll like storyboard stuff. So that's gonna be like fun,
 
 [00:36:16] Adam: dude. That's fabulous. I mean, the thing is, is that's an extension of what you do anyway. Like, I wouldn't this be cool if
 
-[00:36:21] Mark Rober: that? Yeah, totally. And and on my YouTube channel, I probably wouldn't like go to that extreme, or I I tend to not like think so big. So this will just be a fun experience for me to like see what it's like. When you have like a team at your disposal and really, really good creative people to like help you and collaborate with, like that's the part I'm pretty excited about.
+[00:36:21] Mark Rober: that? Yeah, totally. And on my YouTube channel, I probably wouldn't like go to that extreme, or I I tend to not like think so big. So this will just be a fun experience for me to like see what it's like. When you have a team at your disposal and really, really good creative people to like help you and collaborate with, like that's the part I'm pretty excited about.
 
 [00:36:40] Adam: I'll bet.
 
 [00:36:40] Mark Rober: Yeah, even though I won't be sleeping for six months, like it'll make up for it and like just be like living off Red Bull.
 
-[00:36:48] Adam: Yeah, it's definitely a monk's existence. Um, and, uh, advice.
+[00:36:48] Adam: Yeah, it's definitely a monk's existence. And advice.
 
 [00:36:53] Mark Rober: Yes, please.
 
@@ -794,13 +794,13 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:37:05] Mark Rober: Right.
 
-[00:37:05] Adam: Um, that like months after production, give yourself a lot of leeway.
+[00:37:05] Adam: That like months after production, give yourself a lot of leeway.
 
 [00:37:10] Mark Rober: Oh, just like to decompress.
 
-[00:37:12] Adam: I guess after the firehose of production, um, when I finished MythBusters, Paget Brewster told me that I was going to become unhinged. She was like, I was on a show for six years, and when I stopped, like the whole world changed, and I wasn't ready for it. And so this is one production cycle, but. Still at the end of it, you're going to be like, so like plan a trip away somewhere or give yourself some time off.
+[00:37:12] Adam: I guess after the firehose of production when I finished MythBusters, Paget Brewster told me that I was going to become unhinged. She was like, I was on a show for six years, and when I stopped, like the whole world changed, and I wasn't ready for it. And so this is one production cycle, but. Still at the end of it, you're going to be like, so like plan a trip away somewhere or give yourself some time off.
 
-[00:37:35] Mark Rober: Well, For MythBusters, then was it, uh, like how how how many months were you on and then off?
+[00:37:35] Mark Rober: Well, For MythBusters, then was it like how how how many months were you on and then off?
 
 [00:37:40] Norm: It was just nonstop.
 
@@ -810,7 +810,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:37:46] Mark Rober: Wow. And like, what's a seat of the you don't how much is how many months is a season like six months? Who knows? They pass
 
-[00:37:53] Adam: you know Discovery doesn't air seasons like 20 episodes of blah blah blah. They want as many as they can get. Obviously, more is better. But like we just shot basically that was the most we could shoot.
+[00:37:53] Adam: Discovery doesn't air seasons like 20 episodes of blah blah blah. They want as many as they can get. Obviously, more is better. But like we just shot basically that was the most we could shoot.
 
 [00:38:05] Mark Rober: Right.
 
@@ -860,7 +860,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:39:44] Adam: Oh my God, no. Totally.
 
-[00:39:46] Mark Rober: I think there's, there's a few potentially in high positions of power. I'm, you know, I don't know.
+[00:39:46] Mark Rober: I think there's, there's a few potentially in high positions of power. I'm I don't know.
 
 [00:39:51] Adam: You're reminding me of the guy I met at TED who has like a 5,000 square foot shop just to himself because he cashed out of like a dot com thing and made millions and has 5,000 square feet of tools that he doesn't know how to use and almost never uses. Yeah, it made me enraged to hear that, but go ahead. Sorry.
 
@@ -908,11 +908,11 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:41:31] Mark Rober: Wow.
 
-[00:41:31] Adam: Talking at this volume in a coffee shop, going, I don't know. The second funding round might not work if they don't come to the table with more money and blah blah. So, like, I would want. So, I love the idea of people actually taking down people's personal information and then calling them.
+[00:41:31] Adam: Talking at this volume in a coffee shop, going, I don't know. The second funding round might not work if they don't come to the table with more money and blah blah. So I would want. So, I love the idea of people actually taking down people's personal information and then calling them.
 
 [00:41:47] Mark Rober: Ah. Oh. Okay.
 
-[00:41:48] Adam: So, like, but that's also kind of unhinged. My friend, a friend of mine, was behind a real douchebag at a at a at the Inglourious Basterds movie screening with Tarantino here in the city, and he was behind this guy, and he was watching this guy. I'm sorry, I'm going to derail this for a second.
+[00:41:48] Adam: So but that's also kind of unhinged. My friend, a friend of mine, was behind a real douchebag at a at the Inglourious Basterds movie screening with Tarantino here in the city, and he was behind this guy, and he was watching this guy. I'm sorry, I'm going to derail this for a second.
 
 [00:42:03] Norm: That's fine.
 
@@ -932,13 +932,13 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:42:29] Norm: Right.
 
-[00:42:29] Adam: So at one point, he gave out his phone number, and so my friend wrote it down. And a week later, a week later, the guy sat at like a Starbucks, and he tweets about being at Starbucks. And I'm like working on my screenplay. And my friend was like, " Fuck that guy." So he called that Starbucks,
+[00:42:29] Adam: So at one point, he gave out his phone number, and so my friend wrote it down. And a week later, the guy sat at like a Starbucks, and he tweets about being at Starbucks. And I'm like working on my screenplay. And my friend was like, " Fuck that guy." So he called that Starbucks,
 
 [00:42:45] Norm: yeah.
 
-[00:42:45] Adam: And he was like, " Hey, is so and so there? I'm looking for a friend of mine. He's on the laptop. He's probably wearing this baseball cap." And they went and got him, and he came over to the phone. He was like, " Hello." And my friend went, " Is this so and so?" He's yeah. You're a douchebag. And hung up on me. So that's more extreme than I think we should get. But what if you what if you could beam their own conversation back to them later?
+[00:42:45] Adam: And he was like, " Hey, is so and so there? I'm looking for a friend of mine. He's on the laptop. He's probably wearing this baseball cap." And they went and got him, and he came over to the phone. He was like, " Hello." And my friend went, " Is this so and so?" He's yeah. You're a douchebag. And hung up on me. So that's more extreme than I think we should get. But what if you could beam their own conversation back to them later?
 
-[00:43:07] Norm: I've seen people who do like do the the they mind people or they they hang around people who are loud on their phones and their YouTube videos of this, and then they they engage like they're on their phone too, and they they respond to them as if they're having a conversation.
+[00:43:07] Norm: I've seen people who do like do the they mind people or they hang around people who are loud on their phones and their YouTube videos of this, and then they engage like they're on their phone too, and they respond to them as if they're having a conversation.
 
 [00:43:20] Adam: Oh,
 
@@ -974,7 +974,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:44:10] Mark Rober: speech jammers.
 
-[00:44:11] Adam: Oh, not speech jammers. You can't use an active radio signal jammer in the United States because of the FCC rules. But a passive radio jammer. So suppose someone's out in public talking on the phone, and you get like people moving. Basically, they move a Faraday cage around him, and his phone cuts out. And they they basically bring screens near him and shut his phone down.
+[00:44:11] Adam: Oh, not speech jammers. You can't use an active radio signal jammer in the United States because of the FCC rules. But a passive radio jammer. So suppose someone's out in public talking on the phone, and you get like people moving. Basically, they move a Faraday cage around him, and his phone cuts out. And they basically bring screens near him and shut his phone down.
 
 [00:44:31] Mark Rober: That's pretty funny. I like that.
 
@@ -986,7 +986,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:44:39] Adam: For other violations of social norms,
 
-[00:44:41] Mark Rober: and we'll take them. I think we're actually going to put out like we we have a bunch that we're doing, but I think this the beauty of this is it this resonates with so many people, kind of like with MythBusters. Like, what myths would you want? It you guys would put that call out, right?
+[00:44:41] Mark Rober: and we'll take them. I think we're actually going to put out like we have a bunch that we're doing, but I think this the beauty of this is it this resonates with so many people, kind of like with MythBusters. Like, what myths would you want? It you guys would put that call out, right?
 
 [00:44:53] Adam: Yeah, of course.
 
@@ -994,7 +994,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:44:54] Adam: from Twitter,
 
-[00:44:55] Mark Rober: what what, uh, what bothers you the most? And let me get like the vigilante justice for you.
+[00:44:55] Mark Rober: what bothers you the most? And let me get like the vigilante justice for you.
 
 [00:45:00] Adam: We will include links to all your social feeds in the comments below, so people can go and tag you.
 

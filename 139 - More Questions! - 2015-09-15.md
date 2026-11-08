@@ -44,11 +44,11 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:01:32] Adam: Pulp Fiction.
 
-[00:01:33] Will: Yeah, me too. Because I saw I saw Reservoir Dogs on VHS tape in like my dorm room.
+[00:01:33] Will: Yeah, me too. Because I saw Reservoir Dogs on VHS tape in like my dorm room.
 
-[00:01:38] Adam: Right. Um, you know, it's hard not to say Pulp Fiction just because it's so important.
+[00:01:38] Adam: Right. It's hard not to say Pulp Fiction just because it's so important.
 
-[00:01:44] Will: But but favorite and important are two different things.
+[00:01:44] Will: But favorite and important are two different things.
 
 [00:01:47] Adam: It's true. Pulp Fiction is one that I can enjoy all the way through at any moment.
 
@@ -58,13 +58,13 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:02:03] Will: I can't imagine it would.
 
-[00:02:04] Adam: Remember, there's there's there's one there's one weird spot. If you do that,
+[00:02:04] Adam: Remember, there's one weird spot. If you do that,
 
 [00:02:08] Will: well, there's some missing sequences. There's like a fair amount of missing time, right?
 
 [00:02:11] Adam: Yeah,
 
-[00:02:11] Will: between like Jules and the and the and Marvin and the Wolf.
+[00:02:11] Will: between like Jules and the and Marvin and the Wolf.
 
 [00:02:16] Adam: Yeah, I can't quite remember. And the breakfast.
 
@@ -74,9 +74,9 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:02:20] Will: Anyway,
 
-[00:02:20] Adam: I also I'm a huge fan of of Jackie Brown.
+[00:02:20] Adam: I also I'm a huge fan of Jackie Brown.
 
-[00:02:25] Will: I we rewatched that recently, and it is it is like just the the we're spoilers for Jackie Brown.
+[00:02:25] Will: I we rewatched that recently, and it is like just the we're spoilers for Jackie Brown.
 
 [00:02:32] Adam: Spoiler alert.
 
@@ -84,19 +84,19 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:02:36] Adam: You think we're okay? That chick in the crying game is a man.
 
-[00:02:41] Will: Spock dies at the end of Khan, or maybe Kirk. Depends on which one you're at watching. Um, so that turn at the end when Robert De Niro just flips out, I had completely forgotten about, and it is shocking. Right? You're just everything's cool. You're walking through the parking lot, and all of a sudden, he's just like, " I can't take this anymore!" Bam, bam, bam, bam, bam.
+[00:02:41] Will: Spock dies at the end of Khan, or maybe Kirk. Depends on which one you're at watching. So that turn at the end when Robert De Niro just flips out, I had completely forgotten about, and it is shocking. Right? You're just everything's cool. You're walking through the parking lot, and all of a sudden, he's just like, " I can't take this anymore!" Bam, bam, bam, bam, bam.
 
 [00:03:00] Adam: Louis.
 
 [00:03:00] Will: Yeah.
 
-[00:03:03] Adam: Um. You know, Tarantino in the extra materials in the DVD, which is really worth watching, says. He wanted to make. He wanted to write a movie in which it felt like you were hanging out with the main characters. And I will say, having watched Jackie Brown four or five times over the years, it gets better every time I watch it. Ordell. Ordell.
+[00:03:03] Adam: Tarantino in the extra materials in the DVD, which is really worth watching, says. He wanted to make. He wanted to write a movie in which it felt like you were hanging out with the main characters. And I will say, having watched Jackie Brown four or five times over the years, it gets better every time I watch it. Ordell. Ordell.
 
 [00:03:23] Will: Ordell. Yeah.  Same.
 
 [00:03:25] Adam: Ordell. Sam Jackson's character is a terrifying villain who seems like a parody of himself, but Tarantino lets you know right away that this guy is a just a bad man. But you also are drawn to him because he's very charismatic and he's very smart. And there's this point where it's there's like a quadruple cross going on in this film.
 
-[00:03:45] Will: Oh, it it it it is every bit as complex in a storytelling way as Pulp Fiction was.
+[00:03:45] Will: Oh, it is every bit as complex in a storytelling way as Pulp Fiction was.
 
 [00:03:50] Adam: Oh yeah,
 
@@ -112,21 +112,21 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:04:33] Adam: I love that you love Death Proof because most people can't stand it.
 
-[00:04:35] Will: Look, Death Proof. The the the scene with Zoe Bell Zoe Bell on the hood of the car is one of the most tense pieces of film because you know something bad's going to happen. You know something bad's going to happen. It just gets worse and worse and worse.
+[00:04:35] Will: Look, Death Proof. The scene with Zoe Bell on the hood of the car is one of the most tense pieces of film because you know something bad's going to happen. You know something bad's going to happen. It just gets worse and worse.
 
 [00:04:50] Adam: Yeah.
 
-[00:04:50] Will: And then he rear ends, and and then the whole thing flips, and it is it is unbelievable.
+[00:04:50] Will: And then he rear ends, and then the whole thing flips, and it is unbelievable.
 
 [00:04:55] Adam: It's great.
 
-[00:04:55] Will: Also, the scenes that they shot in the Texas Chili Parlor with the first with the victims, Rose McGowan and and I can't remember the other two people, but is like a. If you ever go to Austin, you should go to the Texas Chili Parlor because it's pretty amazing experience. Be like it's just it's just really really tight and really really intense.
+[00:04:55] Will: Also, the scenes that they shot in the Texas Chili Parlor with the first with the victims, Rose McGowan and I can't remember the other two people, but is like a. If you ever go to Austin, you should go to the Texas Chili Parlor because it's pretty amazing experience. Be like it's just really really tight and really really intense.
 
 [00:05:14] Adam: I love the dialogue.
 
 [00:05:14] Will: Where in the hell is this even going?
 
-[00:05:16] Adam: Yeah, I know. And that's what I love. And you know, Tarantino has regrets about that film, and he's talked about them publicly. That that he sort of thought, " Ah, my people will be along for any kind of ride I want to give them." But I'm a defender of that film. I I really enjoyed Kill Bill. I will tell you that every now and then, Tarantino, who owns the New Beverly Theater in Los Angeles, California, um, will unspool his Cannes submission cut of Kill Bill called the whole damn affair, which is both movies cut into one long movie, and it's really worth. I flew to L. A. to see it.
+[00:05:16] Adam: Yeah, I know. And that's what I love. And Tarantino has regrets about that film, and he's talked about them publicly. That that he sort of thought, " Ah, my people will be along for any kind of ride I want to give them." But I'm a defender of that film. I really enjoyed Kill Bill. I will tell you that every now and then, Tarantino, who owns the New Beverly Theater in Los Angeles, California will unspool his Cannes submission cut of Kill Bill called the whole damn affair, which is both movies cut into one long movie, and it's really worth. I flew to L. A. to see it.
 
 [00:05:51] Will: Oh man, I would totally go to that.
 
@@ -148,19 +148,19 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:06:15] Adam: from Bill
 
-[00:06:15] Will: to to Sophie, Sophie, right after she's had her arm chopped off.
+[00:06:15] Will: to Sophie, Sophie, right after she's had her arm chopped off.
 
 [00:06:19] Adam: But the whole damn affair doesn't reveal that until Beatrix, Beatrix,
 
 [00:06:25] Will: Beatrix,
 
-[00:06:25] Adam: Beatrix, Beatrix, Beatrix runs, bursts through the door in Salinas, in the in the hotel in Salinas, and so
+[00:06:25] Adam: Beatrix, Beatrix, Beatrix runs, bursts through the door in Salinas, in the hotel in Salinas, and so
 
 [00:06:34] Will: oh man,
 
 [00:06:35] Adam: yeah, so you're hit with the weight of that all at once. You don't spend the second half of the movie knowing the daughter's alive. No, I mean I already knew the daughter was alive, but I will tell you from a filmic standpoint, it's a much more powerful thing all at once.
 
-[00:06:49] Will: I so I I made a real push to have my daughter's name be Beatrix, and just did the wife wouldn't go for it because she she saw through that motive immediately. Like I like that movie that much, so if I had to pick a favorite. It's probably. I mean, I know it's two movies, but Kill Bill.
+[00:06:49] Will: I so I I made a real push to have my daughter's name be Beatrix, and just did the wife wouldn't go for it because she saw through that motive immediately. Like I like that movie that much, so if I had to pick a favorite. It's probably. I mean, I know it's two movies, but Kill Bill.
 
 [00:07:07] Adam: That's what we're calling it, one movie.
 
@@ -168,15 +168,15 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:07:10] Adam: I know. Yeah, it's wonderful, wonderful, wonderful,
 
-[00:07:12] Will: wonderful. Um, let's do a next one. Next question.
+[00:07:12] Will: wonderful. Let's do a next one. Next question.
 
 [00:07:15] Adam: Okay.
 
 [00:07:17] Will: Do you? This might be more of a me question than a you question, but do you have any views on the iOS nine or iOS nine betas?
 
-[00:07:22] Adam: Um, you know, I haven't been running iOS nine. You have my son. Thing two has been, he's now on the beta program, and the stuff he's telling me about about what iOS nine does contextually, i. E. , oh, you're nearing your home. I'm going to open up your garage door opener. That's brilliant.
+[00:07:22] Adam: I haven't been running iOS nine. You have my son. Thing two has been, he's now on the beta program, and the stuff he's telling me about about what iOS nine does contextually, i. E. , oh, you're nearing your home. I'm going to open up your garage door opener. That's brilliant.
 
-[00:07:41] Will: I. Okay, so I have I've bought into the smart home business, and all of the lights in my house are controlled by a computer now, so we don't have to hit switches when you walk into a room; they just turn on. Um, when I want to turn off the lights at the end of the night, I say I tell the Amazon Echo to turn off all the lights, and she does. That stuff is magic.
+[00:07:41] Will: I. Okay, so I have I've bought into the smart home business, and all of the lights in my house are controlled by a computer now, so we don't have to hit switches when you walk into a room; they just turn on. When I want to turn off the lights at the end of the night, I say I tell the Amazon Echo to turn off all the lights, and she does. That stuff is magic.
 
 [00:07:58] Adam: Yeah.
 
@@ -184,7 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:08:10] Adam: But I still, however, put a digital lock on my front gate.
 
-[00:08:13] Will: Right, that's it. I don't like the the chance of me messing that up when I program it, or it messing up when something you know when the power goes off.
+[00:08:13] Will: Right, that's it. I don't like the chance of me messing that up when I program it, or it messing up when something you know when the power goes off.
 
 [00:08:20] Adam: Right,
 
@@ -192,15 +192,15 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:08:22] Adam: I agree. I totally agree.
 
-[00:08:22] Will: The iOS nine stuff is pretty good. The multitasking on the iPad Air two is really nice. You can if if the app has an appropriate view has like a one third view, then you can slide in say messages or email or something like that from like the left side of the screen or right side of the screen right side of the screen I guess.
+[00:08:22] Will: The iOS nine stuff is pretty good. The multitasking on the iPad Air two is really nice. You can if the app has an appropriate view has like a one third view, then you can slide in say messages or email or something like that from like the left side of the screen or right side of the screen right side of the screen I guess.
 
 [00:08:40] Adam: Oh, nice.
 
-[00:08:40] Will: Um, so then you can have like an email and something else open at the same time, which is super handy.
+[00:08:40] Will: So then you can have like an email and something else open at the same time, which is super handy.
 
 [00:08:44] Adam: That's cool.
 
-[00:08:44] Will: Um, it's it's other than that, it's kind of like a bunch of small cosmeticy stuff. The there's more contextual information. So the one thing that they did that I really like is they brought back. Remember the old slide in from the like when you're on the home screen and you went left one. Yeah, the search window that page is back, and it has stuff like the most frequently contacted. It has
+[00:08:44] Will: It's other than that, it's kind of like a bunch of small cosmeticy stuff. The there's more contextual information. So the one thing that they did that I really like is they brought back. Remember the old slide in from the like when you're on the home screen and you went left one. Yeah, the search window that page is back, and it has stuff like the most frequently contacted. It has
 
 [00:09:04] Adam: that's very useful feature to me.
 
@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:09:21] Adam: Well, I mean, I I think that there's the location-based stuff is really exciting to me. Like, hey, can you let me know when my kid is on their way home? And find my friends actually does that. You can actually say, which is one of the ways I track my kids. Find my friends says you can actually set set it to say, oh, my kid's at the high school. Please let me know when he leaves this building. Text me.
 
-[00:09:43] Will: And so, use do you do use the family sharing stuff that they put in iOS 8? So if if you add your find my iPhone, no, no, you don't have to do any of that. If you do if you do families, then you can go to details on the text page, and it just shows you where your where your people are.
+[00:09:43] Will: And so, use do you do use the family sharing stuff that they put in iOS 8? So if you add your find my iPhone, no, no, you don't have to do any of that. If you do families, then you can go to details on the text page, and it just shows you where your people are.
 
 [00:09:56] Adam: Okay, I'll have to take a look at that. that's I did not know that
 
@@ -236,11 +236,11 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:10:36] Adam: I've talked about this on the podcast before. I'm very clear that if you ask for a picture and I'm out with my kids, I say no. I ask for your forgiveness that I would normally do it on any day, but when I'm out with them, I would rather not.
 
-[00:10:53] Will: Well, you you are like Norm and I get a little tiny taste of this, especially if we go to cons and stuff like that where we're more recognizable. But but like it seems like the neighborhood that you live in is very Kind of generally accommodating, like oh yeah, yeah. People are just—it's just like you're part of the background fixture of the neighborhood now,
+[00:10:53] Will: Well, you are like Norm and I get a little tiny taste of this, especially if we go to cons and stuff like that where we're more recognizable. But it seems like the neighborhood that you live in is very Kind of generally accommodating, like oh yeah, yeah. People are just—it's just like you're part of the background fixture of the neighborhood now,
 
-[00:11:11] Adam: and I am, and people are really chill, and that's that—that's fine in this neighborhood. Look, I'm a fanboy myself, you know, and I—I almost and I've told this story too, but I—I remember almost every time I'm meeting someone to whom I'm very important, and they're telling me about it. Is I remember meeting Peter Gabriel when I was like 24, and there are he was so crazy important to me. I remember every second of like the 98 seconds we were talking, and you know I bought all of his albums, and that was that was that was an important interaction to me, and I'm interested in making the interaction good with a fan. The thing I I want them they they I enjoy a very nice life because of the fans, and I this is the least I can do is is be nice. So there is sometimes an unspoken. Desire from the person you're meeting to achieve in the fastest way possible some kind of deep connection, and that becomes difficult to manage sometimes because it's not necessarily going to happen. But at the same time, you know, I really appreciate that the that the show we made has resonance, and it had resonance for for you. And you want to tell me about that. I definitely, I I really, really, genuinely appreciate hearing about that.
+[00:11:11] Adam: and I am, and people are really chill, and that's that—that's fine in this neighborhood. Look, I'm a fanboy myself and I—I almost and I've told this story too, but I—I remember almost every time I'm meeting someone to whom I'm very important, and they're telling me about it. Is I remember meeting Peter Gabriel when I was like 24, and there are he was so crazy important to me. I remember every second of like the 98 seconds we were talking, and you know I bought all of his albums, and that was an important interaction to me, and I'm interested in making the interaction good with a fan. The thing I I want them they I enjoy a very nice life because of the fans, and I this is the least I can do is is be nice. So there is sometimes an unspoken. Desire from the person you're meeting to achieve in the fastest way possible some kind of deep connection, and that becomes difficult to manage sometimes because it's not necessarily going to happen. But at the same time I really appreciate that the show we made has resonance, and it had resonance for you. And you want to tell me about that. I definitely, I I really, really, genuinely appreciate hearing about that.
 
-[00:12:33] Will: The the thing that I love well, two things you said a long time ago, I think on the podcast even about meeting somebody that you were really excited to meet, and then you started talking, and you realized that they were also equally excited to meet you, and all awkwardness melted away.
+[00:12:33] Will: The thing that I love well, two things you said a long time ago, I think on the podcast even about meeting somebody that you were really excited to meet, and then you started talking, and you realized that they were also equally excited to meet you, and all awkwardness melted away.
 
 [00:12:47] Adam: Well, that happened almost immediately with Jason Reitman,
 
@@ -254,13 +254,13 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:13:01] Will: Yeah,
 
-[00:13:01] Adam: but you know, it's incredibly sweet, and you're right that when the mutuals admiration society makes all that tension go away.
+[00:13:01] Adam: but it's incredibly sweet, and you're right that when the mutuals admiration society makes all that tension go away.
 
 [00:13:07] Will: But even when you go up and meet someone. Who doesn't know you? Which happens to me still,
 
 [00:13:12] Adam: Right?
 
-[00:13:13] Will: Um, like I, it's always awkward on both sides, right? Like there's an awkwardness to both sides of an interaction with somebody, and like my goal when I'm meeting somebody who's excited to meet me is to make them as as comfortable as possible and to get a positive interaction. And I love finding out what they're what people are into because that's that's the other thing is like we do kind of live in a bubble where a in San Francisco and things are a little weirdier, yeah. Um, but also I I don't get to interact with normal people on a day to day basis. So when I meet somebody and they talk about how they like knitting, um, like non non three dimensional spaces, and I'm like, this is something I know apps or or implanting brain probes in the brains of rats to control them to remote control living creatures.
+[00:13:13] Will: Like I, it's always awkward on both sides, right? Like there's an awkwardness to both sides of an interaction with somebody, and like my goal when I'm meeting somebody who's excited to meet me is to make them as comfortable as possible and to get a positive interaction. And I love finding out what they're what people are into because that's the other thing is like we do kind of live in a bubble where a in San Francisco and things are a little weirdier, yeah. But also I I don't get to interact with normal people on a day to day basis. So when I meet somebody and they talk about how they like knitting like non non three dimensional spaces, and I'm like, this is something I know apps or implanting brain probes in the brains of rats to control them to remote control living creatures.
 
 [00:13:54] Adam: Nice.
 
@@ -270,17 +270,17 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:13:57] Will: I love finding out about that stuff because it's super fascinating.
 
-[00:14:01] Adam: Totally. Um, I love asking kids what they're working on. You know what's the latest project you built? I when people tell me that they've gone into engineering because of MythBusters, I'm dying to hear what branch and what they're finding exciting about it. I I I really enjoy that conversation.
+[00:14:01] Adam: Totally. I love asking kids what they're working on. You know what's the latest project you built? I when people tell me that they've gone into engineering because of MythBusters, I'm dying to hear what branch and what they're finding exciting about it. I really enjoy that conversation.
 
-[00:14:20] Will: Yeah, and and always avoid asking what you do for work. That's always my move. I try to avoid asking just in general what people do for a living because it's the least. It should be assuming we're all well-rounded individuals. That should be the least interesting thing about you, with a few exceptions.
+[00:14:20] Will: Yeah, and always avoid asking what you do for work. That's always my move. I try to avoid asking just in general what people do for a living because it's the least. It should be assuming we're all well-rounded individuals. That should be the least interesting thing about you, with a few exceptions.
 
 [00:14:34] Adam: Yeah, yeah.
 
 [00:14:34] Will: Is that a European thing? Really,
 
-[00:14:36] Adam: it is. It's very European. So you you can have a whole dinner party with people who don't know each other, and almost no one will find out what each other does for a living by the end of the night because it's not a standard question. It's just a cultural difference, and it's a definitive difference. And you know, in America, where we tend to identify very deeply with our careers with our jobs, that's not necessarily the case the world over.
+[00:14:36] Adam: it is. It's very European. So you can have a whole dinner party with people who don't know each other, and almost no one will find out what each other does for a living by the end of the night because it's not a standard question. It's just a cultural difference, and it's a definitive difference. And in America, where we tend to identify very deeply with our careers with our jobs, that's not necessarily the case the world over.
 
-[00:15:01] Will: It's funny. This started for me because I had such a phenomenally difficult time explaining what I do for a living without sounding like a crazy person. Yeah. That I just I just stopped asking because then you avoid the question back,
+[00:15:01] Will: It's funny. This started for me because I had such a phenomenally difficult time explaining what I do for a living without sounding like a crazy person. Yeah. That I just stopped asking because then you avoid the question back,
 
 [00:15:13] Adam: right?
 
@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:16:25] Will: Yeah,
 
-[00:16:25] Adam: everyone's job is hard to them. And he says, as a as a case as a as a test case, he said he was at a party and this woman said her job was to help celebrities pick out jewelry.
+[00:16:25] Adam: everyone's job is hard to them. And he says, as a case as a test case, he said he was at a party and this woman said her job was to help celebrities pick out jewelry.
 
 [00:16:36] Will: That sounds awful. That sounds like a living hell.
 
@@ -316,11 +316,11 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:16:52] Adam: Have a wonderful experience." Yeah.
 
-[00:16:55] Will: So yeah, avoid talking about work, and then when they do get there, that's this is great advice. Not at all the answer, but um, we I think we got an answer in there somewhere.
+[00:16:55] Will: So yeah, avoid talking about work, and then when they do get there, that's this is great advice. Not at all the answer, but we I think we got an answer in there somewhere.
 
 [00:17:04] Adam: Somewhere, somewhere in there is an answer. You can take home.
 
-[00:17:05] Will: work it out. Andrew Murphy. Or stoppable Murph. Stop. That's a that's a pretty good Twitter handle too.
+[00:17:05] Will: work it out. Andrew Murphy. Or stoppable Murph. Stop. That's a pretty good Twitter handle too.
 
 [00:17:14] Adam: Stoppable Murph.
 
@@ -350,7 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:17:44] Will: Oh yeah.
 
-[00:17:45] Adam: What I mean is, we Rothfuss is a friend of w00tstock, and he he was at Comic Con this year, and I walked up to the backstage while he was on stage, and I had forgotten it was him that was up, and I was like, who has this beautiful voice?
+[00:17:45] Adam: What I mean is, we Rothfuss is a friend of w00tstock, and he was at Comic Con this year, and I walked up to the backstage while he was on stage, and I had forgotten it was him that was up, and I was like, who has this beautiful voice?
 
 [00:18:01] Will: Kind of a deep, rumbly.
 
@@ -372,7 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:18:25] Adam: I really loved it.
 
-[00:18:26] Will: That is an early an early Scalzi even. So like he was hitting on all cylinders really early on.
+[00:18:26] Will: That is an early Scalzi even. So like he was hitting on all cylinders really early on.
 
 [00:18:30] Adam: It's just terrific. I love all the alien cultures described. I love the battles. I love the implications. I haven't Scalzi's brought me back to science fiction.
 
@@ -396,11 +396,11 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:19:19] Adam: Oh, nice!
 
-[00:19:20] Will: And it leads with solar eclipses are a are a tourist stop for aliens in the world because the configuration of the right size moon, the right size planet, to the right distance from the sun, the right size sun to get a full solar eclipse from a moon, pretty pretty improbable.
+[00:19:20] Will: And it leads with solar eclipses are a tourist stop for aliens in the world because the configuration of the right size moon, the right size planet, to the right distance from the sun, the right size sun to get a full solar eclipse from a moon, pretty pretty improbable.
 
 [00:19:36] Adam: Ah,
 
-[00:19:36] Will: and and yeah.
+[00:19:36] Will: and yeah.
 
 [00:19:37] Adam: Oh, nifty!
 
@@ -408,11 +408,11 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:19:42] Adam: yeah, okay,
 
-[00:19:43] Will: tiny blue dot. Who knew? Um, you should read King Killer. They are.
+[00:19:43] Will: tiny blue dot. Who knew? You should read King Killer. They are.
 
 [00:19:46] Adam: I'm going out to buy it after this because I was going to go out and get some more Scalzi books, and I'll pick that up.
 
-[00:19:51] Will: So the only problem with King Killer is it's going to ruin you for all other fantasy because he writes such such such lovely prose. Um, like I, I, speaking of your fanboy interactions, when I was at w00tstock the first or second time, and and Pat was there. I walked up to him and said something like, " Oh, I love your book. Your, your, your book is the only book I don't feel ashamed to recommend that's fantasy." And then I just ran away.
+[00:19:51] Will: So the only problem with King Killer is it's going to ruin you for all other fantasy because he writes such such such lovely prose. Like I, I, speaking of your fanboy interactions, when I was at w00tstock the first or second time, and Pat was there. I walked up to him and said something like, " Oh, I love your book. Your, your, your book is the only book I don't feel ashamed to recommend that's fantasy." And then I just ran away.
 
 [00:20:19] Adam: Thanks. I think is the response to that.
 
@@ -452,7 +452,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:21:18] Adam: Six hundred thousand.
 
-[00:21:19] Will: Assuming you like, that's that is that is a mortgage on a if you have if you have two hundred if you have 25% down, like you are supposed to, that's probably a mortgage on a $750,000 house.
+[00:21:19] Will: Assuming you like, that's that is a mortgage on a if you have two hundred if you have 25% down, like you are supposed to, that's probably a mortgage on a $750,000 house.
 
 [00:21:28] Adam: That's ridiculous.
 
@@ -476,7 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:21:45] Adam: No, no, we haven't.
 
-[00:21:48] Will: We can tell the story of the of the. Was there something better?
+[00:21:48] Will: We can tell the story of the. Was there something better?
 
 [00:21:51] Adam: Let me see here.
 
@@ -494,15 +494,15 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:22:15] Will: Ooh, that's a good one. This is from MGO 58.
 
-[00:22:20] Adam: I like this question. I am interested. So, effectively, like, what, where would you go with a holodeck? Well,
+[00:22:20] Adam: I like this question. I am interested. So, effectively what, where would you go with a holodeck? Well,
 
 [00:22:26] Will: first we should ask the rules, right? Are the rules? Are you a notable person in that universe, or are you just a normal chud? Like, are you just a schmo? Like, are you a moisture farmer, or are you Luke Skywalker? Right.
 
 [00:22:39] Adam: Yeah.
 
-[00:22:39] Will: Because, like, that makes that's a real important distinction, and you know, is it? Is it? Do you bring the knowledge that you have for like, if you go back into medieval era, can you bring modern medicine and penicillin?
+[00:22:39] Will: Because that makes that's a real important distinction, and is it? Is it? Do you bring the knowledge that you have for like, if you go back into medieval era, can you bring modern medicine and penicillin?
 
-[00:22:50] Adam: Let's assume that you that you that you are actually a mover and a shaker in that universe.
+[00:22:50] Adam: Let's assume that you are actually a mover and a shaker in that universe.
 
 [00:22:55] Will: Okay, because that's this game's no fun without that.
 
@@ -514,7 +514,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:23:07] Will: Growing potatoes, not mining.
 
-[00:23:08] Adam: I love the. I love the universe. I really, I gravitate immediately towards my my favorite writer, Raymond Chandler, and want to be in 1950s Philip Marlowe's Los Angeles.
+[00:23:08] Adam: I love the. I love the universe. I really, I gravitate immediately towards my favorite writer, Raymond Chandler, and want to be in 1950s Philip Marlowe's Los Angeles.
 
 [00:23:18] Will: See, I got to go with Hitchhiker's Guide. Oh, yeah. I would be really a Ford Prefect. Yeah, a stringer for the guide.
 
@@ -526,7 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:23:34] Will: Right, a little bit of alcohol abuse. Yeah, being late with expense reports. It's all. Really, I modeled my life on that when I think about it too hard.
 
-[00:23:41] Adam: Um, you know, I it'd also be hard to beat the the the old man's war universe from Scalzi.
+[00:23:41] Adam: I it'd also be hard to beat the old man's war universe from Scalzi.
 
 [00:23:48] Will: I don't know, man. That seemed pretty dystopian and grim. Of course, I read further into those books than you have.
 
@@ -540,7 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:24:11] Adam: Yeah, no, everyone's chud.
 
-[00:24:12] Will: Your, your, your Durac— Copper Top.
+[00:24:12] Will: Your Durac— Copper Top.
 
 [00:24:14] Adam: Yeah, don't want to go to the Blade Runner world.
 
@@ -564,7 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:24:39] Adam: totally, totally.
 
-[00:24:41] Will: What about what about? We could go some weird meta level. Do you see Stranger Stranger than Fiction?
+[00:24:41] Will: What about? We could go some weird meta level. Do you see Stranger Stranger than Fiction?
 
 [00:24:47] Adam: No, I haven't seen Stranger than Fiction. Marvel Universe. What about the Marvel Universe?
 
@@ -614,17 +614,17 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:26:24] Will: This might be too close, but would you be an Ad Mad Men era Ad Man? Ad Man?
 
-[00:26:28] Adam: Um, you know, it's my dad was.
+[00:26:28] Adam: It's my dad was.
 
 [00:26:30] Will: I know
 
-[00:26:31] Adam: my my my dad was um and he got out of it because it was killing him. I don't think uh yeah my dad and I are different people. I might have found more enjoyment in that world. Um, it's entirely possible.
+[00:26:31] Adam: my dad was and he got out of it because it was killing him. I don't think uh yeah my dad and I are different people. I might have found more enjoyment in that world. It's entirely possible.
 
 [00:26:44] Will: I'll tell you what. If I could do any job,
 
-[00:26:46] Adam: I would have to do without the alcoholism the the alcohol. I'd want to do without the alcoholism and misogyny.
+[00:26:46] Adam: I would have to do without the alcoholism the alcohol. I'd want to do without the alcoholism and misogyny.
 
-[00:26:52] Will: Well, those people aren't alcoholics; they just drink. Um, I've been watching the Muppet Show.
+[00:26:52] Will: Well, those people aren't alcoholics; they just drink. I've been watching the Muppet Show.
 
 [00:27:00] Adam: Oh, how is it?
 
@@ -636,21 +636,21 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:27:03] Adam: Yeah.
 
-[00:27:03] Will: Um, I would go back. I would like if I could go back and do any job, I would be a Muppeteer or maybe just a puppet builder. I don't care.
+[00:27:03] Will: I would go back. I would like if I could go back and do any job, I would be a Muppeteer or maybe just a puppet builder. I don't care.
 
 [00:27:10] Adam: God, that show was so wonderful.
 
 [00:27:11] Will: It's so it is. So much more adult than I remembered it being. Yeah. So much more adult than I remembered.
 
-[00:27:18] Adam: Yeah. Oh my God! What a wonderful thing that was. And now they're they're rebooting it.
+[00:27:18] Adam: Yeah. Oh my God! What a wonderful thing that was. And now they're rebooting it.
 
-[00:27:22] Will: I so I saw it's um it's uh Chuck Lorre is doing it right.
+[00:27:22] Will: I so I saw it's Chuck Lorre is doing it right.
 
 [00:27:26] Adam: Uh no Bill Prady.
 
 [00:27:27] Will: Bill Prady.
 
-[00:27:29] Adam: Bill Prady is one of the is created Big Bang Theory with Chuck Lorre, um and was got his start as a writer on The Muppets. Got a write got yeah so Bill started out as a as a writer for the Muppets.
+[00:27:29] Adam: Bill Prady is one of the is created Big Bang Theory with Chuck Lorre and was got his start as a writer on The Muppets. Got a write got yeah so Bill started out as a writer for the Muppets.
 
 [00:27:42] Will: So I when I saw him we were at a at his party at Comic Con
 
@@ -658,13 +658,13 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:27:45] Will: and I saw him and it was really all I could do to be like man I'm really glad you're doing the Muppets don't fuck it up or I will come for you.
 
-[00:27:52] Adam: Okay. Don't worry he knows and yeah Bill has the Bill has I I love Bill he's a good friend um and Bill actually said one of my favorite phrases ever about my dog Huxley who I've talked about endlessly um Huxley is a reincarnated Rinpoche I'm convinced of it um he's here to teach us about unconditional love and. Yeah, as Bill Prady said to me one day, Huxley is the answer to the question, " Who's a good doggy?"
+[00:27:52] Adam: Okay. Don't worry he knows and yeah Bill has the Bill has I I love Bill he's a good friend and Bill actually said one of my favorite phrases ever about my dog Huxley who I've talked about endlessly Huxley is a reincarnated Rinpoche I'm convinced of it he's here to teach us about unconditional love and. Yeah, as Bill Prady said to me one day, Huxley is the answer to the question, " Who's a good doggy?"
 
 [00:28:22] Will: Okay, knowing that, I feel a little bit better about the Muppets.
 
 [00:28:27] Adam: Exactly, and you should.
 
-[00:28:28] Will: Um, that's the right. That's a very Muppetty attitude.
+[00:28:28] Will: That's the right. That's a very Muppetty attitude.
 
 [00:28:30] Adam: Yeah, I totally agree.
 
@@ -682,7 +682,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:29:13] Will: yeah, of course.
 
-[00:29:13] Adam: But it's not going to be clear to me in a week or in a month, so I have to get it down. I'm just literally like, so when I go to when I go to concerts or stage shows, I get ideas for my stage show. And I was at Weird Al last week here in San Francisco, and that was wonderful. And then two nights ago, I took the boys, Thing One and Thing Two, to see Billy Joel at Pac Bell Park.
+[00:29:13] Adam: But it's not going to be clear to me in a week or in a month, so I have to get it down. I'm just literally like, so when I go to concerts or stage shows, I get ideas for my stage show. And I was at Weird Al last week here in San Francisco, and that was wonderful. And then two nights ago, I took the boys, Thing One and Thing Two, to see Billy Joel at Pac Bell Park.
 
 [00:29:41] Will: Okay, hold on. Didn't? Weren't you in a Billy Joel video?
 
@@ -702,7 +702,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:30:39] Will: We just fast forwarded. Yeah, we're watching it in the office.
 
-[00:30:41] Adam: So I happen to know some people who work on Billy Joel's touring crew, and we got tickets, and then we got backstage, and we just had we had a Billy Joel fantasy camp night on Saturday night. So we met up with my new friend Drew, who's a good friend of one of my road crew, and Drew took took us backstage, gave us just the really e-ticket tour. We got to meet Billy. I said, " You know, your music video was my was my first acting job, so you kind of started this." And he's like, " I've been watching your show." You know, and I'm like, " Oh, cool!" He's like, " That's some fun shit you do." And he says, " Is it true you were in one of my videos?" I was like, " Yeah, I was in You're Only Human." And he goes, " Ah, wait, were you the kid on the bridge?" And I'm like, " No, I'm the kid who drowns." And he goes, " Ah, yeah, it's terrible video." And I said, " Yes, it was." He goes, " I hated making those things." And I said, " I said, well, you were very nice. I drowned out there at Far Rockaway, and it was like November, and I got hypothermia. And you let me warm up in your trailer, and you gave me a cigarette. And he was like, 'Ah, corrupting youth.' We took a picture. I took a picture with him and the boys. They were beside themselves. Oh man! And then we got to watch the opening act turned out to be another musician I'm a huge fan of, Gavin DeGraw.
+[00:30:41] Adam: So I happen to know some people who work on Billy Joel's touring crew, and we got tickets, and then we got backstage, and we just had we had a Billy Joel fantasy camp night on Saturday night. So we met up with my new friend Drew, who's a good friend of one of my road crew, and Drew took took us backstage, gave us just the really e-ticket tour. We got to meet Billy. I said, " You know, your music video was my was my first acting job, so you kind of started this." And he's like, " I've been watching your show." and I'm like, " Oh, cool!" He's like, " That's some fun shit you do." And he says, " Is it true you were in one of my videos?" I was like, " Yeah, I was in You're Only Human." And he goes, " Ah, wait, were you the kid on the bridge?" And I'm like, " No, I'm the kid who drowns." And he goes, " Ah, yeah, it's terrible video." And I said, " Yes, it was." He goes, " I hated making those things." And I said, " I said, well, you were very nice. I drowned out there at Far Rockaway, and it was like November, and I got hypothermia. And you let me warm up in your trailer, and you gave me a cigarette. And he was like, 'Ah, corrupting youth.' We took a picture. I took a picture with him and the boys. They were beside themselves. Oh man! And then we got to watch the opening act turned out to be another musician I'm a huge fan of, Gavin DeGraw.
 
 [00:32:03] Will: Oh, really?
 
@@ -718,17 +718,17 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:32:51] Will: He always could sing,
 
-[00:32:53] Adam: like his. He is he is touring once a week, so he's taking really good care of his voice, and he's just he's is his voice is still. He can't quite hit some of those highs, so he's adjusted some of the keys. But man, he is tight, and it's just was lovely hearing him sing some great songs. I am an innocent man with that very high note. He gave a talk. He talked a bit before it. He's like, one night I am going to try this song, and I am going to go. Ah, oh, there goes! But it was great, and I had never seen a concert at Pac Bell Park. What an amazing venue!
+[00:32:53] Adam: like his. He is touring once a week, so he's taking really good care of his voice, and he's just he's is his voice is still. He can't quite hit some of those highs, so he's adjusted some of the keys. But man, he is tight, and it's just was lovely hearing him sing some great songs. I am an innocent man with that very high note. He gave a talk. He talked a bit before it. He's like, one night I am going to try this song, and I am going to go. Ah, oh, there goes! But it was great, and I had never seen a concert at Pac Bell Park. What an amazing venue!
 
 [00:33:30] Will: So I've seen two shows there. I saw Green Day,
 
 [00:33:33] Adam: yeah,
 
-[00:33:33] Will: on American Idiot, I think. Yeah, I went thinking, oh, it's Green Day. I saw them in college in bars in my in my college. No, I'm going to go see some. And then it was a bunch of 14 year old girls, and Billy was jamming his hand down his pants, just like always.
+[00:33:33] Will: on American Idiot, I think. Yeah, I went thinking, oh, it's Green Day. I saw them in college in bars in my college. No, I'm going to go see some. And then it was a bunch of 14 year old girls, and Billy was jamming his hand down his pants, just like always.
 
 [00:33:46] Adam: Wow.
 
-[00:33:46] Will: But you know, much creepier. And then, Weezer the same week.
+[00:33:46] Will: But much creepier. And then, Weezer the same week.
 
 [00:33:52] Adam: Ah, wow.
 
@@ -738,7 +738,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:34:14] Will: Yeah,
 
-[00:34:14] Adam: and they were. Just sweethearts, you know.
+[00:34:14] Adam: and they were. Just sweethearts.
 
 [00:34:18] Will: You got kind of an accent there.
 
@@ -788,19 +788,19 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:35:40] Adam: In the way that I think. My wife and I quote it to each other almost every day, and now me and my kids do too.
 
-[00:35:46] Will: You know, I have a question for you. What was the first movie you saw in theaters? Do you remember?
+[00:35:46] Will: I have a question for you. What was the first movie you saw in theaters? Do you remember?
 
-[00:35:51] Adam: Um, I think it was like Dumbo or something like that.
+[00:35:51] Adam: I think it was like Dumbo or something like that.
 
-[00:35:54] Will: A Disney, a Disney.
+[00:35:54] Will: A Disney.
 
-[00:35:55] Adam: Yeah, really loud. Something on that front. Um, and I saw it at the Strand in Tarrytown, New York, which has not been a theater for probably 40 years.
+[00:35:55] Adam: Yeah, really loud. Something on that front. And I saw it at the Strand in Tarrytown, New York, which has not been a theater for probably 40 years.
 
 [00:36:04] Will: So for me, it was either the Muppet movie, the you know the original,
 
 [00:36:09] Adam: yeah,
 
-[00:36:09] Will: yeah, or um, it could have been the Apple Dumpling Gang. I'm not sure. My mom can't remember which order we went in. No, it's Don Knotts. It might be Walter Matthau, but it's Don Knotts and. And it's the guy who always played the kind of drunk guy in Disney movies, right? Like the I want to say he was the banker in Mary Poppins,
+[00:36:09] Will: yeah, or it could have been the Apple Dumpling Gang. I'm not sure. My mom can't remember which order we went in. No, it's Don Knotts. It might be Walter Matthau, but it's Don Knotts and. And it's the guy who always played the kind of drunk guy in Disney movies, right? Like the I want to say he was the banker in Mary Poppins,
 
 [00:36:30] Adam: right? Right? Right? There's a there was a bunch of actors that made a living playing drunk people.
 
@@ -812,7 +812,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:36:37] Adam: that was the that was an older time.
 
-[00:36:40] Will: Well, you know, standards change, times evolve. What once was just a Tuesday afternoon is now crippling alcoholism. There you go.
+[00:36:40] Will: Well standards change, times evolve. What once was just a Tuesday afternoon is now crippling alcoholism. There you go.
 
 [00:36:48] Adam: Exactly. Hey, and on that note, yeah, favor our podcast, and we'll see you guys next week.
 

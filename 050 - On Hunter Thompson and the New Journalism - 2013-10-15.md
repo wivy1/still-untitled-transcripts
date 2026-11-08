@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:00:46] Will: Ooh, it's light.
 
-[00:00:47] Adam: But inside it, it has a groove on the inside, and in that groove is fit a hardened steel saw that also acts as a handcuff shim.
+[00:00:47] Adam: But inside it has a groove on the inside, and in that groove is fit a hardened steel saw that also acts as a handcuff shim.
 
 [00:00:56] Will: It looks like you would really gouge—you would gouge your fingers trying to use this saw.
 
@@ -50,7 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:01:09] Will: Fair point.
 
-[00:01:10] Norm: If they're going to let you keep the ring, then you know, you can't be in that bad of a situation.
+[00:01:10] Norm: If they're going to let you keep the ring, then you can't be in that bad of a situation.
 
 [00:01:16] Adam: I
 
@@ -58,7 +58,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:01:18] Adam: I don't think they take a ring if you've. I don't know.
 
-[00:01:21] Norm: Wait, wait, wait. What? Okay when we when we think about scenarios where we would need this, what is the first scenario that comes to mind?
+[00:01:21] Norm: Wait, wait, wait. What? Okay when we think about scenarios where we would need this, what is the first scenario that comes to mind?
 
 [00:01:27] Will: Captured by spies,
 
@@ -78,9 +78,9 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:01:41] Adam: So in that case, I think they would let me keep the ring.
 
-[00:01:42] Norm: No, I think they would take all possessions because they'd want to sell them, like, gold rings and stuff.
+[00:01:42] Norm: No, I think they would take all possessions because they'd want to sell them gold rings and stuff.
 
-[00:01:48] Will: You know, I learned from Pulp Fiction that there is only one place that a man can hide something.
+[00:01:48] Will: I learned from Pulp Fiction that there is only one place that a man can hide something.
 
 [00:01:52] Adam: I've got one right up on the wall there. This uncomfortable hunk of metal.
 
@@ -92,7 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:02:05] Adam: Not that watch.
 
-[00:02:06] Will: You know, I bet if you sent it to Walken's people, he could probably make that happen. Is he method? Did he really do that?
+[00:02:06] Will: I bet if you sent it to Walken's people, he could probably make that happen. Is he method? Did he really do that?
 
 [00:02:12] Adam: Has actually been in Christopher Walken's butt?
 
@@ -112,7 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:02:37] Will: That's insane.
 
-[00:02:37] Norm: That's that's an easy job. Just gotta Ctrl-F and delete all the periods and commas.
+[00:02:37] Norm: That's an easy job. Just gotta Ctrl-F and delete all the periods and commas.
 
 [00:02:43] Will: It's just like my nightmare would be reading something with no punctuation. Right. Script line.
 
@@ -130,7 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:03:22] Adam: Bauhaus to Our House.
 
-[00:03:23] Will: Well, it was it was another Tom Wolfe. Yeah,
+[00:03:23] Will: Well, it was another Tom Wolfe. Yeah,
 
 [00:03:26] Adam: yeah, that's another.
 
@@ -140,13 +140,13 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:03:38] Will: You should read this. It's really good. And
 
-[00:03:39] Adam: it was it was Fear
+[00:03:39] Adam: it was Fear
 
 [00:03:40] Will: and Loathing, in Las Vegas, not on the...
 
 [00:03:41] Adam: Yeah, yeah, yeah.
 
-[00:03:42] Will: And from there, as like 17 or 18 year-old Will like basically went to the library, the the real library, not the high school library, and got everything,
+[00:03:42] Will: And from there, as like 17 or 18 year-old Will like basically went to the library, the real library, not the high school library, and got everything,
 
 [00:03:51] Adam: all of them.
 
@@ -176,15 +176,15 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:04:29] Adam: with Bill Murray, is also a terrific lawyer.
 
-[00:04:33] Will: I think Where the Buffalo Roam is a better is a better Hunter Thompson movie.
+[00:04:33] Will: I think Where the Buffalo Roam is a better Hunter Thompson movie.
 
 [00:04:38] Adam: I
 
 [00:04:38] Will: but I love the Terry Gilliam movie.
 
-[00:04:40] Adam: Yeah, yeah. So I I have a very similar experience with with Thompson. Um, I think I discovered him. My dad used to quote him, and he quote this one quote, which was. And it's a quote from Fear and Loathing, in which he says, " The Circus Circus Hotel and Casino is what all of America would be doing on Saturday nights if the Germans had won World War Two."
+[00:04:40] Adam: Yeah, yeah. So I I have a very similar experience with Thompson. I think I discovered him. My dad used to quote him, and he quote this one quote, which was. And it's a quote from Fear and Loathing, in which he says, " The Circus Circus Hotel and Casino is what all of America would be doing on Saturday nights if the Germans had won World War Two."
 
-[00:05:03] Will: Yeah, that's exactly right. Have you ever Have you ever stayed in the Circus Circus?
+[00:05:03] Will: Yeah, that's exactly right. Have you ever stayed in the Circus Circus?
 
 [00:05:07] Adam: I have not, but I've been to it.
 
@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:05:25] Adam: right?
 
-[00:05:25] Will: But it was it was it's terrifying now. I stayed there the first time I went to Vegas because it was all we could afford,
+[00:05:25] Will: But it was it's terrifying now. I stayed there the first time I went to Vegas because it was all we could afford,
 
 [00:05:31] Adam: right? Right,
 
@@ -220,13 +220,13 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:05:52] Will: It seems like the right age.
 
-[00:05:52] Adam: Yeah, and it's just like it's just like. I don't say just like, but similar in the way that Tom Robbins and Kurt Vonnegut are both great authors to just grab when you're just out of high school and just to devour. And I did the same thing. I I kept on finding the books at bookshops and bookstands. Curse of Lono, campaign trail. I remember Fear and Loathing on the Campaign Trail, which is less a chronicle than a bunch of essays.
+[00:05:52] Adam: Yeah, and it's just like. I don't say just like, but similar in the way that Tom Robbins and Kurt Vonnegut are both great authors to just grab when you're just out of high school and just to devour. And I did the same thing. I kept on finding the books at bookshops and bookstands. Curse of Lono, campaign trail. I remember Fear and Loathing on the Campaign Trail, which is less a chronicle than a bunch of essays.
 
 [00:06:22] Will: It's I think it's a collection of the essays in a less condensed form than appeared in Rolling Stone.
 
 [00:06:28] Adam: Yes,
 
-[00:06:29] Will: because he he was on he covered McGovern. I think
+[00:06:29] Will: because he was on he covered McGovern. I think
 
 [00:06:31] Adam: right.
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:06:50] Adam: I'm trying to remember which one. At any rate, he was a huge fan of Jimmy Carter's, and it was amazing to read. Thompson actually loving a politician
 
-[00:06:58] Will: because even the even when he was following McGovern he he didn't he really didn't like what Humphrey Hoover
+[00:06:58] Will: because even the even when he was following McGovern he didn't he really didn't like what Humphrey Hoover
 
 [00:07:04] Adam: yeah no Humphrey Humphrey
 
@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:07:07] Adam: yeah
 
-[00:07:07] Will: yeah he he detested him
+[00:07:07] Will: yeah he detested him
 
 [00:07:09] Adam: Hubert Humphrey
 
@@ -266,9 +266,9 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:07:16] Adam: sorry
 
-[00:07:16] Will: but um but no I mean his the descriptions of politicians and his unflinching way of calling bullshit on things that he thought were bullshit made him I mean at the time it was revolutionary now now everything that's come since has kind of reflected that I think
+[00:07:16] Will: but no I mean his the descriptions of politicians and his unflinching way of calling bullshit on things that he thought were bullshit made him I mean at the time it was revolutionary now now everything that's come since has kind of reflected that I think
 
-[00:07:33] Adam: well and and we should be clear that along with Tom Wolfe Hunter Thompson the two of them are absolutely described the two poles of what was in the mid '60s and early '70s referred to as the new journalism
+[00:07:33] Adam: well and we should be clear that along with Tom Wolfe Hunter Thompson the two of them are absolutely described the two poles of what was in the mid '60s and early '70s referred to as the new journalism
 
 [00:07:46] Will: right
 
@@ -294,7 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:08:39] Adam: Right, and I mean, they couldn't be more different too, as authors, as chroniclers, and from everything I've ever heard, and I I have since met a bunch of people that knew Hunter. I never was able to meet him, which I'm sad about because he was really important to me. At a period of time, you know the way he wrote about politics was—I mean, you say unflinching. If you read it now, and if you listen to this, and you go read " Fear and Loathing on the Campaign Trail," you might think that some of what he writes is hyperbolic. But I can tell you that everybody who's ever talked about Hunter Thompson is like, no, the problem with him is he tells the unvarnished truth about what really goes on in politics, and it's much worse than anybody thinks it is.
 
-[00:09:19] Will: Well, it's it's it shaped my view on our entire political system,
+[00:09:19] Will: Well, it's it shaped my view on our entire political system,
 
 [00:09:23] Adam: absolutely,
 
@@ -302,11 +302,11 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:09:25] Adam: There's there's in one of his books he actually has, and I always love this when an author does this. And I'm going to go off on a tiny tangent and say, from everything I've heard from people who knew him, being around Hunter was worse than he describes in his books.
 
-[00:09:38] Will: You mean from from a him being a miserable bastard to be around?
+[00:09:38] Will: You mean from a him being a miserable bastard to be around?
 
-[00:09:41] Adam: Yeah, and and being an awful person to have to have as an editor to count on him turning something in with any bit of timeliness. That when he writes, he's like ah, I'm in the hotel room and we're using the telex machine and faxing handwritten pages one at a time, like. Editors, it was like they were like he's making it sound linear, and it totally was not
+[00:09:41] Adam: Yeah, and being an awful person to have as an editor to count on him turning something in with any bit of timeliness. That when he writes, he's like ah, I'm in the hotel room and we're using the telex machine and faxing handwritten pages one at a time, like. Editors, it was like they were like he's making it sound linear, and it totally was not
 
-[00:10:02] Will: because because I mean, just to be clear, he had a reputation as being a prolific drug abuser.
+[00:10:02] Will: because I mean, just to be clear, he had a reputation as being a prolific drug abuser.
 
 [00:10:09] Adam: Yeah,
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:10:49] Norm: What was the difference?
 
-[00:10:51] Adam: If I remember correctly, he he wanted it to be a much more surrealistic journey. And I think he was looking. I can't even remember what he said. He was originally attempting to capture, but he didn't get it. But I mean, by any metric, Fear and Loathing is is. I think it's his best book.
+[00:10:51] Adam: If I remember correctly, he wanted it to be a much more surrealistic journey. And I think he was looking. I can't even remember what he said. He was originally attempting to capture, but he didn't get it. But I mean, by any metric, Fear and Loathing is is. I think it's his best book.
 
 [00:11:10] Will: It's one of the great books of the 20th century.
 
@@ -346,7 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:11:47] Unknown speaker: that you shouldn’t do at home.
 
-[00:11:47] Adam: So, and I don't know if kids in in these days are actually inculcated with this, but I remember being taught that the journalistic form was called the reverse pyramid.
+[00:11:47] Adam: So, and I don't know if kids in these days are actually inculcated with this, but I remember being taught that the journalistic form was called the reverse pyramid.
 
 [00:11:56] Will: Okay,
 
@@ -360,7 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:13:02] Adam: No, now I'm remembering. My favorite bit from one of the compilations was the he managed to snake a late night interview with Muhammad Ali. Do you remember this story?
 
-[00:13:12] Will: I've read, I've read this one, but I don't remember the details.
+[00:13:12] Will: I've read this one, but I don't remember the details.
 
 [00:13:13] Adam: So he,
 
@@ -368,7 +368,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:13:19] Adam: This is I think in the early '70s. Okay, Muhammad Ali is at his peak, and he is Muhammad Ali. He's no longer Cassius Clay. He's a clean living Muslim man, and he's got his entourage, and his entourage doesn't want him to have anything to do with filthy drug add drug-addled Hunter Thompson. Yeah, and he's in town, and he somehow manages to arrange a late night interview while Ali's manager isn't there.
 
-[00:13:45] Will: That's that's gold,
+[00:13:45] Will: That's gold,
 
 [00:13:46] Adam: right? Yeah. So they get into the same room, and it's like you know midnight, and Ali shouldn't even be awake according to his training schedule. And he and Thompson start talking, and they're having a great time. They totally get along great. And Thompson is giving him advice for how he should like big up his image, and he says, " Wait a minute, I've got it. I've got it in my room. I'm going to bring it back." And he goes into his room, and he's got some of his people there, right? He goes into his room, and he comes back in a gorilla mask.
 
@@ -384,11 +384,11 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:14:33] Adam: And Ali laughs his ass off, and they were literally like 20 minutes later. Ali's manager comes in, is like, " What's the no? You know, everyone's in trouble, including the champ."
 
-[00:14:44] Will: Oh yeah. Well, I mean, the the thing about it was he was so he was so kind of the mainstream press didn't like Hunter Thompson.
+[00:14:44] Will: Oh yeah. Well, I mean, the thing about it was he was so kind of the mainstream press didn't like Hunter Thompson.
 
 [00:14:53] Adam: Yeah.
 
-[00:14:53] Will: When he was on the campaign trail and was he was on the buses and planes with the with the just to be clear. The reporter from Rolling Stone was on the bus and the plane and the train with the guy who was running for president, who at the time was considered probably the front runner to beat Nixon.
+[00:14:53] Will: When he was on the campaign trail and was he was on the buses and planes with the just to be clear. The reporter from Rolling Stone was on the bus and the plane and the train with the guy who was running for president, who at the time was considered probably the front runner to beat Nixon.
 
 [00:15:08] Adam: Yeah, yeah,
 
@@ -396,7 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:15:14] Adam: yeah,
 
-[00:15:14] Will: like what the fuck is this drug-addled asshole doing on the plane with us? You know, because he's the guy that rolls on at the last minute, smelling of booze and weed and all sorts, and and and it it really reshaped the way American politics is reported. But but and then you also have to look at stuff like the like the Kentucky Derby essay,
+[00:15:14] Will: like what the fuck is this drug-addled asshole doing on the plane with us? Because he's the guy that rolls on at the last minute, smelling of booze and weed and all sorts, and it really reshaped the way American politics is reported. But and then you also have to look at stuff like the Kentucky Derby essay,
 
 [00:15:31] Adam: yeah,
 
@@ -422,27 +422,27 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:16:03] Will: Oh, you mean the picture of Johnny Depp and Benicio del Toro?
 
-[00:16:05] Adam: No, the original one. Yeah, and Ralph Steadman's an amazing illustrator. Has a bunch of really important books out of of his illustrations of dogs. Dogs is a famous one. It's one of my favorites.
+[00:16:05] Adam: No, the original one. Yeah, and Ralph Steadman's an amazing illustrator. Has a bunch of really important books out of his illustrations of dogs. Dogs is a famous one. It's one of my favorites.
 
 [00:16:20] Will: He's great.
 
 [00:16:20] Adam: And they had an amazing collaboration, an incredible collaboration. Curse of Lono is probably the most beautiful.
 
-[00:16:26] Will: He he wrote. Um, he's written a couple things, and I I want to say they were like long magazine articles about his relationship with Hunter. Um, one was not. It was it was right after Hunter killed himself.
+[00:16:26] Will: He wrote. He's written a couple things, and I I want to say they were like long magazine articles about his relationship with Hunter. One was not. It was right after Hunter killed himself.
 
 [00:16:37] Adam: Yeah.
 
-[00:16:37] Will: Um, and and it's it's definitely if you like Hunter Thompson, you you should go read the seven things. Gives you a completely different perspective on what what it was like being on the inside, but still the outside of that level of manic
+[00:16:37] Will: And it's definitely if you like Hunter Thompson, you should go read the seven things. Gives you a completely different perspective on what it was like being on the inside, but still the outside of that level of manic
 
 [00:16:49] Adam: yeah
 
 [00:16:49] Will: insanity.
 
-[00:16:50] Adam: So when when when Hunter killed himself and the funeral was happening in Aspen, um. The T-shirts—they printed up some memorial T-shirts for him, which was his sign, which is a little fist inside holding a peyote button
+[00:16:50] Adam: So when Hunter killed himself and the funeral was happening in Aspen. The T-shirts—they printed up some memorial T-shirts for him, which was his sign, which is a little fist inside holding a peyote button
 
 [00:17:07] Will: with a knife out of the top.
 
-[00:17:08] Adam: Yeah, and I wore—I somebody gave me one of those shirts very graciously, and I wore it on on the show on MythBusters. And I got a lovely, lovely letter from Hunter's widow.
+[00:17:08] Adam: Yeah, and I wore—I somebody gave me one of those shirts very graciously, and I wore it on the show on MythBusters. And I got a lovely, lovely letter from Hunter's widow.
 
 [00:17:20] Will: Oh, really?
 
@@ -450,13 +450,13 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:17:31] Will: Oh, that's awesome!
 
-[00:17:31] Adam: Which is still some of my favorite favorite pieces I've been given over the years. It was really nice to come full circle, you know, after having him be so important. Again, I'm sorry. I'm sorry, and I'm sad. I never got to meet him.
+[00:17:31] Adam: Which is still some of my favorite favorite pieces I've been given over the years. It was really nice to come full circle after having him be so important. Again, I'm sorry. I'm sorry, and I'm sad. I never got to meet him.
 
 [00:17:44] Will: He's a fascinating part of 20th century history,
 
-[00:17:48] Adam: and my friend Eric, who lives in Aspen, he he met him when he first moved to Aspen, and literally the first day he met him, by by 1:00 p.m. they were drinking whiskey and shooting guns.
+[00:17:48] Adam: and my friend Eric, who lives in Aspen, he met him when he first moved to Aspen, and literally the first day he met him, by by 1:00 p.m. they were drinking whiskey and shooting guns.
 
-[00:17:57] Will: Yeah, well, there's on the Fear and Loathing on the Fear and Loathing DVD, the special edition, the Criterion one. I think I think it's on the Criterion one, maybe in the original. There's a short of Johnny Depp and Hunter Thompson shooting propane bottles.
+[00:17:57] Will: Yeah, well, there's on the Fear and Loathing on the Fear and Loathing DVD, the special edition, the Criterion one. I think it's on the Criterion one, maybe in the original. There's a short of Johnny Depp and Hunter Thompson shooting propane bottles.
 
 [00:18:11] Adam: Yeah, yeah, yeah, yeah.
 
@@ -466,15 +466,15 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:18:14] Norm: filming the production?
 
-[00:18:16] Adam: They they were very close. Absolutely, they were very close. They were very they were good friends.
+[00:18:16] Adam: They were very close. Absolutely, they were very close. They were very they were good friends.
 
 [00:18:19] Norm: Depp toured with him and shaved his head and
 
-[00:18:22] Will: spent spent time learning how how he behaved. The the I I don't know what the impetus of where the Buffalo Roam is. I think it's just like a collection of essays that were turned into stories with a little bit of Fear and Loathing stuff in there.
+[00:18:22] Will: spent spent time learning how how he behaved. The I I don't know what the impetus of where the Buffalo Roam is. I think it's just like a collection of essays that were turned into stories with a little bit of Fear and Loathing stuff in there.
 
 [00:18:36] Adam: I think so. I think so.
 
-[00:18:38] Will: But Bill Murray, like that was that was an early Bill Murray showing some real
+[00:18:38] Will: But Bill Murray, like that was an early Bill Murray showing some real
 
 [00:18:42] Adam: acting chops.
 
@@ -500,7 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:19:09] Norm: What's the recommended reading outside of Fear and Loathing?
 
-[00:19:12] Adam: Now, here's the thing about it is that everyone usually starts with Fear and Loathing, and it's such an intense, high ride that I would, if someone asked me, recommend keeping it for later in the in the roster.
+[00:19:12] Adam: Now, here's the thing about it is that everyone usually starts with Fear and Loathing, and it's such an intense, high ride that I would, if someone asked me, recommend keeping it for later in the roster.
 
 [00:19:27] Will: It's dessert.
 
@@ -516,7 +516,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:19:36] Will: It goes real fast.
 
-[00:19:37] Adam: Wow. It's at any rate, it's a very fast read. It's super, super. You know, you can sink your teeth into it. After Hell's Angels, Fear and Loathing on the Campaign Trail is completely seminal and really important.
+[00:19:37] Adam: Wow. It's at any rate, it's a very fast read. It's super, super. You can sink your teeth into it. After Hell's Angels, Fear and Loathing on the Campaign Trail is completely seminal and really important.
 
 [00:19:47] Will: Before you read that, though. It's important you learn a little bit about because it just jumps right in the deep end, right? And if you don't know who McGovern and Humphries, and Nixon...
 
@@ -524,7 +524,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:19:57] Will: You need to do a little bit of research on like politics in 1971.
 
-[00:20:00] Adam: Oh my gosh, one of one of Hunter Thompson's big things, big on sports, did a lot of writing about sports and followed college ball completely
+[00:20:00] Adam: Oh my gosh, one of Hunter Thompson's big things, big on sports, did a lot of writing about sports and followed college ball completely
 
 [00:20:08] Will: And NFL.
 
@@ -540,7 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:20:14] Will: Right, right.
 
-[00:20:14] Adam: So they're in a bathroom and they're taking a leak next to each other, and and he says something, and Nixon says something, and Nixon in this brief statement reveals a deep, abiding love and knowledge of college football.
+[00:20:14] Adam: So they're in a bathroom and they're taking a leak next to each other, and he says something, and Nixon in this brief statement reveals a deep, abiding love and knowledge of college football.
 
 [00:20:29] Will: Oh yeah,
 
@@ -556,21 +556,21 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:21:11] Adam: Yeah,
 
-[00:21:11] Will: and and Hunter Thompson was there on the other side of that. He gloated through Watergate.
+[00:21:11] Will: and Hunter Thompson was there on the other side of that. He gloated through Watergate.
 
 [00:21:16] Adam: Oh yeah,
 
-[00:21:16] Will: you know G Gordon Liddy was a punchline for many many Hunter Thompson jokes.
+[00:21:16] Will: G Gordon Liddy was a punchline for many many Hunter Thompson jokes.
 
 [00:21:19] Adam: Yes, yes.
 
-[00:21:20] Will: and when Nixon died, he had a is this is this a respected villain? Is this a respected nemesis that died? Or is this is is is he is this a generation of the the culmination of a generation of swine?
+[00:21:20] Will: and when Nixon died, he had a is this a respected villain? Is this a respected nemesis that died? Or is this is is is he is this a generation of the culmination of a generation of swine?
 
 [00:21:33] Adam: Yeah,
 
-[00:21:33] Will: and it's the the Nixon like the other mirror image. You know, look in the mirror on one side is is Hunter Thompson. and the other side is Nixon.
+[00:21:33] Will: and it's the Nixon like the other mirror image. Look in the mirror on one side is is Hunter Thompson. and the other side is Nixon.
 
-[00:21:41] Adam: Well, and and Nixon, you know, it's also Nixon's a complicated one. I swear to God, I'd vote for him today. The guy.
+[00:21:41] Adam: Well, and Nixon it's also Nixon's a complicated one. I swear to God, I'd vote for him today. The guy.
 
 [00:21:49] Will: He's better than the guy.
 
@@ -600,17 +600,17 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:22:34] Unknown speaker: Wow.
 
-[00:22:47] Will: the the the essays are the most interesting. Like the essays, Fear and Loathing is a wonderful novel. The essays are fascinating because they kind of give you a glimpse into what at the time seemed like a radicalized version of of American journalism, and today is just what's on Gawker or Jezebel,
+[00:22:47] Will: the essays are the most interesting. Like the essays, Fear and Loathing is a wonderful novel. The essays are fascinating because they kind of give you a glimpse into what at the time seemed like a radicalized version of American journalism, and today is just what's on Gawker or Jezebel,
 
 [00:23:02] Adam: yeah,
 
 [00:23:03] Norm: and overdone and kind of perverted in some ways.
 
-[00:23:08] Will: Well, no one has that. The voice is a very unique thing, and he he had a very unique voice.
+[00:23:08] Will: Well, no one has that. The voice is a very unique thing, and he had a very unique voice.
 
 [00:23:13] Adam: He had a tremendous voice. It always felt like you were reading him, either essay or book. It always felt like you were just skating on the edge. Like this guy can't hold this together. What he's doing, and he'd wake up after like I've been awake for 55 hours, so I popped a couple of Benzedrine and then some human adrenal extract, and then took a couple of ludes to calm myself down.
 
-[00:23:32] Will: Well, I mean, that's the thing is, there is a point two thirds of the way through Fear and Loathing in Las Vegas where you think, Oh, there is no way this is all going to wrap up. Like, there is no chance that this whole thing is going to pull together when when there is three different hotel bills and a destroyed rental car and. You know, it's it's a fantastic book.
+[00:23:32] Will: Well, I mean, that's the thing is, there is a point two thirds of the way through Fear and Loathing in Las Vegas where you think, Oh, there is no way this is all going to wrap up. Like, there is no chance that this whole thing is going to pull together when there is three different hotel bills and a destroyed rental car and. It's a fantastic book.
 
 [00:23:50] Adam: Also, it should be noted that Hunter Thompson was famously parodied for decades in Doonesbury as the character Duke Raoul Duke.
 
@@ -632,11 +632,11 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:24:34] Will: So this is something you may know. Is is the character Gonzo on Muppets?
 
-[00:24:40] Adam: I do not know. That's a great question, and I, you know, I have no idea. Even though I know Dave Goelz, who does has. Is Gonzo? Yeah, is the voice of Gonzo and the puppeteer. I've never asked him. I don't know why.
+[00:24:40] Adam: I do not know. That's a great question, and I I have no idea. Even though I know Dave Goelz, who does has. Is Gonzo? Yeah, is the voice of Gonzo and the puppeteer. I've never asked him. I don't know why.
 
 [00:24:54] Will: We got to get to the bottom of this.
 
-[00:24:56] Adam: I, I, I, so yes, we must get to the bottom of this, and we will.
+[00:24:56] Adam: I, so yes, we must get to the bottom of this, and we will.
 
 [00:24:59] Will: Okay, and on that note,
 
@@ -658,7 +658,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:25:39] Unknown speaker: What?
 
-[00:25:39] Adam: I, I,
+[00:25:39] Adam: I,
 
 [00:25:40] Norm: I, I'm
 

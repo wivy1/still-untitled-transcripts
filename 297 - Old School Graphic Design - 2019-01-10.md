@@ -32,7 +32,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:00:50] Adam: And yeah, so I am making it party ready.
 
-[00:01:02] Will: There's a there's a it's a I went down and looked at the list of stuff a couple of weeks ago when they announced the like the acts
+[00:01:02] Will: There's a it's a I went down and looked at the list of stuff a couple of weeks ago when they announced the like the acts
 
 [00:01:07] Adam: always an unbelievable roster
 
@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:01:12] Norm: Sketchfest we talked about before for people you know it's an annual festival run co-run by Janet Varney it's a comedy shows special events it's
 
-[00:01:22] Will: it's kind of variety it's kind of a variety show at this point though it's like it's like live performances of all sorts
+[00:01:22] Will: it's kind of variety it's kind of a variety show at this point though it's like live performances of all sorts
 
 [00:01:27] Adam: but of every possible sort yeah so you know from Jonathan Coulton to Jonathan Winters I mean when he was around you know I interviewed Spinal Tap on stage as part of Sketch Fest Paul F. Tompkins and Acker and Blacker and the Thrilling Adventure Hour people have done it many years
 
@@ -50,7 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:01:45] Will: the West Wing Weekly people come every year
 
-[00:01:47] Adam: and so like if if if yeah it is always an amazing festival I cannot believe that Janet Varney and her team her wonderful team of partners put it on every year they always seem relatively calm. Given that they're flying hundreds of recalcitrant comedians from all over the world to San Francisco,
+[00:01:47] Adam: and so like if yeah it is always an amazing festival I cannot believe that Janet Varney and her team her wonderful team of partners put it on every year they always seem relatively calm. Given that they're flying hundreds of recalcitrant comedians from all over the world to San Francisco,
 
 [00:01:47] Unknown speaker: Oh,
 
@@ -58,7 +58,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:02:07] Adam: Yeah,
 
-[00:02:07] Norm: you spend like four hours in 1920s a 1920s speakeasy somewhere in North Beach of San Francisco. It's all era appropriate, and they're doing events for for sketch fest with comedians on the stage. I think John Hodgman's doing it.
+[00:02:07] Norm: you spend like four hours in 1920s a 1920s speakeasy somewhere in North Beach of San Francisco. It's all era appropriate, and they're doing events for sketch fest with comedians on the stage. I think John Hodgman's doing it.
 
 [00:02:34] Will: Are they doing 1920s era sets? Because
 
@@ -78,11 +78,11 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:02:52] Adam: That's John is totally awesome for that.
 
-[00:02:52] Unknown speaker (Adam or Will): So before we before we started recording,
+[00:02:52] Unknown speaker (Adam or Will): So before we started recording,
 
 [00:02:58] Unknown speaker (Will or Norm): yes,
 
-[00:02:58] Adam: I was showing you guys my new drawing table, and it's it's a mechanical arm for maintaining. Straightness and horizontality and verticality,
+[00:02:58] Adam: I was showing you guys my new drawing table, and it's a mechanical arm for maintaining. Straightness and horizontality and verticality,
 
 [00:03:08] Will: like your perspective line. I mean, so I've always seen that used for mechanical drafting and like CAD, like pre-CAD, CAD work. Yeah,
 
@@ -90,21 +90,21 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:03:15] Unknown speaker (Will or Norm): Yeah, yeah, yeah.
 
-[00:03:15] Adam: And we were talking about the early days of graphic design because I learned graphic design in New York in the in the mid '80s. My first job was operating a stat camera, so when you wanted things blown up or reduced, Xerox machines didn't even do it back then.
+[00:03:15] Adam: And we were talking about the early days of graphic design because I learned graphic design in New York in the mid '80s. My first job was operating a stat camera, so when you wanted things blown up or reduced, Xerox machines didn't even do it back then.
 
-[00:03:43] Will: No, no, you you used film.
+[00:03:43] Will: No, no, you used film.
 
 [00:03:43] Adam: Yeah, it was one. So you had to go to a photostat camera, get photo paper in a dark room, load it in, put your object down, figure out exactly what size it needed to be, spec by the designer. Then you turned on the lights, turned them back off again, and developed the photo paper and handed it to the designer.
 
 [00:03:46] Will: It was a laborious process.
 
-[00:03:46] Adam: For for any magnification or shrinkage.
+[00:03:46] Adam: For any magnification or shrinkage.
 
 [00:04:06] Will: How? Not crops, crops you could just do with a razor.
 
 [00:04:08] Adam: Right,
 
-[00:04:09] Will: so so the thing, Norm, you grew up in a in a digital,
+[00:04:09] Will: so so the thing, Norm, you grew up in a digital,
 
 [00:04:09] Adam: Yeah.
 
@@ -126,9 +126,9 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:05:06] Will: It's a typewriter for type.
 
-[00:05:08] Adam: Right, and it would print it out in in high resolution on film, and then you would glue that to a piece of cardboard with blue lines and crop marks drawn in,
+[00:05:08] Adam: Right, and it would print it out in high resolution on film, and then you would glue that to a piece of cardboard with blue lines and crop marks drawn in,
 
-[00:05:19] Will: and then and then you would take the blue lines out in the separation, right? Well,
+[00:05:19] Will: and then you would take the blue lines out in the separation, right? Well,
 
 [00:05:21] Adam: the blue lines disappear when you photograph it.
 
@@ -142,11 +142,11 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:05:38] Will: Wow.
 
-[00:05:38] Adam: They were awesome. Not that not to say that like they they it was a fantastic situation. No,
+[00:05:38] Adam: They were awesome. Not that not to say that like they it was a fantastic situation. No,
 
 [00:05:59] Will: [unclear: it was not / Witch’s switch situation in there?].
 
-[00:06:00] Adam: It was they were so lovely. I learned so much in that shop. But their big business was annual reports, and that was the sweet jobs to get in graphic design back then was annual reports because big public companies had to put them out. They were packed with information that had to be precisely laid out, and often the companies would allocate a real budget for these. And so designers, like all the top designers, got all the top companies and would cut loose on the design. Like there was a famous Minneapolis design firm called the Duffy Group that kind of established that. If you might be too young to remember, but in the in the mid '80s, there was this big return to a kind of a mid century boys' life sort of aesthetic.
+[00:06:00] Adam: It was they were so lovely. I learned so much in that shop. But their big business was annual reports, and that was the sweet jobs to get in graphic design back then was annual reports because big public companies had to put them out. They were packed with information that had to be precisely laid out, and often the companies would allocate a real budget for these. And so designers, like all the top designers, got all the top companies and would cut loose on the design. Like there was a famous Minneapolis design firm called the Duffy Group that kind of established that. If you might be too young to remember, but in the mid '80s, there was this big return to a kind of a mid century boys' life sort of aesthetic.
 
 [00:06:42] Will: Oh yeah, yeah.
 
@@ -156,15 +156,15 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:06:49] Adam: yeah. But so when you got an annual report in its raw form from your client, it was just hundreds of pages of stuff you had to lay out. My job as a type speccer was to count up the literal, do the math, and figure out the literal exact amount of column inches at the correct font, at the correct justification, and then figure out how many pages it would take to lay that out through all the photographs that had been laid out.
 
-[00:07:12] Norm: Literally a job that you drag. The corner of a a box and drag on a computer today,
+[00:07:12] Norm: Literally a job that you drag. The corner of a box and drag on a computer today,
 
-[00:07:17] Unknown speaker (Will or Adam): right? Or or you just press down on the font size [unclear: and drag / and it fits]. Oh
+[00:07:17] Unknown speaker (Will or Adam): right? Or you just press down on the font size [unclear: and drag / and it fits] Oh
 
 [00:07:20] Adam: no no no! So I had to. So what you did was you counted up at least you counted up the specific number of characters and spaces.
 
 [00:07:20] Unknown speaker (Adam or Will): Right.
 
-[00:07:20] Adam: Um, in 10 lines, and then you extrapolated that out.
+[00:07:20] Adam: In 10 lines, and then you extrapolated that out.
 
 [00:07:33] Will: Oh right, because they're probably not they're not monospace fonts, so you have to
 
@@ -182,13 +182,13 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:07:51] Norm: Wow!
 
-[00:07:51] Adam: I mean, I actually managed to get one of these by calling the company and pretending to be an investor. That was what you did as a designer. Like you collect, you you could only collect this stuff. That way,
+[00:07:51] Adam: I mean, I actually managed to get one of these by calling the company and pretending to be an investor. That was what you did as a designer. Like you collect, you could only collect this stuff. That way,
 
 [00:08:14] Norm: who does it? Who has that collection?
 
 [00:08:15] Will: Just buy that one stock, one one one share.
 
-[00:08:17] Adam: Right, yeah, one share. And then there was even in the layouts, things got really bold and and quite exciting.
+[00:08:17] Adam: Right, yeah, one share. And then there was even in the layouts, things got really bold and quite exciting.
 
 [00:08:25] Norm: This reminds me of like there's the like these for investor meetings, like big conventions or corporations that they like sometimes put on musicals or presentations that no one will ever see
 
@@ -204,17 +204,17 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:08:45] Norm: that have a commercial purpose and a business purpose.
 
-[00:08:48] Will: Well, it's definitely design, right? Like it's it's what's like the genre. It's like executive walk-on music. You know about this, right?
+[00:08:48] Will: Well, it's definitely design, right? Like it's what's like the genre. It's like executive walk-on music. You know about this, right?
 
 [00:08:48] Adam: Yeah,
 
-[00:08:48] Will: like pop songs that are designed specifically so that executives have something hyped up to walk on to when they're at a big conference. So U2's Vertigo, pretty much everything by the Black Eyed Peas, right? You know, like like it's it's hype up music for a crowd.
+[00:08:48] Will: like pop songs that are designed specifically so that executives have something hyped up to walk on to when they're at a big conference. So U2's Vertigo, pretty much everything by the Black Eyed Peas, right? Like it's hype up music for a crowd.
 
 [00:09:09] Adam: Yeah, Jamie and I did a whole stage tour where it was back in black.
 
-[00:09:12] Will: Yeah, that's a perfect one. I mean, that's that's that's only for cool executives.
+[00:09:12] Will: Yeah, that's a perfect one. I mean, that's only for cool executives.
 
-[00:09:19] Norm: So that's a classic music piece for this was an Iron Man for coming like for in in the second act, but right before third act, when the hero rebuilds themselves after the downfall. Yeah,
+[00:09:19] Norm: So that's a classic music piece for this was an Iron Man for coming like for in the second act, but right before third act, when the hero rebuilds themselves after the downfall. Yeah,
 
 [00:09:31] Will: after the downfall.
 
@@ -222,11 +222,11 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:09:42] Norm: He has the whips. [unclear: he has the splash to the ground].
 
-[00:09:43] Adam: He has the whips. Right, and so apparently Mickey Rourke wanted and full marks. Like, if this is what you need as an actor, this is what you should have. He he asked for music to be played really loud on set that would get him into the mood of the character.
+[00:09:43] Adam: He has the whips. Right, and so apparently Mickey Rourke wanted and full marks. Like, if this is what you need as an actor, this is what you should have. He asked for music to be played really loud on set that would get him into the mood of the character.
 
 [00:09:43] Norm: Racetrack
 
-[00:09:43] Adam: and they removed it. They removed it in post, obviously. But apparently, everyone on the crew was so sick of this music by the end of the day. I can't even remember what it was. You know, Chamillionaire or something like that. Maybe not
+[00:09:43] Adam: and they removed it. They removed it in post, obviously. But apparently, everyone on the crew was so sick of this music by the end of the day. I can't even remember what it was. Chamillionaire or something like that. Maybe not
 
 [00:10:10] Will: a Jamiroquai. What it's it's funny that so that happened. The analog to digital transition happened with print, and then everything's been kind of like in 2004, 2005. We switched from the from the film prepress to PDF,
 
@@ -234,7 +234,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:10:10] Will: and switched from QuarkXPress to InDesign, and then nothing's changed.
 
-[00:10:31] Adam: You know, I've never been able to figure out InDesign even a little bit.
+[00:10:31] Adam: I've never been able to figure out InDesign even a little bit.
 
 [00:10:37] Unknown speaker (Norm or Will): You're a Quark person.
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:11:01] Will: and
 
-[00:11:02] Adam: so I have documents on Quark that are so old Quark won't open them unless I unless I buy legacy versions of Quark
+[00:11:02] Adam: so I have documents on Quark that are so old Quark won't open them unless I buy legacy versions of Quark
 
 [00:11:08] Norm: that was a business model. Yeah. Update every year, buy the software.
 
@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:11:15] Norm: Well, I don’t know that company. Is it. Are they still around?
 
-[00:11:17] Will: Corel bought them, I think, years ago. They, um, I mean, they, they, that, that, that, it's a sad story for a different kind of podcast. But, um, that transition was really, really difficult, and it was marked by OS X, the transition to OS X, because Quark was slow to support OS X, and Adobe was right on it, and as a result, they they own the world now.
+[00:11:17] Will: Corel bought them, I think, years ago. They I mean, they, that, that, that, it's a sad story for a different kind of podcast. But that transition was really, really difficult, and it was marked by OS X, the transition to OS X, because Quark was slow to support OS X, and Adobe was right on it, and as a result, they own the world now.
 
 [00:11:39] Adam: I mean, I never thought that Quark was was perfect software, but it did operate precisely how I thought. Everything I needed was where I thought it ought to be.
 
@@ -270,21 +270,21 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:12:09] Adam: Right, I'm right there with less menus.
 
-[00:12:11] Will: Yeah. So I, I, um, I got a friend who is very good at Illustrator and and lasering stuff to walk me through it, and she spent 30 minutes on the phone with me one afternoon and made a world of difference in my ability to use that. Just like she gave me enough of the basic stuff that I could then move forward, and and and like a lot of that is for people who like to learn stuff on their own instead of going and sitting down taking a boring class or something, which I think we're probably all in that category.
+[00:12:11] Will: Yeah. So I, I I got a friend who is very good at Illustrator and lasering stuff to walk me through it, and she spent 30 minutes on the phone with me one afternoon and made a world of difference in my ability to use that. Just like she gave me enough of the basic stuff that I could then move forward, and like a lot of that is for people who like to learn stuff on their own instead of going and sitting down taking a boring class or something, which I think we're probably all in that category.
 
 [00:12:36] Adam: Yeah.
 
-[00:12:11] Will: That is much more helpful to me, even though it's pretty selfish to take somebody's 30 minutes, whatever, um, than than trying to to blow through the other the other way. Um,
+[00:12:11] Will: That is much more helpful to me, even though it's pretty selfish to take somebody's 30 minutes, whatever than trying to blow through the other way.
 
 [00:12:47] Norm: I mean that's been a big complaint for software. Like we started with the before we got to phones and tablets, very complex pieces of software that required training and expertise to master. What you're talking about with vectors or even Photoshop,
 
 [00:13:01] Will: yeah,
 
-[00:13:01] Norm: right. Uh, and since the phone came out. Apps have simplified things, but I found that in the simplification, because they're done so you can reach a mass, a bigger market, right? More people can get access to these apps. There's a lot of hidden complexity, and I think we're hitting this nice middle ground.
+[00:13:01] Norm: right. And since the phone came out. Apps have simplified things, but I found that in the simplification, because they're done so you can reach a mass, a bigger market, right? More people can get access to these apps. There's a lot of hidden complexity, and I think we're hitting this nice middle ground.
 
-[00:13:20] Will: I think we're right at the bad part of that right now. Like if you look at if you look at those conversations about, oh hey, did you know you can you know clear all of your tabs in Safari on iOS by long pressing the done button at the bottom of the screen?
+[00:13:20] Will: I think we're right at the bad part of that right now. Like if you look at those conversations about, oh hey, did you know you can you know clear all of your tabs in Safari on iOS by long pressing the done button at the bottom of the screen?
 
-[00:13:32] Adam: Or or how do you erase your ridiculous collection of alarms?
+[00:13:32] Adam: Or how do you erase your ridiculous collection of alarms?
 
 [00:13:32] Will: Yeah.
 
@@ -318,17 +318,17 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:14:36] Will: No, if you need to, if you don't, also that's fine.
 
-[00:14:39] Adam: I I banged on about this before. Having a little bit of having any background in graphic design is so useful for almost everything else later on.
+[00:14:39] Adam: I banged on about this before. Having a little bit of having any background in graphic design is so useful for almost everything else later on.
 
 [00:14:51] Norm: How do you engender that in someone young growing up? How do you get them obsessive or you know particular?
 
 [00:14:57] Will: They probably learn how to use PowerPoint.
 
-[00:14:59] Adam: You know, I mean, for me, for me, the well, this is it. The thing for me, the the place where I really got into it was became a sort of an amateur font nerd. And once you are an amateur font nerd, and you start to see that, like some of the new San Francisco street signs, they just took the font and extended it. You can see the oh, the awful vector stretch of the letters. Why did they just make the signs smaller?
+[00:14:59] Adam: I mean, for me, the well, this is it. The thing for me, the place where I really got into it was became a sort of an amateur font nerd. And once you are an amateur font nerd, and you start to see that, like some of the new San Francisco street signs, they just took the font and extended it. You can see the oh, the awful vector stretch of the letters. Why did they just make the signs smaller?
 
 [00:15:24] Norm: It's like the Matrix. So once you understand the rules of typography,
 
-[00:15:27] Adam: and it doesn't take this is the thing is that font nerdery is not a it's it's not difficult to jump into that pool, and it's really it's a beautiful pool the the the the the science and the art of communication and letter form and kerning and letter weight and all that it's a lovely love. I mean, I was just looking through some of my old sketchbooks because I was scanning some stuff for my book, and I found some old like I used to draw alphabets, right? That was like one of the things I did as a hobby, and it's a it's such a great exercise to do. It gives you such a good foundation in in communication.
+[00:15:27] Adam: and it doesn't take this is the thing is that font nerdery is not a it's not difficult to jump into that pool, and it's really it's a beautiful pool the science and the art of communication and letter form and kerning and letter weight and all that it's a lovely love. I mean, I was just looking through some of my old sketchbooks because I was scanning some stuff for my book, and I found some old like I used to draw alphabets, right? That was like one of the things I did as a hobby, and it's a it's such a great exercise to do. It gives you such a good foundation in communication.
 
 [00:16:00] Norm: Do you have a copy of Typeset in the Future, Dave Addey's book?
 
@@ -338,13 +338,13 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:16:05] Adam: no, I don’t.
 
-[00:16:05] Norm: I will make sure get your copy. Is one of my favorite things last year. He he does that blog.
+[00:16:05] Norm: I will make sure get your copy. Is one of my favorite things last year. He does that blog.
 
 [00:16:11] Will: The science fiction,
 
 [00:16:12] Norm: yeah, yeah.
 
-[00:16:12] Adam: No, he he has given me a tremendous amount of useful aid over the years,
+[00:16:12] Adam: No, he has given me a tremendous amount of useful aid over the years,
 
 [00:16:17] Norm: and he just released a book.
 
@@ -362,7 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:16:26] Adam: Yeah.
 
-[00:16:26] Norm: Um. Uh. [unclear: Wave helped / we’ve helped] connect him with the Pixar folks for WALL-E.
+[00:16:26] Norm: [unclear: Wave helped / we’ve helped] connect him with the Pixar folks for WALL-E.
 
 [00:16:26] Adam: Love it.
 
@@ -380,7 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:16:57] Will: to make it readable as small sizes, yeah
 
-[00:16:58] Norm: on paper in the in the quote unquote future paper is not the medium you read on and so the further you distance yourself from the mechanics of type then the more futuristic it looks.
+[00:16:58] Norm: on paper in the quote unquote future paper is not the medium you read on and so the further you distance yourself from the mechanics of type then the more futuristic it looks.
 
 [00:17:09] Adam: Interesting.
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:17:11] Adam: Oh my god!
 
-[00:17:11] Will: And and like just the the sheer mechanics of that kind of typesetting work, and the fact that these poor guys are handling like I assume it's like a lead antimony, like something incredibly toxic on like three different levels,
+[00:17:11] Will: And just the sheer mechanics of that kind of typesetting work, and the fact that these poor guys are handling like I assume it's like a lead antimony, like something incredibly toxic on like three different levels,
 
 [00:17:11] Adam: Yeah.
 
@@ -398,13 +398,13 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:17:11] Adam: Yeah.
 
-[00:17:11] Will: The other the other one, another good place to start on font stuff. Probably I know everybody here has seen it, but Helvetica is a good place to start if you're interested in that kind of stuff and want to learn more. The one thing I'll tell you is, if you learn about kerning, it will literally haunt you because you will see problems with it everywhere. It will make you very angry.
+[00:17:11] Will: The other one, another good place to start on font stuff. Probably I know everybody here has seen it, but Helvetica is a good place to start if you're interested in that kind of stuff and want to learn more. The one thing I'll tell you is, if you learn about kerning, it will literally haunt you because you will see problems with it everywhere. It will make you very angry.
 
 [00:18:14] Adam: No, no,
 
 [00:18:15] Will: and it's like Chekhov's gun, but for the real world.
 
-[00:18:17] Adam: It is, and you really see it. And I think it's a lovely way to see the world. You know, one of the things about graphic design, and it still holds for digital, is in order to lay out a page. Let's just say you're laying out a single page in order so that it communicates what you wanted to communicate. You go through these layers, right? You you have the information, and you slam it down, and then you've got the and the information includes words and pictures, and then there's this point at which you you have to you have to kind of see if it works at a distance, and it like you have to interface with it as a physical body, and you know I always start my designs with literal pencil sketches in terms of the weights of the proportions of the page, and just that exercise made me a far better model model maker when I started doing model making because again of that balance. And I remember my father, who was a painter, worked really hard to see. Different aspects of the of of how the formal elements of his paintings work together. So he would not only look at them from a distance; he'd walk to the other side of his studio. He'd also turn them upside down. Oh. He'd also walk to the other side of his studio and look at a painting in a mirror to get like double the throw, and just again to see if these elements are balancing each other.
+[00:18:17] Adam: It is, and you really see it. And I think it's a lovely way to see the world. One of the things about graphic design, and it still holds for digital, is in order to lay out a page. Let's just say you're laying out a single page in order so that it communicates what you wanted to communicate. You go through these layers, right? You have the information, and you slam it down, and then you've got the and the information includes words and pictures, and then there's this point at which you have to kind of see if it works at a distance, and it like you have to interface with it as a physical body, and you know I always start my designs with literal pencil sketches in terms of the weights of the proportions of the page, and just that exercise made me a far better model model maker when I started doing model making because again of that balance. And I remember my father, who was a painter, worked really hard to see. Different aspects of the of how the formal elements of his paintings work together. So he would not only look at them from a distance; he'd walk to the other side of his studio. He'd also turn them upside down. Oh. He'd also walk to the other side of his studio and look at a painting in a mirror to get like double the throw, and just again to see if these elements are balancing each other.
 
 [00:19:32] Norm: The literal lens in which most of you know media is consumed today—smartphones and cameras. Like that's why whenever we do model making or sculpting projects, we do stuff with Frank. Just every so often, take a step back, take a photo with your phone.
 
@@ -430,7 +430,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:22:12] Will: [unclear: No, I feel / Austin Powers].
 
-[00:22:14] Adam: like Adam McKay is like someone said to him at a party. You know, it’s unfilmable. Credit default swaps, and he said, " I'll take that bet." And then someone else said, " You know, it was an impossible subject to make a movie out of the monster Dick Cheney," and he said, " I'll take that bet."
+[00:22:14] Adam: like Adam McKay is like someone said to him at a party. It’s unfilmable. Credit default swaps, and he said, " I'll take that bet." And then someone else said, " You know, it was an impossible subject to make a movie out of the monster Dick Cheney," and he said, " I'll take that bet."
 
 [00:22:29] Norm: Is it too real, or can you distance yourself from the reality of the events?
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:23:24] Will: She's always as she's always good.
 
-[00:23:24] Adam: No, I know she's always good. She's incredible in this film. It's really worth watching. And then we saw Crazy Rich Asians. Oh, which I which I very enjoyed. I mean, I I can't remember if you said this, but someone told me it's basically a Stanley Donen film. It's like watching Singing in the Rain.
+[00:23:24] Adam: No, I know she's always good. She's incredible in this film. It's really worth watching. And then we saw Crazy Rich Asians. Oh, which I very enjoyed. I mean, I I can't remember if you said this, but someone told me it's basically a Stanley Donen film. It's like watching Singing in the Rain.
 
 [00:23:46] Norm: Oh, and that's the show and dance. Jon M. Chu, who directed it, he directed start off with music videos, and he did like the Justin Bieber film, and so that's his whole thing.
 
@@ -470,7 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:24:20] Adam: I mean, it's light as a feather. Blow on it, and it disappears. You know, the plot doesn't have a lot of meat on it.
 
-[00:24:25] Norm: Yeah, yeah, you know, it's it's a fun pop book.
+[00:24:25] Norm: Yeah, yeah it's a fun pop book.
 
 [00:24:27] Unknown speaker (Will or Adam): There was yeah,
 
@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:24:29] Adam: The mahjong scene is fantastic.
 
-[00:24:31] Will: Yeah, there was a really good article that I read last week about the prop, the prop design, like the prop master and how they how they actually managed to do the props for that movie. Because
+[00:24:31] Will: Yeah, there was a really good article that I read last week about the prop design, like the prop master and how they actually managed to do the props for that movie. Because
 
 [00:24:31] Adam: what do you mean?
 
@@ -490,11 +490,11 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:24:31] Adam: Oh, wow.
 
-[00:24:31] Will: and when the money for the security guy for that set of $500,000 earrings ran out, that shoot was over, and they had to they had to do the rest of that.
+[00:24:31] Will: and when the money for the security guy for that set of $500,000 earrings ran out, that shoot was over, and they had to do the rest of that.
 
 [00:25:00] Unknown speaker (Adam or Norm): Those were in two scenes; they had to shoot those two scenes back to back.
 
-[00:25:00] Will: Oh, yeah, and and bang it out really fast. Like it was, it was. There were. Great, I mean, everybody knows the story about Michelle Yeoh's ring, which was the the you know the
+[00:25:00] Will: Oh, yeah, and bang it out really fast. Like it was. There were. Great, I mean, everybody knows the story about Michelle Yeoh's ring, which was the you know the
 
 [00:25:02] Norm: The green, the jade ring.
 
@@ -526,17 +526,17 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:25:51] Norm: Yeah.
 
-[00:25:51] Adam: Like that's how that's how measured those guys can be in the face of the worst adversity.
+[00:25:51] Adam: Like that's how measured those guys can be in the face of the worst adversity.
 
 [00:26:06] Norm: I think the whole time we're watching, like the question we're asking is, " Who's filming this? Who's filming this?" And like. They're filming it.
 
-[00:26:12] Adam: I have a theory. I don't think that they were filming when the when the hutch broke. I think that they added that footage because Chin knew that they needed some footage of like ah, the thing broke.
+[00:26:12] Adam: I have a theory. I don't think that they were filming when the hutch broke. I think that they added that footage because Chin knew that they needed some footage of like ah, the thing broke.
 
 [00:26:12] Norm: Really,
 
-[00:26:12] Adam: I'll wager. And then the fact that— I mean, I don't begrudge that. I don't begrudge that at all. If I was him up on that mountain, I would get that shot too because you need the the storytelling.
+[00:26:12] Adam: I'll wager. And then the fact that— I mean, I don't begrudge that. I don't begrudge that at all. If I was him up on that mountain, I would get that shot too because you need the storytelling.
 
-[00:26:34] Norm: And every oh, you mean they they refilmed it in that moment?
+[00:26:34] Norm: And every oh, you mean they refilmed it in that moment?
 
 [00:26:37] Adam: Yes,
 
@@ -568,7 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:27:47] Unknown speaker (Will or Adam): Why didn't they come down from the top?
 
-[00:27:50] Norm: Well, the the accomplishment is getting up from the bottom to the top.
+[00:27:50] Norm: Well, the accomplishment is getting up from the bottom to the top.
 
 [00:27:52] Adam: from.
 
@@ -628,7 +628,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:28:50] Adam: with Rosamund Pike and Werner Herzog
 
-[00:28:54] Will: and and Robert Duvall.
+[00:28:54] Will: and Robert Duvall.
 
 [00:28:54] Adam: Robert Duvall
 
@@ -640,17 +640,17 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:28:59] Adam: Yes,
 
-[00:28:59] Will: it does. I, I don't want to spoil stuff. But like the opening, it's like that entire story is told in the first like five minutes of the movie, and like it's just up to you to get there with with Tom Cruise by the end.
+[00:28:59] Will: it does. I don't want to spoil stuff. But the opening, it's like that entire story is told in the first like five minutes of the movie, and it's just up to you to get there with Tom Cruise by the end.
 
-[00:29:22] Adam: Yeah, yeah, yeah. So it's a it's a slower movie than than you think.
+[00:29:22] Adam: Yeah, yeah, yeah. So it's a slower movie than than you think.
 
 [00:29:26] Will: But at the like, I reached there's a point at the hour at the end of the first hour where he starts to put things together. I was like, well, that that wrapped up quicker than I expected.
 
-[00:29:35] Adam: Well, I mean, and he the way he shows up is like, who's Jack Reacher? I'm Jack Reacher. What? I mean, it it gets a little silly. And to be to be clear, I've read all the Jack Reacher novels, and anybody out there who's read them, I I I don't disagree with you that Tom Cruise does not physically match Jack Reacher.
+[00:29:35] Adam: Well, I mean, and he the way he shows up is like, who's Jack Reacher? I'm Jack Reacher. What? I mean, it gets a little silly. And to be clear, I've read all the Jack Reacher novels, and anybody out there who's read them, I I I don't disagree with you that Tom Cruise does not physically match Jack Reacher.
 
 [00:29:52] Will: Six eight,
 
-[00:29:53] Adam: right? Six five, six six, and like 250 pounds, like just muscle and not not you know not super attractive, but like just like get it done.
+[00:29:53] Adam: right? Six five, six six, and 250 pounds, like just muscle and not not you know not super attractive, but just like get it done.
 
 [00:30:03] Will: Yeah.
 
@@ -664,11 +664,11 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:30:16] Adam: The fight scene with the five guys—one of my favorite fight scenes in movies.
 
-[00:30:19] Will: Um, it, you know, it's one of those ones that it does the thing that Hollywood movies do in fight scenes, where there's cuts away after the hits and stuff like that. But it also doesn't look like they cheated.
+[00:30:19] Will: It it's one of those ones that it does the thing that Hollywood movies do in fight scenes, where there's cuts away after the hits and stuff like that. But it also doesn't look like they cheated.
 
 [00:30:28] Adam: No, and you feel like you understand spatially everything that's happening.
 
-[00:30:32] Will: You absolutely understand what's happening. The car chase when when
+[00:30:32] Will: You absolutely understand what's happening. The car chase when
 
 [00:30:37] Adam: when he gets out of the car,
 
@@ -676,11 +676,11 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:30:45] Adam: Yeah, and Herzog is a wonderfully scary, awful villain.
 
-[00:30:50] Will: Yeah. So so and and the thing. So I went back and watched. Watched Fallout a few weeks ago again, second time, and I wanted to see kind of this path because Chris McQuarrie is started as. Working with Chris Nolan, right?
+[00:30:50] Will: Yeah. So so and the thing. So I went back and watched. Watched Fallout a few weeks ago again, second time, and I wanted to see kind of this path because Chris McQuarrie is started as. Working with Chris Nolan, right?
 
 [00:31:03] Norm: Chris McQuarrie wrote script for Usual Suspects.
 
-[00:31:07] Will: Oh, that's right. Okay, and I wanted to see the through line, and and like it's there's very much the things that came later with Mission Impossible, with Fallout, and Rogue Nation, but in a in a more constrained way with with with with Reacher. It was really fun.
+[00:31:07] Will: Oh, that's right. Okay, and I wanted to see the through line, and like it's there's very much the things that came later with Mission Impossible, with Fallout, and Rogue Nation, but in a more constrained way with Reacher. It was really fun.
 
 [00:31:25] Adam: The fights, and again, the fight choreography in Reacher. I've never looked up who the fight choreographer was, but it's some of the best fight choreography in recent movies. In in terms of its clarity, there's a later fight in Reacher where he's fighting with a bunch of idiots in a house, and he doesn't do incredibly well. The close confines mean he gets hit a few times,
 
@@ -692,13 +692,13 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:31:52] Adam: Totally.
 
-[00:31:52] Will: And this is a this is a top tier, Robert Duvall role,
+[00:31:52] Will: And this is a top tier, Robert Duvall role,
 
-[00:32:03] Adam: and and yeah, Duvall is an is a national treasure who is sort of like, you know, seems to be drifting a little out of public consciousness, but he's super important.
+[00:32:03] Adam: and yeah, Duvall is an is a national treasure who is sort of like seems to be drifting a little out of public consciousness, but he's super important.
 
 [00:32:13] Will: Saving my night vision.
 
-[00:32:14] Adam: Like if you've never seen The Apostle, The Apostle's a masterpiece. Another Walton Goggins, incredible Walton Goggins appearance. Yeah. Um. Yeah. Uh. You know, Duvall is one of the all time greats, and I grew up loving Tender Mercies.
+[00:32:14] Adam: Like if you've never seen The Apostle, The Apostle's a masterpiece. Another Walton Goggins, incredible Walton Goggins appearance. Yeah. Um. Yeah. Duvall is one of the all time greats, and I grew up loving Tender Mercies.
 
 [00:32:30] Will: I never saw that.
 
@@ -708,11 +708,11 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:33:10] Will: that's it for me.
 
-[00:33:12] Adam: My my no no, I think that's about it.
+[00:33:12] Adam: My no no, I think that's about it.
 
 [00:33:15] Norm: I would love to hear from people if they have favorite documentaries or books about type graphic design because that's something I totally collect and love love reading.
 
-[00:33:15] Adam: Yeah. Well, so then there's all the then there's all the design guides like the New York City subway, Massimo Vignelli subway design,
+[00:33:15] Adam: Yeah. Well, so then there's all the design guides like the New York City subway, Massimo Vignelli subway design,
 
 [00:33:33] Will: the NASA ones,
 
@@ -720,9 +720,9 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:33:56] Will: Like it's part of the one of the things that I always love is finding out how. Like that, the how of the mechanics of things that you're super familiar, like how things work behind the scenes in ways that you don't usually get exposed to.
 
-[00:34:08] Adam: And when you're moving through the subway and you're seeing your subway signs, it's shocking to realize that people actually spent months and months and months, if not years, coming up with the right line weight and kerning and spacing and background to assemble these signs so that you can read them quickly while you're moving from things.
+[00:34:08] Adam: And when you're moving through the subway and you're seeing your subway signs, it's shocking to realize that people actually spent months and months, if not years, coming up with the right line weight and kerning and spacing and background to assemble these signs so that you can read them quickly while you're moving from things.
 
-[00:34:26] Will: The one for highway signs for for the U.S. interstate signs.
+[00:34:26] Will: The one for highway signs for the U.S. interstate signs.
 
 [00:34:30] Adam: Oh, I haven't seen that one.
 
@@ -730,7 +730,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:34:31] Adam: Yeah,
 
-[00:34:31] Will: and it was really controversial because the font that was in place before was designed specifically to be readable at like 600 meters or something like that when you're going 70 miles an hour in the dark, you know, with just headlights reflecting off of it. Um, and it was it was an infinitesimal font change, but yeah, but yeah, you know, a huge undertaking, and like that design was all done 60, 70 years, 75 years ago now.
+[00:34:31] Will: and it was really controversial because the font that was in place before was designed specifically to be readable at like 600 meters or something like that when you're going 70 miles an hour in the dark with just headlights reflecting off of it. And it was an infinitesimal font change, but yeah, you know, a huge undertaking, and like that design was all done 60, 70 years, 75 years ago now.
 
 [00:35:03] Adam: It was there's a beautiful 99% invisible about some LA pranksters.
 

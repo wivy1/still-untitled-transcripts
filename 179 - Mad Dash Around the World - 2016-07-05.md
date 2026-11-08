@@ -14,11 +14,11 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:00:56] Adam: Welcome back, Will. Yes, I had to do that without you recently.
 
-[00:00:58] Will: I know you did a good. I, I only listened to the first one because we're just recording this a couple of days after the second one went up. But you did a nice job.
+[00:00:58] Will: I know you did a good. I only listened to the first one because we're just recording this a couple of days after the second one went up. But you did a nice job.
 
-[00:01:04] Adam: Thank you. Thank you. I, I tried to roll it. Welcome, you know the way. you’re Ready to rumble?
+[00:01:04] Adam: Thank you. Thank you. I tried to roll it. Welcome, you know the way. you’re Ready to rumble?
 
-[00:01:09] Will: You know, I get a little. No, no, no, no, don't. That's it's a trademark phrase. We can't say that out loud. There was
+[00:01:09] Will: I get a little. No, no, no, no, don't. That's it's a trademark phrase. We can't say that out loud. There was
 
 [00:01:16] Norm: that inflection.
 
@@ -38,7 +38,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:01:31] Norm: Every time he says it,
 
-[00:01:32] Will: um, you guys have been busy.
+[00:01:32] Will: You guys have been busy.
 
 [00:01:33] Adam: We have been we have traveled far and wide.
 
@@ -52,7 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:01:41] Norm: Yeah, yeah,
 
-[00:01:41] Adam: because it all just happened. It's a fat, it's a fat cast.
+[00:01:41] Adam: because it all just happened. It's a fat cast.
 
 [00:01:48] Will: Oi.
 
@@ -64,7 +64,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:01:54] Will: I love that. As soon as I quit, you guys pack up and go to Australia.
 
-[00:01:59] Adam: Um and I got to see, I got to see. You know what? I'm going to send this to you to post because it's a beautiful picture. I had dinner with my entire camera and directing department from MythBusters, circa 2004.
+[00:01:59] Adam: And I got to see. You know what? I'm going to send this to you to post because it's a beautiful picture. I had dinner with my entire camera and directing department from MythBusters, circa 2004.
 
 [00:01:59] Will: Oh, awesome!
 
@@ -74,7 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:02:31] Adam: Yeah, they were there. They were on hand.
 
-[00:02:33] Will: Was this the the drinking on the treadmill year?
+[00:02:33] Will: Was this the drinking on the treadmill year?
 
 [00:02:35] Adam: They're all still really close friends, and they're all still awesome and working all the time. And it was great that they all got. And then the next night, I had dinner with my cameraman Benny.
 
@@ -86,13 +86,13 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:02:56] Adam: Well, because we had jet lag too, we're waking up at like four in the morning, and so you like by seven, and the sun is just coming up over Sydney Harbour. You're like, oh wow, Sydney Harbour wins in the postcard department.
 
-[00:03:06] Norm: And and you're walking like this. It feels almost post apocalyptic, like vanilla sky. But like you're just enjoying it for yourself.
+[00:03:06] Norm: And you're walking like this. It feels almost post apocalyptic, like vanilla sky. But like you're just enjoying it for yourself.
 
 [00:03:13] Adam: There’s Nobody there, yeah.
 
 [00:03:13] Norm: Nobody there except a security guard.
 
-[00:03:15] Adam: And for some people jogging, there's a beautiful botanical garden right on the on the on the south side of Sydney Harbour, right where the Opera House is, and it's a gorgeous walk. If you ever go to Sydney, you should do that walk.
+[00:03:15] Adam: And for some people jogging, there's a beautiful botanical garden right on the south side of Sydney Harbour, right where the Opera House is, and it's a gorgeous walk. If you ever go to Sydney, you should do that walk.
 
 [00:03:25] Will: Do the walk,
 
@@ -104,7 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:03:34] Will: Yeah.
 
-[00:03:34] Adam: Um. So then we went from Australia after four or five days down to New Zealand. So just to be clear, Australia in general, depending on daylight savings time, which falls in different times in different countries, in general, Australia is seven hours behind. Except tomorrow,
+[00:03:34] Adam: So then we went from Australia after four or five days down to New Zealand. So just to be clear, Australia in general, depending on daylight savings time, which falls in different times in different countries, in general, Australia is seven hours behind. Except tomorrow,
 
 [00:03:58] Will: so they're the future past.
 
@@ -122,7 +122,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:04:11] Norm: because of the VAT.
 
-[00:04:13] Adam: Yeah, yeah, electronics are incredibly expensive down under and in in NZ and Oz.
+[00:04:13] Adam: Yeah, yeah, electronics are incredibly expensive down under and in NZ and Oz.
 
 [00:04:19] Norm: Right.
 
@@ -140,11 +140,11 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:04:28] Adam: without ever crossing over the same material. Weta is this like Rabbit Warren of shops, filled with some of the most vibrant, awesome, funny, dedicated craftspeople in the world.
 
-[00:04:51] Norm: Right, and we have to clarify: this is Weta workshop. Because that's that's where we were embedded.
+[00:04:51] Norm: Right, and we have to clarify: this is Weta workshop. Because that's where we were embedded.
 
 [00:04:51] Adam: Right.
 
-[00:04:51] Norm: When you say something like ILM, you know, there are many different departments. There is Weta Digital,
+[00:04:51] Norm: When you say something like ILM there are many different departments. There is Weta Digital,
 
 [00:04:51] Adam: right?
 
@@ -154,9 +154,9 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:05:11] Adam: Exactly.
 
-[00:05:11] Will: and our our our our host ,
+[00:05:11] Will: and our host ,
 
-[00:05:16] Adam: yeah, and our host was Richard Taylor, who runs Weta Workshop, and Richard, childhood friends with Peter Jackson, ran the workshop all through all of Peter's films, including Lord of the Rings. Um, and very specifically runs it and says this is not an effects shop. That's just one of the things we do. We also do public art. We also do performance. We do films, of course. We do commercials, but it's a like the artisans get a chance to apply their craft in almost every way that that craft could be applied. At one point, we're talking to one of their lead sculptors. We're in the sculpting room, which is like you are looking around at the tops of the topi shelves in the sculpting room. You are like. It's oh, and it's oh, it's like freaking you out. And the guy says, he started at Weta right out of college after working in the art department on a couple of projects. They had some downtime, and he said he wanted to learn how to sculpt. And so Richard put him on the payroll for a couple months to learn how to sculpt.
+[00:05:16] Adam: yeah, and our host was Richard Taylor, who runs Weta Workshop, and Richard, childhood friends with Peter Jackson, ran the workshop all through all of Peter's films, including Lord of the Rings. And very specifically runs it and says this is not an effects shop. That's just one of the things we do. We also do public art. We also do performance. We do films, of course. We do commercials, but it's a like the artisans get a chance to apply their craft in almost every way that that craft could be applied. At one point, we're talking to one of their lead sculptors. We're in the sculpting room, which is like you are looking around at the tops of the topi shelves in the sculpting room. You are like. It's oh, and it's oh, it's like freaking you out. And the guy says, he started at Weta right out of college after working in the art department on a couple of projects. They had some downtime, and he said he wanted to learn how to sculpt. And so Richard put him on the payroll for a couple months to learn how to sculpt.
 
 [00:06:10] Norm: Let him hang out.
 
@@ -166,19 +166,19 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:06:11] Adam: Yes.
 
-[00:06:11] Norm: And I think what's smart about what Richard's philosophy is that they're they have their fingers in every all sorts of projects from board games to public displays and museum exhibits, and they encourage because they have the space encourage the the artists there because they're all most of them New Zealanders.
+[00:06:11] Norm: And I think what's smart about what Richard's philosophy is that they're they have their fingers in every all sorts of projects from board games to public displays and museum exhibits, and they encourage because they have the space encourage the artists there because they're all most of them New Zealanders.
 
 [00:06:11] Adam: Yes.
 
 [00:06:11] Norm: To just develop their skills and work on personal projects.
 
-[00:06:42] Adam: And and he's building a he's really building a craftsmanship sort of an army of craftspeople who are cross disciplinary. That makes them all stronger.
+[00:06:42] Adam: And he's building a he's really building a craftsmanship sort of an army of craftspeople who are cross disciplinary. That makes them all stronger.
 
 [00:06:53] Will: It's the thing that we've kind of lost in large portions of America as like shop classes and stuff like that went away, right?
 
-[00:06:58] Adam: Yeah, and it's difficult because, like Norm is saying, here the work is very catch as catch can. ILM shut down its model shop, and while there are a couple of other model shops up in Marin that have tried to keep the work going and are doing pretty well, it's still there are sometimes downtimes of like 10 months for for a big shop, and you just got to send everybody home. So Richard busts his ass to keep work coming into Weta, and I mean, like, I can't. I've never seen anyone. I think that I'm busy, until I'm standing next to Richard, and then I'm like, I've never been busy compared to this gentleman.
+[00:06:58] Adam: Yeah, and it's difficult because, like Norm is saying, here the work is very catch as catch can. ILM shut down its model shop, and while there are a couple of other model shops up in Marin that have tried to keep the work going and are doing pretty well, it's still there are sometimes downtimes of like 10 months for a big shop, and you just got to send everybody home. So Richard busts his ass to keep work coming into Weta, and I mean I can't. I've never seen anyone. I think that I'm busy, until I'm standing next to Richard, and then I'm like, I've never been busy compared to this gentleman.
 
-[00:07:33] Will: Well, there's a there's a there's a there's busy for you, and there's busy for a team of people you employ,
+[00:07:33] Will: Well, there's a there's busy for you, and there's busy for a team of people you employ,
 
 [00:07:33] Adam: right?
 
@@ -220,7 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:08:23] Norm: Not enough time to do that.
 
-[00:08:24] Adam: No, these are ground, and these are that's primarily the the types of swords he makes.
+[00:08:24] Adam: No, these are ground, and these are that's primarily the types of swords he makes.
 
 [00:08:28] Will: Wouldn't they do it for effects for movies?
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:08:31] Will: Okay.
 
-[00:08:31] Adam: So. That's the whole reason Japanese swords are done that way. It is; it's basically when you distribute the the problems in steel, you make it inherently stronger because you are making sure there is no voids or there is no specific weak spots. But if you start with a really good piece of spring steel, all you really need to do is grind it. I know, I know, there is going to be all sorts of you guys talking to me about what I don't know, and it's clear, totally true. Like this is not my area of expertise, but you know, he was showing us. Like at one point, he said he brought out Boromir's hero sword. Two things that were amazing. One is I said I wanted to make a Strider style sword, so he goes, " Okay, well, here is Aragorn's hero sword," and he put it on the desk.
+[00:08:31] Adam: So. That's the whole reason Japanese swords are done that way. It is; it's basically when you distribute the problems in steel, you make it inherently stronger because you are making sure there is no voids or there is no specific weak spots. But if you start with a really good piece of spring steel, all you really need to do is grind it. I know, there is going to be all sorts of you guys talking to me about what I don't know, and it's clear, totally true. Like this is not my area of expertise, but he was showing us. Like at one point, he said he brought out Boromir's hero sword. Two things that were amazing. One is I said I wanted to make a Strider style sword, so he goes, " Okay, well, here is Aragorn's hero sword," and he put it on the desk.
 
 [00:09:26] Norm: And yeah, what does that mean, Aragorn's hero sword? Oh, well, that's the one that was carried on film,
 
@@ -266,19 +266,19 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:10:37] Norm: No, no,
 
-[00:10:38] Will: no. But but because he has the camera on his shoulder and he's moving around to track stuff and all that, he's bumped into some stuff that's of really high value or. Maybe like a stop motion set before.
+[00:10:38] Will: no. But because he has the camera on his shoulder and he's moving around to track stuff and all that, he's bumped into some stuff that's of really high value or. Maybe like a stop motion set before.
 
 [00:10:38] Adam: Oh, whoops!
 
 [00:10:38] Will: Yeah, just that one time.
 
-[00:10:50] Adam: At any rate, it was like that's just one of the dozens of things that we shot and talked to people about at Weta. It really was. I found it so inspiring. I'm literally we're my family. We're trying to work out when we can go and spend at least like a week to 10 days down in Wellington to hang out. The I have now a bunch of close friends at Weta, so we went out to dinner every night. The dinners were wonderful affairs of many people talking about all sorts of different things. You know, there's always amazing people visiting Weta, and so it was like it was every night was just filled with the most incredible conversation.
+[00:10:50] Adam: At any rate, it was like that's just one of the dozens of things that we shot and talked to people about at Weta. It really was. I found it so inspiring. I'm literally we're my family. We're trying to work out when we can go and spend at least like a week to 10 days down in Wellington to hang out. The I have now a bunch of close friends at Weta, so we went out to dinner every night. The dinners were wonderful affairs of many people talking about all sorts of different things. There's always amazing people visiting Weta, and so it was like it was every night was just filled with the most incredible conversation.
 
 [00:11:30] Will: Anytime you get a big group of interesting people with multiple multiple multiple multi disciplinary backgrounds,
 
 [00:11:30] Adam: yeah,
 
-[00:11:30] Will: like you, it's it if if you don't have interesting conversations, you're doing something really
+[00:11:30] Will: like you, it's it if you don't have interesting conversations, you're doing something really
 
 [00:11:30] Unknown: [speaker unclear: Adam / Will] Wrong.
 
@@ -304,13 +304,13 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:12:38] Adam: we got tons of.
 
-[00:12:43] Norm: Stuff. Yeah lots, lots of stuff. And and you alluded to being in those different rooms, like the sculpting room. Uh, the mold room, the cast room, the paint room, the those rooms were all like as opposed being one big warehouse. They were it's like a compound, and they had just like in Peter Lyon's workshop, you know, artifacts from the past projects, which I think is unique to Weta Workshop. Not a lot of practical effects or effects studios have a lot of their old work because it goes off the studios and
+[00:12:43] Norm: Stuff. Yeah lots, lots of stuff. And you alluded to being in those different rooms, like the sculpting room. The mold room, the cast room, the paint room, the those rooms were all like as opposed being one big warehouse. They were it's like a compound, and they had just like in Peter Lyon's workshop artifacts from the past projects, which I think is unique to Weta Workshop. Not a lot of practical effects or effects studios have a lot of their old work because it goes off the studios and
 
 [00:13:11] Adam: more and more. I mean, a lot of places, a lot of commercial production will just be like, " Can you get this out of our hair and give you back the prop you built?" Because they don't have a place to store it. Yeah, studios now it's a real negotiation, and it's a key part of Weta’s contract that they keep props from most of the projects they work on. And so it's just everywhere you look, and it's overwhelming. I mean,
 
 [00:13:33] Will: like more so than this.
 
-[00:13:34] Adam: Oh, it's like this except picture you know 80,000 square feet of shop space, room after room after room, where all the walls are lined with like oh you know there's Gimli's axe in three different scales depending on what they were filming.
+[00:13:34] Adam: Oh, it's like this except picture you know 80,000 square feet of shop space, room after room, where all the walls are lined with like oh you know there's Gimli's axe in three different scales depending on what they were filming.
 
 [00:13:34] Will: Wow!
 
@@ -350,7 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:15:24] Will: Episode of Still Untitled.
 
-[00:15:28] Norm: But that exhibit, one of the reasons you learn a lot about the war and and the people, the real people who participated, but they built these diorama scenes that are three times the size of normal humans.
+[00:15:28] Norm: But that exhibit, one of the reasons you learn a lot about the war and the people, the real people who participated, but they built these diorama scenes that are three times the size of normal humans.
 
 [00:15:28] Adam: It's really disconcerting.
 
@@ -384,7 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:16:30] Will: World War One as well.
 
-[00:16:31] Norm: World War One. Yeah, yeah, like the eyeballs, multiple layers, just so you. I mean, to to get it so it doesn't look like a wax dummy.
+[00:16:31] Norm: World War One. Yeah, yeah, like the eyeballs, multiple layers, just so you. I mean, to get it so it doesn't look like a wax dummy.
 
 [00:16:31] Adam: Yeah,
 
@@ -398,15 +398,15 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:16:45] Will: Oh, good.
 
-[00:16:45] Adam: So we had a had a wonderful time in New York. But moving from Australia to New Zealand to New York, I have never been that jet lagged.
+[00:16:45] Adam: So we had a wonderful time in New York. But moving from Australia to New Zealand to New York, I have never been that jet lagged.
 
-[00:17:02] Will: Yeah, that's a that's a that's a. What's the flight from? Can you do direct from New York to from? You have to come through L.A. or something.
+[00:17:02] Will: Yeah, that's a. What's the flight from? Can you do direct from New York to from? You have to come through L.A. or something.
 
 [00:17:09] Adam: You have to go. I went through San Francisco. In fact, actually, my son was like, " Hey, you're going to be in San Francisco for three hours. I'm going to come and have lunch with you." So he did.
 
 [00:17:09] Will: Nice.
 
-[00:17:09] Adam: That was an awesome layover. But so a few years ago on MythBusters, I went through a whole like stress reduction thing where I, you know, I started eating better, I started exercising, but mostly I started making sure I was getting exactly how much sleep I need every night, which turns out to be precisely seven hours. Like that's my zone. And on this trip, I never got seven hours. I was catching naps when naps whenever I could, but by New York, it caught up to me, and I was just kind of a quivering mess for a couple days there.
+[00:17:09] Adam: That was an awesome layover. But so a few years ago on MythBusters, I went through a whole like stress reduction thing where I I started eating better, I started exercising, but mostly I started making sure I was getting exactly how much sleep I need every night, which turns out to be precisely seven hours. Like that's my zone. And on this trip, I never got seven hours. I was catching naps when naps whenever I could, but by New York, it caught up to me, and I was just kind of a quivering mess for a couple days there.
 
 [00:17:45] Will: When you go on a work trip with Norm, you don't sleep seven hours a day. He's a cruel taskmaster.
 
@@ -434,7 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:18:25] Will: Okay.
 
-[00:18:26] Adam: Um. And I am uh, I'm seriously up against it. I'm actually so this is now five days ahead. I'm I'm genuinely no Friday, Saturday, Sunday, Monday. I got to load in on Tuesday morning. Um, I'm seriously stressed out about this.
+[00:18:26] Adam: And I am I'm seriously up against it. I'm actually so this is now five days ahead. I'm genuinely no Friday, Saturday, Sunday, Monday. I got to load in on Tuesday morning. I'm seriously stressed out about this.
 
 [00:18:41] Will: This is the most stressed I've seen you since you did the Kubr since you had to finish the Kubrick maze.
 
@@ -478,11 +478,11 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:21:15] Norm: Oh wow.
 
-[00:21:15] Adam: Um, and I can bring in a welder, and I can bring in people that help in the Exploratorium shop right there. So it's a solvable problem. I just need to make sure I've put out the real fires before I arrive.
+[00:21:15] Adam: And I can bring in a welder, and I can bring in people that help in the Exploratorium shop right there. So it's a solvable problem. I just need to make sure I've put out the real fires before I arrive.
 
-[00:21:29] Will: This is some this is some kind of performance art that you're doing the assembly of this on site.
+[00:21:29] Will: This is some kind of performance art that you're doing the assembly of this on site.
 
-[00:21:33] Adam: And can I tell you, I don't like I don't like working when people are watching me. Well, I mean, I it's not that I it's not that I it's just a yeah. Come on in. Um, it's it's it's disconcerting. It can be disconcerting because I get self conscious, right? I mean, you know, I'm solving problems. I haven't figured them all out, and it's it's I'm I'm putting I'm making myself a little vulnerable, and so that's also part of the stress. Is I'm not sure. I'm literally not sure how this is going to go, right?
+[00:21:33] Adam: And can I tell you, I don't like working when people are watching me. Well, I mean, I it's not that I it's just a yeah. Come on in. It's disconcerting. It can be disconcerting because I get self conscious, right? I mean I'm solving problems. I haven't figured them all out, and it's I'm I'm putting I'm making myself a little vulnerable, and so that's also part of the stress. Is I'm not sure. I'm literally not sure how this is going to go, right?
 
 [00:22:03] Norm: And it speaks to how you build.
 
@@ -490,11 +490,11 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:22:04] Norm: I mean, it speaks to how you problem solve and build because you want to have that that grasp that 3D model, so to speak, in your head that you can view from all angles.
 
-[00:22:13] Adam: But I also want to normalize the not knowing. I also want to talk about the not knowing because this is very much a state I was in frequently on MythBusters. We're like, all right, it's time to get in and build this. And if it was like a you know Chinese rocket chair, I know this is a one day build. I'm going to get it done. Bang! It's aesthetic. It's fine. But if it's a mechanical set of problem solving, the difficulty you can run into with a complex mechanical system is the fact that a single choice you made early on can bone you so hard towards the end. Um. So. It's about making sure your build is flexible enough to adjust to solving some of those problems.
+[00:22:13] Adam: But I also want to normalize the not knowing. I also want to talk about the not knowing because this is very much a state I was in frequently on MythBusters. We're like, all right, it's time to get in and build this. And if it was like a you know Chinese rocket chair, I know this is a one day build. I'm going to get it done. Bang! It's aesthetic. It's fine. But if it's a mechanical set of problem solving, the difficulty you can run into with a complex mechanical system is the fact that a single choice you made early on can bone you so hard towards the end. So. It's about making sure your build is flexible enough to adjust to solving some of those problems.
 
 [00:22:48] Norm: Do you have a hierarchy? Sorry,
 
-[00:22:49] Will: no. I was just saying that, and there's a difference between building in your shop where you know all of the all of the things that are available to you, both tools and materials. If you need to make a game day changeup, and being someplace where you're not familiar with the shop, you're not familiar with the materials on hand, even though it's an incredibly well-equipped shop,
+[00:22:49] Will: no. I was just saying that, and there's a difference between building in your shop where you know all of the things that are available to you, both tools and materials. If you need to make a game day changeup, and being someplace where you're not familiar with the shop, you're not familiar with the materials on hand, even though it's an incredibly well-equipped shop,
 
 [00:22:49] Adam: yes,
 
@@ -502,11 +502,11 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:22:49] Adam: yes,
 
-[00:22:49] Will: and and someplace that's you know a pilgrim and a stranger in an unholy land,
+[00:22:49] Will: and someplace that's you know a pilgrim and a stranger in an unholy land,
 
 [00:23:19] Adam: exactly. And there are things that it's like. For instance, one of the a key thing I'm using in this, I've had to apply a lot of slop. There's hundreds of mechanical linkages, and if I tried to get too precise, which I did at the beginning of my design, I could end up with nothing aligning.
 
-[00:23:36] Will: Well, but but I mean, the original Strandbeests don't have
+[00:23:36] Will: Well, but I mean, the original Strandbeests don't have
 
 [00:23:39] Adam: they have tons of slop, but they also don't support humans.
 
@@ -542,7 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:24:46] Will: TBD.
 
-[00:24:46] Adam: Yeah, so today I am my my oh right okay my Land Cruiser has been in the shop because I had this weird problem of it stalling, and the stalling is not something my mechanic has figured out. So here's a question, and I appreciate your comments. It's the E D I C. If you know a 1982 Toyota BJ42 Land Cruiser, and I'm sure there's someone out there who does.
+[00:24:46] Adam: Yeah, so today I am my oh right okay my Land Cruiser has been in the shop because I had this weird problem of it stalling, and the stalling is not something my mechanic has figured out. So here's a question, and I appreciate your comments. It's the E D I C. If you know a 1982 Toyota BJ42 Land Cruiser, and I'm sure there's someone out there who does.
 
 [00:25:11] Will: There are absolutely.
 
@@ -558,15 +558,15 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:25:38] Will: Okay, okay.
 
-[00:25:39] Adam: So my my Land Cruiser will be part of this build. I'm going to bring my shop in it, but it's literally going to. Could be Ma and Pa Kettle. I'm trying to get there, like, you know, coughing up every.
+[00:25:39] Adam: So my Land Cruiser will be part of this build. I'm going to bring my shop in it, but it's literally going to. Could be Ma and Pa Kettle. I'm trying to get there, like coughing up every.
 
-[00:25:51] Will: As an adult, yeah. Do you still get the dread? Because like I've I've had I've driven unreliable cars before, and do you have the fear when you pull into the like the left turn lane and you're thinking is it, is it going to start again when it's time to go? Do you does that still happen to you? Are you okay with it now? You're comfort confident in blocking traffic. Should your car not not serve you?
+[00:25:51] Will: As an adult, yeah. Do you still get the dread? Because like I've I've had I've driven unreliable cars before, and do you have the fear when you pull into the like the left turn lane and you're thinking is it going to start again when it's time to go? Do you does that still happen to you? Are you okay with it now? You're comfort confident in blocking traffic. Should your car not not serve you?
 
-[00:26:09] Adam: Um, I'm I'm okay with that. I did once have the worst possible case scenario in which I'm driving through the mission about 15 years ago now, driving through the mission district. Yeah, about 16 years ago, and I'm making a left onto my street. I used to live on Bartlett Street, and I'm behind one of these big lowriders. You know, the big lifted back end and everything. And I, as I'm turning, I accidentally hit my horn, and my horn got stuck on.
+[00:26:09] Adam: I'm okay with that. I did once have the worst possible case scenario in which I'm driving through the mission about 15 years ago now, driving through the mission district. Yeah, about 16 years ago, and I'm making a left onto my street. I used to live on Bartlett Street, and I'm behind one of these big lowriders. You know, the big lifted back end and everything. And I, as I'm turning, I accidentally hit my horn, and my horn got stuck on.
 
 [00:26:46] Will: Yeah, that's not what you are looking for.
 
-[00:26:47] Adam: And the the four gentlemen that got out of the car were the look. They were just they were very impressed with the idea that I was leaning on my horn and my hands are up the windows, going, " My horn is stuck on. My horn is stuck on," which they then thought was hilarious
+[00:26:47] Adam: And the four gentlemen that got out of the car were the look. They were just they were very impressed with the idea that I was leaning on my horn and my hands are up the windows, going, " My horn is stuck on. My horn is stuck on," which they then thought was hilarious
 
 [00:27:06] Norm: because you want to do everything possible to indicate not my fault.
 
@@ -574,7 +574,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:27:11] Will: This is some social.
 
-[00:27:14] Adam: I am not trying to set aside to set a road rage thing going. So, yeah, so today, um, oh right, did I mention I am leaving for Oregon tomorrow to visit family for the Fourth of July? So, I am got I've got uh my guy welding in here sub assemblies, and mostly, as long as the sub assemblies are built, that's like 90% of the physical labor. It's just the mental labor of how the construction goes that I need to leave him with all the proper sub assemblies by the end of today.
+[00:27:14] Adam: I am not trying to set aside to set a road rage thing going. So, yeah, so today oh right, did I mention I am leaving for Oregon tomorrow to visit family for the Fourth of July? So, I am got I've got my guy welding in here sub assemblies, and mostly, as long as the sub assemblies are built, that's like 90% of the physical labor. It's just the mental labor of how the construction goes that I need to leave him with all the proper sub assemblies by the end of today.
 
 [00:27:40] Will: I mean, the good thing is once you get the first piece done. It should go pretty quickly. It's just repetitive, right?
 

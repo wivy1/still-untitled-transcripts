@@ -32,7 +32,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:01:01] Unknown speaker: No,
 
-[00:01:02] Will: I can totally see that. They'll get all your they'll get all your Yeezys.
+[00:01:02] Will: I can totally see that. They'll get all your Yeezys.
 
 [00:01:06] Adam: But my lovely, brilliant, amazing wife wrapped up her master's degree in marriage and family therapy.
 
@@ -50,7 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:01:59] Unknown speaker: Nailed it.
 
-[00:02:00] Adam: So you know, of course, we get to Barcelona, and the first thing we wanted to do after we'd after we'd spent a day wandering around, we watched Vicky Cristina Barcelona.
+[00:02:00] Adam: So of course, we get to Barcelona, and the first thing we wanted to do after we'd spent a day wandering around, we watched Vicky Cristina Barcelona.
 
 [00:02:13] Will: Of course, it's the perfect thing to do. It's in the name of the movie.
 
@@ -66,21 +66,21 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:02:59] Will: I don't know that I've ever actually seen. That movie?
 
-[00:03:02] Adam: Oh, it's it's worth seeing.
+[00:03:02] Adam: Oh, it's worth seeing.
 
 [00:03:04] Unknown speaker: Okay,
 
-[00:03:04] Adam: it's worth seeing. Like, like I said, the characters are great. We stayed right in the middle of the Gothic Quarter.
+[00:03:04] Adam: it's worth seeing. Like I said, the characters are great. We stayed right in the middle of the Gothic Quarter.
 
 [00:03:12] Unknown speaker: Ooh,
 
-[00:03:12] Adam: it is. I, I am going to start posting some of the photos on Instagram because you can't take a bad picture. Barcelona is an amazing city. It is. I felt super at home. I felt the saturation of English speakers is wonderful, but also everyone's really great about you trying Spanish, and they're really supportive, and they'll talk slower. I just I love that city.
+[00:03:12] Adam: it is. I am going to start posting some of the photos on Instagram because you can't take a bad picture. Barcelona is an amazing city. It is. I felt super at home. I felt the saturation of English speakers is wonderful, but also everyone's really great about you trying Spanish, and they're really supportive, and they'll talk slower. I just I love that city.
 
 [00:03:38] Will: Yeah, that's wonderful.
 
 [00:03:38] Norm: So, if you are in like these two places, two major places, right? It was Italy and Spain.
 
-[00:03:43] Adam: Well, so this is the thing: is we spent four days in Barcelona, two days in Granada, then we drove from Granada to Seville, which is about a two and a half hour drive. We stopped at a wonderful little city called Antequera, which has like a 5,000 year old burial ground on the outskirts of town, and then we so we spent 12. Let's see. 10 days in in Spain, and then three days in Rome.
+[00:03:43] Adam: Well, so this is the thing: is we spent four days in Barcelona, two days in Granada, then we drove from Granada to Seville, which is about a two and a half hour drive. We stopped at a wonderful little city called Antequera, which has like a 5,000 year old burial ground on the outskirts of town, and then we so we spent 12. Let's see. 10 days in Spain, and then three days in Rome.
 
 [00:04:11] Norm: What is your vacation strategy when you are like blocking? Like, how is four days? Is is it a very impacted four days? Is it peaks and valleys?
 
@@ -96,7 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:05:39] Will: Wow, that's awesome!
 
-[00:05:39] Adam: And it made it much like. So the travel agent we worked with charged us a really reasonable fee as a couple to just make all these arrangements for us. And she's been doing this for a long time. So we we said, here's the kind of hotels we like. Here's the amount of money we'd like to spend across the trip on hotels. Here's the amount we'd like to spend on food. Here's the places we'd like to see. So. In Seville, for instance, we spent an entire day with a birdwatching guide on a national park on the west coast of Spain, birdwatching.
+[00:05:39] Adam: And it made it much like. So the travel agent we worked with charged us a really reasonable fee as a couple to just make all these arrangements for us. And she's been doing this for a long time. So we said, here's the kind of hotels we like. Here's the amount of money we'd like to spend across the trip on hotels. Here's the amount we'd like to spend on food. Here's the places we'd like to see. So. In Seville, for instance, we spent an entire day with a birdwatching guide on a national park on the west coast of Spain, birdwatching.
 
 [00:06:16] Will: That's amazing. Which
 
@@ -118,11 +118,11 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:06:50] Unknown speaker: That's the thing. That's the fear.
 
-[00:06:50] Adam: And in fact, in Rome, we stayed at this wonderful degli Artisti hotel in the sort of northern Rome, just at just like right at the Spanish Steps. We we actually so the best thing that we paid for, and it wasn't. Cheap, but it was really significant. Was early access to the Sistine Chapel.
+[00:06:50] Adam: And in fact, in Rome, we stayed at this wonderful degli Artisti hotel in the sort of northern Rome, just at just like right at the Spanish Steps. We actually so the best thing that we paid for, and it wasn't. Cheap, but it was really significant. Was early access to the Sistine Chapel.
 
 [00:07:14] Will: So you didn't have to camp out overnight?
 
-[00:07:16] Adam: We hired a guide who, like, a car picks us up at the hotel, takes us to the takes us to the guide who takes us to the line, and we were like the first three people to walk into the Sistine Chapel that morning.
+[00:07:16] Adam: We hired a guide who a car picks us up at the hotel, takes us to the guide who takes us to the line, and we were like the first three people to walk into the Sistine Chapel that morning.
 
 [00:07:29] Unknown speaker: Wow!
 
@@ -130,7 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:07:35] Will: Yeah, all of it's amazing. But, like that five minutes.
 
-[00:07:38] Adam: Oh, yeah, no, it's real. It's totally incredible. And the guides have all of this wonderful history. We spent in Granada. We went to the, what was it, the big castle over there? The the the Alhambra in Granada is incredible because it's literally been, like, it's been there since the 12th century, and you get to see like all of these buildings that got built up. It was a Roman fort. Right, I mean, like the amount of history going on in Spain was was super thrilling, and the guides are all amazing at telling you the stories about what this room. We stood in a room in which Queen Isabella of Spain received Christopher Columbus in chains because he'd been arrested for his poor treatment of the colonies.
+[00:07:38] Adam: Oh, yeah, no, it's real. It's totally incredible. And the guides have all of this wonderful history. We spent in Granada. We went to the, what was it, the big castle over there? The Alhambra in Granada is incredible because it's literally been it's been there since the 12th century, and you get to see like all of these buildings that got built up. It was a Roman fort. Right, I mean, like the amount of history going on in Spain was was super thrilling, and the guides are all amazing at telling you the stories about what this room. We stood in a room in which Queen Isabella of Spain received Christopher Columbus in chains because he'd been arrested for his poor treatment of the colonies.
 
 [00:08:27] Norm: Wow,
 
@@ -186,13 +186,13 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:10:50] Norm: Murmuring of information.
 
-[00:10:52] Will: Yeah. Well, I mean, I remember I when I worked on Capitol Hill, one of my jobs was to give tours to people who came by the office, and like you would when you crashed into another tour, it would just be a massive yelling, yeah, and hoping you got all the people that were in your group back with you when you went to the next stop, and and like the yeah the radios. It's a good change.
+[00:10:52] Will: Yeah. Well, I mean, I remember I when I worked on Capitol Hill, one of my jobs was to give tours to people who came by the office, and like you would when you crashed into another tour, it would just be a massive yelling, yeah, and hoping you got all the people that were in your group back with you when you went to the next stop, and like the yeah the radios. It's a good change.
 
 [00:11:12] Adam: Yeah, it's a really nice change.
 
 [00:11:15] Unknown speaker: Thanks, technology.
 
-[00:11:15] Adam: The I I can't gush enough. I had never been to Spain. I can't gush enough about how much I loved Spain and the people of Spain. I just I want to go back. We're already talking about going back next year. We just had the the loveliest time, and the food in in Barcelona specifically was fantastic. I mean, in all over Barcelona, when you go into various places, whether they sell pastries or groceries, they're constantly selling these little bullet sandwiches with the the copa and the other kinds of like the sliced meat, and they're like $1.50 for one of these sandwiches. We just made sure we had a fresh one every night because, because when jet lag woke us up at two in the morning, we wanted to chew on something.
+[00:11:15] Adam: The I I can't gush enough. I had never been to Spain. I can't gush enough about how much I loved Spain and the people of Spain. I just I want to go back. We're already talking about going back next year. We just had the loveliest time, and the food in Barcelona specifically was fantastic. I mean, in all over Barcelona, when you go into various places, whether they sell pastries or groceries, they're constantly selling these little bullet sandwiches with the copa and the other kinds of like the sliced meat, and they're like $1.50 for one of these sandwiches. We just made sure we had a fresh one every night because when jet lag woke us up at two in the morning, we wanted to chew on something.
 
 [00:12:03] Will: Yeah.
 
@@ -210,19 +210,19 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:12:09] Norm: Do you leave a trip like that? I mean, do you return from a trip like that with physical objects or just The photos and the memories and the stories.
 
-[00:12:16] Adam: Um, we bought a couple of things. We went to, uh, in Seville. We went to the, uh, wait, wait, wait. Where was it? No, my apologies. In Barcelona, we went to the Picasso Museum, where I actually bought a little Picasso terracotta bird, which we brought home.
+[00:12:16] Adam: We bought a couple of things. We went to in Seville. We went to the wait, wait, wait. Where was it? No, my apologies. In Barcelona, we went to the Picasso Museum, where I actually bought a little Picasso terracotta bird, which we brought home.
 
 [00:12:32] Norm: Oh, cool!
 
-[00:12:32] Adam: Um, we also, uh, the men in Spain and Rome dress fantastically.
+[00:12:32] Adam: We also the men in Spain and Rome dress fantastically.
 
 [00:12:42] Will: Did you come back with suits?
 
-[00:12:43] Adam: I didn't come back with suits, um, but I came back with a lot of really beautifully cut shirts.
+[00:12:43] Adam: I didn't come back with suits but I came back with a lot of really beautifully cut shirts.
 
 [00:12:49] Will: Which hat did you take?
 
-[00:12:50] Adam: Um, I, uh, I took the big cowboy hat.
+[00:12:50] Adam: I took the big cowboy hat.
 
 [00:12:54] Will: Okay,
 
@@ -230,13 +230,13 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:12:55] Will: America.
 
-[00:12:56] Adam: Yeah, um, it's at one point Julia spotted a group of drunk Spaniards see my hat, and she was like, " Take your hat off right now." And I, so I also I always travel with the red NASA baseball cap as well, so I wore that for a while, and then in, um, in Seville, I went to, uh, the fancy hat store where, like, you go for your church hats, and I bought a beautiful—I don't have it here, but I bought a beautiful, very, very classic Spanish, the brim flat as a razor.
+[00:12:56] Adam: Yeah it's at one point Julia spotted a group of drunk Spaniards see my hat, and she was like, " Take your hat off right now." And I, so I also I always travel with the red NASA baseball cap as well, so I wore that for a while, and then in Seville, I went to the fancy hat store where you go for your church hats, and I bought a beautiful—I don't have it here, but I bought a beautiful, very, very classic Spanish, the brim flat as a razor.
 
 [00:13:31] Will: Oh wow!
 
-[00:13:31] Adam: Um, gorgeous hat. It's my new favorite hat,
+[00:13:31] Adam: Gorgeous hat. It's my new favorite hat,
 
-[00:13:35] Will: like like a Spanish Inquisition hat.
+[00:13:35] Will: like a Spanish Inquisition hat.
 
 [00:13:37] Adam: No, no, no, no, no.
 
@@ -246,11 +246,11 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:13:49] Will: Wow.
 
-[00:13:49] Adam: I mean, we just, we every, we walked everywhere, um, and Google Maps makes that so freaking easy, especially being able to see where you're pointed.
+[00:13:49] Adam: I mean, we just, we every, we walked everywhere and Google Maps makes that so freaking easy, especially being able to see where you're pointed.
 
 [00:13:58] Will: Yeah.
 
-[00:13:58] Adam: Uh, again, I hadn't traveled on such a wandering kind of like let's explore the city, let's go to this, and then walk all the way home, the three miles home, and Google Maps made that all relatively trivial.
+[00:13:58] Adam: Again, I hadn't traveled on such a wandering kind of like let's explore the city, let's go to this, and then walk all the way home, the three miles home, and Google Maps made that all relatively trivial.
 
 [00:14:12] Norm: I envy all the college students who go on their you know overseas summer trips now with. The smartphones. I never had that.
 
@@ -258,13 +258,13 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:14:18] Norm: and it must be completely.
 
-[00:14:20] Adam: Oh yeah, we haven't. I haven't mentioned it on the podcast, but my son who just started college this fall was in Europe over the summer, and he was leaving Berlin on his way to to actually visit Laura Kampf.
+[00:14:20] Adam: Oh yeah, we haven't. I haven't mentioned it on the podcast, but my son who just started college this fall was in Europe over the summer, and he was leaving Berlin on his way to actually visit Laura Kampf.
 
 [00:14:35] Norm: Hmm. Yes, yes.
 
 [00:14:35] Adam: And he was he'd left the hostel. He was on the train to go to the train station to take the train out of Berlin, and he's looking at his phone, and just as the doors go bing bong, someone grabs his phone and bolts out the door, and he's sitting there with all of his luggage, and there's nothing he can do.
 
-[00:14:56] Will: Yeah, you're, you're boned.
+[00:14:56] Will: Yeah, you're boned.
 
 [00:14:57] Adam: Yep.
 
@@ -284,7 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:15:34] Adam: Deal with it. Yeah. So for some reason, teenagers getting really stressed out is something I find deeply pleasurable.
 
-[00:15:40] Will: Well, it's because you're still scared of them a little bit, right? It's funny. My my daughter is in first grade now, and like the thing we've realized is that they have either feelings that are all the way or none at all. So like, there's no in between on disappointment or scared or upset. It's either 100% or like no, everything's cool, Dad. What's wrong? So yeah, learning to.
+[00:15:40] Will: Well, it's because you're still scared of them a little bit, right? It's funny. My daughter is in first grade now, and like the thing we've realized is that they have either feelings that are all the way or none at all. So like, there's no in between on disappointment or scared or upset. It's either 100% or like no, everything's cool, Dad. What's wrong? So yeah, learning to.
 
 [00:16:05] Adam: So that was the trip.
 
@@ -292,7 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:16:07] Norm: Photos will be posted. You're gonna have lots of photos on Instagram.
 
-[00:16:09] Adam: We'll be posting. I'll be posting photos over the next couple of weeks on Instagram and Twitter of of of something. It's all tall, thin. Wonderful Mediterranean streets.
+[00:16:09] Adam: We'll be posting. I'll be posting photos over the next couple of weeks on Instagram and Twitter of something. It's all tall, thin. Wonderful Mediterranean streets.
 
 [00:16:18] Will: Sounds great.
 
@@ -314,7 +314,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:16:42] Adam: Yeah, it was amazing.
 
-[00:16:44] Will: I think we should just change the cities to not fit cars at all. That's my that's my plan.
+[00:16:44] Will: I think we should just change the cities to not fit cars at all. That's my plan.
 
 [00:16:48] Adam: So I've also I've driven in Scotland. I've driven in England. I've driven actually in Australia and New Zealand. I found Spain to be the easiest country I've ever driven in. I, you find some places you go, you understand the rhythm, and in Spain, the rhythm was really easy to grok, and the way. Spanish people drive was really like it was something I just gelled with. I would never want to drive in Rome, ever.
 
@@ -324,15 +324,15 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:17:50] Will: Yeah,
 
-[00:17:50] Adam: and the Italians are all like they dress crazy, wonderful, like sun dresses with combat boots, and like everyone looks great. Everyone's beautiful. It was awesome. And we're on this plane, and we're just about to take off, and then the pilot comes out and he says in Italian and then in English, um, " We're having problem with Marseille airspace, and we're going to be delayed for 90 minutes." And the second they hear that, the entire plane full of Italians stands up and starts talking to each other really fast, like a movie about your about your central casting of what Italian people would be like. And nobody's stressed out; they're just all like, they're just all talking to each other. It was like instant cocktail party. It was so much fun. We're just watching this, like gobsmacked by such a different cultural reaction to a flight delay. They weren't happy about it, but they were like, " Oh, okay, as long
+[00:17:50] Adam: and the Italians are all like they dress crazy, wonderful, like sun dresses with combat boots, and like everyone looks great. Everyone's beautiful. It was awesome. And we're on this plane, and we're just about to take off, and then the pilot comes out and he says in Italian and then in English" We're having problem with Marseille airspace, and we're going to be delayed for 90 minutes." And the second they hear that, the entire plane full of Italians stands up and starts talking to each other really fast, like a movie about your central casting of what Italian people would be like. And nobody's stressed out; they're just all like, they're just all talking to each other. It was like instant cocktail party. It was so much fun. We're just watching this, like gobsmacked by such a different cultural reaction to a flight delay. They weren't happy about it, but they were like, " Oh, okay, as long
 
 [00:18:45] Unknown (Adam or Will): [unclear: as / make] the best of it." Yeah,
 
-[00:18:46] Adam: let's let's all talk. Wow. So that was that was Spain and Italy.
+[00:18:46] Adam: let's let's all talk. Wow. So that was Spain and Italy.
 
 [00:18:50] Will: That sounds absolutely lovely, Adam.
 
-[00:18:51] Adam: Fantastic. Um, on the flight back, I watched a whole crap ton of movies that I don't even remember, but I did watch.
+[00:18:51] Adam: Fantastic. On the flight back, I watched a whole crap ton of movies that I don't even remember, but I did watch.
 
 [00:18:58] Will: Always a mark of a good film.
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:19:09] Will: Those movies have a ton of people in them.
 
-[00:19:11] Adam: I had I had no idea how deep and wide the cast was.
+[00:19:11] Adam: I had no idea how deep and wide the cast was.
 
 [00:19:15] Will: Did you watch Skull Island?
 
@@ -354,7 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:19:19] Adam: Same smell. Right. Right. Yeah. Packed with wonderful actors.
 
-[00:19:22] Norm: I mean, it's a globe-trotting movie, right? You had Vera Farmiga and, uh,
+[00:19:22] Norm: I mean, it's a globe-trotting movie, right? You had Vera Farmiga and
 
 [00:19:26] Will: Vera Farmiga
 
@@ -368,7 +368,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:19:38] Norm: Godzilla included.
 
-[00:19:39] Adam: I, I, I will say, um, it's so hard to make a thing. Um, the movie I think was flawed in its plot, specifically because there is literally no resting time in that movie. It starts at 90, goes to 100, and stays at 100 for like two solid hours,
+[00:19:39] Adam: I will say it's so hard to make a thing. The movie I think was flawed in its plot, specifically because there is literally no resting time in that movie. It starts at 90, goes to 100, and stays at 100 for like two solid hours,
 
 [00:20:00] Norm: which I feel like is a response to because it's a sequel to the Gareth Edwards Godzilla, which
 
@@ -380,13 +380,13 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:20:12] Adam: and I. I really felt like I liked how quickly you got to see Godzilla. Oh, great! This is the movie that we're in. We're seeing monsters right away. I
 
-[00:20:20] Will: don't show up to a Godzilla movie for intense character studies and and self reflection on the meaning of life in a world filled with monsters.
+[00:20:20] Will: don't show up to a Godzilla movie for intense character studies and self reflection on the meaning of life in a world filled with monsters.
 
 [00:20:27] Adam: But look, remember that Joss Whedon fought so hard for the farmhouse scene in the Avengers
 
 [00:20:33] Will: in the second one, yeah,
 
-[00:20:34] Adam: because you needed the breath to go to Clint's farm from in the middle of all this crazy action. The studio kept trying to cut that scene, cut that scene, and it turned out to be a really important breath. I felt that Godzilla film, and I don't know if this is on the cutting room floor, needed a few breaths like that because every frame of that movie is beautiful. The monster battles and the citywide stuff was incredible
+[00:20:34] Adam: because you needed the breath to go to Clint's farm from in the middle of all this crazy action. The studio kept trying to cut that scene, and it turned out to be a really important breath. I felt that Godzilla film, and I don't know if this is on the cutting room floor, needed a few breaths like that because every frame of that movie is beautiful. The monster battles and the citywide stuff was incredible
 
 [00:20:59] Will: with the score, the choir.
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:21:21] Norm: Ah, I understand now.
 
-[00:21:23] Will: The, uh, the, uh, I I thought that I like look. I don't expect a perfectly constructed movie when I go see a Godzilla movie. I, I expect to see a busted, weird movie with a lot of giant monsters fighting each other, and then some humans getting stomped and maybe winning, but yeah, maybe not. Who knows?
+[00:21:23] Will: The I I thought that I like look. I don't expect a perfectly constructed movie when I go see a Godzilla movie. I expect to see a busted, weird movie with a lot of giant monsters fighting each other, and then some humans getting stomped and maybe winning, but yeah, maybe not. Who knows?
 
 [00:21:40] Adam: No, no, it was very enjoyable.
 
@@ -426,13 +426,13 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:22:00] Will: and each time it gets a little bit better.
 
-[00:22:02] Adam: Um, you guys aren't Succession heads, are you?
+[00:22:02] Adam: You guys aren't Succession heads, are you?
 
 [00:22:05] Norm: No,
 
 [00:22:05] Will: no. Everybody in the world has told me I should watch Succession.
 
-[00:22:08] Adam: I really love it, but I it's an acquired taste. I found it a little too upsetting to watch. I so I had to. I watched the first season slowly because I find the the emotional damage of all the characters to be a little bit grueling. But holy hell, the second season finish is delightful.
+[00:22:08] Adam: I really love it, but I it's an acquired taste. I found it a little too upsetting to watch. I so I had to. I watched the first season slowly because I find the emotional damage of all the characters to be a little bit grueling. But holy hell, the second season finish is delightful.
 
 [00:22:24] Will: Okay,
 
@@ -452,7 +452,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:22:40] Norm: Damon Lindelof.
 
-[00:22:40] Adam: This is this is, and when we finish this podcast, I'm going home to watch Watchmen.
+[00:22:40] Adam: This is, and when we finish this podcast, I'm going home to watch Watchmen.
 
 [00:22:45] Will: I've watched Watchmen. I think two times, maybe two and a half. At this point, yeah,
 
@@ -462,13 +462,13 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:22:55] Norm: But I wasn't super enthused about before it came out. Like, I do we need this?
 
-[00:23:01] Will: You know, I don't. I didn't think we needed that.
+[00:23:01] Will: I don't. I didn't think we needed that.
 
 [00:23:02] Norm: Yeah, right. And then after watching the first episode, I feel like we do need it.
 
 [00:23:07] Adam: So, so the thing that's and Damon Lindelof is executive producer.
 
-[00:23:09] Norm: He's a showrunner. Regina King, who was also in the leftovers, and Damon Lindelof loved working with her so much. Uh, on the leftovers, he I think has like a personal rule not to work with the same actors again between projects when he can because he's in, he's a showrunner now, uh, but he chose to work with her specifically on this.
+[00:23:09] Norm: He's a showrunner. Regina King, who was also in the leftovers, and Damon Lindelof loved working with her so much. On the leftovers, he I think has like a personal rule not to work with the same actors again between projects when he can because he's in, he's a showrunner now but he chose to work with her specifically on this.
 
 [00:23:29] Will: Is the sheriff Don Johnson?
 
@@ -476,13 +476,13 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:23:32] Will: Man, he's having kind of a renaissance right now,
 
-[00:23:33] Adam: and deservedly so. He's a wonderful actor. Um, Regina King, I met her at Comic Con last year, was one of my favorite sightings. Uh, she was talking to Aisha Tyler, who's a good friend, um, and so I felt okay about sort of interspersing myself just to tell her how much I love her. I've loved her ever since Jerry Maguire. She played Jerry Maguire. She played Cuba Gooding Jr.'s wife.
+[00:23:33] Adam: and deservedly so. He's a wonderful actor. Regina King, I met her at Comic Con last year, was one of my favorite sightings. She was talking to Aisha Tyler, who's a good friend and so I felt okay about sort of interspersing myself just to tell her how much I love her. I've loved her ever since Jerry Maguire. She played Jerry Maguire. She played Cuba Gooding Jr.'s wife.
 
 [00:23:57] Will: Yeah,
 
-[00:23:57] Adam: I majored in marketing, Jerry. I came to play. She's so amazing. Um, so I can't wait to see her in this.
+[00:23:57] Adam: I majored in marketing, Jerry. I came to play. She's so amazing. So I can't wait to see her in this.
 
-[00:24:05] Will: So this this her performance in this first episode was enough that I was like, man, I should go back and watch the leftovers because I never I never finished that.
+[00:24:05] Will: So this her performance in this first episode was enough that I was like, man, I should go back and watch the leftovers because I never finished that.
 
 [00:24:12] Norm: Oh, yeah, worth watching.
 
@@ -516,11 +516,11 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:25:30] Adam: Yeah,
 
-[00:25:30] Will: ran people out of. Yeah, it's super and and like it's it was it's such a conscious choice to start with that
+[00:25:30] Will: ran people out of. Yeah, it's super and like it's it was it's such a conscious choice to start with that
 
 [00:25:38] Adam: they're called the Tulsa riots and it's not a riot.
 
-[00:25:40] Will: Yeah, no. Well, it some people are rioting, but it's not. It's not the riot implies something that is not the case. Yeah, yeah. Um, it's, it's, uh, I found it utterly transfixing. It's shot in a way that is feels more cinematic than television, which is not not uncommon now.
+[00:25:40] Will: Yeah, no. Well, it some people are rioting, but it's not. It's not the riot implies something that is not the case. Yeah, yeah. It's I found it utterly transfixing. It's shot in a way that is feels more cinematic than television, which is not not uncommon now.
 
 [00:25:58] Norm: I mean, the only thing really you need to know about what the show is trying to do in the field of Watchmen is it's telling a piece of history, true history that a lot of people don't know about, and the frame in which they're telling this because it is not about superheroes initially.
 
@@ -544,7 +544,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:26:51] Will: Yeah.
 
-[00:26:52] Adam: Because they clearly weren't given enough. I love David Harbour. I love Ian McShane. The casting is in general terrific. It just the whole the the totality of it doesn't hold doesn't feel like it holds together as much as I wanted it to. And I could see how much they were leaning into. The Mignola comic book, where Guillermo was doing something wholly different. I mean, obviously taking from Mignola, but he had such a specific vision that was adjacent to Mignola's vision. That if you love the comic books, the first two Hellboy movies, they're a little bit different than you expect.
+[00:26:52] Adam: Because they clearly weren't given enough. I love David Harbour. I love Ian McShane. The casting is in general terrific. It just the whole the totality of it doesn't hold doesn't feel like it holds together as much as I wanted it to. And I could see how much they were leaning into. The Mignola comic book, where Guillermo was doing something wholly different. I mean, obviously taking from Mignola, but he had such a specific vision that was adjacent to Mignola's vision. That if you love the comic books, the first two Hellboy movies, they're a little bit different than you expect.
 
 [00:27:36] Norm: [unclear: No more fantasy / More fantasy],
 
@@ -552,21 +552,21 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:27:50] Will: If there's anything Spider-Man has taught us, is that everybody loves a good origin story.
 
-[00:27:53] Adam: Oh my god! I, I hope that we end up like just not having any more origin stories for a while.
+[00:27:53] Adam: Oh my god! I hope that we end up like just not having any more origin stories for a while.
 
-[00:27:59] Will: I, you know, speaking of origin stories and superheroes, we haven't talked about the, um, the Coppola and, and, uh,
+[00:27:59] Will: I speaking of origin stories and superheroes, we haven't talked about the Coppola and
 
 [00:28:09] Adam: oh,
 
-[00:28:09] Will: do we want to do we want to get it?
+[00:28:09] Will: do we want to get it?
 
 [00:28:12] Adam: No, I tweeted about it. You know. Old man yells at cloud.
 
 [00:28:16] Will: It was a really good vulture article about it. Is what I was gonna plug.
 
-[00:28:18] Adam: Oh yeah, tell me what did what did vulture what was vulture take on this? So just to be clear for podcast listeners, Francis Ford Coppola said last week that he found the Marvel films not just bad, he found them despicable.
+[00:28:18] Adam: Oh yeah, tell me what did vulture what was vulture take on this? So just to be clear for podcast listeners, Francis Ford Coppola said last week that he found the Marvel films not just bad, he found them despicable.
 
-[00:28:31] Will: Bad. Well, this was followed on Scorsese, uh, weighing in
+[00:28:31] Will: Bad. Well, this was followed on Scorsese weighing in
 
 [00:28:36] Norm: Didn't think they were [unclear: nothing / saying].
 
@@ -584,7 +584,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:29:04] Will: Yeah,
 
-[00:29:04] Adam: that's that's that's all I want to say about that. Like, don't be an idiot.
+[00:29:04] Adam: that's all I want to say about that. Like, don't be an idiot.
 
 [00:29:08] Norm: There's room for both.
 
@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:29:50] Adam: Don't tell me what I'm gonna or not gonna get from this because one of the things that I'd also watched on the plane was Endgame for like the seventh time, and it's just as much fun the seventh time. Oh my god!
 
-[00:30:01] Will: Um, on a completely unrelated note, there's a new Cixin Liu book that came out in the United States. Uh, called Supernova, Supernova Age,
+[00:30:01] Will: On a completely unrelated note, there's a new Cixin Liu book that came out in the United States. Called Supernova, Supernova Age,
 
 [00:30:11] Adam: Supernova Age. I'm so excited to buy that tomorrow.
 
@@ -630,11 +630,11 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:30:44] Adam: Oh, stem cells or something.
 
-[00:30:45] Will: Yeah, whatever. Maybe maybe maybe they maybe they choose to put the the maybe they're like we have room for 2 million people in the bunkers that will survive the radiation from this.
+[00:30:45] Will: Yeah, whatever. Maybe they choose to put the maybe they're like we have room for 2 million people in the bunkers that will survive the radiation from this.
 
 [00:30:54] Adam: Fascinating.
 
-[00:30:55] Will: So we put them all in the bunkers. And it's about dumping as much of humanity's knowledge into these 13 year olds as you can before in the time that you have before the the first wave hits.
+[00:30:55] Will: So we put them all in the bunkers. And it's about dumping as much of humanity's knowledge into these 13 year olds as you can before in the time that you have before the first wave hits.
 
 [00:31:06] Adam: While I was on my, I can't wait to read that. I'm literally going to go to Dogeared and buy it tomorrow. While I was on vacation, I read the new Haruki Murakami book, Killing Commendatore.
 
@@ -642,7 +642,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:31:21] Adam: It's so good. I finished it and just started reading it again.
 
-[00:31:27] Will: Is it like 1Q84 dense and dense and
+[00:31:27] Will: Is it like 1Q84 dense and
 
 [00:31:30] Adam: yes
 
@@ -656,9 +656,9 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:31:35] Will: Okay,
 
-[00:31:35] Adam: so 1Q84 I have read twice and I still don't understand it. Right, like it still has all this depth to it that like escapes me. Its structure. I felt like I read that. I felt like I read two different books.
+[00:31:35] Adam: so 1Q84 I have read twice and I still don't understand it. Right it still has all this depth to it that like escapes me. Its structure. I felt like I read that. I felt like I read two different books.
 
-[00:31:47] Will: I, I, 1Q84 feels like two books when you're reading.
+[00:31:47] Will: I, 1Q84 feels like two books when you're reading.
 
 [00:31:50] Adam: Well, and you read it a second time, that'll be four books.
 
@@ -676,19 +676,19 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:32:56] Will: Murakami books feel like they were written by by someone who you described the platonic ideal of a book to? Of a story, and then they were just like, " Okay, I got this without ever having actually heard another story."
 
-[00:33:07] Adam: It's they they all feel as unique as that. So as I I've read Killing Commendatore now one and a half times, we ended up shipping it back because we shipped a bunch of clothes back halfway through, so we didn't have to traipse around with stuff. And then I came home and picked up Wild Sheep Chase, which was my first Murakami book. I think it was his first big hit, and it's very much a Chandler book through and through. It's like he's deeply channeling Raymond Chandler and Marlowe, and so I'm I'm right in the middle of my Haruki Murakami love affair again.
+[00:33:07] Adam: It's they all feel as unique as that. So as I I've read Killing Commendatore now one and a half times, we ended up shipping it back because we shipped a bunch of clothes back halfway through, so we didn't have to traipse around with stuff. And then I came home and picked up Wild Sheep Chase, which was my first Murakami book. I think it was his first big hit, and it's very much a Chandler book through and through. It's like he's deeply channeling Raymond Chandler and Marlowe, and so I'm I'm right in the middle of my Haruki Murakami love affair again.
 
 [00:33:41] Will: It's funny because it's funny watching the evolution of a of an author and seeing which way they choose to go. Because like Michael Chabon started out writing books that he clearly loved about topics that he clearly loved, and then just went further and further into things like things that he loved, mashing them together in interesting, fun ways.
 
 [00:34:00] Adam: Yeah.
 
-[00:34:00] Will: And and Murakami, I think, is just getting weirder and weirder the further along he gets.
+[00:34:00] Will: And Murakami, I think, is just getting weirder and weirder the further along he gets.
 
 [00:34:08] Adam: Well, so I don't know if you caught this, but there's a whole bit to 1Q84 that is about the page numbering.
 
-[00:34:19] Will: Yeah, yeah. And when he's talking about the other the other book and the moon stuff, right?
+[00:34:19] Will: Yeah, yeah. And when he's talking about the other book and the moon stuff, right?
 
-[00:34:25] Adam: There, but and and there's subsets of page numbering that all that that I don't even know why they're different.
+[00:34:25] Adam: There, but and there's subsets of page numbering that all that that I don't even know why they're different.
 
 [00:34:33] Will: Wait, the page numbering in the physical book is different.
 
@@ -710,33 +710,33 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:35:07] Will: Yeah, I would never have like having read that on a e-reader.
 
-[00:35:10] Adam: I, I would strongly recommend. So the other thing about Murakami, and this is real for me when I when I'm confronted by writers who's who who don't write in English.
+[00:35:10] Adam: I would strongly recommend. So the other thing about Murakami, and this is real for me when I when I'm confronted by writers who's who who don't write in English.
 
 [00:35:19] Will: Yeah,
 
 [00:35:20] Adam: is am I reading the translation that I should be reading? I mean,
 
-[00:35:23] Will: the the Cixin Liu situation, Dark Forest. The translation for that is not anywhere near as as lyrical as the one is for the for the um the first. I can't remember the name of the first book.
+[00:35:23] Will: the Cixin Liu situation, Dark Forest. The translation for that is not anywhere near as lyrical as the one is for the first. I can't remember the name of the first book.
 
 [00:35:33] Adam: Yeah. No, I agree. And so for like, I've quoted letters to a young poet by Rilke, and there's three different translations that I know of, and one of them is three times as good as the other two, in my opinion, in the way that it's written. Murakami actually speaks English,
 
 [00:35:50] Will: Oh.
 
-[00:35:50] Adam: so he goes over his translations after they've been done and. I think I don't know whether he what the full process is, but I know that the the translation gets is okay.
+[00:35:50] Adam: so he goes over his translations after they've been done and. I think I don't know whether he what the full process is, but I know that the translation gets is okay.
 
 [00:36:00] Will: Oh, that's fascinating.
 
-[00:36:00] Adam: Um, and I, yeah,
+[00:36:00] Adam: And I, yeah,
 
 [00:36:03] Will: huh?
 
-[00:36:03] Adam: Um, I it it's very plausible that just off the top of my head that Chabon and Murakami are my two favorite writers of all time.
+[00:36:03] Adam: I it it's very plausible that just off the top of my head that Chabon and Murakami are my two favorite writers of all time.
 
 [00:36:12] Will: The Chabon is definitely my one of my favorites.
 
-[00:36:15] Adam: I, I actually just bought, uh, because I kept giving it away. I just bought another copy of Yiddish Policeman's Union because I want to read it again. I want to go back to Sitka. I want to talk about the Verbover Mafia.
+[00:36:15] Adam: I actually just bought because I kept giving it away. I just bought another copy of Yiddish Policeman's Union because I want to read it again. I want to go back to Sitka. I want to talk about the Verbover Mafia.
 
-[00:36:26] Will: Have you have you read, uh, China Mieville? Mieville,
+[00:36:26] Will: Have you read China Mieville? Mieville,
 
 [00:36:31] Adam: I have three seconds of an explosion.
 
@@ -752,7 +752,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:36:53] Adam: Oh, cool.
 
-[00:36:53] Will: because, but it's. It's science fiction, like it's like it's far enough future science fiction that it's fantasy. If you know what I mean, like it's
+[00:36:53] Will: because, but it's. It's science fiction, like it's far enough future science fiction that it's fantasy. If you know what I mean, like it's
 
 [00:37:00] Adam: yeah, yeah.
 
@@ -760,7 +760,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:37:14] Adam: Oh,
 
-[00:37:14] Will: and it's a and it's a Chandler-esque kind of detective story that happens in that in that space.
+[00:37:14] Will: and it's a Chandler-esque kind of detective story that happens in that space.
 
 [00:37:19] Adam: Love it.
 
@@ -770,17 +770,17 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:37:20] Will: Yeah.
 
-[00:37:22] Adam: Um. Wow. We've covered a lot of ground.
+[00:37:22] Adam: Wow. We've covered a lot of ground.
 
 [00:37:23] Will: Wide ranging one, yeah.
 
-[00:37:24] Norm: Lot of recommendations. Uh. Oh. Television recommendations. There's a new season of Abstract.
+[00:37:24] Norm: Lot of recommendations. Oh. Television recommendations. There's a new season of Abstract.
 
 [00:37:29] Will: What's that?
 
 [00:37:29] Norm: Netflix.
 
-[00:37:30] Adam: Abstract is a fantastic show. Um. My friend Scott Dadich, former editor in chief of Wired magazine, uh, of Jeffrey Dadich is one of the executive producers. Is a beautiful deep dive into the creative process. That is my doorbell. Um, it is a beautiful deep dive into the creative process of each of the creators, and each episode is different depending on who it's covering. So it is very cinematic, and
+[00:37:30] Adam: Abstract is a fantastic show. My friend Scott Dadich, former editor in chief of Wired magazine of Jeffrey Dadich is one of the executive producers. Is a beautiful deep dive into the creative process. That is my doorbell. It is a beautiful deep dive into the creative process of each of the creators, and each episode is different depending on who it's covering. So it is very cinematic, and
 
 [00:37:57] Norm: the directors of each episode put their own.
 
@@ -804,21 +804,21 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:38:38] Will: Hey, thanks,
 
-[00:38:39] Norm: thanks for yeah. Uh, so yeah, uh, highly recommended. There was an episode on Ruth Carter who was the costume designer not only on most recently Black Panther but also so many of Spike Lee's movies.
+[00:38:39] Norm: thanks for yeah. So yeah highly recommended. There was an episode on Ruth Carter who was the costume designer not only on most recently Black Panther but also so many of Spike Lee's movies.
 
 [00:38:49] Adam: All of Spike Lee's movies.
 
-[00:38:49] Norm: All of his movies. And a look at her work, how she became a costume designer. That's probably my favorite episode so far. Uh, Dave Chang, uh, friend of Tested, has a new Netflix show as well, Breakfast, Lunch, and Dinner. It's just like it's not ugly, delicious. It's a little bit more like the chef show where him and celebrity friends kind of go around, eat a lot of food, talk about cooking.
+[00:38:49] Norm: All of his movies. And a look at her work, how she became a costume designer. That's probably my favorite episode so far. Dave Chang friend of Tested, has a new Netflix show as well, Breakfast, Lunch, and Dinner. It's just like it's not ugly, delicious. It's a little bit more like the chef show where him and celebrity friends kind of go around, eat a lot of food, talk about cooking.
 
 [00:39:09] Will: Nothing I like more than watching famous people eat.
 
-[00:39:11] Norm: Seth Rogen, uh, Kate McKinnon, some. Awesome stuff there. Movie recommendations: a lot of great stuff coming out toward the end of the year. I know you're seeing Jojo Rabbit.
+[00:39:11] Norm: Seth Rogen Kate McKinnon, some. Awesome stuff there. Movie recommendations: a lot of great stuff coming out toward the end of the year. I know you're seeing Jojo Rabbit.
 
 [00:39:19] Adam: I'm seeing Jojo Rabbit this weekend.
 
 [00:39:21] Norm: Want to see that?
 
-[00:39:21] Adam: And Tested is just about to make a trip to another show that, um, that we like, and, uh, we've, uh, we're going to go on set again.
+[00:39:21] Adam: And Tested is just about to make a trip to another show that we like, and we've we're going to go on set again.
 
 [00:39:30] Will: Ooh, there are early screenings of Knives Out happening. around the country.
 
@@ -862,7 +862,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:40:30] Will: I had, we had the most wonderful conversation about movies at South by Southwest when I had 15 years ago. When I had no, we were sitting at a bar on 6th Street, just casually, and was like, " Oh, what do you do? I do a podcast about movies. What do you do? I make computer stuff." And we just chatted about movies for 20 minutes while we drank a beer.
 
-[00:40:49] Adam: She's amazing. I've listened to dozens and dozens and dozens of hours of " You Must Remember This." It is one of the best podcasts. It is such dense scholarship.
+[00:40:49] Adam: She's amazing. I've listened to dozens and dozens of hours of " You Must Remember This." It is one of the best podcasts. It is such dense scholarship.
 
 [00:40:59] Will: It's so much information.
 

@@ -14,7 +14,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:01:12] Will: Good morning. Our voices are all different volumes.
 
-[00:01:14] Adam: We are we are recording this early in the morning. It's you know I get sad when the days get so short and I wake up at 6:30 in the morning and it's freaking dark.
+[00:01:14] Adam: We are recording this early in the morning. It's you know I get sad when the days get so short and I wake up at 6:30 in the morning and it's freaking dark.
 
 [00:01:23] Will: I just get sad when I wake up and it's 6:30 in the morning.
 
@@ -40,9 +40,9 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:02:05] Will: Homeschooling is totally the future.
 
-[00:02:07] Adam: Hey, you know I've heard that Mythbusters is a great science class for that.
+[00:02:07] Adam: Hey I've heard that Mythbusters is a great science class for that.
 
-[00:02:10] Will: Yeah, I'll just totally put the TV on all day. I mean, I figure between you guys, dirty jobs, and then and then you know the the guy who goes out in the wilderness and eats stuff off the ground.
+[00:02:10] Will: Yeah, I'll just totally put the TV on all day. I mean, I figure between you guys, dirty jobs, and then you know the guy who goes out in the wilderness and eats stuff off the ground.
 
 [00:02:19] Adam: Oh, Les, Les Stroud.
 
@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:03:04] Adam: Yeah, no, no, no. Your phone works for you. That is awesome, and I have no problem with that. I am very much enjoying the Duke, and I have already, I've already forgotten what it's like to have a smaller phone.
 
-[00:03:15] Will: So my my initial reaction was that the battery was kind of sad on the new one.
+[00:03:15] Will: So my initial reaction was that the battery was kind of sad on the new one.
 
 [00:03:20] Norm: On the new one,
 
@@ -142,7 +142,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:04:33] Adam: Yeah, I mean, because I found for photo doing a selfie amazing, like being able to do the contextual menus when I touch on a program. I love that shit.
 
-[00:04:41] Will: You just use the Force Touch as the selfie as your as your. You know what my favorite is?
+[00:04:41] Will: You just use the Force Touch as the selfie as your. You know what my favorite is?
 
 [00:04:45] Adam: What
 
@@ -238,13 +238,13 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:07:21] Adam: I was so close. I was like, Everybody's phone off.
 
-[00:07:24] Will: You know, they only charge like a $0.10 a gigabyte or something. It's not super expensive.
+[00:07:24] Will: They only charge like a $0.10 a gigabyte or something. It's not super expensive.
 
 [00:07:29] Adam: I know, but I got.
 
 [00:07:30] Will: It's just the general principle.
 
-[00:07:31] Adam: That was like your your you know your data plan will switch over on the on the whatever date it was, and I was like, Oh my god, that's at midnight. It's only 9 p.m., and then it was like you've run out.
+[00:07:31] Adam: That was like your you know your data plan will switch over on the whatever date it was, and I was like, Oh my god, that's at midnight. It's only 9 p.m., and then it was like you've run out.
 
 [00:07:41] Norm: I understand why you know old telecoms want to charge, and then why they have these metering systems. But it really feels like these systems hold us back technologically.
 
@@ -258,11 +258,11 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:08:20] Adam: All right, go for it.
 
-[00:08:20] Will: We're talking cellular networks are shared pipes, so everybody that's connected to the same tower shares the maximum theoretical bandwidth, just you know, across all the devices in the thing. So if you and I and Norm are all connected to the same cellular tower, and Norm's sucking down Netflix 4K videos as fast as he can, then that means I'm gonna have a bad experience when I need to get email or whatever. So when we have a shared infrastructure, you know,
+[00:08:20] Will: We're talking cellular networks are shared pipes, so everybody that's connected to the same tower shares the maximum theoretical bandwidth, just across all the devices in the thing. So if you and I and Norm are all connected to the same cellular tower, and Norm's sucking down Netflix 4K videos as fast as he can, then that means I'm gonna have a bad experience when I need to get email or whatever. So when we have a shared infrastructure
 
 [00:08:48] Norm: make the better infrastructure.
 
-[00:08:48] Adam: I don't, I don't.
+[00:08:48] Adam: I don't.
 
 [00:08:49] Will: Well, that's coming, right?
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:09:04] Will: Chemtrails.
 
-[00:09:05] Adam: Another Socratic takedown. Um,
+[00:09:05] Adam: Another Socratic takedown.
 
 [00:09:08] Norm: I just— Socratic takedown.
 
@@ -282,11 +282,11 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:09:12] Adam: Boom!
 
-[00:09:14] Will: I'm really there's no way I'm going to remember that when we get to the naming of the episode, but maybe. Um, what should we talk about today, gentlemen? Um, we talked about talking about phones, and then I think we left it off at that. So this is the worst segue ever.
+[00:09:14] Will: I'm really there's no way I'm going to remember that when we get to the naming of the episode, but maybe. What should we talk about today, gentlemen? We talked about talking about phones, and then I think we left it off at that. So this is the worst segue ever.
 
-[00:09:24] Adam: So have you got? I, I, I, look. I'm going to talk about a show that neither of you have seen. Um, Doll & Em.
+[00:09:24] Adam: So have you got? I, look. I'm going to talk about a show that neither of you have seen. Doll & Em.
 
-[00:09:29] Norm: Uh, it's a hyper reality show, and it's Emily Mortimer.
+[00:09:29] Norm: It's a hyper reality show, and it's Emily Mortimer.
 
 [00:09:34] Adam: Emily Mortimer and her
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:09:41] Norm: Oh, they renewed it.
 
-[00:09:42] Adam: Um, and I've watched five of the episodes, and it's basically Emily Mortimer is Emily Mortimer, the movie star. Her best friend Dolly has a breakup in her marriage and calls her distraught. Um, she literally catches her on the red carpet while standing next to uh uh Bradley Cooper.
+[00:09:42] Adam: And I've watched five of the episodes, and it's basically Emily Mortimer is Emily Mortimer, the movie star. Her best friend Dolly has a breakup in her marriage and calls her distraught. She literally catches her on the red carpet while standing next to Bradley Cooper.
 
 [00:10:01] Will: Okay.
 
@@ -314,11 +314,11 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:10:23] Adam: poking fun at Hollywood, and narcissism and myopia and the culture of. Yeah, it's very very interesting.
 
-[00:10:31] Will: Like the the Matt LeBlanc show,
+[00:10:31] Will: Like the Matt LeBlanc show,
 
 [00:10:33] Adam: it's a little like episodes. It's cringy. It's super cringy, and it's more cringy than it is funny. But you do, I have to say, at the end of the first episode, I was like, I don't know if I can take this show. This is, I mean, it's super hinky
 
-[00:10:48] Will: on the on the scale between like Ricky Gervais and say the American Office.
+[00:10:48] Will: on the scale between like Ricky Gervais and say the American Office.
 
 [00:10:54] Adam: Um, so
 
@@ -332,31 +332,31 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:11:06] Will: Okay.
 
-[00:11:06] Adam: It's it's it's more, and the British Office was hilarious.
+[00:11:06] Adam: It's more, and the British Office was hilarious.
 
 [00:11:09] Will: Oh yeah.
 
-[00:11:10] Adam: Um. This again is not as funny because it's there's a lot more there's a lot more kind of a deep dive into how fucked up we all are.
+[00:11:10] Adam: This again is not as funny because it's there's a lot more kind of a deep dive into how fucked up we all are.
 
 [00:11:18] Will: Is it possible that you have a unique perspective on this?
 
 [00:11:20] Adam: I certainly do. Oh yeah, yeah, yeah. No, no, no. Absolutely, I have a unique perspective on this.
 
-[00:11:25] Norm: Do you like that idea when when actors play versions of themselves?
+[00:11:25] Norm: Do you like that idea when actors play versions of themselves?
 
-[00:11:29] Adam: Well, I think it's actually. So I think it's really cool. I think Emily Mortimer is fearless because she does not. There's no no no care is taken for her dignity in this. To quote Mary Karr, quoting Tobias Wolff. Anyway, um, she uh, so you know, it's a very complicated relationship, but you really do love both women, and there's it's fascinating watching it play out. Um, and wait, there was one more thing I was going to say, but oh, right, everybody's in it. Everybody, because it's just like there's this whole new thing. There's no more any stigma for movie stars to appear on television,
+[00:11:29] Adam: Well, I think it's actually. So I think it's really cool. I think Emily Mortimer is fearless because she does not. There's no no no care is taken for her dignity in this. To quote Mary Karr, quoting Tobias Wolff. Anyway she so it's a very complicated relationship, but you really do love both women, and there's it's fascinating watching it play out. And wait, there was one more thing I was going to say, but oh, right, everybody's in it. Everybody, because it's just like there's this whole new thing. There's no more any stigma for movie stars to appear on television,
 
 [00:12:06] Norm: That’s right.
 
-[00:12:07] Adam: You know, rap battles, epic epic lip sync battle has like you know they get everybody.
+[00:12:07] Adam: Rap battles, epic epic lip sync battle has like you know they get everybody.
 
 [00:12:11] Norm: Yes,
 
-[00:12:11] Adam: and now this Doll & Em, it's like you know John Cusack in an episode, you know, and it's just it's wonderful. Susan Sarandon plays crazy Susan Sarandon.
+[00:12:11] Adam: and now this Doll & Em, it's like you know John Cusack in an episode and it's just it's wonderful. Susan Sarandon plays crazy Susan Sarandon.
 
 [00:12:21] Will: Oh, that's great, but I mean that kind of started with Curb, right? Or Entourage, really?
 
-[00:12:25] Adam: Mm-hmm, mm-hmm.
+[00:12:25] Adam: Mm-hmm.
 
 [00:12:21] Will: I mean, when Bob Saget popped up in Entourage as Bob Saget,
 
@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:13:12] Adam: I had no idea that it had a Marty McFly connection.
 
-[00:13:15] Norm: So Dan Harmon is the co-creator of the show, and I think Justin Roiland is the other guy. And I think they made a short, so they they basically came together and said, " Hey, you know, watching Back to the Future is kind of kind of messed up that this crazy old dude is kind of taking this young kid, impressionable kid, on these wacky adventures and putting him in a time machine and like putting this dog in a time machine, and you know, he's kind of a psycho. So what if Doc Brown was just a crazy psycho, and you know, and—
+[00:13:15] Norm: So Dan Harmon is the co-creator of the show, and I think Justin Roiland is the other guy. And I think they made a short, so they basically came together and said, " Hey, you know, watching Back to the Future is kind of kind of messed up that this crazy old dude is kind of taking this young kid, impressionable kid, on these wacky adventures and putting him in a time machine and like putting this dog in a time machine, and you know, he's kind of a psycho. So what if Doc Brown was just a crazy psycho, and you know, and—
 
 [00:13:44] Will: who didn't have a time machine?
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:14:40] Will: Oh wow! In the Futurama sense,
 
-[00:14:42] Norm: yes, where Futurama has like really smart math and concepts. Here they they take like tropes from science fiction novels, parallel universes, multiple timelines, Inception, you know, and all these tropes, and write it into this 23 minute episode in this really really funny way.
+[00:14:42] Norm: yes, where Futurama has like really smart math and concepts. Here they take like tropes from science fiction novels, parallel universes, multiple timelines, Inception and all these tropes, and write it into this 23 minute episode in this really really funny way.
 
 [00:15:01] Adam: Wow!
 
@@ -442,7 +442,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:15:47] Adam: Sounds good. Yeah.
 
-[00:15:47] Will: something like that. Like it's a horse pun. And he he you know he was a single guy, single horse guy who brought some small children into his life, and then wacky hijinks ensue. You know in the, in the Alf slash full house slash
+[00:15:47] Will: something like that. Like it's a horse pun. And he you know he was a single guy, single horse guy who brought some small children into his life, and then wacky hijinks ensue. You know in the Alf slash full house slash
 
 [00:16:02] Adam: okay that was the
 
@@ -450,7 +450,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:16:15] Adam: and so it starts off really strong but isn't
 
-[00:16:18] Will: I like I, I haven't gotten all the way through the second season I know a lot of people really liked it I thought that the first like five or six episodes are spectacular but but yeah it's it's it's worth watching like it's it's fun it's like 30 minutes it's the kind of thing that I put on at ten o'clock if I want to watch something else before I go to sleep it's it's great for that
+[00:16:18] Will: I like I, I haven't gotten all the way through the second season I know a lot of people really liked it I thought that the first like five or six episodes are spectacular but yeah it's worth watching like it's fun it's like 30 minutes it's the kind of thing that I put on at ten o'clock if I want to watch something else before I go to sleep it's great for that
 
 [00:16:35] Adam: okay and now speaking of animals hold on
 
@@ -498,7 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:17:25] Norm: and that's not a big spoiler.
 
-[00:17:27] Will: It's the the the opening vignette is absolutely incredible.
+[00:17:27] Will: It's the opening vignette is absolutely incredible.
 
 [00:17:30] Adam: Okay,
 
@@ -514,11 +514,11 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:17:43] Adam: Okay, so speaking of animals and anthropomorphizing animals, a la BoJack Horseman, this book, " Beyond Words: What Animals Think and Feel" by Carl Safina, it was reviewed in the New York Review of Books last week, and that's how I came became aware of it. This is basically looking at the real, complicated societies of animals, and within animal behaviorism as a field, it has been the default to not ascribe any human qualities to animals whatsoever in a description. Jane Goodall had her first paper about the apes rejected because she used gender pronouns and named them, and it was suggested that she referred to them all as " it" and gave them numbers instead of names. She refused. Her paper was still published. This book goes deeply into elephant, orca, dolphin, and wolf societies to show the flexible hierarchies, pair bonding, and all of these qualities that humans have that are totally amazing when you go to researchers who really understand these animals. I have. I'm a couple— 150 pages in, but I, I just there's a. I might have to read this little passage here for a second. Wait a second, where is it?
 
-[00:19:07] Will: So, does it get into the differences between instinct and and the societal, like the like how how is he breaking this out? Is it is it looking at the things that happen when you isolate, like a wolf from when wolves grow up separate from wolves or grow up with dogs, and they behave a little bit differently than they do if they grow up with wolves, right?
+[00:19:07] Will: So, does it get into the differences between instinct and the societal, like the like how how is he breaking this out? Is it looking at the things that happen when you isolate, like a wolf from when wolves grow up separate from wolves or grow up with dogs, and they behave a little bit differently than they do if they grow up with wolves, right?
 
-[00:19:27] Adam: Um, very, but what they talk about is that there is more than instinct going on, and what his main premise here seems to be is we don't deny that an animal is hungry when it's behaving in a hungry way. We understand that that's a desire when it is sleepy and exhausted. We ascribe, we understand it's sleepy and exhausted. They have brain stems developed through the same evolutionary channels that ours are that respond to the same. Relative set of stimuli that we do, although in different degrees,
+[00:19:27] Adam: Very, but what they talk about is that there is more than instinct going on, and what his main premise here seems to be is we don't deny that an animal is hungry when it's behaving in a hungry way. We understand that that's a desire when it is sleepy and exhausted. We ascribe, we understand it's sleepy and exhausted. They have brain stems developed through the same evolutionary channels that ours are that respond to the same. Relative set of stimuli that we do, although in different degrees,
 
-[00:20:01] Will: and like our brains, the the brains as you get higher up the evolutionary ladder, the brains are kind of super sets of the brains that came below. It's the reason we call the limbic system the reptile brain; it's because it is literally the reptile brain.
+[00:20:01] Will: and like our brains, the brains as you get higher up the evolutionary ladder, the brains are kind of super sets of the brains that came below. It's the reason we call the limbic system the reptile brain; it's because it is literally the reptile brain.
 
 [00:20:13] Adam: But when you watch elephants communicating with each other, and you realize that if you study them long enough, that elephants can recognize up to 1,000 faces.
 
@@ -536,7 +536,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:20:36] Norm: that type of intelligence.
 
-[00:20:38] Adam: And the the author here, Carl Safina, is really working, I think, in a kind of origin of species way to build a case that that is an unscientific way to not ascribe any emotional content to the community or any actually informational, deep informational content. Ie, what is it to be empathetic? What is it to actually be able to genuinely communicate in context? He points out in one of the bits, dolphins that if a dolphin baby is playing with you after a certain period of time, the mom is going to come over and say, " This is enough. I need my child's attention," and she will give you a tail smack. A dolphin researcher that works with dolphins found that when one of her interns was playing too long with the dolphin baby, the mother dolphin would come up to the researcher and give her a smack. That means the dolphin understands the human hierarchy.
+[00:20:38] Adam: And the author here, Carl Safina, is really working, I think, in a kind of origin of species way to build a case that that is an unscientific way to not ascribe any emotional content to the community or any actually informational, deep informational content. Ie, what is it to be empathetic? What is it to actually be able to genuinely communicate in context? He points out in one of the bits, dolphins that if a dolphin baby is playing with you after a certain period of time, the mom is going to come over and say, " This is enough. I need my child's attention," and she will give you a tail smack. A dolphin researcher that works with dolphins found that when one of her interns was playing too long with the dolphin baby, the mother dolphin would come up to the researcher and give her a smack. That means the dolphin understands the human hierarchy.
 
 [00:21:35] Will: Oh, wow!
 
@@ -558,7 +558,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:22:21] Adam: I will tell you that if you're going to read about intelligent animals, it is eventually going to be a story about how humans have screwed up everything. You're you're reading about the elephants, and you realize how they're still being slaughtered in by one every 15 minutes in Africa for their ivory, and that this is an absolute tragedy. That you can't really corral them in; they travel hundreds of miles in their travels, and so it gets dark because that's a dark situation to read about when you're reading about any of these. But one of the key things he seems to be saying is we're spending a lot of time looking at life in outer space. And I've been thinking about this because I've been reading all the John Scalzi, which is often you know alien cultures being translated. Well, we've got these cultures here: dolphins, wolves, orcas, elephants, and they are communicating with each other. Why, why can't we potentially increase our ability to communicate with them and understand what they're saying?
 
-[00:23:18] Will: It's really interesting to me if the idea that humans are the only thinking animals—if if if that is an anthropocentric view,
+[00:23:18] Will: It's really interesting to me if the idea that humans are the only thinking animals—if that is an anthropocentric view,
 
 [00:23:26] Adam: yeah—
 
@@ -570,23 +570,23 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:23:37] Norm: [unclear: borders / burgers]
 
-[00:23:37] Will: until you had the the the the you know specialized labor. So you didn't, so that everyone wasn't focused on the same 10 things
+[00:23:37] Will: until you had the you know specialized labor. So you didn't, so that everyone wasn't focused on the same 10 things
 
 [00:23:46] Adam: exactly:
 
 [00:23:46] Will: food, pooping, shelter, etc.
 
-[00:23:49] Adam: It's it's totally fascinating. He even goes down to research of finding that you know there are wasps that have been recognized as being able to recognize faces of other wasps of individual wasps.
+[00:23:49] Adam: It's totally fascinating. He even goes down to research of finding that you know there are wasps that have been recognized as being able to recognize faces of other wasps of individual wasps.
 
 [00:23:59] Will: Wow.
 
 [00:23:59] Adam: And these are things we don't necessarily ascribe to animals of the lower order, as it were.
 
-[00:24:05] Will: Well, and they're not, and they're not simple survival mechanisms necessarily.
+[00:24:05] Will: Well, and they're not simple survival mechanisms necessarily.
 
-[00:24:08] Adam: No, that there's there's an argument to be made that that complexity is real, and that there is a genuine sentience, deep and real intelligence going on. Which I, you know, any dog owner will tell you. And as a dog owner, I totally feel that that's more than just instinct and more than just breeding. Although the argument could be made that our relations with each other is all just that.
+[00:24:08] Adam: No, that there's there's an argument to be made that that complexity is real, and that there is a genuine sentience, deep and real intelligence going on. Which I any dog owner will tell you. And as a dog owner, I totally feel that that's more than just instinct and more than just breeding. Although the argument could be made that our relations with each other is all just that.
 
-[00:24:31] Will: I mean, the the the the everybody who's had a dog has done something that pissed off the dog and came home to find a couch cushion destroyed.
+[00:24:31] Will: I mean, the everybody who's had a dog has done something that pissed off the dog and came home to find a couch cushion destroyed.
 
 [00:24:38] Adam: Right.
 
@@ -598,7 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:24:40] Adam: Yeah.
 
-[00:24:40] Will: Yeah. My my my dog is a grumpy old lady at this point in her life.
+[00:24:40] Will: Yeah. My dog is a grumpy old lady at this point in her life.
 
 [00:24:43] Adam: There is communication going on, real communication. Yeah. Anyway, it's a wonderful book. It's beautifully written.
 
@@ -612,7 +612,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:25:01] Will: Yeah.
 
-[00:25:01] Adam: Um. I was thinking of something. I like. I don't know. I was thinking of a name, but I couldn't think of a name that just sounds like it's money. Chet? No. I. You know.
+[00:25:01] Adam: I was thinking of something. I like. I don't know. I was thinking of a name, but I couldn't think of a name that just sounds like it's money. Chet? No. I. You know.
 
 [00:25:10] Will: You don't think Chet?
 
@@ -624,7 +624,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:25:16] Will: What about Chester?
 
-[00:25:17] Adam: I don't know. The Marquee? I don't know. I have to come up with a name for the for the for the giant phone. Um. Oh. Oh. Wait. Last thing about this, I will tell you. I had a wonderful experience on this big screen, which is Hail Caesar, the new Coen Brothers movie. The trailer is out, and it is one of the great trailers ever made.
+[00:25:17] Adam: I don't know. The Marquee? I don't know. I have to come up with a name for the giant phone. Oh. Oh. Wait. Last thing about this, I will tell you. I had a wonderful experience on this big screen, which is Hail Caesar, the new Coen Brothers movie. The trailer is out, and it is one of the great trailers ever made.
 
 [00:25:35] Will: They do good trailers. usually.
 
@@ -632,7 +632,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:25:37] Norm: And good movies.
 
-[00:25:38] Adam: I'm out in front of my wife's school the other day, and I'm waiting to pick her up, and I see, oh, the trailer's up. Let me turn that on. So I'm sitting in my cruiser, and I turn it on, and I didn't. I forgot that my phone's hooked into the stereo of my Land Cruiser, so I watched the trailer in full surround sound with the subwoofer, and I'm like. This is how I'm watching all my trailers from now on, on a
+[00:25:38] Adam: I'm out in front of my wife's school the other day, and I'm waiting to pick her up, and I see, oh, the trailer's up. Let me turn that on. So I'm sitting in my cruiser, and I turn it on, and I didn't. I forgot that my phone's hooked into the stereo of my Land Cruiser, so I watched the trailer in full surround sound with the subwoofer, and I'm like. This is how I'm watching all my trailers from now on a
 
 [00:26:00] Norm: relatively big screen.
 
@@ -688,9 +688,9 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:26:41] Will: Oh, that's interesting.
 
-[00:26:42] Adam: Neat, nerdy, neat, nerdy, bad man.
+[00:26:42] Adam: Neat, nerdy, bad man.
 
-[00:26:42] Will: Um. Yul Brynner's not with us anymore, right?
+[00:26:42] Will: Yul Brynner's not with us anymore, right?
 
 [00:26:46] Adam: Yul Brynner died of lung cancer,
 
@@ -704,7 +704,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:26:56] Will: Okay.
 
-[00:26:56] Adam: And you know, also maybe was the handsomest man that ever lived.
+[00:26:56] Adam: And also maybe was the handsomest man that ever lived.
 
 [00:27:00] Norm: You know who they got for the gunslinger?
 

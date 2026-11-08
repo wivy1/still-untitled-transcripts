@@ -38,11 +38,11 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:00:52] Adam: It was awesome. But really, the most awesome thing was. My costume had been completed. My bear costume had been completed about 10 days before Comic Con, and so I had time to because I'm also not shooting a TV show full time to clean my shop. So we left for Comic Con, and my shop was totally clean.
 
-[00:01:16] Will: And typically, like last year when we left for Comic Con, I remember Norm and I were loading up a truck, and and Danica, and I think Joey came by. We're loading up a truck and like wrapping costumes for the party and all that stuff. Literally in the moments before we left,
+[00:01:16] Will: And typically, like last year when we left for Comic Con, I remember Norm and I were loading up a truck, and Danica, and I think Joey came by. We're loading up a truck and like wrapping costumes for the party and all that stuff. Literally in the moments before we left,
 
 [00:01:16] Norm: Oh, yeah,
 
-[00:01:16] Will: piled it all in the truck, and then Norm set off for San Diego. And when we left here, it looked. I mean, this is a this is a dense environment on a good day, but it was the messiest I've ever seen it when we left last year.
+[00:01:16] Will: piled it all in the truck, and then Norm set off for San Diego. And when we left here, it looked. I mean, this is a dense environment on a good day, but it was the messiest I've ever seen it when we left last year.
 
 [00:01:42] Adam: And last year, it wasn't until October that I had the shop back to really clean.
 
@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:02:13] Norm: Yeah, you were kind of angry at yourself because you had not done it for so long.
 
-[00:02:17] Adam: That was this happens occasionally. I I put the light up over the Sanders, and the moment I turned them on, I got pissed. I was like, " You idiot! You could have been working like this for years.
+[00:02:17] Adam: That was this happens occasionally. I put the light up over the Sanders, and the moment I turned them on, I got pissed. I was like, " You idiot! You could have been working like this for years.
 
 [00:02:25] Will: Yeah, I've been in the dark for the last nine months.
 
@@ -64,7 +64,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:02:33] Will: Probably since the Whiskey Media days. Yeah, [unclear: I think / I don't think] I went back then.
 
-[00:02:36] Norm: And did you did you follow it at all?
+[00:02:36] Norm: And did you follow it at all?
 
 [00:02:39] Will: So so the last three weeks, I was on an East Coast trip. I had to go for business.
 
@@ -74,7 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:02:39] Norm: That's a long time.
 
-[00:02:39] Will: With a two and, with a three and a half year old. Um, and also it was the hottest it's been in 500 years or something. Most of the places we were going, so you couldn't really go outside. We watched a lot of movies. We went to a lot of indoor playgrounds.
+[00:02:39] Will: With a two and, with a three and a half year old. And also it was the hottest it's been in 500 years or something. Most of the places we were going, so you couldn't really go outside. We watched a lot of movies. We went to a lot of indoor playgrounds.
 
 [00:02:39] Norm: Nice.
 
@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:03:29] Will: life was cheap.
 
-[00:03:29] Norm: In company, right, right, in the '60s and '70s, companies would sell like just like you could buy your house in a box. They would sell your playground in a box to to counties and small cities, and they would be incredible. That whole futuristic age, giant robots that kids would climb on, and
+[00:03:29] Norm: In company, right, right, in the '60s and '70s, companies would sell like just like you could buy your house in a box. They would sell your playground in a box to counties and small cities, and they would be incredible. That whole futuristic age, giant robots that kids would climb on, and
 
 [00:03:47] Adam: we we they they built one in my hometown in I think 1984, and it was all out of recycled lumber, and it was all bolted together, and it was really elaborate. Isn't
 
@@ -100,7 +100,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:03:57] Will: Nice
 
-[00:03:57] Adam: and. Because we're like two 15-year-olds, like editing this this fun, excruciating fundraiser video. The woman that was in charge of the fundraiser had this; her top teeth were covered in lipstick, and I think we actually zoomed in on her teeth.
+[00:03:57] Adam: and. Because we're like two 15-year-olds, like editing this fun, excruciating fundraiser video. The woman that was in charge of the fundraiser had this; her top teeth were covered in lipstick, and I think we actually zoomed in on her teeth.
 
 [00:03:57] Will: Oh no,
 
@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:05:08] Adam: You were genuinely scared doing the hand over hand.
 
-[00:05:10] Will: Oh, you, you, like if you fell, it would have been like that scene. I can't even remember what movie it is, but what are those scenes in the movies where the where the body bounces 16 times off of the walls on the way down?
+[00:05:10] Will: Oh, you, like if you fell, it would have been like that scene. I can't even remember what movie it is, but what are those scenes in the movies where the body bounces 16 times off of the walls on the way down?
 
 [00:05:10] Norm: Yeah,
 
@@ -158,11 +158,11 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:05:40] Adam: yeah.
 
-[00:05:40] Will: And the the neighbor has a big tree right between their house and the tower.
+[00:05:40] Will: And the neighbor has a big tree right between their house and the tower.
 
 [00:05:40] Norm: Oh my god! So, literal shade.
 
-[00:06:05] Will: If I go up, if I went upstairs in my in my parents in in the bed in our bedroom at my parents' house, and hold my phone to the window, I can just about get two bars of LTE, which was just enough to to see tweets about the the Republican National Convention and and say I'm just going to turn off internet for this week. So I have a
+[00:06:05] Will: If I go up, if I went upstairs in my parents in the bed in our bedroom at my parents' house, and hold my phone to the window, I can just about get two bars of LTE, which was just enough to see tweets about the Republican National Convention and say I'm just going to turn off internet for this week. So I have a
 
 [00:06:23] Norm: snope it
 
@@ -188,9 +188,9 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:06:53] Norm: to the very end.
 
-[00:06:53] Adam: At the very end, and I think that was after we tweeted the word roar, and literally, I was, I was. Three feet from the doors to exit the hall, when a girl came up and said, " Are you Adam Savage?" and she figured it out, which was great. But it was the longest we've ever gone—30 minutes before before that happened.
+[00:06:53] Adam: At the very end, and I think that was after we tweeted the word roar, and literally, I was. Three feet from the doors to exit the hall, when a girl came up and said, " Are you Adam Savage?" and she figured it out, which was great. But it was the longest we've ever gone—30 minutes before before that happened.
 
-[00:07:12] Will: Well, so the bear, like, it's been in the shop for five months while you're working on it, and it's amazing production value. Like when you see how it's made, but it's kind of a visual pun costume. Like you haven't a little bit of a joke.
+[00:07:12] Will: Well, so the bear it's been in the shop for five months while you're working on it, and it's amazing production value. Like when you see how it's made, but it's kind of a visual pun costume. Like you haven't a little bit of a joke.
 
 [00:07:25] Adam: Was two things going on. One is it's a visual pun, but that's secondarily. Primarily, it's a character, and I drew him before I built him.
 
@@ -220,7 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:08:28] Norm: " The other part was the Revenant part of it.
 
-[00:08:32] Adam: The other part was the Revenant part of it. So, I the bear came first, and the bear came about. I realized I didn't real I didn't remember this until I was at the Academy of Sciences hosting their big picture exhibition last week. Was that in their green room, which I spent some time in in January for Sketchfest and several times before that? They have some pictures of a bear photo studio. Shots of a bear sitting down against a white cyclorama,
+[00:08:32] Adam: The other part was the Revenant part of it. So, I the bear came first, and the bear came about. I realized I didn't real I didn't remember this until I was at the Academy of Sciences hosting their big picture exhibition last week. Was that in their green room, which I spent some time in January for Sketchfest and several times before that? They have some pictures of a bear photo studio. Shots of a bear sitting down against a white cyclorama,
 
 [00:08:56] Will: like a live bear.
 
@@ -232,17 +232,17 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:09:03] Norm: Did you take a picture of that photo?
 
-[00:09:05] Adam: I I will I will, and I'll get it to you because I I have them on my computer.
+[00:09:05] Adam: I will, and I'll get it to you because I I have them on my computer.
 
 [00:09:05] Norm: Great, great, great.
 
-[00:09:05] Adam: Um, and we'll post it at the end of this. Um, the feet are the place where I started. I literally started from the ground up, and then I started designing and drawing the bear. I thought, how could I make the feet? And then I thought about the legs. And then once I got to the head, I realized, oh, maybe this should be the Revenant bear. So I made a actually really viable Leo DiCaprio dummy. That was
+[00:09:05] Adam: And we'll post it at the end of this. The feet are the place where I started. I literally started from the ground up, and then I started designing and drawing the bear. I thought, how could I make the feet? And then I thought about the legs. And then once I got to the head, I realized, oh, maybe this should be the Revenant bear. So I made a actually really viable Leo DiCaprio dummy. That was
 
 [00:09:27] Will: That was pretty good. Yeah.
 
 [00:09:27] Norm: In two days.
 
-[00:09:29] Adam: In two days. Um, and uh, and then I dragged him behind me, and I we I, our hotel was half a mile from the hall.
+[00:09:29] Adam: In two days. And then I dragged him behind me, and I we I, our hotel was half a mile from the hall.
 
 [00:09:38] Will: Oh, so you were the Hyatt instead of the Marriott.
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:11:27] Will: Okay,
 
-[00:11:28] Adam: it was very. It was so much fun. I mean, people were just laughing their asses off, and I just kept on. You know, I kept on taking pictures of the bear, like raising his arms and the Leo, and it it was gangbusters. It was one of my favorite walks ever.
+[00:11:28] Adam: it was very. It was so much fun. I mean, people were just laughing their asses off, and I just kept on. I kept on taking pictures of the bear, like raising his arms and the Leo, and it was gangbusters. It was one of my favorite walks ever.
 
 [00:11:43] Will: Did you get the hugs like you do? I didn't
 
@@ -328,19 +328,19 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:11:54] Norm: He reads almost like can read in so many ways. Distinguished. Pissed, like the way mid walk where your hands are changes how it's received.
 
-[00:12:04] Adam: I I literally have this kind of lope with him as I'm walking.
+[00:12:04] Adam: I literally have this kind of lope with him as I'm walking.
 
 [00:12:04] Will: That's cool.
 
-[00:12:04] Adam: It was really it it it exceeded all of my expectations.
+[00:12:04] Adam: It was really it exceeded all of my expectations.
 
-[00:12:13] Will: Well, and and just like it's an accessible costume if people want to make it. It's not a super expensive costume, right?
+[00:12:13] Will: Well, and just like it's an accessible costume if people want to make it. It's not a super expensive costume, right?
 
 [00:12:18] Adam: Well, so what we're going to do is there's a place that I now know about that I can send my patterns to, and the patterns are pretty straightforward. I'm going to send my patterns to this place and they'll turn them into a PDF, which we'll put up on tested in the next couple of weeks. The head is so the body, the two arms, two legs, and the body is 10 pieces of fabric.
 
 [00:12:18] Will: Wow,
 
-[00:12:18] Adam: that's it. It's six yards of fur, 10 pieces. Really, really straightforward. the The claws can be made in a bunch of different ways. It's all really accessible. The head is more complex, of course. I think there's like 11 pieces of fabric in the head alone, but we'll publish all those pieces. And then yeah, and the body, the the form is all corset boning, but I'm experimenting with rattan for a next one. Um, because it's really, really lightweight. It's really simple. The whole costume weighed 10 pounds.
+[00:12:18] Adam: that's it. It's six yards of fur, 10 pieces. Really, really straightforward. the claws can be made in a bunch of different ways. It's all really accessible. The head is more complex, of course. I think there's like 11 pieces of fabric in the head alone, but we'll publish all those pieces. And then yeah, and the body, the form is all corset boning, but I'm experimenting with rattan for a next one. Because it's really, really lightweight. It's really simple. The whole costume weighed 10 pounds.
 
 [00:12:18] Will: That's amazing.
 
@@ -366,9 +366,9 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:13:30] Adam: Um.
 
-[00:13:30] Norm: The other thing I want to do. Uh. I mean, we'll talk a little more about Comic Con, but like people don't realize, it is a big production. This year we didn't have Will, so I do want to give a shout out and give a thanks to Adam, your shop assistant, Aaron, who took care of ferrying so much of the gear, all the gear down to Comic Con.
+[00:13:30] Norm: The other thing I want to do. I mean, we'll talk a little more about Comic Con, but like people don't realize, it is a big production. This year we didn't have Will, so I do want to give a shout out and give a thanks to Adam, your shop assistant, Aaron, who took care of ferrying so much of the gear, all the gear down to Comic Con.
 
-[00:13:46] Adam: And and let's be clear, like ferrying the gear down to Comic Con is taking the costumes, which don't fit in any normal mode of conveyance, as you guys know. But then also taking my props and getting them onto the IMDb boat. They deadlifted the captain's chair over a gangway.
+[00:13:46] Adam: And let's be clear, like ferrying the gear down to Comic Con is taking the costumes, which don't fit in any normal mode of conveyance, as you guys know. But then also taking my props and getting them onto the IMDb boat. They deadlifted the captain's chair over a gangway.
 
 [00:14:00] Norm: Yes.
 
@@ -380,7 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:14:07] Adam: Yeah.
 
-[00:14:07] Will: Um. So you had all your costumes set up on the IMDb boat.
+[00:14:07] Will: So you had all your costumes set up on the IMDb boat.
 
 [00:14:14] Adam: I had captain's chair. I had Blade Runner chess set. I had ZF-1. We got a picture of Luc Besson standing next to the ZF-1.
 
@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:14:24] Will: Oh, that's so cool.
 
-[00:14:25] Adam: Um, where is it? Uh, oh yeah, we'll make we'll make everyone wait while I do this.
+[00:14:25] Adam: Where is it? Uh, oh yeah, we'll make everyone wait while I do this.
 
 [00:14:30] Will: It's a great podcast.
 
@@ -412,13 +412,13 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:14:32] Will: You didn't even let him touch it.
 
-[00:14:34] Adam: No, I didn't see him. I didn't meet him, unfortunately. Um, but we the Kevin Smith uh couldn't have been nicer, more welcoming.
+[00:14:34] Adam: No, I didn't see him. I didn't meet him, unfortunately. But we the Kevin Smith couldn't have been nicer, more welcoming.
 
 [00:14:42] Will: He seems like just the nicest guy. I’ve—
 
 [00:14:44] Adam: and a better interviewer I have not met. He's incredible.
 
-[00:14:47] Will: So I mean, I started listening to podcasts like many people with this podcast years and years and years ago, and and like watching him turn that from a show that was just two dudes in in the den in his office,
+[00:14:47] Will: So I mean, I started listening to podcasts like many people with this podcast years and years ago, and like watching him turn that from a show that was just two dudes in the den in his office,
 
 [00:14:47] Adam: yeah,
 
@@ -428,7 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:14:47] Will: This is incredible.
 
-[00:15:07] Norm: I mean, you know, obviously a writer director, but he says his love is to tell stories through words, not necessarily through pictures.
+[00:15:07] Norm: I mean obviously a writer director, but he says his love is to tell stories through words, not necessarily through pictures.
 
 [00:15:07] Adam: Yeah, yeah.
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:15:49] Will: Well, okay. So, do they do that for the other characters too? [unclear: No, it just looks like Superman’s chestplate].
 
-[00:15:53] Adam: No, there’s a website devoted to showing how Hollywood loves to cut the heads off superhero women in poster art. Um. Anyway, I the Wonder Woman trailer was terrific. Um. Her name.
+[00:15:53] Adam: No, there’s a website devoted to showing how Hollywood loves to cut the heads off superhero women in poster art. Anyway, I the Wonder Woman trailer was terrific. Her name.
 
 [00:16:05] Norm: Patty Jenkins or Gal Gadot.
 
@@ -458,7 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:16:09] Adam: beautiful, really, really, and she's got a kind of a right mix of innocence and badassery that I I thought was pretty impressive.
 
-[00:16:17] Norm: You know, it's going to be a movie that I think will compare well to Thor, which was another you know fish out of water story, except on a much bigger scale. So Thor was like nice little comedic moments because he's a fish out of water. They built that whole Arizona town
+[00:16:17] Norm: It's going to be a movie that I think will compare well to Thor, which was another you know fish out of water story, except on a much bigger scale. So Thor was like nice little comedic moments because he's a fish out of water. They built that whole Arizona town
 
 [00:16:33] Will: Kind of low budget, right?
 
@@ -482,7 +482,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:16:49] Will: What else?
 
-[00:16:50] Norm: Um, other things came out of Comic Con.
+[00:16:50] Norm: Other things came out of Comic Con.
 
 [00:16:52] Will: No, no. What else did Patty Jenkins do before Wonder Woman?
 
@@ -496,11 +496,11 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:17:06] Norm: Oh yeah, yeah, yeah. I didn't get to see that.
 
-[00:17:08] Adam: So it was great. Not only is Expanse terrific, and by the way, I know we we back when watched the first four episodes. Have you continued on?
+[00:17:08] Adam: So it was great. Not only is Expanse terrific, and by the way, I know we back when watched the first four episodes. Have you continued on?
 
 [00:17:15] Norm: I have not finished the rest of the series.
 
-[00:17:17] Adam: Let me tell you that the rest of the show gets better and better and better. And I don't know how they did it budgetarily, but the effects also get better and better and better as the season, as the 10 episode season arc progresses. So they do lots of like languorous. I think they really thought like, what if this was an oil rig platform? How would we shoot that? And then they just shot it like that. And so there's lots of contextual spatial shooting in terms of letting you understand the the universe that they're in.
+[00:17:17] Adam: Let me tell you that the rest of the show gets better and better. And I don't know how they did it budgetarily, but the effects also get better and better as the season, as the 10 episode season arc progresses. So they do lots of like languorous. I think they really thought like, what if this was an oil rig platform? How would we shoot that? And then they just shot it like that. And so there's lots of contextual spatial shooting in terms of letting you understand the universe that they're in.
 
 [00:17:46] Norm: Like I I interviewed the production designer for that show, and he said, for in terms of like stage space for TV show, it was one of the biggest he'd ever work on because there's so many different environments.
 
@@ -512,21 +512,21 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:17:59] Norm: Yeah, Canada.
 
-[00:18:00] Adam: So the other thing about the Expanse. Interview panel is that the cast is not only terrific, and again, over the 10 episodes, they get better and better and better. The writing gets better, like the characters really develop.
+[00:18:00] Adam: So the other thing about the Expanse. Interview panel is that the cast is not only terrific, and again, over the 10 episodes, they get better and better. The writing gets better, like the characters really develop.
 
 [00:18:16] Will: The characters don't kind of meet up every each other until the end of the fourth or fifth episode.
 
 [00:18:20] Adam: There's a lot of work to do, but they the cast loves each other, and that was something that came out in the panel and hanging out with them backstage. Is like they all actually go out; they are friends, and it comes across on screen, and it really comes across in person how much fun they're having.
 
-[00:18:36] Will: Well, so I've read I think all of those books except for maybe the one that came out this summer. The books are great. I mean, the books are are each each one each kind of arc is a is a little capsule. And James S A Corey, which I think is two writers, actually. They do a thing that that oh god, Richard Morgan, who wrote Altered Carbon and the Takeshi Kovacs books. You would love you would love the first one. It's called Altered Carbon. You should totally read it. We should do a book club about it because it's one of my favorite books of the 2000s.
+[00:18:36] Will: Well, so I've read I think all of those books except for maybe the one that came out this summer. The books are great. I mean, the books are each each one each kind of arc is a little capsule. And James S A Corey, which I think is two writers, actually. They do a thing that that oh god, Richard Morgan, who wrote Altered Carbon and the Takeshi Kovacs books. You would love the first one. It's called Altered Carbon. You should totally read it. We should do a book club about it because it's one of my favorite books of the 2000s.
 
 [00:19:05] Adam: Oh please, yeah, let's write it down
 
-[00:19:06] Will: and. Basically, the Takeshi Kovacs books. Each one is a different kind of book. There's one that's kind of a hard-boiled detective novel in the vein of of Your Boy in L. A.
+[00:19:06] Will: and. Basically, the Takeshi Kovacs books. Each one is a different kind of book. There's one that's kind of a hard-boiled detective novel in the vein of Your Boy in L. A.
 
 [00:19:06] Adam: Yeah.
 
-[00:19:06] Will: There's one that's a war soldier soldiers war thing, and the Expanse. I get the feeling that that's the direction they're going with the Expanse because like there's a colonist one, there's a there's a there's the fighting the the well there's the first season.
+[00:19:06] Will: There's one that's a war soldier soldiers war thing, and the Expanse. I get the feeling that that's the direction they're going with the Expanse because like there's a colonist one, there's a there's the fighting the well there's the first season.
 
 [00:19:27] Adam: Well, there's so much science fiction DNA in the show. They quote Blade Runner all the time. Of course, BSG is is deep embedded in that. But the thing that's really wonderful is the physics are really tight.
 
@@ -558,7 +558,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:20:48] Norm: He's well trained.
 
-[00:20:50] Adam: The cast, I really, I just, I love that cast. So that was that was a tremendous amount of fun. We went to Bill's party always, which is super great. Saw all sorts of old friends there, and LeVar Burton and his family were there, and they're just lovely.
+[00:20:50] Adam: The cast, I really, I just, I love that cast. So that was a tremendous amount of fun. We went to Bill's party always, which is super great. Saw all sorts of old friends there, and LeVar Burton and his family were there, and they're just lovely.
 
 [00:21:06] Norm: Any good buys from Comic Con? Anything that you were able to pick up? And,
 
@@ -566,15 +566,15 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:21:20] Norm: Geek Chic,
 
-[00:21:21] Adam: Geek Chic. Um, did do they make a Strider sword now?
+[00:21:21] Adam: Geek Chic. Did do they make a Strider sword now?
 
-[00:21:24] Norm: You know, I'm not sure. They only bring the swords to conventions. They don't always sell them online.
+[00:21:24] Norm: I'm not sure. They only bring the swords to conventions. They don't always sell them online.
 
 [00:21:29] Adam: So I meant to go over to their booth and then totally lost the plot because of all that. Oh, so the big EW party that happens at the end of every Comic Con.
 
 [00:21:29] Unknown speaker [Will / Norm]: Saturday night?
 
-[00:21:38] Adam: This year was Thing One's turn to go because he'd never been with me. Thing Two has gone with me. Thing One was going to go, and then my friend David Silverman from The Simpsons added Thing Two as his plus one. So both boys came with me to the EW, and we danced every night. We on on Thursday night we danced at the Nerdist party. On Friday night I can't remember where we went. Wednesday night we were at the after party for Star Trek. We danced every night of Comic Con,
+[00:21:38] Adam: This year was Thing One's turn to go because he'd never been with me. Thing Two has gone with me. Thing One was going to go, and then my friend David Silverman from The Simpsons added Thing Two as his plus one. So both boys came with me to the EW, and we danced every night. We on Thursday night we danced at the Nerdist party. On Friday night I can't remember where we went. Wednesday night we were at the after party for Star Trek. We danced every night of Comic Con,
 
 [00:21:38] Unknown speaker: That's awesome.
 
@@ -610,13 +610,13 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:22:46] Will: Yeah, it's ridiculous.
 
-[00:22:54] Norm: Um, and they have a new Enterprise, and and they have. You mentioned Batman v Superman. They have the Batwing, which not many people do.
+[00:22:54] Norm: And they have a new Enterprise, and they have. You mentioned Batman v Superman. They have the Batwing, which not many people do.
 
 [00:23:01] Will: So the like, I don't. I know that movie's old, and we don't want to talk about it. I watched the extended edition for the first time.
 
 [00:23:07] Adam: Batman v Superman.
 
-[00:23:07] Will: Yeah, and and while it's like there's probably half a movie too much stuff in there.
+[00:23:07] Will: Yeah, and while it's like there's probably half a movie too much stuff in there.
 
 [00:23:07] Norm: Yeah.
 
@@ -638,7 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:23:27] Unknown speaker: Doomsday, yeah, yeah.
 
-[00:23:27] Will: It's like it's the the set design and the art design and all that on that movie is unbelievable. Okay, the costumes are really good. Affleck does a shockingly good Batman. I thought he's like old Batman.
+[00:23:27] Will: It's like it's the set design and the art design and all that on that movie is unbelievable. Okay, the costumes are really good. Affleck does a shockingly good Batman. I thought he's like old Batman.
 
 [00:23:42] Adam: All the clips I've seen, I really like him. I mean, look, he's a terrific actor.
 
@@ -648,7 +648,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:24:01] Adam: fascinating.
 
-[00:24:02] Norm: And so you'll wait for the follow up movies to to see him to see him turn.
+[00:24:02] Norm: And so you'll wait for the follow up movies to see him turn.
 
 [00:24:05] Will: And it's got a San Francisco Oakland thing going there too, which I like.
 
@@ -672,23 +672,23 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:24:19] Adam: I believe it's in Oregon.
 
-[00:24:20] Will: They've always said they—they have—they have firmly, firmly disavowed a real location for Springfield.
+[00:24:20] Will: They've always said they have firmly, firmly disavowed a real location for Springfield.
 
 [00:24:26] Adam: I know, but I believe that the general consensus is that it's
 
 [00:24:29] Will: because that's where Groening grew up.
 
-[00:24:30] Adam: I—I don't know.
+[00:24:30] Adam: I don't know.
 
 [00:24:30] Will: Okay,
 
 [00:24:30] Adam: I really don't know.
 
-[00:24:33] Norm: I don't think that's—I don't think that's right.
+[00:24:33] Norm: I don't think that's right.
 
 [00:24:35] Will: Please direct your comments to at. Don't try this on Twitter.
 
-[00:24:40] Adam: Also, we talked about this on the podcast, but Wednesday night of the con was the world premiere of Star Trek Beyond outdoors with the San with the San Diego Philharmonic playing the score live on a giant outdoor IMAX screen. The first time any of those things has happened, let alone all of them together.
+[00:24:40] Adam: Also, we talked about this on the podcast, but Wednesday night of the con was the world premiere of Star Trek Beyond outdoors with the San Diego Philharmonic playing the score live on a giant outdoor IMAX screen. The first time any of those things has happened, let alone all of them together.
 
 [00:24:40] Will: Outdoor IMAX.
 
@@ -712,7 +712,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:25:47] Adam: It's an episode. It's a wonderful episode of Star Trek.
 
-[00:25:50] Will: I love what he did with Fast and Furious. He made that in from a from a pulpy kind of intentionally bad thing into something that's amazing.
+[00:25:50] Will: I love what he did with Fast and Furious. He made that in from a pulpy kind of intentionally bad thing into something that's amazing.
 
 [00:25:57] Norm: Well, intense, still intentionally,
 
@@ -722,15 +722,15 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:26:01] Will: but now it's so self aware and bad.
 
-[00:26:03] Adam: I have to say, so I spent some time with with Michael and Giacchino and Justin Lin at one of the scoring sessions and
+[00:26:03] Adam: I have to say, so I spent some time with Michael and Giacchino and Justin Lin at one of the scoring sessions and
 
 [00:26:10] Norm: Fantasy Camp.
 
-[00:26:11] Adam: A Fantasy Camp, totally insane. Justin. Is such a like a lovely fanboy geek, right? He's the real deal. He he was asking me about MythBuster stuff we had done based on Fast and the Furious, and I told him, you know, look, a lot of the stuff you guys did was so unrealistic we couldn't get near it, but we did have a whole Fast and Furious episode planned for a couple of years that we never got to. He it was lovely, you know. That's another one where it's clear the cast loves each other, like yeah, meeting those guys backstage, Zachary, Chris, and and Karl, they're all friends, and again that comes across on screen how how cohesive that unit of JJ Justin and the whole cast is,
+[00:26:11] Adam: A Fantasy Camp, totally insane. Justin. Is such a like a lovely fanboy geek, right? He's the real deal. He was asking me about MythBuster stuff we had done based on Fast and the Furious, and I told him look, a lot of the stuff you guys did was so unrealistic we couldn't get near it, but we did have a whole Fast and Furious episode planned for a couple of years that we never got to. He it was lovely, you know. That's another one where it's clear the cast loves each other, like yeah, meeting those guys backstage, Zachary, Chris, and Karl, they're all friends, and again that comes across on screen how how cohesive that unit of JJ Justin and the whole cast is,
 
-[00:26:54] Norm: and just like watching that movie, you have to appreciate like the amount of skill a director has. He's a very subdued person. I very briefly met him at the the the fan event we went to, but like there's so much going on in his head to be able to orchestrate like storytelling and action. And just manage and be a leader in that role.
+[00:26:54] Norm: and just like watching that movie, you have to appreciate like the amount of skill a director has. He's a very subdued person. I very briefly met him at the fan event we went to, but like there's so much going on in his head to be able to orchestrate like storytelling and action. And just manage and be a leader in that role.
 
-[00:27:14] Adam: Yeah, and watching, yeah, it was amazing watching a scoring session because there'd be a bit where we'd watch we'd watch the orchestra record ba ba bum, ba ba bum, da da da, ba ba ba and it’s as like things are happening, and they'll finish a you know two and a half minutes bit of music, and then Justin will turn to Michael and say, " Hey, when he opens the door, can we get a little more like punch out of the violins?" And Michael will be like, " Yes," and then he'll push a button and go, " Can we get mezzo forte at 79?" Oh my god, so cool! And then you know a whole bunch of like violinists to reach out and mark their score, and they play it again, and it's totally different.
+[00:27:14] Adam: Yeah, and watching, yeah, it was amazing watching a scoring session because there'd be a bit where we'd watch the orchestra record ba bum, da da da, ba ba ba and it’s as like things are happening, and they'll finish a you know two and a half minutes bit of music, and then Justin will turn to Michael and say, " Hey, when he opens the door, can we get a little more like punch out of the violins?" And Michael will be like, " Yes," and then he'll push a button and go, " Can we get mezzo forte at 79?" Oh my god, so cool! And then you know a whole bunch of like violinists to reach out and mark their score, and they play it again, and it's totally different.
 
 [00:27:49] Will: Wow! I just like he did the score for Inside Out, which is I think my favorite score of the last several years, far and away.
 
@@ -746,13 +746,13 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:28:17] Will: You know, the old joke is if you want to get an Oscar, the easiest way is to become one of the best seven composers in the world, because there's only like seven or eight people working there. You know, a dozen people working at a time.
 
-[00:28:29] Norm: You know, speaking of Landis, who was also present at your Comic Con panel. That's the thing that we hadn't talked about yet. The video is actually up on the site right now. The full your full Comic Con panel in which you had Deborah Newman Landis,
+[00:28:29] Norm: Speaking of Landis, who was also present at your Comic Con panel. That's the thing that we hadn't talked about yet. The video is actually up on the site right now. The full your full Comic Con panel in which you had Deborah Newman Landis,
 
 [00:28:29] Will: Oh, cool,
 
 [00:28:29] Norm: and Jay Justice talking about cosplay.
 
-[00:28:44] Adam: It was really, again, it exceeded my expectations. It was a, it was a little bit of a smaller, was a niche, it was a, it was a niche panel.
+[00:28:44] Adam: It was really, again, it exceeded my expectations. It was a little bit of a smaller, was a niche, it was a niche panel.
 
 [00:28:53] Will: It wasn't your big explosion, real Mythbusters panel that you’ve done in the past.
 
@@ -760,7 +760,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:28:59] Will: that’s awesome.
 
-[00:29:00] Adam: some real diehard, awesome, awesome Comic Con fans, and and Jay Justice is a legend, and she's hand built over 70 costumes. She also runs this thing, LGBT HQ, which provides safe spaces for people at. Cons, she's an activist, she's an advocate, and Deborah is just one of my great friends and one of my heroes. She did Raiders, she did Thriller, and Deborah was Deborah was amazing because I asked her to talk about the brilliance of Dorothy's dress from The Wizard of Oz because she's seen the real thing and it was in her exhibit. And I won't spoil the story because it's up on the site, but she really made it a beautiful story and kept on actually bringing the the panel back to the storytelling that exists within the making of a costume and how that costume gets paired with an actor.
+[00:29:00] Adam: some real diehard, awesome, awesome Comic Con fans, and Jay Justice is a legend, and she's hand built over 70 costumes. She also runs this thing, LGBT HQ, which provides safe spaces for people at. Cons, she's an activist, she's an advocate, and Deborah is just one of my great friends and one of my heroes. She did Raiders, she did Thriller, and Deborah was amazing because I asked her to talk about the brilliance of Dorothy's dress from The Wizard of Oz because she's seen the real thing and it was in her exhibit. And I won't spoil the story because it's up on the site, but she really made it a beautiful story and kept on actually bringing the panel back to the storytelling that exists within the making of a costume and how that costume gets paired with an actor.
 
 [00:29:52] Will: She's so good,
 
@@ -768,7 +768,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:29:53] Unknown speaker: She really did.
 
-[00:29:57] Adam: Yeah, she really opened up. Also, that exactly what I was hoping to do was to talk about the the similarities in what a costume designer is doing and what a cosplayer is doing. What's that? where they Venn, as it were, and that was great. I saw the sorry. The other thing I got excited about was I saw Neil Gaiman. Who's a friend? And I saw him on the carpet at at the EW party with his entire American Gods cast.
+[00:29:57] Adam: Yeah, she really opened up. Also, that exactly what I was hoping to do was to talk about the similarities in what a costume designer is doing and what a cosplayer is doing. What's that? where they Venn, as it were, and that was great. I saw the sorry. The other thing I got excited about was I saw Neil Gaiman. Who's a friend? And I saw him on the carpet at at the EW party with his entire American Gods cast.
 
 [00:30:24] Will: Oh my god!
 
@@ -782,7 +782,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:30:41] Adam: I’m so excited about this show.
 
-[00:30:43] Norm: You know, I hear that for a reread, the audio book is quite good.
+[00:30:43] Norm: I hear that for a reread, the audio book is quite good.
 
 [00:30:46] Adam: The audio book is fantastic.
 
@@ -792,11 +792,11 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:30:46] Will: Ooh.
 
-[00:30:46] Adam: So you get it's multiple players reading it. The guy that does Shadow is incredible. Um, it's wonderful. That's actually I went back and forth reading the book and listening to that cast.
+[00:30:46] Adam: So you get it's multiple players reading it. The guy that does Shadow is incredible. It's wonderful. That's actually I went back and forth reading the book and listening to that cast.
 
-[00:31:02] Norm: And I hear it's it's they cut out a lot of the um just the they make it more like a theatrical reading, like a script reading, and a lot of the he said he said stuff like is taken out.
+[00:31:02] Norm: And I hear it's they cut out a lot of the just the they make it more like a theatrical reading, like a script reading, and a lot of the he said stuff like is taken out.
 
-[00:31:13] Adam: I think, I think you might be right. I can't quite remember.
+[00:31:13] Adam: I think you might be right. I can't quite remember.
 
 [00:31:15] Will: So it’s not unabridged. I don't know how I feel about that.
 
@@ -834,17 +834,17 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:31:45] Will: A lot of people said that on Twitter.
 
-[00:31:47] Adam: I I read, it's terrific. It's
+[00:31:47] Adam: I read, it's terrific. It's
 
 [00:31:50] Norm: Make that homework.
 
-[00:31:50] Adam: It's got some great reveals. Um, the it spans hundreds of years.
+[00:31:50] Adam: It's got some great reveals. The it spans hundreds of years.
 
 [00:31:56] Norm: Okay, you've said too much already. I believe the— Is the audiobook for that one out as well.
 
 [00:32:01] Adam: I don't know. And September, the last book comes out, and I cannot wait.
 
-[00:32:05] Norm: And it's the same. Um, the translation is done by the same writer.
+[00:32:05] Norm: And it's the same. The translation is done by the same writer.
 
 [00:32:05] Adam: Yep.
 
@@ -914,7 +914,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:33:28] Will: We just said it was five months though.
 
-[00:33:30] Norm: Well, no, the patterns will be in a couple of weeks, but the the video of that build will be is going to be on the site, and then we're basically wrapped up with Comic Con coverage. We had so much stuff we shot; I think 20 videos at Comic Con. So please rewatch all that stuff.
+[00:33:30] Norm: Well, no, the patterns will be in a couple of weeks, but the video of that build will be is going to be on the site, and then we're basically wrapped up with Comic Con coverage. We had so much stuff we shot; I think 20 videos at Comic Con. So please rewatch all that stuff.
 
 [00:33:44] Will: Are you still trickling out stuff from New Zealand, Australia, or is that going to be a while?
 

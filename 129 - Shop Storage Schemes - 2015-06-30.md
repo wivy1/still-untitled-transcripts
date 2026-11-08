@@ -20,17 +20,17 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:01:21] Adam: Oh my God, Seveneves. This is the new book that I won't be able to stop talking about.
 
-[00:01:26] Will: I can't stop thinking about it. We we have to get Neal down now to talk about this book.
+[00:01:26] Will: I can't stop thinking about it. We have to get Neal down now to talk about this book.
 
-[00:01:30] Adam: I I feel like I feel like given the feedback from Twitter and on Tested that we have to have been responsible for a small percentage of the Martian’s book sales over the past few months.
+[00:01:30] Adam: I feel like given the feedback from Twitter and on Tested that we have to have been responsible for a small percentage of the Martian’s book sales over the past few months.
 
 [00:01:43] Norm: A small percentage is not an insignificant absolute amount.
 
-[00:01:46] Adam: No, no, no. I I want to do the same for Seveneves, Neal Stephenson’s new book.
+[00:01:46] Adam: No, no, no. I want to do the same for Seveneves, Neal Stephenson’s new book.
 
 [00:01:51] Will: I feel like maybe he doesn't need as much help. It's not a first novel.
 
-[00:01:53] Adam: No, I don't. No, I'm not saying. I'm not saying that this is. You know, it's just that I want to trumpet to the world how great this book is.
+[00:01:53] Adam: No, I don't. No, I'm not saying. I'm not saying that this is. It's just that I want to trumpet to the world how great this book is.
 
 [00:02:03] Norm: Well, his books are a little less accessible than The Martian.
 
@@ -40,13 +40,13 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:02:09] Adam: It is sometimes. They're more genre. Yeah. Right. So I mean, The Martian would be science fiction, but it doesn't go so deep into any specific area. That's not you know that takes you out of the drama. That.
 
-[00:02:19] Will: Well, it's hard science fiction, right? It's based in based in what we know about actual science.
+[00:02:19] Will: Well, it's hard science fiction, right? It's based in what we know about actual science.
 
 [00:02:23] Adam: Frankly, I'd say Seveneves is classifiable as hard science fiction.
 
 [00:02:27] Will: Absolutely.
 
-[00:02:28] Adam: Um. And you know, Neal has. Neal has always been one of my favorite writers. You know, Snow Crash, Diamond Age, even Interface, and the other
+[00:02:28] Adam: And Neal has. Neal has always been one of my favorite writers. Snow Crash, Diamond Age, even Interface, and the other
 
 [00:02:39] Will: Zodiac.
 
@@ -54,19 +54,19 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:02:39] Will: Zodiac.
 
-[00:02:40] Adam: Zodiac, the pseudonymous books he he wrote. I read all of that stuff. Um, he's become a friend over the past few years, and knowing him is just as awesome as reading him. He is a an amazing and Wonderful guy.
+[00:02:40] Adam: Zodiac, the pseudonymous books he wrote. I read all of that stuff. He's become a friend over the past few years, and knowing him is just as awesome as reading him. He is a an amazing and Wonderful guy.
 
-[00:02:55] Will: He's kind of like Danny Boyle in that each of his books is a is a slightly different genre. I mean, he he definitely hews more toward science fiction and kind of stuff that I, as a nerd, find core. But it's like like the the the um what what is it the Baroque Cycle is this sprawling historical fiction thing. You know, I think I think it's the idea is if William Gibson wrote Pattern Recognition as a science fiction book that happened in in the current day.
+[00:02:55] Will: He's kind of like Danny Boyle in that each of his books is a slightly different genre. I mean, he definitely hews more toward science fiction and kind of stuff that I, as a nerd, find core. But it's like the what is it the Baroque Cycle is this sprawling historical fiction thing. I think it's the idea is if William Gibson wrote Pattern Recognition as a science fiction book that happened in the current day.
 
 [00:02:55] Adam: right?
 
-[00:02:55] Will: That's a science fiction book that happened in the in the past. But it's he's fabulous and this is really good.
+[00:02:55] Will: That's a science fiction book that happened in the past. But it's he's fabulous and this is really good.
 
 [00:03:28] Adam: And he's an idea collector. He loves diving into some bit of esoterica. I mean, I've asked him for help with research for stuff, and he's ended up sending me
 
 [00:03:38] Will: Oh, I can't even imagine.
 
-[00:03:39] Adam: things of such depth that are absolutely astounding. Um, some of them that made it into seven. Some of them that turned out was research he had been doing for Seveneves, which we won't talk about yet because Norm here hasn't read it.
+[00:03:39] Adam: things of such depth that are absolutely astounding. Some of them that made it into seven. Some of them that turned out was research he had been doing for Seveneves, which we won't talk about yet because Norm here hasn't read it.
 
 [00:03:50] Norm: Yep, I have the book. It's also an audio book on Audible.
 
@@ -80,13 +80,13 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:03:57] Adam: Yeah.
 
-[00:03:57] Norm: It's a it's a big book. So, uh, they, they're out there, it's we are going to go talk about it.
+[00:03:57] Norm: It's a big book. So they, they're out there, it's we are going to go talk about it.
 
 [00:04:02] Adam: We are. We're going to have a spoilercast. my wife is now reading it, and I'm actually one of the ways we read books sometimes is we'll read to each other. So I've been I read to her for about an hour and a half last night.
 
 [00:04:12] Will: It’s a voice killer.
 
-[00:04:13] Adam: Uh, it is, but it's it's such great practice. Honestly, it's it's hard to read consistently, and you can get caught up. And so to get into the rhythm of not flubbing words and finding the characters, I'm even doing accents and stuff like that.
+[00:04:13] Adam: It is, but it's such great practice. Honestly, it's hard to read consistently, and you can get caught up. And so to get into the rhythm of not flubbing words and finding the characters, I'm even doing accents and stuff like that.
 
 [00:04:28] Norm: It's a great practice in any any type.
 
@@ -96,7 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:04:32] Norm: Unauthorized.
 
-[00:04:33] Adam: I would just for the for the. I'd love to record an audio book someday. You know, Will does them all. Wil Wheaton does them all the time. He's got a wonderful voice. I would love to do that.
+[00:04:33] Adam: I would just for the. I'd love to record an audio book someday. Will does them all. Wil Wheaton does them all the time. He's got a wonderful voice. I would love to do that.
 
 [00:04:43] Will: It's the kind of thing that always seems like it would be really fun until you actually think about the actual mechanics of it, and that it's
 
@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:04:53] Adam: Yeah.
 
-[00:04:54] Will: The audio book for Seveneves actually has three different readers. Uh, it's three. The book is three parts, three acts. And each act, I think, has a different has a different narrator, so it gives it a little bit of a different tone.
+[00:04:54] Will: The audio book for Seveneves actually has three different readers. It's three. The book is three parts, three acts. And each act, I think, has a different narrator, so it gives it a little bit of a different tone.
 
 [00:05:05] Adam: Yeah, yeah.
 
@@ -118,19 +118,19 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:05:13] Adam: The first sentence: the moon blew up without warning. I believe is the first five words.
 
-[00:05:18] Will: And and the thing about Neal Stephenson books that I've that I love, and this is the reason I love Anathem as well, is that he just leaves these super interesting concepts there, and and he's okay just saying, look, we we don't know why the moon blew up. That turns out to not be the important part of the moon blowing up.
+[00:05:18] Will: And the thing about Neal Stephenson books that I've that I love, and this is the reason I love Anathem as well, is that he just leaves these super interesting concepts there, and he's okay just saying, look, we don't know why the moon blew up. That turns out to not be the important part of the moon blowing up.
 
-[00:05:35] Adam: So and this is this is an area that I also particularly love. Elmore Leonard was one of my, who is one of my favorite writers. Wrote a lot of detective fiction. He wrote a character Raylan Givens, that Justified is based upon, but he also wrote Get Shorty and Be Cool, Jackie Brown, all these movies that people know. But he also started out writing westerns. But somewhere in the middle, there he wrote this book called Touch, which is based. Which was made into a terrible movie, starring I think Christopher Walken, Jared Leto, and Bridget Fonda.
+[00:05:35] Adam: So and this is an area that I also particularly love. Elmore Leonard was one of my, who is one of my favorite writers. Wrote a lot of detective fiction. He wrote a character Raylan Givens, that Justified is based upon, but he also wrote Get Shorty and Be Cool, Jackie Brown, all these movies that people know. But he also started out writing westerns. But somewhere in the middle, there he wrote this book called Touch, which is based. Which was made into a terrible movie, starring I think Christopher Walken, Jared Leto, and Bridget Fonda.
 
 [00:06:08] Will: Wow.
 
 [00:06:09] Adam: Yeah, but the book itself is about a young minister named Juvenal. Juvenal. Okay. Who, when he encounters someone who is requiring healing, he begins to bleed from the five wounds of Christ, and he touches them with the blood, and they are healed. That is just a fact within the book. The book is about what happens to someone who does this. The mechanics of why this happens is never discussed, and I love that as a literary convention.
 
-[00:06:40] Will: It's one of my one of my absolute favorite things, and and Neal does it literally throughout this book.
+[00:06:40] Will: It's one of my absolute favorite things, and Neal does it literally throughout this book.
 
 [00:06:45] Adam: Yeah.
 
-[00:06:46] Will: But you know, there's no magic. It's based in reality. A lot of it. I mean, there's some there's some hinky stuff here and there.
+[00:06:46] Will: But there's no magic. It's based in reality. A lot of it. I mean, there's some hinky stuff here and there.
 
 [00:06:51] Adam: It’s based in some, there are some stretches of what is possible and what would be plausible, and he definitely takes you to the edge of possibility.
 
@@ -144,9 +144,9 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:07:24] Will: Just think about that when you're reading, Norm.
 
-[00:07:25] Adam: It is so good, so amazing. Um, but
+[00:07:25] Adam: It is so good, so amazing. But
 
-[00:07:29] Will: you've had a project going for, let's say, the better part of this year, maybe a little bit of last year. Um, I think you initially referred to it as what your fuck drawers initiative.
+[00:07:29] Will: you've had a project going for, let's say, the better part of this year, maybe a little bit of last year. I think you initially referred to it as what your fuck drawers initiative.
 
 [00:07:38] Adam: It's, yeah, I decided that drawers are terrible
 
@@ -154,7 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:07:44] Norm: storage.
 
-[00:07:45] Adam: They’re, they’re, it's terrible for storage. Unless you have dedicated a drawer, you know, like there are. If you go into a standard racing support trailer. The drawers in those toolboxes have been laser cut to fit every tool that they go in. Those are great drawers. That's what drawers are great for. But drawers, as like the drawer full of pliers, that's where your favorite pair of pliers will go to die because it'll get shoved to the back underneath a thing you won't see it. And I've lost so many tools that are still in my shop because of drawers.
+[00:07:45] Adam: They’re, it's terrible for storage. Unless you have dedicated a drawer like there are. If you go into a standard racing support trailer. The drawers in those toolboxes have been laser cut to fit every tool that they go in. Those are great drawers. That's what drawers are great for. But drawers, as like the drawer full of pliers, that's where your favorite pair of pliers will go to die because it'll get shoved to the back underneath a thing you won't see it. And I've lost so many tools that are still in my shop because of drawers.
 
 [00:08:18] Will: This is the thing. Like I wish I was the kind of cleanly organized person that was able to make the laser cut drawer holders and actually use them. But I know that at some point in the future, I will be in a hurry and I'll be cleaning up fast. I'll just chuck three pairs of pliers in the plier drawer and then, like you said, the good ones disappear and you end up with the crap ones on the front.
 
@@ -178,19 +178,19 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:10:11] Will: Oh, like in a prison.
 
-[00:10:12] Adam: Right, and laser cut. Right, again, laser cut, but it's visible. So if something's missing, there is a plane that's not put back. It's visible, and this is even better than the outlines because they all sit there. It's nice. I mean, it's it's you want to keep the shop clean because of the meticulous nature by which they built it.
+[00:10:12] Adam: Right, and laser cut. Right, again, laser cut, but it's visible. So if something's missing, there is a plane that's not put back. It's visible, and this is even better than the outlines because they all sit there. It's nice. I mean, it's you want to keep the shop clean because of the meticulous nature by which they built it.
 
-[00:10:30] Will: And that's also important if you are in a shared workspace too, where everybody's using the same tools. If one person is bad about putting stuff off, I know that's the thing. That's the kind of thing you get fired for, right? It's like you don't your contract isn't renewed. You don't come back if you don't if you don't clean up after yourself. Right.
+[00:10:30] Will: And that's also important if you are in a shared workspace too, where everybody's using the same tools. If one person is bad about putting stuff off, I know that's the thing. That's the kind of thing you get fired for, right? It's like you don't your contract isn't renewed. You don't come back if you don't clean up after yourself. Right.
 
 [00:10:43] Norm: So in the paradigm of storage, that's a trade off between volume and surface area.
 
 [00:10:48] Adam: Surface area is a key thing. I don't have a lot of it in this shop, so it doesn't work for me. I have the large back wall, but I actually like that it's whiteboards. And people have noticed things written on those whiteboards and various stuff.
 
-[00:11:00] Will: Joey loves those whiteboards, you know. It's his favorite.
+[00:11:00] Will: Joey loves those whiteboards. It's his favorite.
 
 [00:11:02] Adam: Really?
 
-[00:11:03] Will: Oh, hey, can you can you blot out that thing? And yeah, as long as we catch it before, It's good.
+[00:11:03] Will: Oh, hey, can you blot out that thing? And yeah, as long as we catch it before, It's good.
 
 [00:11:11] Adam: So I don't want to do that type of storage. So I started thinking about about my concept of first order retrievability, which a lot of listeners know is how I organized my toolboxes when I was at ILM. The idea is no tool needs to be moved out of the way to obtain any other tool. And I looked at the tools I would have at my disposal, and I realized I could dedicate a rolling stand for these, and get rid of. It turned out I got rid of an entire five foot high toolbox. Five foot high toolbox.
 
@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:11:53] Will: Wow.
 
-[00:11:54] Adam: Which is. I mean, I picked it up on Craigslist years ago for a good deal. I my my shop assistants took it away; they're very happy with it. and I'm happy not to have it, and I now have a rolling stand whose footprint is about 24 by 30, I believe.
+[00:11:54] Adam: Which is. I mean, I picked it up on Craigslist years ago for a good deal. I my shop assistants took it away; they're very happy with it. and I'm happy not to have it, and I now have a rolling stand whose footprint is about 24 by 30, I believe.
 
 [00:12:10] Norm: It’s not that big.
 
@@ -210,11 +210,11 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:12:32] Will: No screwdrivers. Are elsewhere.
 
-[00:12:33] Adam: I have not yet screwdrivers. Is coming, and then at the top, I've got metal benders. I've got pens and pencils. I got rid of my entire pen drawer and pen and pencil drawer, and then on the back, all the X-Acto blades because I need total access and crazy glue, the cyanoacrylate glue. All of these things are things that getting up to walk to a drawer slows me down. And when I'm working at my table, I can have this whole stand there. As I was this weekend, I spent about 14 hours in the shop this weekend working on Comic Con. The the the stand proved incredibly versatile. We should actually do it.
+[00:12:33] Adam: I have not yet screwdrivers. Is coming, and then at the top, I've got metal benders. I've got pens and pencils. I got rid of my entire pen drawer and pen and pencil drawer, and then on the back, all the X-Acto blades because I need total access and crazy glue, the cyanoacrylate glue. All of these things are things that getting up to walk to a drawer slows me down. And when I'm working at my table, I can have this whole stand there. As I was this weekend, I spent about 14 hours in the shop this weekend working on Comic Con. The stand proved incredibly versatile. We should actually do it.
 
 [00:13:07] Will: We’ll do a video about it.
 
-[00:13:08] Norm: Yeah, yeah, yeah, and talk about the the. It's like you said, it's staggered,
+[00:13:08] Norm: Yeah, yeah, yeah, and talk about the. It's like you said, it's staggered,
 
 [00:13:11] Adam: Yes.
 
@@ -232,7 +232,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:13:20] Norm: But they're all all the handles are accessible. why things at the top and why things are things for when you you're standing and things when you're sitting?
 
-[00:13:28] Adam: Ah, no, I didn't think of it quite like that in terms of standing and sitting, but I did I did think how what's the highest density I can achieve of these tools? So I spent a lot of time, and it was actually kind of disruptive to my shop because I I don't want to be hasty about something like this. I want to I want to be able to build it once.
+[00:13:28] Adam: Ah, no, I didn't think of it quite like that in terms of standing and sitting, but I did think how what's the highest density I can achieve of these tools? So I spent a lot of time, and it was actually kind of disruptive to my shop because I I don't want to be hasty about something like this. I want to be able to build it once.
 
 [00:13:48] Norm: Yep.
 
@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:14:33] Norm: not only the tools but how you use them.
 
-[00:14:35] Adam: Well, and I also labeled the the shelves, the shelves as it were. The shelves are pieces of hardwood that I had lying around from another project that are about two inches wide and about a third of an inch thick. I know that's not an official measurement, but 0.3 inch, 0.33 inches.
+[00:14:35] Adam: Well, and I also labeled the shelves as it were. The shelves are pieces of hardwood that I had lying around from another project that are about two inches wide and about a third of an inch thick. I know that's not an official measurement, but 0.3 inch, 0.33 inches.
 
 [00:14:50] Will: Yeah, it's 1.2 millimeters, centimeters.
 
@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:14:59] Will: Seven deci, decimeters.
 
-[00:15:04] Adam: I’m very happy with this stand. I I pre-buy. One of my techniques in this shop. I like. I mean, I like everything on rollers, which I know Frank Frank Ippolito has
+[00:15:04] Adam: I’m very happy with this stand. I pre-buy. One of my techniques in this shop. I like. I mean, I like everything on rollers, which I know Frank Frank Ippolito has
 
 [00:15:15] Will: makes him crazy.
 
@@ -304,11 +304,11 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:17:11] Will: Five of those, [unclear: wow / wow, Okay, Okay].
 
-[00:17:13] Adam: So ones for ones for letter drills, ones for number drills, ones for fractional drills, ones for reamers, ones for taps, NPT taps, ones for regular taps, and others for milling bits. And I did this because that is absolutely the fastest way to get to any drill bit. And then once I had these, I wanted to make them accessible and obviously on wheels. And when I did that, I needed them to have a wider footprint than just the drill bit drawers because they'd be tall and ungainly. So I added a side area for extra storage that's quite visible. And then I had these tops, and that's when I started.
+[00:17:13] Adam: So ones for letter drills, ones for number drills, ones for fractional drills, ones for reamers, ones for taps, NPT taps, ones for regular taps, and others for milling bits. And I did this because that is absolutely the fastest way to get to any drill bit. And then once I had these, I wanted to make them accessible and obviously on wheels. And when I did that, I needed them to have a wider footprint than just the drill bit drawers because they'd be tall and ungainly. So I added a side area for extra storage that's quite visible. And then I had these tops, and that's when I started.
 
 [00:17:51] Will: That was the origin, right?
 
-[00:17:52] Adam: That was the first origin of my shop first order retrievability. I realized these tops were places I could put the things I use most frequently. i.e., I have, I have holders for taps, but they hold all my regular size taps from 1-72 up to 5/16-18, but they include not only the tap drill but also the through drill.
+[00:17:52] Adam: That was the first origin of my shop first order retrievability. I realized these tops were places I could put the things I use most frequently. i.e., I have holders for taps, but they hold all my regular size taps from 1-72 up to 5/16-18, but they include not only the tap drill but also the through drill.
 
 [00:18:12] Will: Okay.
 
@@ -316,9 +316,9 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:18:20] Will: Because you usually need them at the same time, the way you work.
 
-[00:18:21] Adam: Yeah, you always need them at the same time. In fact, when I am doing a job where I've got to like drill and tap like 25 10-24 holes, I'll use three drills. That is a benefit I have having many many drills in this shop. But you know, so I got one drill for the tap drill, one drill for the tap, and then a third drill for the through hole, so I can move really quickly.
+[00:18:21] Adam: Yeah, you always need them at the same time. In fact, when I am doing a job where I've got to like drill and tap like 25 10-24 holes, I'll use three drills. That is a benefit I have having many many drills in this shop. But so I got one drill for the tap drill, one drill for the tap, and then a third drill for the through hole, so I can move really quickly.
 
-[00:18:42] Will: Um, one of the things.
+[00:18:42] Will: One of the things.
 
 [00:18:43] Adam: I am impatient. In case anyone didn’t know.
 
@@ -352,7 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:20:52] Will: Oh, okay.
 
-[00:20:52] Adam: The the the sliders on the bottom of my Star Trek captain's chair UHMW, and it's phenomenal for making things slippy, slidey that are normally heavy. Um, and you can rip it on a table saw all day long.
+[00:20:52] Adam: The sliders on the bottom of my Star Trek captain's chair UHMW, and it's phenomenal for making things slippy, slidey that are normally heavy. And you can rip it on a table saw all day long.
 
 [00:21:04] Will: Can you put it, could put two pieces against each other?
 
@@ -360,7 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:21:09] Unknown speaker: [unclear: nicely / That’s amazing].
 
-[00:21:09] Adam: Yeah. Um. So I've notched it. I've used it as drawer slides. I've used it as as tool and material slides. I've used it to move giant set pieces around, on stage without marking the stage and
+[00:21:09] Adam: Yeah. So I've notched it. I've used it as drawer slides. I've used it as tool and material slides. I've used it to move giant set pieces around, on stage without marking the stage and
 
 [00:21:21] Will: Oh, neat.
 
@@ -368,7 +368,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:21:26] Will: Yeah.
 
-[00:21:27] Adam: Um. So UHMW is one of the things, and I'm sure I've mentioned this on the podcast before. Most normal shops like mine, I can't support giant chunks of stock. I need to buy little discrete chunks of stock, and eBay is perfect for that. There are lots of people buying giant chunks of stock, cutting it up into smaller, and you pay a little more for that, but You know, I don't need a 20-foot length of three-inch UHMW rod. I just need a 12-inch length, and then I'm good for about five years.
+[00:21:27] Adam: So UHMW is one of the things, and I'm sure I've mentioned this on the podcast before. Most normal shops like mine, I can't support giant chunks of stock. I need to buy little discrete chunks of stock, and eBay is perfect for that. There are lots of people buying giant chunks of stock, cutting it up into smaller, and you pay a little more for that, but I don't need a 20-foot length of three-inch UHMW rod. I just need a 12-inch length, and then I'm good for about five years.
 
 [00:21:56] Will: Well, in a shop your size, it's much more convenient to have a bunch of four by four sheets of plywood than one four by eight sheet of plywood.
 
@@ -382,7 +382,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:22:21] Adam: Yeah, as you've discovered.
 
-[00:22:22] Will: I'm aware. So yeah, that's. I mean, I think I think that's is there anything else? See, we've talked about that. You've emptied out a lot of the drawers above. Like you have all these little chests all over the place, and you've cleaned out a bunch of those.
+[00:22:22] Will: I'm aware. So yeah, that's. I mean, I think that's is there anything else? See, we've talked about that. You've emptied out a lot of the drawers above. Like you have all these little chests all over the place, and you've cleaned out a bunch of those.
 
 [00:22:35] Adam: I'm going to make another rolling rack. I'm definitely going to get rid of the drawer for screwdrivers.
 
@@ -392,7 +392,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:23:24] Will: But how often do you use the chisels anyway?
 
-[00:23:25] Adam: Yeah, pretty rarely. So you tool, you know, drawer. I'll tell you what. I've mentioned Bill Harsey, the knife designer, on the show before. I have a beautiful, uh, open locking blade knife that he designed called the Lone Wolf, and, uh, he actually even signed it for me years ago. And Bill and I met because he saw this knife on my belt on MythBusters and wrote me and said, " You are wearing one of my blades."
+[00:23:25] Adam: Yeah, pretty rarely. So you tool drawer. I'll tell you what. I've mentioned Bill Harsey, the knife designer, on the show before. I have a beautiful open locking blade knife that he designed called the Lone Wolf, and he actually even signed it for me years ago. And Bill and I met because he saw this knife on my belt on MythBusters and wrote me and said, " You are wearing one of my blades."
 
 [00:23:50] Will: He does auctions for his knives, right?
 
@@ -412,21 +412,21 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:24:23] Unknown speaker: [unclear: are you good / A hell of] drawers.
 
-[00:24:24] Will: Are you going to redo the? Are you like? Do you feel like this is the final design, or you can take another pass on it when you when you spend more time with it
+[00:24:24] Will: Are you going to redo the? Are you like? Do you feel like this is the final design, or you can take another pass on it when you spend more time with it
 
 [00:24:31] Adam: On the rolling stack?
 
 [00:24:31] Will: on the rolling stack?
 
-[00:24:32] Adam: No, I think it's pretty good. I think it's pretty good. I think that I may, you know, I've got I bought a drawer sorter for my sockets, and that is my favorite drawer in this shop because they're all there. I can see when one's missing. It's all in front of me. I don't have one for my ratchet box end wrenches. And I need a couple of drawers for that, so that's the next stage: is to get those all fully organized. And I've got some gaps because, you know, I work in five different locations, and some of them have gotten lost. So now it's time to take the existing tool stacks I have and laser cut the interiors because I'm not going to. Once I have a full set of ratcheting box end wrenches, I don't need anymore. There's not that. That will be a complete collection.
+[00:24:32] Adam: No, I think it's pretty good. I think it's pretty good. I think that I may I've got I bought a drawer sorter for my sockets, and that is my favorite drawer in this shop because they're all there. I can see when one's missing. It's all in front of me. I don't have one for my ratchet box end wrenches. And I need a couple of drawers for that, so that's the next stage: is to get those all fully organized. And I've got some gaps because I work in five different locations, and some of them have gotten lost. So now it's time to take the existing tool stacks I have and laser cut the interiors because I'm not going to. Once I have a full set of ratcheting box end wrenches, I don't need anymore. There's not that. That will be a complete collection.
 
 [00:25:17] Will: You’ve filled that hole in your life. That void is is now filled with a complete set.
 
 [00:25:21] Adam: Precisely.
 
-[00:25:21] Will: They all have a place. You can you can be happy with that.
+[00:25:21] Will: They all have a place. You can be happy with that.
 
-[00:25:24] Adam: Yeah. Specialty drill bits, you know, like long aircraft bits and plexiglass bits, all of those things that I only use a few times a year. Drawers are perfect for those.
+[00:25:24] Adam: Yeah. Specialty drill bits like long aircraft bits and plexiglass bits, all of those things that I only use a few times a year. Drawers are perfect for those.
 
 [00:25:33] Will: What do you do with stuff like um like I have tons of little sets of security bits and stuff like that. Do you just leave them like right now? They're in a box in a toolbox in my garage, and I know where they are.
 
@@ -438,7 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:25:50] Will: Okay.
 
-[00:25:50] Adam: And in that, I have my complete collection. Of security bits, tamper-proof bits, Torx bits, hex bits, flat heads—everything that every hexagonally mounted bit that you can put in the end of your driver and drive something—I've got a drawer for all of those, including extra long ones that you can buy on Amazon, which are super crazy useful. And I've bought these little, um, molded rubber sorters for them, so that every single one in that drawer is facing up.
+[00:25:50] Adam: And in that, I have my complete collection. Of security bits, tamper-proof bits, Torx bits, hex bits, flat heads—everything that every hexagonally mounted bit that you can put in the end of your driver and drive something—I've got a drawer for all of those, including extra long ones that you can buy on Amazon, which are super crazy useful. And I've bought these little molded rubber sorters for them, so that every single one in that drawer is facing up.
 
 [00:26:18] Will: Oh, so you just see the tip.
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:26:21] Norm: It’s like iFixit one, except a full drawer size.
 
-[00:26:24] Adam: Yeah, and you know, there's a million people sell these. It's easy to get way too many. Sometimes they come with everything that you buy. Um, they all go into that drawer, and I have many, many little sorters in that drawer. It's not perfect, but it is definitely like I make sure that each one of those go back to where it belongs. For instance, when I first got the Leatherman, uh, the Leatherman Charge, uh, this one, the Leatherman Wave, uses a six-point Torx tamper-proof bit, but the Leatherman charge used a five-point, five-lobe Torx.
+[00:26:24] Adam: Yeah, and there's a million people sell these. It's easy to get way too many. Sometimes they come with everything that you buy. They all go into that drawer, and I have many, many little sorters in that drawer. It's not perfect, but it is definitely like I make sure that each one of those go back to where it belongs. For instance, when I first got the Leatherman Charge this one, the Leatherman Wave, uses a six-point Torx tamper-proof bit, but the Leatherman charge used a five-point, five-lobe Torx.
 
 [00:26:59] Will: Oh, like on the new Mac stuff.
 
@@ -472,13 +472,13 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:27:40] Will: some sort of hard foam or something?
 
-[00:27:41] Adam: I don't not that I know of. I mean, there very well might be, but not that I've seen. You know, I really like the drawer liner that that stuff that that that stuff that sort of looks like an open weave sort of foam rubber.
+[00:27:41] Adam: I don't not that I know of. I mean, there very well might be, but not that I've seen. I really like the drawer liner that stuff that sort of looks like an open weave sort of foam rubber.
 
-[00:27:53] Will: Oh, like like what you put in your drawer in your kitchen drawers in college?
+[00:27:53] Will: Oh, like what you put in your drawer in your kitchen drawers in college?
 
 [00:27:56] Adam: Yeah, those are great. Those are terrific for keeping tools from rattling around and keeping blades from getting dull.
 
-[00:28:01] Will: The other thing is the security bits are a perfect case for for laser cutting because I mean they're all the same size. Yeah. You could even etch the pattern into them so you have the right spots for everything. Although that would probably make you crazy.
+[00:28:01] Will: The other thing is the security bits are a perfect case for laser cutting because I mean they're all the same size. Yeah. You could even etch the pattern into them so you have the right spots for everything. Although that would probably make you crazy.
 
 [00:28:12] Adam: Well, but you want them up. So basically, what you'd need to do is etch, laser cut hex hex holes.
 
@@ -504,17 +504,17 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:28:39] Norm: Yeah. You're not going to have enough tolerance.
 
-[00:28:40] Adam: I would want. I, I like foam.
+[00:28:40] Adam: I would want. I like foam.
 
 [00:28:41] Will: Okay.
 
 [00:28:42] Adam: I want to be gentle on my tools.
 
-[00:28:44] Will: Okay. Okay. Yeah. Anything else that's that's been bothering you in the in the first order retrievability quest? Like, what what are you? Do you feel like there's some gaps still? Are you feeling pretty? What about like like like skill saw blades and stuff like that? 
+[00:28:44] Will: Okay. Okay. Yeah. Anything else that's been bothering you in the first order retrievability quest? Like, what are you? Do you feel like there's some gaps still? Are you feeling pretty? What about like skill saw blades and stuff like that?
 
-[00:28:57] Adam: Well, I have drawers for those. I have and I'm overstocked in terms of blades. I hate running out of them. One. Location that I need to afford more accessibility is my table saw. I recently replaced my my nice Craftsman, which I over torqued and it crapped out a, a, a capacitor. But I had a lovely Powermatic from M7 in storage. the The M7 table saw was actually my personal table saw for years, so I brought that into the shop and it's great. It's 220. It's super all powerful. But I have like a set of really nice high quality plex blades and high quality woodworking blades, and they're all in just in this box. I mean, they're protected, but I have to go to a shelf and get it out to change blades. And that, I look, I just resist that sometimes because like, ah, I'll just cut it with this and it'll chip a little. It'll be fine. Yeah, I need to make a a really nice accessible table saw and router table accessory shelf that's dedicated. That's that's the next one.
+[00:28:57] Adam: Well, I have drawers for those. I have and I'm overstocked in terms of blades. I hate running out of them. One. Location that I need to afford more accessibility is my table saw. I recently replaced my nice Craftsman, which I over torqued and it crapped out a capacitor. But I had a lovely Powermatic from M7 in storage. the M7 table saw was actually my personal table saw for years, so I brought that into the shop and it's great. It's 220. It's super all powerful. But I have like a set of really nice high quality plex blades and high quality woodworking blades, and they're all in just in this box. I mean, they're protected, but I have to go to a shelf and get it out to change blades. And that, I look, I just resist that sometimes because like, ah, I'll just cut it with this and it'll chip a little. It'll be fine. Yeah, I need to make a really nice accessible table saw and router table accessory shelf that's dedicated. That's the next one.
 
-[00:29:57] Will: You know, the last thing that we haven't talked about really is that you have over by the by the kind of casting area. You have a big, tall stack of aluminum shelves that have like all the kind of consumable stuff. like it's like batteries and rubber bands and rubber gloves and
+[00:29:57] Will: You know, the last thing that we haven't talked about really is that you have over by the kind of casting area. You have a big, tall stack of aluminum shelves that have like all the kind of consumable stuff. like it's like batteries and rubber bands and rubber gloves and
 
 [00:30:13] Adam: Chip brushes and acid brushes.
 
@@ -528,7 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:30:40] Will: I don't think that we’ve talked about dumpster diving on the podcast a long, long time ago. I don't think that dumpster diving in Silicon Valley is quite the same as it used to be. Why not?
 
-[00:30:47] Adam: It was so good 20, 25 years ago, man. I can't even tell you. We would find so much incredible crap. It was great. I have. I'll tell you, we'd be dumpster diving in Silicon Valley industrial parks at like two and three in the morning. And we'd run into the guys from Survival Research Laboratories. We were doing the same circuit. Another time, we got pulled over by the cops, and the cops were, you know, checking us out, stuff because it's two in the morning in Sunny Sunnyvale.
+[00:30:47] Adam: It was so good 20, 25 years ago, man. I can't even tell you. We would find so much incredible crap. It was great. I have. I'll tell you, we'd be dumpster diving in Silicon Valley industrial parks at like two and three in the morning. And we'd run into the guys from Survival Research Laboratories. We were doing the same circuit. Another time, we got pulled over by the cops, and the cops were checking us out, stuff because it's two in the morning in Sunny Sunnyvale.
 
 [00:31:07] Will: Yeah.
 
@@ -552,7 +552,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:32:02] Adam: And beautiful paper, beautiful printing job.
 
-[00:32:05] Will: They're they're absolutely gorgeous. It's the kind of thing that you can. And there's a list that runs down the sides. You can see
+[00:32:05] Will: They're absolutely gorgeous. It's the kind of thing that you can. And there's a list that runs down the sides. You can see
 
 [00:32:10] Adam: All the tools that were in my model making toolboxes when I was working at ILM.
 

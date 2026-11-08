@@ -28,35 +28,35 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:00:28] Dan: it goes bad.
 
-[00:00:29] Adam: Yeah. We're gonna pull that, and you're gone. Dan and I are. It's a mutual admiration society, and we have we started texting back and forth on Twitter, and then you you come to San Francisco once a year. Is that correct?
+[00:00:29] Adam: Yeah. We're gonna pull that, and you're gone. Dan and I are. It's a mutual admiration society, and we have we started texting back and forth on Twitter, and then you come to San Francisco once a year. Is that correct?
 
-[00:00:42] Dan: Yes. I lived here for a long time, and and I still like to come back and and spend time here. So I I pack up my my laptop, and I come here, and I do my work for a while, and visit my old haunts and see my old friends, the ones that are still here,
+[00:00:42] Dan: Yes. I lived here for a long time, and I still like to come back and spend time here. So I I pack up my laptop, and I come here, and I do my work for a while, and visit my old haunts and see my old friends, the ones that are still here,
 
 [00:00:55] Adam: the ones who are still here. Yeah.
 
-[00:00:56] Norm: Your political cartoons are awesome. There's some that definitely are are memes now that get. Passed around regularly for people who don't know, or maybe haven't seen your Tom Tomorrow cartoons. Can you explain what they are?
+[00:00:56] Norm: Your political cartoons are awesome. There's some that definitely are memes now that get. Passed around regularly for people who don't know, or maybe haven't seen your Tom Tomorrow cartoons. Can you explain what they are?
 
-[00:01:09] Dan: Well, yeah. So my pen name is Tom Tomorrow, and the strip is called This Modern World. It runs on Daily Kos and in the Nation, and features a penguin with funny sunglasses named Sparky. And it's I don't know how do I it's it's I'm always at a bit of a loss. It's a very opinionated political cartoon.
+[00:01:09] Dan: Well, yeah. So my pen name is Tom Tomorrow, and the strip is called This Modern World. It runs on Daily Kos and in the Nation, and features a penguin with funny sunglasses named Sparky. And it's I don't know how do I it's I'm always at a bit of a loss. It's a very opinionated political cartoon.
 
-[00:01:32] Adam: It is, but you often you are often making your point with the words of the very people that you disagree with. I think that is absolutely one of your sort of telltale things: is you let you let people bury themselves with their own absurdity.
+[00:01:32] Adam: It is, but you often you are often making your point with the words of the very people that you disagree with. I think that is absolutely one of your sort of telltale things: is you let people bury themselves with their own absurdity.
 
-[00:01:46] Dan: Yeah, that's that's probably a good way to put it.
+[00:01:46] Dan: Yeah, that's probably a good way to put it.
 
 [00:01:48] Norm: And then deep satire, and sometimes the jokes are maybe dry intentionally, but it gets the point across.
 
-[00:01:55] Dan: I I like to think of it as understated, but not everyone seems to perceive it that way.
+[00:01:55] Dan: I like to think of it as understated, but not everyone seems to perceive it that way.
 
 [00:02:03] Adam: I want to apologize from the get go. I have a bit of a sore throat.
 
 [00:02:06] Will: Oh,
 
-[00:02:06] Adam: you know it's funny. People thought last week's podcast that I was burping through the podcast. That was coughing.
+[00:02:06] Adam: It's funny. People thought last week's podcast that I was burping through the podcast. That was coughing.
 
 [00:02:12] Will: Yeah,
 
 [00:02:13] Adam: I know that sounded like burping, but I was
 
-[00:02:15] Will: well. So you just got back from a conference, and and one of the things
+[00:02:15] Will: well. So you just got back from a conference, and one of the things
 
 [00:02:18] Adam: I did.
 
@@ -116,9 +116,9 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:03:30] Adam: Chris Anderson, who apparently got out of the magazine industry at just the right time.
 
-[00:03:33] Will: It was I waited 10 more years before after he left, and I was like, " That well, that was 10 10 years down the tube." But no, Chris is an incredibly smart guy, and he's put together this conference that is—it's almost become a parody of itself in some in some ways, but it's still—it sounds like an amazing event, something I've always wanted to go to.
+[00:03:33] Will: It was I waited 10 more years before after he left, and I was like, " That well, that was 10 10 years down the tube." But no, Chris is an incredibly smart guy, and he's put together this conference that is—it's almost become a parody of itself in some ways, but it's still—it sounds like an amazing event, something I've always wanted to go to.
 
-[00:03:51] Adam: It is definitely a gold standard in public speaking of a certain type. It is not a stump speech campaign, but it is like TED has almost invented its own style of a certain kind of talk. They last between 14 and 18 minutes. Some of them are as short as six minutes if you're a TED fellow. And the requirement is ideas worth spreading, you know. So everyone has their own style of doing these kind of talks. And I, like I said, I've done talks in this genre before, but to do this up on the main stage on the big red dot in front of a crowd of 1,600 of really some of the biggest brains in the world right now.
+[00:03:51] Adam: It is definitely a gold standard in public speaking of a certain type. It is not a stump speech campaign, but it is like TED has almost invented its own style of a certain kind of talk. They last between 14 and 18 minutes. Some of them are as short as six minutes if you're a TED fellow. And the requirement is ideas worth spreading. So everyone has their own style of doing these kind of talks. And I, like I said, I've done talks in this genre before, but to do this up on the main stage on the big red dot in front of a crowd of 1,600 of really some of the biggest brains in the world right now.
 
 [00:04:35] Will: Bill Gates was there, right?
 
@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:04:52] Adam: It was heady. It was a heady and far out crowd.
 
-[00:04:55] Norm: So it stands for technology, entertainment, design. And I remember when it first started, the speakers would be invited to present ideas. Some of them new ideas. Some of them, you know, research that was just about to be announced. And a lot of TED talks you see these days are announcements, are almost keynotes,
+[00:04:55] Norm: So it stands for technology, entertainment, design. And I remember when it first started, the speakers would be invited to present ideas. Some of them new ideas. Some of them research that was just about to be announced. And a lot of TED talks you see these days are announcements, are almost keynotes,
 
 [00:05:10] Adam: yeah,
 
@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:06:52] Will: on the stage
 
-[00:06:53] Adam: on the stage, and it was a shit show. Like, you know, I finished, and there was sort of a look of naked panic on Chris's face. One was, " This isn't the talk that you were going to arrive with, and it's not finished. Are we going to be cool? I don't mean to make him sound that panicked because he was very, very cool with me. He's like, " You're a wonderful storyteller. You just need to find that thing that helps open it and helps close it. What is the idea worth spreading? It's not a bad, yeah, not a bad [unclear: question / impression / It’s good].
+[00:06:53] Adam: on the stage, and it was a shit show. Like I finished, and there was sort of a look of naked panic on Chris's face. One was, " This isn't the talk that you were going to arrive with, and it's not finished. Are we going to be cool? I don't mean to make him sound that panicked because he was very, very cool with me. He's like, " You're a wonderful storyteller. You just need to find that thing that helps open it and helps close it. What is the idea worth spreading? It's not a bad, yeah, not a bad [unclear: question / impression / It’s good]
 
 [00:07:21] Norm: It's a good tag,
 
@@ -160,15 +160,15 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:07:33] Will: Wow,
 
-[00:07:33] Adam: of just I think I think of it now as polishing.
+[00:07:33] Adam: of just I think of it now as polishing.
 
 [00:07:37] Will: Did you have someone there with you, or are you just recording and watching?
 
 [00:07:39] Adam: Julia, my wife, she wasn't with me, but we were talking a couple of times a day, and I was running through later iterations of the talk. And actually, this is the first time I've that she's jumped with both feet into a talk with me. There's times I've done a talk for her late in the process, and she's like, " That's great, I changed that little bit, but this time it was nuts and bolts, sleeves rolled up, going over every transition, every bit, pulling stuff out."
 
-[00:08:04] Norm: I had a question. You've done talks, all sorts of talks. You've done talks like TED at like the EG conference, which you can Google and find. There's a great talk about the Maltese Falcon and the Dodo Bird sculpture. You've done Moth, which is a pure storytelling exercise, but TED has different goals. So when Chris gives you feedback, is it more in terms of the the the structure of it, or is it in terms of like you're not getting what he as the TED organizer wants the talk to to do?
+[00:08:04] Norm: I had a question. You've done talks, all sorts of talks. You've done talks like TED at like the EG conference, which you can Google and find. There's a great talk about the Maltese Falcon and the Dodo Bird sculpture. You've done Moth, which is a pure storytelling exercise, but TED has different goals. So when Chris gives you feedback, is it more in terms of the structure of it, or is it in terms of like you're not getting what he as the TED organizer wants the talk to do?
 
-[00:08:34] Adam: [unclear: No], He was so I was part of a I was part of a a rubric for this group of talks, session two called Repatterning, radical repatterning. That was helped me in thinking about this.
+[00:08:34] Adam: [unclear: No] He was so I was part of a I was part of a rubric for this group of talks, session two called Repatterning, radical repatterning. That was helped me in thinking about this.
 
 [00:08:48] Will: what does repatterning mean?
 
@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:08:52] Will: Okay,
 
-[00:08:52] Adam: changing the way we do things, and my talk didn't have a beginning or an end. It had a giant middle, but you know, as Chris pointed out, you need something in the beginning as a lens with which people can look at the talk.
+[00:08:52] Adam: changing the way we do things, and my talk didn't have a beginning or an end. It had a giant middle, but as Chris pointed out, you need something in the beginning as a lens with which people can look at the talk.
 
 [00:09:06] Will: Your icebreaker, your music anecdote, whatever.
 
@@ -188,7 +188,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:09:15] Will: Yeah,
 
-[00:09:15] Adam: yeah, exactly. In terms, and I, it was very intense, you know. And when I do something like this, so again, you said I do lots of talks. Like when I speak at Maker Faire, I I don't rehearse a lot, and I do that because I want the Maker Faire, I want the Maker Faire talk to be raw and unfinished. I want people to see behind the curtain and see me potentially failing or having dead spots because that's cool, and I you know I want to give permission to fail.
+[00:09:15] Adam: yeah, exactly. In terms, and I, it was very intense. And when I do something like this, so again, you said I do lots of talks. Like when I speak at Maker Faire, I I don't rehearse a lot, and I do that because I want the Maker Faire, I want the Maker Faire talk to be raw and unfinished. I want people to see behind the curtain and see me potentially failing or having dead spots because that's cool, and I you know I want to give permission to fail.
 
 [00:09:44] Will: Yeah.
 
@@ -198,23 +198,23 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:10:14] Adam: I hadn't performed for the TED conference, but in general, conferences like this of a bunch of really smart people tend to be really rough crowds from a performer standpoint. And I don't mean that they're not generous and good crowds. I just mean that they don't tend to be very feedback heavy. Like the EG audience is packed with friends of mine. I love that audience, but it's not like a super dynamic performer audience relationship like I get when I get up at Sketchfest and do something with Thrilling Adventure Hour or w00tstock.
 
-[00:10:43] Will: Yeah, I mean, if if you're coming into this, you're like you could potentially. I mean, you didn't, but you could potentially follow the guys who invented an entirely new type of telescope. Telescope.
+[00:10:43] Will: Yeah, I mean, if you're coming into this, you're like you could potentially. I mean, you didn't, but you could potentially follow the guys who invented an entirely new type of telescope. Telescope.
 
 [00:10:52] Adam: Yes.
 
-[00:10:52] Will: Um. Or you know, somebody who changed the way we understand something about the deep mind or. You know, people who are legitimately changing the way we see and and experience the world.
+[00:10:52] Will: Or somebody who changed the way we understand something about the deep mind or. People who are legitimately changing the way we see and experience the world.
 
 [00:11:03] Adam: Yeah,
 
-[00:11:03] Will: and like that's intense to come up and be like, " Well, I like dressing up. like aliens."
+[00:11:03] Will: and that's intense to come up and be like, " Well, I like dressing up. like aliens."
 
-[00:11:06] Adam: I'm glad to have been first. Yeah, no, I'm glad to have been first on this front. My talk will go up soon. I don't know exactly the date yet. We will link to it on on on Tested. The third,
+[00:11:06] Adam: I'm glad to have been first. Yeah, no, I'm glad to have been first on this front. My talk will go up soon. I don't know exactly the date yet. We will link to it on Tested. The third,
 
 [00:11:19] Norm: but you were happy with it.
 
-[00:11:20] Adam: I, I, I'm really happy with it. I'm very happy. I've seen the rough video of the talk. I'm, I, I'm very happy.
+[00:11:20] Adam: I, I'm really happy with it. I'm very happy. I've seen the rough video of the talk. I'm, I, I'm very happy.
 
-[00:11:27] Will: And they do some amazing. My, so I've watched the live feed out of the conference before, and they do some amazing edits. Like they don't, they don't change the message at all, but they emphasize and they and they do a like their production team does a really nice job.
+[00:11:27] Will: And they do some amazing. My, so I've watched the live feed out of the conference before, and they do some amazing edits. Like they don't change the message at all, but they emphasize and they do a like their production team does a really nice job.
 
 [00:11:40] Adam: They are
 
@@ -222,25 +222,25 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:11:42] Adam: They're tight as a drum, and I mean, I a friend of mine, Drew Curtis. I spent some time with Drew there. Drew told me that in the past, there's been people whose talks did not go well, and when the video went up, you couldn't tell.
 
-[00:11:55] Will: I, I remember watching.
+[00:11:55] Will: I remember watching.
 
 [00:11:57] Adam: They'll take care of you.
 
-[00:11:58] Will: The the Bill Gates year when he released the mosquitoes and and and on stage, like that talk live.
+[00:11:58] Will: The Bill Gates year when he released the mosquitoes and on stage, like that talk live.
 
-[00:12:04] Dan: Wait, wait, you you say that as if we all know that.
+[00:12:04] Dan: Wait, wait, you say that as if we all know that.
 
 [00:12:07] Adam: Oh, wait. Sorry. This is great. So,
 
 [00:12:10] Dan: you know that year,
 
-[00:12:11] Will: it was around the time that Bill Bill and Melinda were launching the Bill and Melinda Gates Foundation. Around the time he left Microsoft, and he was like talking about making change that's impactful, and and the kind of punchline, the moment in this in the thing that was, I think, one of the big moments that year was that he released a bunch of mosquitoes.
+[00:12:11] Will: it was around the time that Bill Bill and Melinda were launching the Bill and Melinda Gates Foundation. Around the time he left Microsoft, and he was like talking about making change that's impactful, and the kind of punchline, the moment in this in the thing that was, I think, one of the big moments that year was that he released a bunch of mosquitoes.
 
 [00:12:30] Adam: He was talking about malaria.
 
-[00:12:30] Will: He was talking about about getting malaria nets out and and how it's an incredibly low cost thing and how you can change millions of people's lives for $0.10 a person or something like that. And he released the mosquitoes in the in the crowd.
+[00:12:30] Will: He was talking about about getting malaria nets out and how it's an incredibly low cost thing and how you can change millions of people's lives for $0.10 a person or something like that. And he released the mosquitoes in the crowd.
 
-[00:12:41] Dan: And how does the how does the high powered TED crowd react to
+[00:12:41] Dan: And how does the high powered TED crowd react to
 
 [00:12:45] Will: I—
 
@@ -250,7 +250,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:12:54] Adam: which was his point.
 
-[00:12:55] Will: Yeah, of course, but they cut the video and and it and it gets the kind of appropriate. Like they, I don't think they had it a laugh or anything, but it it. It felt impactful in a way that didn't feel alive. This is the touch point I have. I heard that the Al Gore talk was outstanding.
+[00:12:55] Will: Yeah, of course, but they cut the video and it gets the kind of appropriate. Like they, I don't think they had it a laugh or anything, but it. It felt impactful in a way that didn't feel alive. This is the touch point I have. I heard that the Al Gore talk was outstanding.
 
 [00:13:09] Adam: Al Gore showed up and schooled every goddamn one of us on what speaking really was about. He gave a barn burner of a speech about global warming. So I met him. Yeah, I met Al Gore.
 
@@ -286,11 +286,11 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:14:09] Will: They still vet the attendees.
 
-[00:14:10] Adam: Well, then the attend yeah they they vet the attendees. It costs a lot.
+[00:14:10] Adam: Well, then the attend yeah they vet the attendees. It costs a lot.
 
 [00:14:14] Will: Yeah.
 
-[00:14:14] Adam: Uh, almost $10,000 to go. Eight, $8,500, I think, is the price of a ticket.
+[00:14:14] Adam: Almost $10,000 to go. Eight, $8,500, I think, is the price of a ticket.
 
 [00:14:18] Will: I mean, they do.
 
@@ -304,7 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:14:22] Will: That's a lot. I tried to get an old employer to pay for that once because I was like, I want to go to TED. No, they don't do press passes. It was only four thousand then
 
-[00:14:29] Adam: on the on the Thursday night of on the Thursday night, was it the Wednesday night?
+[00:14:29] Adam: on the Thursday night of on the Thursday night, was it the Wednesday night?
 
 [00:14:33] Will: It’s a full week, right?
 
@@ -320,7 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:14:54] Norm: Yeah.
 
-[00:14:54] Adam: Um, uh, I I haven't met their baby, so I arrived at the speakers meetup, which was on the first day, and that was really fun. A whole bunch of us. That's where I met Al Gore. And Amanda handed me the new baby, six months old, and said, " You want to hold a baby?" And I held that baby for like an hour. Super, you know. Sometimes babies are like super clutchy.
+[00:14:54] Adam: I haven't met their baby, so I arrived at the speakers meetup, which was on the first day, and that was really fun. A whole bunch of us. That's where I met Al Gore. And Amanda handed me the new baby, six months old, and said, " You want to hold a baby?" And I held that baby for like an hour. Super. Sometimes babies are like super clutchy.
 
 [00:15:14] Will: Yeah,
 
@@ -332,7 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:15:27] Will: There you go. It sounds like a steamer.
 
-[00:15:29] Adam: But Amanda had a fundraiser for a local food bank, and in town at the Vogue Theater in in lovely Vancouver, Vancouver, by the way, gorgeous city. I love it. I've been there a bunch of times, and so she invited me to come do something there. So I found myself backstage with a very eclectic mix of people, including Harrison Lee, this 16-year-old Canadian yo-yo national champion.
+[00:15:29] Adam: But Amanda had a fundraiser for a local food bank, and in town at the Vogue Theater in lovely Vancouver, Vancouver, by the way, gorgeous city. I love it. I've been there a bunch of times, and so she invited me to come do something there. So I found myself backstage with a very eclectic mix of people, including Harrison Lee, this 16-year-old Canadian yo-yo national champion.
 
 [00:15:57] Norm: Ooh.
 
@@ -350,7 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:17:26] Dan: Yes.
 
-[00:17:26] Adam: This this had no this had no punchline. This talk has no punchline, and it includes sentences like this: If you follow a pod of dolphins for long enough, you'll discover that the single most important aspect of dolphin society is the very same thing that prevents them from getting lung cancer. Followed by, what do we really mean by the term sex tourist?
+[00:17:26] Adam: This had no punchline. This talk has no punchline, and it includes sentences like this: If you follow a pod of dolphins for long enough, you'll discover that the single most important aspect of dolphin society is the very same thing that prevents them from getting lung cancer. Followed by, what do we really mean by the term sex tourist?
 
 [00:17:51] Norm: Wow.
 
@@ -358,19 +358,19 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:17:54] Will: You did this at a food bank?
 
-[00:17:55] Adam: I did this. No, I did this at a theater with Al Gore in the audience, a bunch of TED people. And I have to tell you, after the stress of giving of giving so much energy to the talk and releasing it and feeling really good about it, to go up on a stage in front of a friendly crowd. I love Canadian audiences; they're boisterous. I've performed a lot in Canada. To go up in front of a friendly crowd and deliver five minutes of just great stand-up, and it's not real stand-up. I'm not a real stand-up comedian, but this is this is wonderful comedy, beautifully written, and I had real fun delivering it and played with the crowd. It felt like a vac. It felt like a beautiful vacation after the stress of TED.
+[00:17:55] Adam: I did this. No, I did this at a theater with Al Gore in the audience, a bunch of TED people. And I have to tell you, after the stress of giving so much energy to the talk and releasing it and feeling really good about it, to go up on a stage in front of a friendly crowd. I love Canadian audiences; they're boisterous. I've performed a lot in Canada. To go up in front of a friendly crowd and deliver five minutes of just great stand-up, and it's not real stand-up. I'm not a real stand-up comedian, but this is wonderful comedy, beautifully written, and I had real fun delivering it and played with the crowd. It felt like a vac. It felt like a beautiful vacation after the stress of TED.
 
-[00:18:38] Norm: I can't wait for the day that they they have the AI talk that Weyland does in the fake TED commercial for Prometheus. You remember that?
+[00:18:38] Norm: I can't wait for the day that they have the AI talk that Weyland does in the fake TED commercial for Prometheus. You remember that?
 
 [00:18:46] Adam: Oh yeah.
 
 [00:18:46] Norm: [unclear: They go up to Prometheus. They TED work with them / They did after Prometheus, TED worked with them / After Prometheus, did TED work with them]. Yeah, that's one day.
 
-[00:18:50] Adam: One of the great TED fake TED talks when we did it at Sketchfest. I can't remember the comedian's name. I'm really sorry, but it was it was a TED talk as if from 2065. And the title of the talk was " Food." What was it? Because now we all eat Google flavor packs.
+[00:18:50] Adam: One of the great TED fake TED talks when we did it at Sketchfest. I can't remember the comedian's name. I'm really sorry, but it was a TED talk as if from 2065. And the title of the talk was " Food." What was it? Because now we all eat Google flavor packs.
 
-[00:19:07] Will: Did you did you see the gravitational wave talk?
+[00:19:07] Will: Did you see the gravitational wave talk?
 
-[00:19:12] Adam: I did, Alan, who gave that talk. We we we became fast friends, and it was a beautiful talk. And actually, the gravitational waves thing is so thrilling. It's so wonderful, and there was a that was heavily discussed both on stage and backstage.
+[00:19:12] Adam: I did, Alan, who gave that talk. We became fast friends, and it was a beautiful talk. And actually, the gravitational waves thing is so thrilling. It's so wonderful, and there was a that was heavily discussed both on stage and backstage.
 
 [00:19:30] Norm: Timing was right.
 
@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:20:25] Norm: Very after shortly that they built the installation, they found the sound.
 
-[00:20:30] Adam: Well, and and so the the man who followed me, a French mathematician named Cedric Villani, was amazing. I just love Cedric; he's fantastic and gave a wonderful talk. But then afterwards, Chris asked him about the gravitational waves, and he said, " And I can't do it. I would insult him by trying to do his thick thick French accent." But he said, " Einstein himself posited gravitational waves as an adjunct to his theory, but then thought it all the way through and thought, I don't." I don't think so. I I realize the math says these should exist, but I don't think so. And he said, " This is the mark of a beautiful theory that the possibilities that it engenders us to look for go beyond what the original writer [unclear: decreed], the creator of that theory, could have ever conceived of." And that drags science kicking and screaming—not even kicking and screaming—into the realm of art because a good piece of art does the same thing: it transcends its maker, it changes over time, changes culturally, it changes culture.
+[00:20:30] Adam: Well, and so the man who followed me, a French mathematician named Cedric Villani, was amazing. I just love Cedric; he's fantastic and gave a wonderful talk. But then afterwards, Chris asked him about the gravitational waves, and he said, " And I can't do it. I would insult him by trying to do his thick thick French accent." But he said, " Einstein himself posited gravitational waves as an adjunct to his theory, but then thought it all the way through and thought, I don't." I don't think so. I realize the math says these should exist, but I don't think so. And he said, " This is the mark of a beautiful theory that the possibilities that it engenders us to look for go beyond what the original writer [unclear: decreed], the creator of that theory, could have ever conceived of." And that drags science kicking and screaming—not even kicking and screaming—into the realm of art because a good piece of art does the same thing: it transcends its maker, it changes over time, changes culturally, it changes culture.
 
 [00:21:31] Norm: I know there are so many stories from TED, but we do have Dan here.
 
@@ -422,7 +422,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:21:53] Adam: 25 years,
 
-[00:21:56] Dan: and in fact, yes, just kickstarted a compilation of 25 years worth of worth of cartoons, and it's. Two volumes and it weighs 15 pounds,
+[00:21:56] Dan: and in fact, yes, just kickstarted a compilation of 25 years worth of cartoons, and it's. Two volumes and it weighs 15 pounds,
 
 [00:22:07] Adam: almost 1,300 separate cartoons.
 
@@ -430,13 +430,13 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:22:13] Adam: Right, right, right.
 
-[00:22:08] Dan: on top of the weekly cartoon, and continue to do so. Yeah, no, I've been I've been for various reasons that it's not yet time to go into. I've been kind of thinking about the storytelling process because in the in the cartoon, you know, I have this whole cast of characters, I have this whole sort of world going on, but that's always subservient to making a political point. And I've been actually kind of starting to explore turning that around and and and playing with the actual narrative and playing with the actual characters,
+[00:22:08] Dan: on top of the weekly cartoon, and continue to do so. Yeah, no, I've been for various reasons that it's not yet time to go into. I've been kind of thinking about the storytelling process because in the cartoon I have this whole cast of characters, I have this whole sort of world going on, but that's always subservient to making a political point. And I've been actually kind of starting to explore turning that around and playing with the actual narrative and playing with the actual characters,
 
 [00:22:46] Adam: telling a story for its own sake.
 
 [00:22:47] Dan: telling a story for its own sake, which is which I hope to continue to explore because it's actually much more fun. There's a certain there's there's a certain element of of Being involved in in doing this political work every week that's that's actually kind of depressing.
 
-[00:23:07] Will: I mean, especially the last the last what nine months probably.
+[00:23:07] Will: I mean, especially the last what nine months probably.
 
 [00:23:10] Dan: Oh my gosh!
 
@@ -458,9 +458,9 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:23:18] Adam: Yeah.
 
-[00:23:18] Will: Like how I I know I mean I know you work you're working at Daily Kos so your your deadline I'm sure is upload the JPEG and mash the button and and it goes at a specific and and they put it up when they want. Um, but what's your like? How do you what's your what's your cutoff for story? Like, if, if, I’m sure Trump is great. Um,
+[00:23:18] Will: Like how I I know I mean I know you work you're working at Daily Kos so your deadline I'm sure is upload the JPEG and mash the button and it goes at a specific and they put it up when they want. But what's your like? How do you what's your cutoff for story? Like, if, I’m sure Trump is great.
 
-[00:23:39] Dan: no, he's not. This is this is the misconception. But he's a walking cartoon. He's a walking caricature.
+[00:23:39] Dan: no, he's not. This is the misconception. But he's a walking cartoon. He's a walking caricature.
 
 [00:23:44] Adam: I guess it’s true.
 
@@ -476,7 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:24:12] Will: I think everybody feels like that.
 
-[00:24:12] Dan: [unclear: Yeah. So it’s actually], if he's president, that's kind of my biggest nightmare. I mean, you know, as a citizen, as a civilian, as a citizen, but also as a cartoonist,
+[00:24:12] Dan: [unclear: Yeah. So it’s actually] if he's president, that's kind of my biggest nightmare. I mean as a citizen, as a civilian, as a citizen, but also as a cartoonist,
 
 [00:24:21] Will: When Jon Stewart. Jon Stewart's feeling when Obama won, right?
 
@@ -486,13 +486,13 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:24:27] Dan: Yeah,
 
-[00:24:27] Will: I mean, what's your feeling on the on the current like this election is is absolutely bananas. The Bernie Hillary situation on one side, where you have this anti-establishment guy that's been in the Senate for 35 years.
+[00:24:27] Will: I mean, what's your feeling on the current like this election is is absolutely bananas. The Bernie Hillary situation on one side, where you have this anti-establishment guy that's been in the Senate for 35 years.
 
 [00:24:40] Dan: Right.
 
-[00:24:40] Will: And on the other hand, you have the anti-establishment, you know, wife, former first lady, former Secretary of State, you know, she's former senator. She's been in office for for two anti-establishment characters on the Democratic side. They've both been in office for a really long time.
+[00:24:40] Will: And on the other hand, you have the anti-establishment wife, former first lady, former Secretary of State she's former senator. She's been in office for two anti-establishment characters on the Democratic side. They've both been in office for a really long time.
 
-[00:24:59] Dan: Yeah, yeah. No, I just I just did a cartoon. That starts off with a play on the old Vonnegut line. Listen, Sparky the Penguin has come unstuck in time, because I wanted to, which is, which is a play on the opening line in Slaughterhouse Five, because I wanted to. I was just thinking about how how when I was in San Francisco a year ago, I was expecting this sort of very tedious. It seemed preordained. It was going to be Jeb Bush and Hillary Clinton. It was going to be the two dynasties. And I, I, if I, if you, if you put your gun to my head, and it wouldn't do anything because it's a prop replica. But if if you were if I were forced to make a call on it, I would say I still suspect Hillary Clinton ends up with that nomination. But I think Bernie Sanders. I I mean I like his politics. He's forcing her to the left. She just came out today in favor of the public option, which is something that got. Killed in the path to healthcare reform, but it's a way in which the government provides an alternative to for-profit insurers, and it would be a very positive thing. There is no way Hillary Clinton was coming out endorsing this in a campaign if she did not have a threat from her left flank. So you know, it's it's all. I think that's. I think this time of year, primaries make me crazy because everyone hates each other so much, and everyone gets so mad at each other. And I just kind of, at this point, I've been to the rodeo too many times to get too worked up about it.
+[00:24:59] Dan: Yeah, yeah. No, I just did a cartoon. That starts off with a play on the old Vonnegut line. Listen, Sparky the Penguin has come unstuck in time, because I wanted to, which is a play on the opening line in Slaughterhouse Five, because I wanted to. I was just thinking about how how when I was in San Francisco a year ago, I was expecting this sort of very tedious. It seemed preordained. It was going to be Jeb Bush and Hillary Clinton. It was going to be the two dynasties. And I, I, if you put your gun to my head, and it wouldn't do anything because it's a prop replica. But if you were if I were forced to make a call on it, I would say I still suspect Hillary Clinton ends up with that nomination. But I think Bernie Sanders. I mean I like his politics. He's forcing her to the left. She just came out today in favor of the public option, which is something that got. Killed in the path to healthcare reform, but it's a way in which the government provides an alternative to for-profit insurers, and it would be a very positive thing. There is no way Hillary Clinton was coming out endorsing this in a campaign if she did not have a threat from her left flank. So it's all. I think that's. I think this time of year, primaries make me crazy because everyone hates each other so much, and everyone gets so mad at each other. And I just kind of, at this point, I've been to the rodeo too many times to get too worked up about it.
 
 [00:26:31] Adam: You know what the Overton window is, right?
 
@@ -506,13 +506,13 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:27:09] Unknown speaker: A socialist.
 
-[00:27:10] Adam: Well, that's the thing is that Bernie has been moving the the democratic overton window over to the other side, and it's a pleasure to watch.
+[00:27:10] Adam: Well, that's the thing is that Bernie has been moving the democratic overton window over to the other side, and it's a pleasure to watch.
 
-[00:27:17] Dan: And and that that is the point. So I have 2016 Sparky popping in on 2014 Sparky, and 2014 Sparky says, " Oh, so how tedious is it?" And 2016 Sparky says, " Well, actually."
+[00:27:17] Dan: And that that is the point. So I have 2016 Sparky popping in on 2014 Sparky, and 2014 Sparky says, " Oh, so how tedious is it?" And 2016 Sparky says, " Well, actually."
 
 [00:27:29] Adam: That’s great.
 
-[00:27:17] Dan: Except then he says, " Yeah." When he says that Jeb has dropped out, I had to rewrite it yesterday at the last minute. But he he says Jeb has dropped out, and it's entirely possible the Republican nominee will be. And earlier Sparky says Carly Fiorina, a Scott Walker, and he says Donald Trump, and then there's a pause, and 2014 says, " Excuse me." 2014 Sparky says, " Maybe you're from a dystopian alternate timeline, which we may be living in."
+[00:27:17] Dan: Except then he says, " Yeah." When he says that Jeb has dropped out, I had to rewrite it yesterday at the last minute. But he says Jeb has dropped out, and it's entirely possible the Republican nominee will be. And earlier Sparky says Carly Fiorina, a Scott Walker, and he says Donald Trump, and then there's a pause, and 2014 says, " Excuse me." 2014 Sparky says, " Maybe you're from a dystopian alternate timeline, which we may be living in."
 
 [00:28:02] Will: Fascist versus socialist, who knows?
 
@@ -522,39 +522,39 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:28:10] Adam: I don't, I can't afford to live in Vancouver. Vancouver is, by the way, as expensive as San Francisco.
 
-[00:28:16] Will: The thing, the thing I always joke about going up the West Coast is get each city is cleaner than the one further south.
+[00:28:16] Will: The thing I always joke about going up the West Coast is get each city is cleaner than the one further south.
 
 [00:28:20] Adam: Oh, by all means,
 
 [00:28:20] Will: yeah. So yeah, Portland and
 
-[00:28:23] Adam: And Canada is just a great country. I, I saw, I saw Aaron Douglas while I was there. We had we had drinks one night. Aaron Douglas played Chief on Battlestar Galactica.
+[00:28:23] Adam: And Canada is just a great country. I saw Aaron Douglas while I was there. We had drinks one night. Aaron Douglas played Chief on Battlestar Galactica.
 
 [00:28:31] Dan: Oh, okay.
 
-[00:28:32] Adam: He's a friend of Tested. He's been on our on our one day builds.
+[00:28:32] Adam: He's a friend of Tested. He's been on our one day builds.
 
-[00:28:36] Norm: Dan, when you see one of your comics like get spread around on Twitter, you know, I think like the gun violence one, for example.
+[00:28:36] Norm: Dan, when you see one of your comics like get spread around on Twitter I think like the gun violence one, for example.
 
 [00:28:42] Dan: Yeah, every time. Well, that one I have mixed feelings about. I've done a couple cartoons about mass shootings and gun violence that have sort of become the iconic thing that gets passed around every time. But it'd get passed around every time there's another horrible act of gun violence, so I I just kind of shudder when I see it.
 
-[00:29:00] Norm: And I imagine, as a storyteller, I mean that. That one strip tells one point of view when you wrote it then, and you have a whole contextual, you know, narrative, and there is a whole history of other strips you've done, maybe on the similar topics. Like, how do you feel about one thing being identified and not the whole story being told?
+[00:29:00] Norm: And I imagine, as a storyteller, I mean that. That one strip tells one point of view when you wrote it then, and you have a whole contextual narrative, and there is a whole history of other strips you've done, maybe on the similar topics. Like, how do you feel about one thing being identified and not the whole story being told?
 
-[00:29:17] Dan: Well, it's it's each cartoon is sort of a you know how a, a, a hologram contains the
+[00:29:17] Dan: Well, it's each cartoon is sort of a you know how a hologram contains the
 
 [00:29:25] Adam: the multitude
 
-[00:29:26] Dan: the entire thing in each segment of it. If you break it apart or whatever, that's that's what I feel about these cartoons. They may not obviously represent the entirety of my of my thinking or whatever, but they they tend to represent pretty well. You know, they tend to be a piece of it that represents the the the larger vision, the larger the larger idea. I mean, I just as I say, I just put out, I just kickstarted this book. We had a very very very happily successful Kickstarter over the summer, so I, I’ve just put out this gigantic thing that is. Finally, just shipping this week, so it's been on my mind. We had to; it's 15 pounds. We had to construct a special box.
+[00:29:26] Dan: the entire thing in each segment of it. If you break it apart or whatever, that's what I feel about these cartoons. They may not obviously represent the entirety of my thinking or whatever, but they tend to represent pretty well. They tend to be a piece of it that represents the larger vision, the larger idea. I mean, I just as I say, I just put out, I just kickstarted this book. We had a very very very happily successful Kickstarter over the summer, so I, I’ve just put out this gigantic thing that is. Finally, just shipping this week, so it's been on my mind. We had to; it's 15 pounds. We had to construct a special box.
 
 [00:30:07] Adam: Oh my gosh!
 
-[00:30:08] Dan: Because it’s like This bundle of energy that is just waiting to [unclear: rip / rip, to rip] the slipcover apart if you if you don't have it contained properly. And and reading over, I had to read over everything I've ever written, which was a a task. I wasn't sure when I went into that project, like almost two years ago, if I was going to just want to to burn it all and then sort of maybe salt the earth around it to make sure that no one ever saw it. But it it mostly, I think, it really actually holds up even the earlier stuff. And I think the reason it holds up is that I've always got. I’m, I’m thinking about the immediate moment, but I'm also kind of thinking about how this is going to read a year from now or something when the when the whatever the specific topic is has has been forgotten.
+[00:30:08] Dan: Because it’s like This bundle of energy that is just waiting to [unclear: rip / rip, to rip] the slipcover apart if you don't have it contained properly. And reading over, I had to read over everything I've ever written, which was a task. I wasn't sure when I went into that project, like almost two years ago, if I was going to just want to burn it all and then sort of maybe salt the earth around it to make sure that no one ever saw it. But it mostly, I think, it really actually holds up even the earlier stuff. And I think the reason it holds up is that I've always got. I’m thinking about the immediate moment, but I'm also kind of thinking about how this is going to read a year from now or something when the whatever the specific topic is has has been forgotten.
 
 [00:30:56] Norm: It's useful to be. oh, sorry.
 
 [00:30:58] Adam: I was going to say, do you come across other political cartoonists like Trudeau or various people where they have a take that you're like. Oh, I wish I'd thought.
 
-[00:31:05] Dan: Oh God! Every week, all the time, and I'm not mentioning any names, but yes, all the time, all the time.
+[00:31:05] Dan: Oh God! Every week, all the time, and I'm not mentioning any names, but yes, all the time.
 
 [00:31:11] Adam: You must. I mean, it goes both ways too. I'm sure some of them reach out to you and be like, " oh, nice one."
 
@@ -568,11 +568,11 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:31:25] Unknown speaker: Of course.
 
-[00:31:25] Dan: and that was that was interesting to me. Maybe not to anyone else, but I did annotate a lot of the cartoons in that also.
+[00:31:25] Dan: and that was interesting to me. Maybe not to anyone else, but I did annotate a lot of the cartoons in that also.
 
-[00:31:46] Will: What was your What was your favorite? Like going back and with a fresh look at everything, what was your favorite time period? Who? What was the most interesting time period to work in?
+[00:31:46] Will: What was your favorite? Like going back and with a fresh look at everything, what was your favorite time period? Who? What was the most interesting time period to work in?
 
-[00:31:53] Dan: Um, I'd like to say that the current moment is always the most interesting one, but looking back at it, the The the early days, the build up to the Iraq War, and the early years of the Iraq War, and the Bush administration were, were, were a horrible moment. I mean, I I got so many like threats and and so much vitriol and abuse, and it was this very very divided moment in in the country, and it was not something I would look forward to living through again. But the work is really strong.
+[00:31:53] Dan: I'd like to say that the current moment is always the most interesting one, but looking back at it, the early days, the build up to the Iraq War, and the early years of the Iraq War, and the Bush administration were a horrible moment. I mean, I I got so many like threats and so much vitriol and abuse, and it was this very very divided moment in the country, and it was not something I would look forward to living through again. But the work is really strong.
 
 [00:32:31] Adam: That's fascinating.
 
@@ -580,7 +580,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:32:34] Unknown speaker: but that's the, this is what's lovely. [unclear: People should check it out].
 
-[00:32:36] Adam: Yeah. This is the other question I have: is there is there a subject when you went back over that you can't believe you didn't cover? Or like a person like NSYNC you never made it into my comics.
+[00:32:36] Adam: Yeah. This is the other question I have: is there a subject when you went back over that you can't believe you didn't cover? Or like a person like NSYNC you never made it into my comics.
 
 [00:32:46] Dan: Yes, exactly. That's the one.
 
@@ -588,7 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:32:50] Dan: I mean, it's like you read my mind.
 
-[00:32:55] Unknown speaker: I think that's, that's.
+[00:32:55] Unknown speaker: I think that's.
 
 [00:32:57] Adam: That's hilarious.
 

@@ -10,31 +10,31 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:00:03] Norm: And I'm Norm Chan.
 
-[00:00:04] Will: Hey, uh, this is a really big gun.
+[00:00:04] Will: Hey this is a really big gun.
 
 [00:00:07] Adam: We've got, we've all got guns.
 
 [00:00:08] Will: Yeah, I mean,
 
-[00:00:09] Norm: Well, let's let's treat them like guns. People people did also call out in, uh, the one-day build video that when you're waving that blaster around,
+[00:00:09] Norm: Well, let's let's treat them like guns. People people did also call out in the one-day build video that when you're waving that blaster around,
 
 [00:00:18] Adam: Now,
 
 [00:00:19] Norm: your finger's on the trigger.
 
-[00:00:20] Adam: Yes. So, okay, then let me address that very specifically. I um I do not have. Yeah, there it is. It's pointing to you. Right.
+[00:00:20] Adam: Yes. So, okay, then let me address that very specifically. I do not have. Yeah, there it is. It's pointing to you. Right.
 
 [00:00:29] Will: Why are you pointing that gun at me, Norm?
 
-[00:00:30] Adam: So um I do not own a working pistol. I do not own a working gun. We have a bunch for MythBusters. Um, I have a gun license, and I own a couple of pistols. They're both they've both been demilled, and there are parts of them are in here. So in the middle of this is a Bulldog 44 caliber. Um, but the firing pin has been removed. You cannot, uh, and the barrel extension that I have for it is such that you couldn't actually put a a bullet into this thing. Uh, you would not be able to get it to fire. So for me, I am. It's true. Kind of dumbly cavalier in here because it's kind of like a playroom, and I think of it like a playroom.
+[00:00:30] Adam: So I do not own a working pistol. I do not own a working gun. We have a bunch for MythBusters. I have a gun license, and I own a couple of pistols. They're both they've both been demilled, and there are parts of them are in here. So in the middle of this is a Bulldog 44 caliber. But the firing pin has been removed. You cannot and the barrel extension that I have for it is such that you couldn't actually put a bullet into this thing. You would not be able to get it to fire. So for me, I am. It's true. Kind of dumbly cavalier in here because it's kind of like a playroom, and I think of it like a playroom.
 
-[00:01:07] Norm: But you know, even if you think of it like a playroom in your fantasy, when you are holding a prop gun, uh, when I hold a prop gun and I treat it like a real gun, that enhances the fantasy.
+[00:01:07] Norm: But even if you think of it like a playroom in your fantasy, when you are holding a prop gun when I hold a prop gun and I treat it like a real gun, that enhances the fantasy.
 
-[00:01:16] Adam: It totally does. It totally does. And, um, you know, the armorer that we work with a lot, Alexander Jason, um, would castigate me for swinging the the pistol around, And I, I appreciate those comments. That is absolutely something that I'll think about the next time we're we're waving them around. But all of these guns are fake. This is my, um, cheap all-metal airsoft replica of Jules's gun from Pulp Fiction. Now I know that it's not correct because this is a
+[00:01:16] Adam: It totally does. It totally does. And you know, the armorer that we work with a lot, Alexander Jason would castigate me for swinging the pistol around, And I, I appreciate those comments. That is absolutely something that I'll think about the next time we're waving them around. But all of these guns are fake. This is my cheap all-metal airsoft replica of Jules's gun from Pulp Fiction. Now I know that it's not correct because this is a
 
 [00:01:40] Will: Norman Chan. Good God, stop pointing that at me!
 
-[00:01:42] Adam: It's a, um, it is a, uh, this is effectively a Colt 1911 frame. Um, in fact, Jules's gun from Pulp Fiction is while it looks like a .45 caliber, and he says Mister nine millimeter here.
+[00:01:42] Adam: It's a it is a this is effectively a Colt 1911 frame. In fact, Jules's gun from Pulp Fiction is while it looks like a .45 caliber, and he says Mister nine millimeter here.
 
 [00:01:57] Will: Yeah.
 
@@ -46,9 +46,9 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:02:41] Norm: One's passable as the other.
 
-[00:02:42] Adam: Yeah. Oh, absolutely. And it's it's one of my unrealized plans, and I want to do this one day is to just is to actually buy a real. Excuse me, my Diet Coke is making me burp. Um, is to buy a real Star Model B chrome and put some real military style pearl mother of pearl handles on it and make a real Jules gun.
+[00:02:42] Adam: Yeah. Oh, absolutely. And it's one of my unrealized plans, and I want to do this one day is to just is to actually buy a real. Excuse me, my Diet Coke is making me burp. Is to buy a real Star Model B chrome and put some real military style pearl mother of pearl handles on it and make a real Jules gun.
 
-[00:03:02] Will: I learned something fascinating this morning thanks to the internet. I learned that. And this should have occurred to me before, but but I never watched Pulp Fiction Kill Bill back to back. And when Uma Thurman is describing Fox Force Five in Pulp Fiction,
+[00:03:02] Will: I learned something fascinating this morning thanks to the internet. I learned that. And this should have occurred to me before, but I never watched Pulp Fiction Kill Bill back to back. And when Uma Thurman is describing Fox Force Five in Pulp Fiction,
 
 [00:03:16] Unknown speaker: Yeah.
 
@@ -66,19 +66,19 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:03:33] Norm: His Hanzo sword.
 
-[00:03:34] Will: Yeah, that's what that's what the internet told me. I don't know if it's true. I'll have to go back and watch Pulp Fiction and Kill Bill as a result.
+[00:03:34] Will: Yeah, that's what the internet told me. I don't know if it's true. I'll have to go back and watch Pulp Fiction and Kill Bill as a result.
 
 [00:03:39] Adam: Interesting.
 
 [00:03:41] Will: Yes,
 
-[00:03:41] Norm: it's really good. Um, is it the anniversary of Pulp Fiction or something this year?
+[00:03:41] Norm: it's really good. Is it the anniversary of Pulp Fiction or something this year?
 
 [00:03:46] Will: 1993 to yes, 20th anniversary.
 
-[00:03:47] Norm: 20th anniversary. There's a really great um story online that's just a just the the history of Pulp Fiction, how it was made, and
+[00:03:47] Norm: 20th anniversary. There's a really great story online that's just a just the history of Pulp Fiction, how it was made, and
 
-[00:03:54] Adam: um I've been reading a lot about it lately. I guess the Wikipedia page and the IMDb page both have beautiful long lists of interesting facts, and I mean. I, my wife and I watch Pulp Fiction. We end up watching it like once a year.
+[00:03:54] Adam: I've been reading a lot about it lately. I guess the Wikipedia page and the IMDb page both have beautiful long lists of interesting facts, and I mean. I, my wife and I watch Pulp Fiction. We end up watching it like once a year.
 
 [00:04:08] Will: Yeah, so do we.
 
@@ -100,13 +100,13 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:04:27] Adam: And then we watched it again together because they felt so guilty. They know how important and how influential that movie is for me.
 
-[00:04:35] Will: Oh, for for me that was that was the first time. I mean, I'd seen. I love Star Wars and I love Indiana Jones and all that. But I was a freshman in college that year, and it was a an absolute revelation about what film could be for me.
+[00:04:35] Will: Oh, for me that was the first time. I mean, I'd seen. I love Star Wars and I love Indiana Jones and all that. But I was a freshman in college that year, and it was a an absolute revelation about what film could be for me.
 
 [00:04:47] Adam: so important. Yeah. I mean, you. I walked out of the movie theater just thinking something really important just happened to me.
 
-[00:04:53] Will: Yeah, I don't know what I don't know I don't know what that movie was, but I want to watch it again, and I want to I want more like this.
+[00:04:53] Will: Yeah, I don't know what that movie was, but I want to watch it again, and I want to I want more like this.
 
-[00:04:58] Adam: And every time I watch it, something new happens, or I just like, oh, I love I love watching this progress. You know the first close-up of the movie, Jules is looking over at at Brett. You know, while sipping his soda, and that look in his eyes. I just purchased, uh, from the Replica Prop Forum, a, a really nice replica of the briefcase.
+[00:04:58] Adam: And every time I watch it, something new happens, or I just like, oh, I love watching this progress. You know the first close-up of the movie, Jules is looking over at at Brett. While sipping his soda, and that look in his eyes. I just purchased from the Replica Prop Forum, a really nice replica of the briefcase.
 
 [00:05:18] Will: Oh, okay.
 
@@ -118,11 +118,11 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:05:21] Unknown speaker: Okay.
 
-[00:05:21] Adam: I, I actually just got the LED strip lights from Amazon plus the dimmers.
+[00:05:21] Adam: I actually just got the LED strip lights from Amazon plus the dimmers.
 
 [00:05:27] Will: We will, let's do a video of that.
 
-[00:05:28] Adam: Oh yeah, yeah, no, and I actually I have an interesting idea for it, which is, um, I of course I'm going to make it glowy. Toying around with how to make the glow when you look at it something beautiful that would also be a little difficult to describe. Like I want to achieve.
+[00:05:28] Adam: Oh yeah, yeah, no, and I actually I have an interesting idea for it, which is I of course I'm going to make it glowy. Toying around with how to make the glow when you look at it something beautiful that would also be a little difficult to describe. Like I want to achieve.
 
 [00:05:45] Will: Seems like it should be like a hologram or something.
 
@@ -130,7 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:05:57] Will: Maybe a huge kaleidoscope that just keeps turning and makes you know.
 
-[00:06:01] Adam: Believe me, I've been thinking about all of these things. Um, so but I brought it home. And I showed it to my son, Thing Two, and he goes, " What is that?" And I said, " I've been through too much. I've been through too much shit this morning just to hand this over to your dumbass." And he goes, " Oh, Pulp Fiction," and that's like now I love having kids. We can all watch the movies together.
+[00:06:01] Adam: Believe me, I've been thinking about all of these things. So but I brought it home. And I showed it to my son, Thing Two, and he goes, " What is that?" And I said, " I've been through too much. I've been through too much shit this morning just to hand this over to your dumbass." And he goes, " Oh, Pulp Fiction," and that's like now I love having kids. We can all watch the movies together.
 
 [00:06:22] Will: I'm have to go home and show the baby Pulp Fiction. I wonder what she'll think.
 
@@ -138,31 +138,31 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:06:27] Will: dad of the year.
 
-[00:06:28] Adam: So if, um, I think we should explain that we started out thinking, and this is a segue about in movie influences, because it's a question that came up.
+[00:06:28] Adam: So if I think we should explain that we started out thinking, and this is a segue about in movie influences, because it's a question that came up.
 
 [00:06:37] Will: Yeah.
 
-[00:06:38] Adam: and we we jumped sort of right into it unwitting. Well, with the movie guns
+[00:06:38] Adam: and we jumped sort of right into it unwitting. Well, with the movie guns
 
 [00:06:42] Will: that didn't happen by accident, Adam.
 
-[00:06:43] Adam: No, no, it didn't. But but in the end, we didn't segue out. Well, we normally do.
+[00:06:43] Adam: No, no, it didn't. But in the end, we didn't segue out. Well, we normally do.
 
-[00:06:48] Will: You know, the the defining characteristic of the podcast, as far as I'm concerned, is that you can't let a perfect segue go without mentioning how perfect the segue was.
+[00:06:48] Will: You know, the defining characteristic of the podcast, as far as I'm concerned, is that you can't let a perfect segue go without mentioning how perfect the segue was.
 
-[00:06:56] Adam: So, uh, uh, uh, Pulp Fiction. Pulp Fiction's way up at the top of my list. Um, you know the thing I said a while back, which is that everyone's got at least 50 films in their top 10. The fact is, is Pulp Fiction's in in Pulp Fiction is not one of those 50. It is one of the 10.
+[00:06:56] Adam: So Pulp Fiction. Pulp Fiction's way up at the top of my list. You know the thing I said a while back, which is that everyone's got at least 50 films in their top 10. The fact is, is Pulp Fiction's in Pulp Fiction is not one of those 50. It is one of the 10.
 
 [00:07:16] Will: Yeah, the real 10.
 
-[00:07:16] Adam: Yeah, the real 10. It it's so vital. It's so unique. You know, Tarantino's the formula he's been playing with for Inglourious Basterds and for Django, which is take somebody or take a group of people, take these characters who are super badass and put them in the worst situation imaginable. I love the simplicity of that as an exercise, but Pulp Fiction is a totally different plot, right?
+[00:07:16] Adam: Yeah, the real 10. It it's so vital. It's so unique. Tarantino's the formula he's been playing with for Inglourious Basterds and for Django, which is take somebody or take a group of people, take these characters who are super badass and put them in the worst situation imaginable. I love the simplicity of that as an exercise, but Pulp Fiction is a totally different plot, right?
 
 [00:07:43] Will: I mean, three.
 
 [00:07:44] Adam: It's three plots. It's all these playing around with a gangster movie and playing around with what happens after the normal plot of a gangster movie.
 
-[00:07:49] Norm: Yeah. The gang, the the mob boss's guy takes his the mob boss girlfriend out.
+[00:07:49] Norm: Yeah. The gang, the mob boss's guy takes his the mob boss girlfriend out.
 
-[00:07:54] Adam: Yeah, the hitman on a hit, but you spend the rest of the morning with them. Uh, but it's it just it never doesn't. Thrill me to sit through that movie, and moreover, I've watched the DVD extras a couple of times, in which Tarantino includes. I love him.
+[00:07:54] Adam: Yeah, the hitman on a hit, but you spend the rest of the morning with them. But it's it just it never doesn't. Thrill me to sit through that movie, and moreover, I've watched the DVD extras a couple of times, in which Tarantino includes. I love him.
 
 [00:08:11] Will: Are you an Elvis man or a Beatles man?
 
@@ -172,31 +172,31 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:08:29] Adam: Yeah, that stays in the movie, and Tarantino's brilliance is understanding that's all that all he needed to communicate all the rest of that conversation.
 
-[00:08:39] Will: Yeah, it's it's it's it's like a compressed version of that of that 10 minute conversation. the The thing about um, the thing about movies to me is that a movie like Pulp Fiction, especially, I come back to at different times in my life, and I and I take take away completely different things.
+[00:08:39] Will: Yeah, it's like a compressed version of that 10 minute conversation. the thing about movies to me is that a movie like Pulp Fiction, especially, I come back to at different times in my life, and I take take away completely different things.
 
 [00:08:56] Adam: Yep.
 
-[00:08:56] Will: When I first saw it, and I was 20 years old, 18 years old, the the Jules the the part that stuck with me was the Hitman, the Hitman arc. As I get older, the Butch arc is is I I I feel for Butch. Butch has Butch has made bad choices and has had a hard life and is put in an impossible situation.
+[00:08:56] Will: When I first saw it, and I was 20 years old, 18 years old, the Jules the part that stuck with me was the Hitman arc. As I get older, the Butch arc is is I I I feel for Butch. Butch has made bad choices and has had a hard life and is put in an impossible situation.
 
-[00:09:13] Adam: But and and
+[00:09:13] Adam: But and
 
 [00:09:14] Will: After impossible situation.
 
 [00:09:15] Adam: And how amazing is it that you know there's the scenes between him and what's his girlfriend's name?
 
-[00:09:21] Will: Uh, um, the French woman.
+[00:09:21] Will: The French woman.
 
-[00:09:23] Adam: Yeah. But the scenes between him and her are are so sweet. They're so loving, and they feel so intimate to be there.
+[00:09:23] Adam: Yeah. But the scenes between him and her are so sweet. They're so loving, and they feel so intimate to be there.
 
 [00:09:33] Will: Even when he's livid, even when he is losing his mind about the watch, you he's there's she is afraid of him. He's a violent, very strong man. She's a tiny little woman.
 
 [00:09:42] Adam: Yeah.
 
-[00:09:43] Will: And and he's there's still love.
+[00:09:43] Will: And he's there's still love.
 
-[00:09:45] Adam: There's still a real sweetness about it, and the fact that you could watch it repeatedly and it's never it's never boring. You know that Julia when he's like, uh, and she it's a thing between my wife and I when when you know where one of us is doing a bad impression, the other one goes. I hate that stupid mongoloid voice you make. I mean, pulp fiction is. Full of one-liners that are almost a constant stream of one-liners in my relationship with my wife because we're both film addicts. We love great films, and really specifically, we love watching them together, pausing, talking about them, keeping going, rewinding, watching things, analyzing them, breaking them down. And and pulp fiction's just—it's never—it's always thrilling.
+[00:09:45] Adam: There's still a real sweetness about it, and the fact that you could watch it repeatedly and it's never boring. You know that Julia when he's like and she it's a thing between my wife and I when you know where one of us is doing a bad impression, the other one goes. I hate that stupid mongoloid voice you make. I mean, pulp fiction is. Full of one-liners that are almost a constant stream of one-liners in my relationship with my wife because we're both film addicts. We love great films, and really specifically, we love watching them together, pausing, talking about them, keeping going, rewinding, watching things, analyzing them, breaking them down. And pulp fiction's just—it's never—it's always thrilling.
 
-[00:10:32] Will: The thing we do is we'll play board games, and the background—the background for the board game when the other because you play a board game, you have to think about it. The worst thing in the world is waiting for the other person to take their turn.
+[00:10:32] Will: The thing we do is we'll play board games, and the background for the board game when the other because you play a board game, you have to think about it. The worst thing in the world is waiting for the other person to take their turn.
 
 [00:10:42] Unknown speaker: Yeah.
 
@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:10:48] Will: Well, first off, we have to do the movie list. We promised this like a year ago now.
 
-[00:10:51] Adam: We did, and it was it was silly. So, so because in honor of the Oscars happening somewhere close to this, podcast.
+[00:10:51] Adam: We did, and it was silly. So, so because in honor of the Oscars happening somewhere close to this, podcast.
 
 [00:10:58] Will: maybe a week ago, yeah, something like that.
 
@@ -220,7 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:11:11] Adam: Perfect.
 
-[00:11:11] Will: And then, then maybe say May.
+[00:11:11] Will: And then maybe say May.
 
 [00:11:13] Adam: And I think the trick is let's each choose. We'll do this afterwards. We'll each choose two movies the others haven't seen.
 
@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:11:28] Will: Yes.
 
-[00:11:28] Adam: In general, you know, it's funny. I went through this phase in my early 20s when I moved out here to San Francisco. I was 23, and I've been here. I've been here 22 years. I was
+[00:11:28] Adam: In general it's funny. I went through this phase in my early 20s when I moved out here to San Francisco. I was 23, and I've been here. I've been here 22 years. I was
 
 [00:11:43] Will: Catches— creeps up on you, doesn't it?
 
@@ -250,7 +250,7 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:11:52] Will: was when I was in college or high school, probably
 
-[00:11:54] Adam: Maybe a little later. At any rate, I remember sitting watching Joy Luck Club and being quite moved by it. Um, my father was ill. He is, uh, my dad Passed away in '99 of Alzheimer's after a really long and terrible bout with it. And anyone who has gone through that; it's just unforgiving and terrible thing to go through. Uh, and Joy Luck Club, which is about family heritage and about lineage and about mothers and daughters, but you know, easily transferable in my mind to fathers and sons, really affected me emotionally. But I remember specifically being in the theater and being mad that I was being manipulated, right? Like, oh, movies, they just manipulate your emotions; it's not real. And now I am like, manipulate my emotions, please. I need some of that.
+[00:11:54] Adam: Maybe a little later. At any rate, I remember sitting watching Joy Luck Club and being quite moved by it. My father was ill. He is my dad Passed away in '99 of Alzheimer's after a really long and terrible bout with it. And anyone who has gone through that; it's just unforgiving and terrible thing to go through. And Joy Luck Club, which is about family heritage and about lineage and about mothers and daughters, but easily transferable in my mind to fathers and sons, really affected me emotionally. But I remember specifically being in the theater and being mad that I was being manipulated, right? Like, oh, movies, they just manipulate your emotions; it's not real. And now I am like, manipulate my emotions, please. I need some of that.
 
 [00:12:40] Norm: I can't need to feel something.
 
@@ -264,9 +264,9 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:12:57] Adam: Oh, I mean, I'm not so sure about that.
 
-[00:12:58] Will: Not, not anything. The the kids thing is take the kids thing off the table because that there's there's strong potential for emotion there that I am just discovering.
+[00:12:58] Will: Not, not anything. The kids thing is take the kids thing off the table because that there's there's strong potential for emotion there that I am just discovering.
 
-[00:13:06] Norm: But but
+[00:13:06] Norm: But
 
 [00:13:06] Will: on a day to day basis. Nothing has the intensity that everything had when you were in a sophomore in high school.
 
@@ -276,9 +276,9 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:13:17] Adam: This is actually, I'm going to segue from movies to television and briefly talk about Joss Whedon's brilliance with Buffy. In that the brilliance of Buffy, and this was this I read this in an essay by an old friend of my wife's named Joshua Clover. I think it's his essay about how the fact that Buffy takes those feelings of life and death and makes them actually life and death.
 
-[00:13:41] Will: I've got to watch Buffy. I've never watched Buffy. My my confession.
+[00:13:41] Will: I've got to watch Buffy. I've never watched Buffy. My confession.
 
-[00:13:43] Adam: Uh, in Buffy, you sleep with the guy and he wakes up and he's actually a demon.
+[00:13:43] Adam: In Buffy, you sleep with the guy and he wakes up and he's actually a demon.
 
 [00:13:49] Norm: It's like the worst morning after ever.
 
@@ -302,7 +302,7 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:14:15] Norm: It's things that are so relatable in a fantastic way.
 
-[00:14:18] Adam: Totally. Um. So going back to the to movie influences,
+[00:14:18] Adam: Totally. So going back to the to movie influences,
 
 [00:14:22] Will: we've talked about Raiders a ton.
 
@@ -312,13 +312,13 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:14:34] Adam: Right.
 
-[00:14:34] Will: I don't I don't remember which one I've seen and which one's the one to watch. I know.
+[00:14:34] Will: I don't remember which one I've seen and which one's the one to watch. I know.
 
-[00:14:38] Adam: There's only there's only two to see.
+[00:14:38] Adam: There's only two to see.
 
-[00:14:39] Norm: You watched in theaters when you worked, uh,
+[00:14:39] Norm: You watched in theaters when you worked
 
-[00:14:41] Adam: Yeah, yeah. I worked at the 8th Street Playhouse in New York in the mid '80s, and Brazil that was where Brazil had its, uh, seven month run, and so I sat through it probably once a day.
+[00:14:41] Adam: Yeah, yeah. I worked at the 8th Street Playhouse in New York in the mid '80s, and Brazil that was where Brazil had its seven month run, and so I sat through it probably once a day.
 
 [00:14:50] Will: Okay.
 
@@ -326,41 +326,41 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:14:54] Will: That's a lot of Brazil.
 
-[00:14:55] Adam: That's a lot of Brazil. Uh, it remains one of the most sort of primordial influences for me, and it's so beautiful. It is so beautiful. It is Terry Gilliam's. Is so smart about the way he makes that movie. First of all, the effects are beautiful.
+[00:14:55] Adam: That's a lot of Brazil. It remains one of the most sort of primordial influences for me, and it's so beautiful. It is so beautiful. It is Terry Gilliam's. Is so smart about the way he makes that movie. First of all, the effects are beautiful.
 
 [00:15:12] Will: Smart about all of his movies,
 
-[00:15:13] Adam: yeah. No, no, no. I know, I know. Um, but this was the one that, like, and I grew up in in school loving Time Bandits. Here is the thing about Brazil and the effects; they're all in camera. They're all miniatures and forced perspective. The the the Jonathan Pryce when he's flying, they built a puppet with a motorized wings that they put lead in the arms of, and then filmed with a high frame rate camera so that when they slowed it down, you could see the momentum of the wings working against the hands. Yeah, that's not stop motion animation. That's all. That's live action shot at high speed.
+[00:15:13] Adam: yeah. No, no, no. I know. But this was the one that and I grew up in school loving Time Bandits. Here is the thing about Brazil and the effects; they're all in camera. They're all miniatures and forced perspective. The Jonathan Pryce when he's flying, they built a puppet with a motorized wings that they put lead in the arms of, and then filmed with a high frame rate camera so that when they slowed it down, you could see the momentum of the wings working against the hands. Yeah, that's not stop motion animation. That's all. That's live action shot at high speed.
 
-[00:15:51] Will: They used a lot of weird stuff too, like the lenticular, the the the refracting screens you used to put in front of your television. Yeah, were kind of all over
+[00:15:51] Will: They used a lot of weird stuff too, like the lenticular, the refracting screens you used to put in front of your television. Yeah, were kind of all over
 
 [00:15:57] Adam: that kind of. And I
 
 [00:15:58] Will: Think you have one up there somewhere.
 
-[00:16:00] Adam: I I do.
+[00:16:00] Adam: I do.
 
 [00:16:00] Will: As I recall.
 
-[00:16:01] Adam: the the the. Brazil came out very close to the same, if not the same year, that the first Batman movie came out. Tim Burton's Batman
+[00:16:01] Adam: the. Brazil came out very close to the same, if not the same year, that the first Batman movie came out. Tim Burton's Batman
 
 [00:16:10] Norm: '89.
 
 [00:16:10] Will: I love the first Batman movie.
 
-[00:16:12] Adam: See, I didn't because and and Anton Furst got a lot of attention for that, and he's a wonderful production designer. But I felt that the execution of Batman paled in comparison to the execution of Brazil. I thought that the shots of Gotham, which were all composite shots, didn't make me feel like I was in there. Whereas in Brazil, I felt I was in that in that space in that city.
+[00:16:12] Adam: See, I didn't because and Anton Furst got a lot of attention for that, and he's a wonderful production designer. But I felt that the execution of Batman paled in comparison to the execution of Brazil. I thought that the shots of Gotham, which were all composite shots, didn't make me feel like I was in there. Whereas in Brazil, I felt I was in that space in that city.
 
-[00:16:34] Will: So for me, the composite shots made me made it feel more like a real place to me than than which I know is is kind of counterintuitive. But I looked at, I was like, oh, this is the most amazing. This is this is the gothic gothiciest gothic place I've ever seen.
+[00:16:34] Will: So for me, the composite shots made me made it feel more like a real place to me than than which I know is is kind of counterintuitive. But I looked at, I was like, oh, this is the most amazing. This is the gothic gothiciest gothic place I've ever seen.
 
 [00:16:48] Adam: Quality to it,
 
 [00:16:49] Will: yeah. It was it felt more like the what I was expecting, I guess.
 
-[00:16:52] Adam: Well, so and this this actually segues nicely to what I think of as a key thing about film influence is that you can never predict what your deal breakers are going to be.
+[00:16:52] Adam: Well, so and this actually segues nicely to what I think of as a key thing about film influence is that you can never predict what your deal breakers are going to be.
 
 [00:17:01] Will: Yeah,
 
-[00:17:01] Adam: right. Like you were just before we started, you were talking about the the new, um, Total Recall. I never really liked the first Total Recall. I know that's slightly blasphemous, but I never thought much of the first one.
+[00:17:01] Adam: right. Like you were just before we started, you were talking about the new Total Recall. I never really liked the first Total Recall. I know that's slightly blasphemous, but I never thought much of the first one.
 
 [00:17:13] Will: Charming.
 
@@ -370,9 +370,9 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:17:18] Adam: they try and create a whole world and they just don't quite and it doesn't feel quite big enough.
 
-[00:17:23] Will: If that movie had had, if that movie had come out five years later when it wasn't when Arnold wasn't making those kinds of movies, when somebody who who wasn't a gigantic muscle guy was making those movies, not that I don't love Arnold, but but it was there was a for me there's a weird schism between Arnold Schwarzenegger and a kind of medium smart science fiction movie.
+[00:17:23] Will: If that movie had had, if that movie had come out five years later when it wasn't when Arnold wasn't making those kinds of movies, when somebody who who wasn't a gigantic muscle guy was making those movies, not that I don't love Arnold, but it was there was a for me there's a weird schism between Arnold Schwarzenegger and a kind of medium smart science fiction movie.
 
-[00:17:43] Norm: You know, it's the when you watch the movie, it's the context of when you watch.
+[00:17:43] Norm: It's the when you watch the movie, it's the context of when you watch.
 
 [00:17:47] Will: Yeah, yeah.
 
@@ -392,23 +392,23 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:18:30] Norm: grimy, non-earth,
 
-[00:18:31] Will: non-modern. And the production design between Australia and the UK, like it's, it's there's. You never look at that, and you never don't know where they are. It's like they did a really great job with that stuff, but
+[00:18:31] Will: non-modern. And the production design between Australia and the UK, like it's there's. You never look at that, and you never don't know where they are. It's like they did a really great job with that stuff, but
 
 [00:18:42] Adam: done
 
 [00:18:43] Norm: with modern technology.
 
-[00:18:43] Adam: And, and you know, you all these background plates and stuff as they're running through the city and the all these cities having kind of grown organically, and and everything is like Kowloon City. It's it's beautiful, beautiful.
+[00:18:43] Adam: And you all these background plates and stuff as they're running through the city and the all these cities having kind of grown organically, and everything is like Kowloon City. It's beautiful, beautiful.
 
-[00:18:54] Will: But but I mean, if you if you look.
+[00:18:54] Will: But I mean, if you look.
 
 [00:18:56] Adam: But it's not enough to sit through that movie. God, it's so bad.
 
-[00:18:58] Will: I watched it on an airplane. It was it was bad on if a movie's bad on an airplane, it's real bad.
+[00:18:58] Will: I watched it on an airplane. It was bad on if a movie's bad on an airplane, it's real bad.
 
 [00:19:03] Adam: I watched it in a hotel.
 
-[00:19:04] Will: The, uh, the, uh,
+[00:19:04] Will: The
 
 [00:19:06] Adam: I felt like I should get my money back.
 
@@ -416,25 +416,25 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:19:11] Adam: No, I
 
-[00:19:11] Will: was just going to say the if you use that standard of visually stunning movies, then you can look at the Cell or or Prometheus, and
+[00:19:11] Will: was just going to say the if you use that standard of visually stunning movies, then you can look at the Cell or Prometheus, and
 
 [00:19:20] Adam: so actually, and those are two interesting examples because Prometheus is just genuinely gorgeous.
 
-[00:19:26] Will: Like the scene where where David's in the in the in the forerunner's the founder spaceship, and the the stuff turns on is one of the most gorgeous things I've seen in movies in 3D. It was amazing
+[00:19:26] Will: Like the scene where David's in the forerunner's the founder spaceship, and the stuff turns on is one of the most gorgeous things I've seen in movies in 3D. It was amazing
 
 [00:19:36] Adam: All the way around.
 
 [00:19:37] Unknown speaker: Yeah.
 
-[00:19:37] Adam: all the way around. It's a stunningly beautiful film. Now the Cell, the Cell is a lovely film, but none of that shit is theirs. And now let me explain.
+[00:19:37] Adam: all the way around. It's a stunningly beautiful film. Now the Cell is a lovely film, but none of that shit is theirs. And now let me explain.
 
 [00:19:47] Will: Oh, he cribbed that from everybody, right?
 
-[00:19:49] Adam: They cribbed it from everybody, mostly from Matthew Barney. Mostly, I can't I can't remember if I should call him a sculptor or a video artist because he's a film. He's a filmmaker. He's an art an art filmmaker whose films play in museums. Um, the Cremaster series, they are. Opaque. They are often quite anti audience, anti narrative. They are they are weird, and they make you feel funny, and they're
+[00:19:49] Adam: They cribbed it from everybody, mostly from Matthew Barney. Mostly, I can't remember if I should call him a sculptor or a video artist because he's a film. He's a filmmaker. He's an art filmmaker whose films play in museums. The Cremaster series, they are. Opaque. They are often quite anti audience, anti narrative. They are weird, and they make you feel funny, and they're
 
 [00:20:17] Will: uncomfortable,
 
-[00:20:18] Adam: uncomfortable, and beautiful, and you know they're all of these things. And they practically lifted, just shot for shot, all this stuff from Matthew Barney and the Brothers Quay and the Brothers Quay.
+[00:20:18] Adam: uncomfortable, and beautiful, and you know they're all of these things. And they practically lifted, just shot for shot, all this stuff from Matthew Barney and the Brothers Quay.
 
 [00:20:31] Unknown speaker: Yeah.
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:20:44] Adam: Oh yes, yes, yes, yes, totally.
 
-[00:20:46] Norm: And and same director, but completely different, a little more mature.
+[00:20:46] Norm: And same director, but completely different, a little more mature.
 
 [00:20:50] Adam: Right, right, right.
 
@@ -488,7 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:22:10] Will: I think we need to have a whole podcast where we talk about what movie club is.
 
-[00:22:13] Adam: Well, because again, there are categories of. Brazil is completely important to my makeup as a as a maker, as a storyteller, as a filmmaker, as a sculptor. Um, I'm not sure I could sit through it today. I think I've maxed out my number of Brazil viewings a long time ago.
+[00:22:13] Adam: Well, because again, there are categories of. Brazil is completely important to my makeup as a maker, as a storyteller, as a filmmaker, as a sculptor. I'm not sure I could sit through it today. I think I've maxed out my number of Brazil viewings a long time ago.
 
 [00:22:30] Norm: Every day for six months.
 
@@ -496,33 +496,33 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:22:32] Norm: Yeah.
 
-[00:22:32] Adam: I've seen the Sid Sheinberg cut that played on television. I've seen the European cut. I've seen the Criterion the Criterion box for Brazil. It was like one of the great.
+[00:22:32] Adam: I've seen the Sid Sheinberg cut that played on television. I've seen the European cut. I've seen the Criterion box for Brazil. It was like one of the great.
 
 [00:22:39] Will: Oh, it's amazing! It's like 14 discs in there.
 
-[00:22:42] Norm: You know, there are plenty of movies where you watch once and you love and appreciate the hell out of it. But that's the only time you want to see it.
+[00:22:42] Norm: There are plenty of movies where you watch once and you love and appreciate the hell out of it. But that's the only time you want to see it.
 
-[00:22:48] Will: I liked leaving Las Vegas. I saw it in the theaters. I I bought the DVD, and it's still in the wrapper.
+[00:22:48] Will: I liked leaving Las Vegas. I saw it in the theaters. I bought the DVD, and it's still in the wrapper.
 
-[00:22:52] Adam: Um. Uh. I'll tell you that The Master, which I love,
+[00:22:52] Adam: I'll tell you that The Master, which I love,
 
 [00:22:56] Will: Yeah.
 
-[00:22:56] Adam: which I really loved, and have seen few things as remarkable as how beautiful the filmmaking is, how incredible Joaquin Phoenix and and Philip Seymour Hoffman's performances are, and Amy Adams. Um. And I'm not sure I want to sit through it again.
+[00:22:56] Adam: which I really loved, and have seen few things as remarkable as how beautiful the filmmaking is, how incredible Joaquin Phoenix and Philip Seymour Hoffman's performances are, and Amy Adams. And I'm not sure I want to sit through it again.
 
 [00:23:10] Unknown speaker: Well,
 
-[00:23:11] Adam: but I'm not sure I can. Yes. So there are films that are important. They're not necessarily your favorites. There are films that are perfect. Like I said, I think Raiders is a perfect movie. Galaxy Quest is a perfect movie. Um, I don't think Blade Runner is a perfect movie. I think Blade Runner has some significant flaws in it. I think its plot has some clunky chunks in it. Nonetheless, it's crazy important on a whole bunch of other levels. So my top, the reason there's 50 films in my top 10 is because my top 10's broken down to a, into a bunch of categories.
+[00:23:11] Adam: but I'm not sure I can. Yes. So there are films that are important. They're not necessarily your favorites. There are films that are perfect. Like I said, I think Raiders is a perfect movie. Galaxy Quest is a perfect movie. I don't think Blade Runner is a perfect movie. I think Blade Runner has some significant flaws in it. I think its plot has some clunky chunks in it. Nonetheless, it's crazy important on a whole bunch of other levels. So my top, the reason there's 50 films in my top 10 is because my top 10's broken down to a, into a bunch of categories.
 
 [00:23:43] Norm: Venn diagram.
 
 [00:23:44] Will: You're High Fidelity-ing this top 10.
 
-[00:23:45] Adam: I totally am. I totally am. Um, you know, so all those ways in which the films influenced me, uh, they each of them has their own categories, and there's other films in those categories. You know, Guillermo is practically Guillermo del Toro is practically a whole genre.
+[00:23:45] Adam: I totally am. I totally am. So all those ways in which the films influenced me they each of them has their own categories, and there's other films in those categories. Guillermo is practically Guillermo del Toro is practically a whole genre.
 
 [00:24:01] Will: I was going to say you probably have a Guillermo category.
 
-[00:24:04] Adam: I, I guess there might just be a generic Guillermo category where you know. Devil's Backbone, Pan's Labyrinth, and Cronos, and all those films just said.
+[00:24:04] Adam: I guess there might just be a generic Guillermo category where you know. Devil's Backbone, Pan's Labyrinth, and Cronos, and all those films just said.
 
 [00:24:11] Will: Yeah, Pan's Pan's Labyrinth is high on my list, but it's another one of those ones that I. It's like every 10 years, maybe, because it's real grim.
 
@@ -530,9 +530,9 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:24:22] Will: Yeah.
 
-[00:24:23] Adam: you know, Hellboy loves you.
+[00:24:23] Adam: Hellboy loves you.
 
-[00:24:26] Will: Um, and I think that about does it for time for us today. Um, we should go back to do this again.
+[00:24:26] Will: And I think that about does it for time for us today. We should go back to do this again.
 
 [00:24:31] Adam: Absolutely. So we're going to commit to doing a film thing by the end. Let's say the end of March.
 
@@ -562,7 +562,7 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:24:45] Adam: Oh, hey! Thanks for supporting us on iTunes. Your comments are really appreciated. I'm taking Will's.
 
-[00:24:50] Will: Yeah. No, no, that's that's it's good. Somebody's here to do it. Um, yeah, and we'll be back next Tuesday with another episode of Still Untitled.
+[00:24:50] Will: Yeah. No, no, that's it's good. Somebody's here to do it. Um, yeah, and we'll be back next Tuesday with another episode of Still Untitled.
 
 [00:24:55] Adam: All right.
 

@@ -16,7 +16,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:00:05] Norm: Oh, good morning.
 
-[00:00:07] Will: It's been a it's been a it's been a weekend.
+[00:00:07] Will: It's been a weekend.
 
 [00:00:10] Adam: Well, we're—
 
@@ -30,7 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:00:17] Will: Do you—
 
-[00:00:17] Norm: For, for you are, you are out.
+[00:00:17] Norm: For you are out.
 
 [00:00:19] Adam: Yeah, but San Francisco emptied out like last Friday.
 
@@ -48,7 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:00:35] Adam: Oh yeah, in that quadrangle
 
-[00:00:36] Will: near the school, next to the Walt Disney Family Museum, and all that. And it's usually jam packed, and we rolled in in middle of the middle of the window, and there was lots of space. There were kids running around playing soccer. It was really lovely,
+[00:00:36] Will: near the school, next to the Walt Disney Family Museum, and all that. And it's usually jam packed, and we rolled in middle of the window, and there was lots of space. There were kids running around playing soccer. It was really lovely,
 
 [00:00:48] Adam: amazing, amazing. I went to Portland to see my in-laws for the fourth, which was delightful. Portland turned out a gorgeous sunny day on the fourth.
 
@@ -60,9 +60,9 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:01:06] Adam: Yes, and I sustained an injury on stage during my talk.
 
-[00:01:11] Will: Were you juggling, what, what—?
+[00:01:11] Will: Were you juggling, what—?
 
-[00:01:12] Adam: No, paper cut. No, they specifically asked for a talk that was about the history of MythBusters and some things that I, you know, stories that I wanted to tell about it. So I went through a bunch of old stuff I had, and way back after we had aired Waterslide Wipeout,
+[00:01:12] Adam: No, paper cut. No, they specifically asked for a talk that was about the history of MythBusters and some things that I stories that I wanted to tell about it. So I went through a bunch of old stuff I had, and way back after we had aired Waterslide Wipeout,
 
 [00:01:29] Will: Is that the one where you went down the hill on the waterslide?
 
@@ -70,7 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:01:32] Will: That would look really dangerous.
 
-[00:01:33] Adam: And it was, and I actually have some really cool stories about it. But I also have in this talk all the raw footage of each of my jumps, and it's it's pretty stunning to watch. And one of them made me laugh so hard I backed up and doubled over and smashed my head into the lectern,
+[00:01:33] Adam: And it was, and I actually have some really cool stories about it. But I also have in this talk all the raw footage of each of my jumps, and it's pretty stunning to watch. And one of them made me laugh so hard I backed up and doubled over and smashed my head into the lectern,
 
 [00:01:50] Will: Ooh.
 
@@ -112,19 +112,19 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:02:37] Adam: I love the black and white costumes when people do that.
 
-[00:02:39] Will: Oh yeah. I I want to see I want to see the the 1930s noir Spider Man. Oh yeah. I'm sure that there were people like anime expos this weekend. I think. And I'm sure that yeah, there were people. I'm sure that there are people wearing
+[00:02:39] Will: Oh yeah. I want to see the 1930s noir Spider Man. Oh yeah. I'm sure that there were people like anime expos this weekend. I think. And I'm sure that yeah, there were people. I'm sure that there are people wearing
 
 [00:02:53] Norm: Nick Cage
 
 [00:02:53] Will: style Nick Cage noir Spider Man.
 
-[00:02:55] Adam: There was a there was a lovely couple that came to Silicon Valley one year that was dressed as a black and white photo, and they were fabulous.
+[00:02:55] Adam: There was a lovely couple that came to Silicon Valley one year that was dressed as a black and white photo, and they were fabulous.
 
-[00:03:00] Norm: Yes. Random tangent. Adam Rogers, our friend at Wired, wrote a story about is Spider Man's costume red and blue or red and Black, and what the origins of that are, and is it because that the in the printing back in the day, when Ditko and and Stan Lee were doing the comic, that the color separations were not good enough to do the blue and made it was black.
+[00:03:00] Norm: Yes. Random tangent. Adam Rogers, our friend at Wired, wrote a story about is Spider Man's costume red and blue or red and Black, and what the origins of that are, and is it because that the in the printing back in the day, when Ditko and Stan Lee were doing the comic, that the color separations were not good enough to do the blue and made it was black.
 
 [00:03:21] Adam: Oh, oh,
 
-[00:03:21] Norm: and it's it's been debated debated over the years.
+[00:03:21] Norm: and it's been debated debated over the years.
 
 [00:03:25] Adam: Interesting.
 
@@ -142,7 +142,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:03:49] Will: I did not know that, but now I believe it. Yeah,
 
-[00:03:51] Adam: and I am astounded by the level of talent and skill. But that is a a world beating performance for that show.
+[00:03:51] Adam: and I am astounded by the level of talent and skill. But that is a world beating performance for that show.
 
 [00:03:58] Will: It's not even that. Like on top of his performance, like the stage work there is astounding because they recreate the music video as I. Like as I remember the music video,
 
@@ -152,13 +152,13 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:04:08] Adam: And I was thinking about the crew, right? Because they have rain on stage. I've worked on stages where we made it rain, and it is a, it is never not a nightmare to make water rain on stage.
 
-[00:04:19] Will: Yeah, because you have like you have the water, but you also have thousands of of
+[00:04:19] Will: Yeah, because you have like you have the water, but you also have thousands of
 
 [00:04:23] Adam: thousands of amps, [unclear: two hundred / of] giant lights everywhere.
 
 [00:04:26] Will: It's a good way to electrocute a really expensive performer.
 
-[00:04:29] Adam: And so you make pools on stage. You recirculate. You make. Yeah, it's it's a pain in the ass.
+[00:04:29] Adam: And so you make pools on stage. You recirculate. You make. Yeah, it's a pain in the ass.
 
 [00:04:34] Will: Um.
 
@@ -172,9 +172,9 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:04:57] Adam: Yeah, that's what the set was like. So
 
-[00:04:59] Will: I have a Fourth of July. Somebody who is who is known for kind of blowing things up on occasion. Is Fourth of July something you look forward to, or is it just amateur hour for you? You don't want
+[00:04:59] Will: I have a Fourth of July. Somebody who is known for kind of blowing things up on occasion. Is Fourth of July something you look forward to, or is it just amateur hour for you? You don't want
 
-[00:05:11] Adam: it's neither. It's neither. Um, I, I, I am. I don't care for the fireworks on Fourth of July because I have dogs, and Fourth of July is the holiday in which my dogs freak out and stand above us in bed, drooling with fear and terror.
+[00:05:11] Adam: it's neither. It's neither. I am. I don't care for the fireworks on Fourth of July because I have dogs, and Fourth of July is the holiday in which my dogs freak out and stand above us in bed, drooling with fear and terror.
 
 [00:05:27] Norm: Yeah, especially the mission.
 
@@ -188,11 +188,11 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:05:51] Norm: Was Portland seen as active in terms of the extracurricular fireworks?
 
-[00:05:56] Adam: I don't know. I, I, not, not. It didn't seem so. But again, I wasn't in the middle. I was over in like us near Lake Oswego. The burb.
+[00:05:56] Adam: I don't know. I, not, not. It didn't seem so. But again, I wasn't in the middle. I was over in like us near Lake Oswego. The burb.
 
 [00:06:04] Norm: Okay. Yeah, I know in Pacifica where you are. Well.
 
-[00:06:05] Will: Pacifica, it's then like if Atlas, if there's an Atlas Obscura entry for Pacifica, it will be the world's largest amateur fireworks display because they have signs, they have signs up on the road for two or three weeks before Fourth of July. They're like, hey, look, man, illegal fireworks will get you $1,000. Nobody cares. It's completely toothless law. There are people shooting. Like we went to we went to some neighbors' block party. Well, we went to we went to a really wholesome all American picnic during the day where like the Parks and Rec Department. Hey, shout out to the Pacifica Parks and Rec Department because they do good work. They had like sack races and tug of war and all that kind of stuff.
+[00:06:05] Will: Pacifica, it's then like if Atlas, if there's an Atlas Obscura entry for Pacifica, it will be the world's largest amateur fireworks display because they have signs up on the road for two or three weeks before Fourth of July. They're like, hey, look, man, illegal fireworks will get you $1,000. Nobody cares. It's completely toothless law. There are people shooting. Like we went to some neighbors' block party. Well, we went to a really wholesome all American picnic during the day where like the Parks and Rec Department. Hey, shout out to the Pacifica Parks and Rec Department because they do good work. They had like sack races and tug of war and all that kind of stuff.
 
 [00:06:40] Adam: Egg toss.
 
@@ -204,7 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:06:58] Adam: Why not just wear a helmet?
 
-[00:07:00] Will: Look, man, I don’t, we can't. It's a it's a small town. They can't afford helmets. They only had one sack this year. It was
+[00:07:00] Will: Look, man, I don’t, we can't. It's a small town. They can't afford helmets. They only had one sack this year. It was
 
 [00:07:07] Adam: really
 
@@ -212,13 +212,13 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:07:10] Adam: Budget cuts. It's that. It's the disappearing coastline is all their attention.
 
-[00:07:14] Will: Yeah, it's tough, man. Property taxes are down. No, it was it was super fun, but they people are firing like two inch mortars out of aluminum tubes and PVC tubes, and it's like the kind of fireworks you see in most municipalities. Just dudes in their backyards firing them off.
+[00:07:14] Will: Yeah, it's tough, man. Property taxes are down. No, it was super fun, but they people are firing like two inch mortars out of aluminum tubes and PVC tubes, and it's like the kind of fireworks you see in most municipalities. Just dudes in their backyards firing them off.
 
 [00:07:31] Adam: I will tell you, actually, yeah. So you're asking about my experience with explosives on the Fourth of July. What gets me is the YouTube videos. Like, I almost don't watch many of them.
 
 [00:07:40] Will: No, don’t.
 
-[00:07:40] Adam: because I don't like watching people get hurt. Yeah. And the one that really, no one was injured when San. Was anyone injured when the San Diego fireworks show went off all at all at once?
+[00:07:40] Adam: because I don't like watching people get hurt. Yeah. And the one that really, no one was injured when San. Was anyone injured when the San Diego fireworks show went off all at once?
 
 [00:07:50] Norm: I don't think so.
 
@@ -244,7 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:08:34] Will: On the other hand, they made what is arguably the most famous fireworks display of all time.
 
-[00:08:40] Adam: So I am not sure that I'm not sure they're—. You know, it's like the it's like the cannonball episode for me, right? It's like I am really glad no one was hurt, but it's not something I love to talk about. I am happy to tell the story in order to tell the cautionary tale, but it's not like it's it's still not funny.
+[00:08:40] Adam: So I am not sure that I'm not sure they're—. It's like the cannonball episode for me, right? It's like I am really glad no one was hurt, but it's not something I love to talk about. I am happy to tell the story in order to tell the cautionary tale, but it's not like it's still not funny.
 
 [00:08:55] Will: Well, you don't
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:09:22] Will: didn't watch season two because people were like, " Yeah, season two is not so good."
 
-[00:09:24] Adam: Um, season two, I felt um a little exhausted towards the beginning of season two. With there is an entire episode that seems to be devoted just to Hop yelling at Eleven, and that that tired me out dramatically. Later in season two, with Sean Astin's character and also the the the sorry, I'm now. It's been so long since I watched season two. I'm blanking on all the names, but with Sean Astin's character and the adventures they all go through,
+[00:09:24] Adam: Season two, I felt a little exhausted towards the beginning of season two. With there is an entire episode that seems to be devoted just to Hop yelling at Eleven, and that that tired me out dramatically. Later in season two, with Sean Astin's character and also the sorry, I'm now. It's been so long since I watched season two. I'm blanking on all the names, but with Sean Astin's character and the adventures they all go through,
 
 [00:09:52] Norm: yes,
 
@@ -290,7 +290,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:10:07] Unknown speaker (Adam or Will): Oh, good!
 
-[00:10:07] Norm: It is so much better. I don't want to go to any spoilers, but where season two has a lot of, you know, pop culture references, not only with the music but the movies at times, Ghostbusters being the thing that they really latch onto. Season three, they double down. There are like some meta level, some characters who are clear homages to '80s film characters. A new villain in the mayor, played by played by Cary Elwes.
+[00:10:07] Norm: It is so much better. I don't want to go to any spoilers, but where season two has a lot of pop culture references, not only with the music but the movies at times, Ghostbusters being the thing that they really latch onto. Season three, they double down. There are like some meta level, some characters who are clear homages to '80s film characters. A new villain in the mayor, played by Cary Elwes.
 
 [00:10:33] Adam: Oh, yeah, yeah,
 
@@ -320,7 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:11:01] Norm: No, no, Hop is the is David Harbour
 
-[00:11:03] Adam: chief. Oh, oh, oh, okay, got it, got it. I binged. The Night Manager.
+[00:11:03] Adam: chief. Oh, oh, oh, okay, got it. I binged. The Night Manager.
 
 [00:11:11] Norm: I don't know what that is.
 
@@ -340,7 +340,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:11:49] Norm: Tom Hollander.
 
-[00:11:51] Adam: No, sorry, Tom Holland. It's not Tom Holland. I'm I'm I'm I'm Loki.
+[00:11:51] Adam: No, sorry, Tom Holland. It's not Tom Holland. I'm Loki.
 
 [00:11:55] Norm: Oh, Tom Hiddleston.
 
@@ -362,7 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:12:10] Will: Let me just look it up so we don't mess it up.
 
-[00:12:11] Adam: It's um sorry.
+[00:12:11] Adam: It's sorry.
 
 [00:12:12] Will: I don't want to make Ben sad.
 
@@ -404,7 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:13:39] Will: Yeah, you know.
 
-[00:13:39] Adam: Yeah, that was that was that's the downside. Um. Anyway, so yeah, I watched that, but that was mostly about it. I've been reading.
+[00:13:39] Adam: Yeah, that was that's the downside. Anyway, so yeah, I watched that, but that was mostly about it. I've been reading.
 
 [00:13:47] Will: So my house has been taken over by Super Mario Maker Two this week.
 
@@ -426,7 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:14:12] Adam: Yeah.
 
-[00:14:12] Will: And you could be as horrible to your friends. Like the the thing that is, I've been playing with my daughter a lot.
+[00:14:12] Will: And you could be as horrible to your friends. Like the thing that is, I've been playing with my daughter a lot.
 
 [00:14:17] Adam: Yeah.
 
@@ -440,7 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:15:04] Will: Well, so it is. It is literally like five games in one because there's like some people that just try to make levels that could be Nintendo levels that are masterpieces. They're brilliant, right? And then there's the sadists that make the one that wants to make you suffer, and they want to. They want 99,000 people to play it and have six completions.
 
-[00:15:18] Norm: There's no, there's no requirement to let force you, the maker of the level, to have to beat it once yourself.
+[00:15:18] Norm: There's no requirement to let force you, the maker of the level, to have to beat it once yourself.
 
 [00:15:25] Will: Oh, you do. The only way you can upload it to share is if you beat it.
 
@@ -450,19 +450,19 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:15:29] Adam: That's a brilliant convention.
 
-[00:15:31] Will: It is. It is a spectacular exercise in deconstructing something that that most of us are intimately familiar with because you know I I don't I spent hundreds of hours playing Mario games you know through my entire life thousands at this point it's it's fascinating to get tools that let you build something that you're so familiar with and had very little conception of building 20 years ago 30 you know I I remember I used to draw Mario levels on graph paper when I was a kid.
+[00:15:31] Will: It is. It is a spectacular exercise in deconstructing something that that most of us are intimately familiar with because you know I I don't I spent hundreds of hours playing Mario games you know through my entire life thousands at this point it's fascinating to get tools that let you build something that you're so familiar with and had very little conception of building 20 years ago 30 you know I I remember I used to draw Mario levels on graph paper when I was a kid.
 
 [00:15:56] Adam: Wow, okay.
 
-[00:15:56] Will: like that was that was yeah yeah but it was
+[00:15:56] Will: like that was yeah yeah but it was
 
 [00:16:00] Adam: so it's
 
-[00:16:00] Will: it's it is it is a lovely lovely exercise. In making there's some single player stuff in there. Don't if you're not like the single player stuff exists to show you what you can do with the editor, basically.
+[00:16:00] Will: it's it is a lovely lovely exercise. In making there's some single player stuff in there. Don't if you're not like the single player stuff exists to show you what you can do with the editor, basically.
 
 [00:16:12] Adam: Right, right.
 
-[00:16:12] Will: The real meat of is is making levels and then jumping into the matchmaking thing and just just playing stuff and seeing what what you like and what you don't like.
+[00:16:12] Will: The real meat of is is making levels and then jumping into the matchmaking thing and just just playing stuff and seeing what you like and what you don't like.
 
 [00:16:20] Adam: And that's awesome.
 
@@ -472,15 +472,15 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:16:28] Norm: Yeah. Hey, Adam, you have to your left something that's been here the whole time. This is a sword that's from the most recent episode of Savage Builds.
 
-[00:16:38] Adam: It is. This is a meteorite sword that that we made at the Crucible. I I I helped to make this under the wonderful tutelage of Jeff Pringle, master blacksmith, and the team over there at the Crucible was incredible. We spent over a week there.
+[00:16:38] Adam: It is. This is a meteorite sword that that we made at the Crucible. I helped to make this under the wonderful tutelage of Jeff Pringle, master blacksmith, and the team over there at the Crucible was incredible. We spent over a week there.
 
 [00:16:53] Norm: Wow.
 
-[00:16:53] Adam: Yeah, this is this is my Excalibur. I have yet to make a scabbard for it or to finish the grip, but these are future plans.
+[00:16:53] Adam: Yeah, this is my Excalibur. I have yet to make a scabbard for it or to finish the grip, but these are future plans.
 
 [00:17:03] Norm: I mean, this is also it's Excalibur, so two interesting things. One, the design of it, right? Mm-hmm. Mm-hmm. So you went through this. Book to pick out a 10th century designed.
 
-[00:17:12] Adam: Well, so the the the classic book is Oakeshott's Book of Swords, and I don't know how you pronounce it, whether it's Oak-a-shot or Oakshot. But Oakeshott, I knew I know about this book because I was told about it by Peter Lyon, swordmaster at Weta, and basically Oakeshott developed the typology of swords, types 10 through 16, I believe, with all these subsets, Mm-hmm. Um, and it’s everything from the Roman gladius to you know the last swords that were being made in the like 16th century, 17th.
+[00:17:12] Adam: Well, so the classic book is Oakeshott's Book of Swords, and I don't know how you pronounce it, whether it's Oak-a-shot or Oakshot. But Oakeshott, I knew I know about this book because I was told about it by Peter Lyon, swordmaster at Weta, and basically Oakeshott developed the typology of swords, types 10 through 16, I believe, with all these subsets, Mm-hmm. And it’s everything from the Roman gladius to you know the last swords that were being made in the like 16th century, 17th.
 
 [00:17:43] Will: Cutlasses and
 
@@ -496,7 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:18:06] Will: right?
 
-[00:18:06] Adam: And I I actually got some tweets about the the. Different versions of Morte d'Arthur and Excalibur is a very confusing subject, to be honest. There's Excalibur is the sword that the lady in the lake gives Arthur, but it's not clear whether it's the sword he's holding that whether Uther Pendragon, it’s not Uther. Yes, Uther Pendragon is carrying in the beginning of the legend, and some versions it is, and in some that it isn't.
+[00:18:06] Adam: And I I actually got some tweets about the. Different versions of Morte d'Arthur and Excalibur is a very confusing subject, to be honest. There's Excalibur is the sword that the lady in the lake gives Arthur, but it's not clear whether it's the sword he's holding that whether Uther Pendragon, it’s not Uther. Yes, Uther Pendragon is carrying in the beginning of the legend, and some versions it is, and in some that it isn't.
 
 [00:18:33] Will: And it’s not the one from the stone at all, right?
 
@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:18:36] Adam: from the stone. Sometimes it's the one from the stone, and sometimes it's not.
 
-[00:18:38] Will: Yeah, it's it's
+[00:18:38] Will: Yeah, it's
 
 [00:18:39] Adam: very confusing, right? At any rate, I didn't worry about a lot of that. I simply chose this design, and this is the one we made. It's it's I love that it's made of sky metal.
 
@@ -518,7 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:18:53] Norm: Oh, and that's what gives it this pattern here.
 
-[00:18:55] Adam: Yes, so the dark parts are the nickel transitions, and the the lighter parts are the regular steel. And we used meteorite that was basically nickel and iron, which is a very common meteorite material. And it took freaking forever to cut through it like 45 minutes, on the bandsaw.
+[00:18:55] Adam: Yes, so the dark parts are the nickel transitions, and the lighter parts are the regular steel. And we used meteorite that was basically nickel and iron, which is a very common meteorite material. And it took freaking forever to cut through it like 45 minutes, on the bandsaw.
 
 [00:19:15] Unidentified speaker: I saw that. It's an hour.
 
@@ -526,15 +526,15 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:19:16] Adam: Yeah.
 
-[00:19:16] Norm: Oh, yeah. Berkeley. You took it there, and and that let you see the composition of it
+[00:19:16] Norm: Oh, yeah. Berkeley. You took it there, and that let you see the composition of it
 
-[00:19:20] Adam: exactly. And so you you pour a little acid on there to bring out the the transitions. And this also had that same treatment after tempering. We did a little acid wash to sort of bring out the details. It has one flaw up here towards the tip. You can actually feel there’s a little, there’s a little flaw there.
+[00:19:20] Adam: exactly. And so you pour a little acid on there to bring out the transitions. And this also had that same treatment after tempering. We did a little acid wash to sort of bring out the details. It has one flaw up here towards the tip. You can actually feel there’s a little flaw there.
 
 [00:19:37] Norm: Oh, Okay,
 
 [00:19:37] Will: a little chunk.
 
-[00:19:38] Adam: Yeah, just a a little void in the hammering. One of the things that Jeff Pringle said is when you are making a sword like this, at every at every moment you are one step away from total disaster, like
+[00:19:38] Adam: Yeah, just a little void in the hammering. One of the things that Jeff Pringle said is when you are making a sword like this, at every moment you are one step away from total disaster, like
 
 [00:19:51] Norm: breaking and
 
@@ -546,7 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:20:03] Norm: Were you prepared for that?
 
-[00:20:04] Adam: I was. I was. You know, I didn't want it to crack in half, but he was. He he. He set my expectations to a proper level and said, " You got to be ready. This thing could just crap the bed." Luckily, it did not.
+[00:20:04] Adam: I was. I was. I didn't want it to crack in half, but he was. He. He set my expectations to a proper level and said, " You got to be ready. This thing could just crap the bed." Luckily, it did not.
 
 [00:20:04] Norm: Wow. You also said on the episode that you were able to buy the meteorite online. Is that a difficult thing to do to buy a meteorite?
 
@@ -556,35 +556,35 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:20:31] Adam: Yeah. Yeah.
 
-[00:20:33] Norm: Okay. They they they promise a composition. They say it’s gonna be this heavy? You, look at the size.
+[00:20:33] Norm: Okay. They promise a composition. They say it’s gonna be this heavy? You, look at the size.
 
 [00:20:38] Adam: There's a lot of people out there hunting meteorites. We we actually we wanted to do the episode where we went out and hunted for them in fields because there are people that have even gone so far as to make their own electromagnetic coils, drag behind trucks to, you know, go through larger to cover larger swaths of of land. Unfortunately, it didn't work out that we had we didn't have the time to do that because the I really didn't realize how involved the forging process is. Well, in the episode.
 
 [00:21:07] Will: It's
 
-[00:21:08] Adam: days and days and days and days.
+[00:21:08] Adam: days and days.
 
 [00:21:09] Will: Like if you went out with trucks for two weeks and we're dredging some field in Iceland or something. And then you didn't find the meteorite. It's not a great episode of TV. No, I'm not an expert here.
 
-[00:21:18] Norm: Didn’t you call in the PA with the the eBay box? Yeah. Look, we found this. Oh, this one. Perfect. We found
+[00:21:18] Norm: Didn’t you call in the PA with the eBay box? Yeah. Look, we found this. Oh, this one. Perfect. We found
 
 [00:21:23] Will: the eBay
 
 [00:21:23] Adam: in the field. It's got to strip the tag off on camera.
 
-[00:21:26] Norm: Yes, exactly. And then the the the using of the sword was that was so much. It looked so much fun.
+[00:21:26] Norm: Yes, exactly. And then the using of the sword was that was so much. It looked so much fun.
 
-[00:21:32] Adam: It, you know, I love getting. I love the weird amounts of training that I get on the stuff that I do, and that was really really fun. I also I did some practice on that slicing off camera with my Boromir sword, which was also super fun.
+[00:21:32] Adam: It I love getting. I love the weird amounts of training that I get on the stuff that I do, and that was really really fun. I also I did some practice on that slicing off camera with my Boromir sword, which was also super fun.
 
 [00:21:48] Norm: And it worked.
 
-[00:21:49] Adam: I mean, oh yeah, yeah, yeah. It's a it's a stunning piece. Um,
+[00:21:49] Adam: I mean, oh yeah, yeah, yeah. It's a stunning piece.
 
 [00:21:52] Will: What did you? I haven't watched the episode yet.
 
-[00:21:54] Adam: Oh, we were slicing through tatami mats and through gallons of water and things like that. Just running the sword through its paces. I was unable. I I didn't learn well enough to be able to do the the deep level of slicing I was hoping to do. Simply because it's a it's really difficult art, but one I want to explore more because it's it's a real workout.
+[00:21:54] Adam: Oh, we were slicing through tatami mats and through gallons of water and things like that. Just running the sword through its paces. I was unable. I didn't learn well enough to be able to do the deep level of slicing I was hoping to do. Simply because it's a it's really difficult art, but one I want to explore more because it's a real workout.
 
-[00:22:15] Will: Did you uh,
+[00:22:15] Will: Did you
 
 [00:22:15] Norm: Let's get a bunch of two liter bottles?
 
@@ -592,13 +592,13 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:22:17] Norm: Yeah. Tinted water,
 
-[00:22:19] Will: or you know, get somebody to huck lemons at you.
+[00:22:19] Will: or get somebody to huck lemons at you.
 
 [00:22:21] Adam: There we go. That was we did that for free.
 
 [00:22:23] Will: I remember
 
-[00:22:24] Adam: that was so much fun. Yeah. We also AdamSavage.com Savage Industries released some new products this weekend on the on the third. We have a brand new EDC three beach tote.
+[00:22:24] Adam: that was so much fun. Yeah. We also AdamSavage.com Savage Industries released some new products this weekend on the third. We have a brand new EDC three beach tote.
 
 [00:22:38] Will: Ooh.
 
@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:22:42] Will: Does it have the frame to hold it open still?
 
-[00:22:43] Adam: No, no. It's just a big open top with four big pockets. It'll carry all the tools in your toolbox, but it's also great for the beach, and it's got a beautiful colored interior. Is gorgeous. Awesome. And we have some new pouches that we've released in a gray Dyneema. I believe that's the material they're they're they're being made in, and they're gorgeous. We've been selling a ton of those, and we have a bunch of new patches. We have some makeup patches, eyeglasses. We have a pilot's bag, toiletries, and and a few others.
+[00:22:43] Adam: No, no. It's just a big open top with four big pockets. It'll carry all the tools in your toolbox, but it's also great for the beach, and it's got a beautiful colored interior. Is gorgeous. Awesome. And we have some new pouches that we've released in a gray Dyneema. I believe that's the material they're being made in, and they're gorgeous. We've been selling a ton of those, and we have a bunch of new patches. We have some makeup patches, eyeglasses. We have a pilot's bag, toiletries, and a few others.
 
 [00:23:13] Will: Cool.
 
@@ -626,7 +626,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:23:25] Norm: Oh yeah.
 
-[00:23:27] Will: Parachute orange. I I feel like that was one of the things that I loved about about Tom Sachs's work is his his appreciation for that bright orange that the nuclear the warning orange and it's not in enough places like
+[00:23:27] Will: Parachute orange. I feel like that was one of the things that I loved about about Tom Sachs's work is his his appreciation for that bright orange that the nuclear the warning orange and it's not in enough places like
 
 [00:23:39] Adam: and Tom's orange is specifically I believe comes from two two places. One is off of New York Public Works Department barricades, which is this right? Yeah, 3M Scotchlite paint that they paint the orange parts with, and also Hermès boxes.
 
@@ -646,7 +646,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:24:11] Norm: anniversary. We're like a week and a half.
 
-[00:24:13] Adam: 50th anniversary of Apollo. Have you been following the uh the Apollo 50th Twitter feed?
+[00:24:13] Adam: 50th anniversary of Apollo. Have you been following the Apollo 50th Twitter feed?
 
 [00:24:17] Will: It is my favorite, Twitter right now,
 
@@ -662,7 +662,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:25:00] Will: So for people who don't know, though, because I'm sure there's a lot of people here who have no idea what we're talking about, you're going to DC.
 
-[00:25:05] Adam: I'm going to DC to to be participating in a couple of different live stage events. The 50th anniversary of Apollo. There's one on the Mall on the 19th.
+[00:25:05] Adam: I'm going to DC to be participating in a couple of different live stage events. The 50th anniversary of Apollo. There's one on the Mall on the 19th.
 
 [00:25:16] Will: Of Apollo 11, specifically.
 
@@ -674,19 +674,19 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:25:58] Adam: all individual parts, 44 separate parts, hinges, linkages, gearboxes, everything, each made by different makerspace. And while they had to get the size exactly right because we have hole patterns to match, they could make it out of any material and they could paint in any way that they wanted.
 
-[00:26:12] Will: First off, it's amazing because I know a lot of people are doing 3D printing stuff. I think Jimmy. He posted stuff on Instagram stories about his process for his, and he 3D printed and then recreated the 3D print in materials that he's more that he likes better. And like it, yeah, it's it's it's it's astounding that we've come so far in such a in the last 10 years. Because if you tried to do this and people were doing 3D printed stuff 10 years ago,
+[00:26:12] Will: First off, it's amazing because I know a lot of people are doing 3D printing stuff. I think Jimmy. He posted stuff on Instagram stories about his process for his, and he 3D printed and then recreated the 3D print in materials that he's more that he likes better. And like it, yeah, it's astounding that we've come so far in such a in the last 10 years. Because if you tried to do this and people were doing 3D printed stuff 10 years ago,
 
 [00:26:38] Adam: oh, it
 
 [00:26:38] Will: never would have gone together.
 
-[00:26:40] Adam: And it's it's a great demonstration. You're right, and in that, you're right that it's a great demonstration of the state of the art of the number of different options and processes available to people. We also made it really clear that this is a super transparent build. So so many of the maker spaces have not just been putting their build process up on Instagram and on Twitter, but they're also making YouTube videos of the build process and sharing. Again, these files are open source. We can link to them below this on the Smithsonian's website. There's already apparently a couple of people who've already made their own full size hatches from our files or in progress. This is like my dream come true: is to have one of these in the cave.
+[00:26:40] Adam: And it's a great demonstration. You're right, and in that, you're right that it's a great demonstration of the state of the art of the number of different options and processes available to people. We also made it really clear that this is a super transparent build. So so many of the maker spaces have not just been putting their build process up on Instagram and on Twitter, but they're also making YouTube videos of the build process and sharing. Again, these files are open source. We can link to them below this on the Smithsonian's website. There's already apparently a couple of people who've already made their own full size hatches from our files or in progress. This is like my dream come true: is to have one of these in the cave.
 
 [00:27:21] Will: Oh boy!
 
 [00:27:21] Adam: Oh yeah! No, someday.
 
-[00:27:23] Will: Jen said that people are posting stuff on that project egress hashtag. So if you want to find it, you can go search on Instagram, on YouTube, presumably wherever people post kind of maker videos and and find the different builds as people are posting them this week and probably into next. Would be my guess.
+[00:27:23] Will: Jen said that people are posting stuff on that project egress hashtag. So if you want to find it, you can go search on Instagram, on YouTube, presumably wherever people post kind of maker videos and find the different builds as people are posting them this week and probably into next. Would be my guess.
 
 [00:27:40] Adam: And by the way, I just want a shout out to Jen Schachter for the wonderful first first project management of Project Egress, which was no trivial thing.
 
@@ -700,17 +700,17 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:27:53] Unknown speaker (Will or Norm): All different forms. Yeah.
 
-[00:27:55] Adam: Um, and then also the name Project Egress, which is also Jen's, and I love that name.
+[00:27:55] Adam: And then also the name Project Egress, which is also Jen's, and I love that name.
 
 [00:28:00] Will: Very good.
 
-[00:28:00] Adam: I it it because we do these things to collaborate with people we know and people we don't know, but from all over to bring something together as a way of inspiring other people to collaborate, to share their work, to try things they haven't tried before, and so to me, it is always. Any one of these collaborative projects is about showing someone a door and opening it for them, and saying, " There's, there's this whole universe through this door, and here's this perfect analogy of we're actually making a door."
+[00:28:00] Adam: I it because we do these things to collaborate with people we know and people we don't know, but from all over to bring something together as a way of inspiring other people to collaborate, to share their work, to try things they haven't tried before, and so to me, it is always. Any one of these collaborative projects is about showing someone a door and opening it for them, and saying, " There's, there's this whole universe through this door, and here's this perfect analogy of we're actually making a door."
 
-[00:28:33] Will: Well, and like I want to, I think it's great that people are making their own sets, but I want to hear about like people that work in maker spaces or work in shared shops that everybody takes a component and does their own work and and does the same thing on a different different scale. Yeah, this is it's this is a fascinating kind of project. It
+[00:28:33] Will: Well, and like I want to, I think it's great that people are making their own sets, but I want to hear about like people that work in maker spaces or work in shared shops that everybody takes a component and does their own work and does the same thing on a different different scale. Yeah, this is it's this is a fascinating kind of project. It
 
-[00:28:49] Adam: is, and and the more you read into the creation of this hatch, the creation of this hatch is unfortunately came about because of the tragedy of Apollo 1. The three astronauts burned inside the capsule on the ground, and it was an incredible engineering achievement done in a very accelerated amount of time for NASA, which you know was very change tracking happy and difficult bureaucracy to implement a fast moving project like this, and yet they totally did. So the whole story of Project Egress. Grids onto this collaborative process and what this door opens up and what it what it represents in a way that I find really resonant and lovely.
+[00:28:49] Adam: is, and the more you read into the creation of this hatch, the creation of this hatch is unfortunately came about because of the tragedy of Apollo 1. The three astronauts burned inside the capsule on the ground, and it was an incredible engineering achievement done in a very accelerated amount of time for NASA, which you know was very change tracking happy and difficult bureaucracy to implement a fast moving project like this, and yet they totally did. So the whole story of Project Egress. Grids onto this collaborative process and what this door opens up and what it represents in a way that I find really resonant and lovely.
 
-[00:29:29] Will: The story of hatches and NASA. There's probably been multiple books written about that between Gus Grissom's prematurely firing, you know, explosive bolts.
+[00:29:29] Will: The story of hatches and NASA. There's probably been multiple books written about that between Gus Grissom's prematurely firing explosive bolts.
 
 [00:29:39] Unknown speaker (Adam or Will): Yeah. Hatch. Yeah, yeah.
 
@@ -718,9 +718,9 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:29:42] Adam: Yeah, they just found it.
 
-[00:29:44] Will: They found it a few years ago. Yeah, and yeah, it's it's it's fascinating.
+[00:29:44] Will: They found it a few years ago. Yeah, and yeah, it's fascinating.
 
-[00:29:48] Adam: Also, in because I've been following a whole bunch of Twitter feeds devoted to Apollo and NASA and the celebration, I came across this. Apparently, at Johnson, every now and then they they go out to a bunch of the manhole covers at Johnson and rub screen printing ink on them and put T-shirts on and screen print T-shirts with NASA.
+[00:29:48] Adam: Also, in because I've been following a whole bunch of Twitter feeds devoted to Apollo and NASA and the celebration, I came across this. Apparently, at Johnson, every now and then they go out to a bunch of the manhole covers at Johnson and rub screen printing ink on them and put T-shirts on and screen print T-shirts with NASA.
 
 [00:30:09] Will: Manhole covers?
 
@@ -734,9 +734,9 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:30:21] Adam: Oh yeah. Oh yeah. It's it's really really really cool. Holly, Space Girl. Yeah, that's
 
-[00:30:28] Will: not Astro. No, she's she's she's she works she worked in Mission Control on ISS.
+[00:30:28] Will: not Astro. No, she's she works she worked in Mission Control on ISS.
 
-[00:30:34] Adam: Yes, yes. Let's link to her Twitter feed below this. Yes, she's how I found that, and like then went down this whole rabbit hole of T-shirt printing at NASA. She's she is an awesome follow on Twitter if you're interested in NASA stuff, both the official and the unofficial. She tweets behind the scenes stuff about the decision making process, which I find really fascinating. Um,
+[00:30:34] Adam: Yes, yes. Let's link to her Twitter feed below this. Yes, she's how I found that, and like then went down this whole rabbit hole of T-shirt printing at NASA. She's she is an awesome follow on Twitter if you're interested in NASA stuff, both the official and the unofficial. She tweets behind the scenes stuff about the decision making process, which I find really fascinating.
 
 [00:30:56] Will: I can't find her Twitter. right now.
 
@@ -756,7 +756,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:31:37] Norm: Yeah,
 
-[00:31:37] Adam: but this is literally the last hobby store in the county of San Francisco. We we we're pretty sure
+[00:31:37] Adam: but this is literally the last hobby store in the county of San Francisco. We we're pretty sure
 
 [00:31:45] Norm: in traditional sense,
 
@@ -772,7 +772,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:32:05] Norm: Yeah, model making in terms of supporting you know small scale model makers.
 
-[00:32:09] Adam: Well, and she was saying she has to buy from dozens and dozens of different vendors just to keep stocked in models. So I wanted to go over there this week and purchase a bunch of stock of their models. I would like to help them out, and also look, it's a shout out to San Francisco people. If you somehow control a 1,500 square foot retail space that you'd like to rent to the the last model stop in San Francisco, I know this is a long shot, but I'd really love to see it happen. We lost Franciscan Hobbies a few years ago; that was a tragedy. We still have that wonderful weird train store in Berkeley on University at Cal, which is terrific.
+[00:32:09] Adam: Well, and she was saying she has to buy from dozens and dozens of different vendors just to keep stocked in models. So I wanted to go over there this week and purchase a bunch of stock of their models. I would like to help them out, and also look, it's a shout out to San Francisco people. If you somehow control a 1,500 square foot retail space that you'd like to rent to the last model stop in San Francisco, I know this is a long shot, but I'd really love to see it happen. We lost Franciscan Hobbies a few years ago; that was a tragedy. We still have that wonderful weird train store in Berkeley on University at Cal, which is terrific.
 
 [00:32:45] Will: Is the electronics shop and train store in San Rafael still too?
 
@@ -780,7 +780,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:32:49] Will: Yeah,
 
-[00:32:49] Adam: and but this is this is the sad thing about about retail. It's really it's getting harder and harder and harder for traditional retail to be able to cover its expenses, especially when everything's available online by tomorrow. And they're they're finding that's a real difficult needle to thread.
+[00:32:49] Adam: and but this is the sad thing about about retail. It's really it's getting harder and harder for traditional retail to be able to cover its expenses, especially when everything's available online by tomorrow. And they're finding that's a real difficult needle to thread.
 
 [00:33:08] Will: But at the same time, like one of the first things that norm one of the first challenges Norm and I had when we started tested almost 10 years ago now was we were building the first MakerBot, the cupcake.
 
@@ -804,17 +804,17 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:34:12] Norm: Have to be in both places at once.
 
-[00:34:14] Will: Well, but but and then there's also there's also I think that the the case to be made is that there should be the equivalent of like a '90s era Kinkos because remember if you if you think about '90s when I was in college if you I didn't have a printer
+[00:34:14] Will: Well, but and then there's also I think that the case to be made is that there should be the equivalent of like a '90s era Kinkos because remember if you think about '90s when I was in college if you I didn't have a printer
 
 [00:34:26] Adam: yeah
 
-[00:34:26] Will: and anytime I needed a printer I needed a specialized computer or a plotter something I could go to go to a Kinkos or the the equivalent which was like the the print shop was the one
+[00:34:26] Will: and anytime I needed a printer I needed a specialized computer or a plotter something I could go to a Kinkos or the equivalent which was like the print shop was the one
 
 [00:34:35] Adam: yeah there was a bunch of them before Kinkos ate them all
 
 [00:34:37] Will: yeah you could rent time on those computers and stuff like that and it seems like there should be I mean it's kind of what Tech Shop tried to be but it seems like there could be something like that for things like sewing machines like the tools that I need twice a year and don't want to have in my house right the other 363 days anyway
 
-[00:34:54] Adam: so I'm very it's very it's sad it's sad news to me that they're that they're closing down in August um I I I really hope they're able to find a space and open up again because they fill a small but really important need
+[00:34:54] Adam: so I'm very it's sad news to me that they're closing down in August I I I really hope they're able to find a space and open up again because they fill a small but really important need
 
 [00:35:06] Norm: God it was the only place you'd buy small to medium rattle cans
 
@@ -822,7 +822,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:35:08] Norm: every every month
 
-[00:35:10] Will: yeah well and stuff like that's hard to ship you you like you can't you can't get spray paint the next day because it’s against the law to put it on airplanes or something I don't know you have to get it by via ground that's all I know.
+[00:35:10] Will: yeah well and stuff like that's hard to ship you like you can't get spray paint the next day because it’s against the law to put it on airplanes or something I don't know you have to get it by via ground that's all I know.
 
 [00:35:20] Adam: Exactly, and I stopped by Heroes Club by the way.
 
@@ -830,7 +830,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:35:32] Adam: they've been there since I've been in San Francisco. They've been there since way since before 1990 when I moved here.
 
-[00:35:38] Norm: Um, Clement Clement Clement in right off Park Presidio, exactly. Oh,
+[00:35:38] Norm: Clement Clement Clement in right off Park Presidio, exactly. Oh,
 
 [00:35:43] Will: wow, way out there.
 
@@ -848,7 +848,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:35:53] Norm: Like tons of Bruce Lee figures.
 
-[00:35:55] Adam: It's always been a little disappointing to me. It's a very niche. It's very niche, and it's not necessarily my niche. So sometimes, but you know, I did buy I did buy some of the first reference material for my Blade Runner blaster there back in the early '90s.
+[00:35:55] Adam: It's always been a little disappointing to me. It's a very niche. It's very niche, and it's not necessarily my niche. So sometimes, but I did buy some of the first reference material for my Blade Runner blaster there back in the early '90s.
 
 [00:36:10] Norm: Yeah,
 

@@ -20,7 +20,7 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:00:11] Adam: Fourth time,
 
-[00:00:12] Norm: I think so. Yeah. The last time you were here, I don't think we we hinted at it. Actually, we've hinted at it for a long time now that you've been working on the secret project, and of course, it's since been announced. We are recording this a week early because, as people out there are listening to this now, both of you will be in Washington D.C.
+[00:00:12] Norm: I think so. Yeah. The last time you were here, I don't think we hinted at it. Actually, we've hinted at it for a long time now that you've been working on the secret project, and of course, it's since been announced. We are recording this a week early because, as people out there are listening to this now, both of you will be in Washington D.C.
 
 [00:00:33] Adam: when this goes up next Tuesday.
 
@@ -36,11 +36,11 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:01:22] Adam: I've heard of it.
 
-[00:01:23] Norm: They they have the stuff.
+[00:01:23] Norm: They have the stuff.
 
 [00:01:25] Jen Schachter: They have the things.
 
-[00:01:26] Adam: They have they have incredible. Not only is it an not only is it an incredible institution culturally, scientifically, but they also have incredible facilities for the for the for the the preservation and restoration of America's history. Most famously, they've spent the last couple of years getting an endowment and getting donations to repair and restore Neil Armstrong's original moon suit, the A7L suit made by ILC Dover that he wore on the moon surface as the first man to step on an extraterrestrial body, and we're going to go film in that lab. We're going to go get some stories from around the Smithsonian. They have been in super generous with us on tested. So not only are we going there to participate in, what we haven't even talked about.
+[00:01:26] Adam: They have incredible. Not only is it an not only is it an incredible institution culturally, scientifically, but they also have incredible facilities for the preservation and restoration of America's history. Most famously, they've spent the last couple of years getting an endowment and getting donations to repair and restore Neil Armstrong's original moon suit, the A7L suit made by ILC Dover that he wore on the moon surface as the first man to step on an extraterrestrial body, and we're going to go film in that lab. We're going to go get some stories from around the Smithsonian. They have been in super generous with us on tested. So not only are we going there to participate in, what we haven't even talked about.
 
 [00:02:16] Norm: I know. A little bit.
 
@@ -62,19 +62,19 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:03:26] Jen Schachter: and so it was this really horrible tragedy. And out of that came a need to redesign that hatch door with sort of minimal changes to the actual command module. So they had to reverse engineer and make this door that could be opened in three seconds.
 
-[00:03:41] Adam: And this is this that last the caveat you gave is really really significant here because not many people realize. How many different teams of tens of thousands of people were working on all the systems to get to get us to the moon, and so the exterior, the interior, all the different pieces of the command module all had to work in concert with each other. And so to pull off a door and then decide to put in a completely new, redesigned door without altering or getting in the way of anything else that had been designed is a tremendous engineering achievement.
+[00:03:41] Adam: And this is this that last the caveat you gave is really really significant here because not many people realize. How many different teams of tens of thousands of people were working on all the systems to get us to the moon, and so the exterior, the interior, all the different pieces of the command module all had to work in concert with each other. And so to pull off a door and then decide to put in a completely new, redesigned door without altering or getting in the way of anything else that had been designed is a tremendous engineering achievement.
 
 [00:04:15] Norm: Which is why all the mechanisms are within that profile.
 
-[00:04:18] Adam: Yeah. And and again, these were this the command module is so much smaller than you think it was.
+[00:04:18] Adam: Yeah. And again, these were this the command module is so much smaller than you think it was.
 
 [00:04:23] Jen Schachter: Oh my gosh! Yeah.
 
-[00:04:23] Adam: It is so surpassingly tiny. I'll tell you one of the things I was surprised to learn when I was researching spacesuits was that there were lots of people that solved the problem of making suits that were very maneuverable. The only problem is none of them fit inside any of the spaceships we were making, and space is a total premium. Every extra square foot of Of breathable air, you have to generate. It's more pressure. It's more pressure on the engineering. The engineering problems compound with every extra square foot, so they make it as small as possible. And this door was, when you, the more you research it, the more amazing the engineering achievement becomes.
+[00:04:23] Adam: It is so surpassingly tiny. I'll tell you one of the things I was surprised to learn when I was researching spacesuits was that there were lots of people that solved the problem of making suits that were very maneuverable. The only problem is none of them fit inside any of the spaceships we were making, and space is a total premium. Every extra square foot of breathable air, you have to generate. It's more pressure. It's more pressure on the engineering. The engineering problems compound with every extra square foot, so they make it as small as possible. And this door was, when you, the more you research it, the more amazing the engineering achievement becomes.
 
-[00:05:01] Jen Schachter: Yeah, it's it's mind boggling. I've been hyper focused on just the hatch, so I know more about the hatch than anything else in the whole space shuttle.
+[00:05:01] Jen Schachter: Yeah, it's mind boggling. I've been hyper focused on just the hatch, so I know more about the hatch than anything else in the whole space shuttle.
 
-[00:05:09] Adam: what is the most surprising thing you you came across about the hatch in this process?
+[00:05:09] Adam: what is the most surprising thing you came across about the hatch in this process?
 
 [00:05:14] Jen Schachter: The most surprising thing. I don't know if it's the most surprising, but one thing that I really really love in my research, I dug deeper into the internet than I have ever dug before. I mean, it was like a month of serious detective work, which was wonderful. Yeah. There's so much of the stuff online that you can find.
 
@@ -90,15 +90,15 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:05:43] Jen Schachter: So in my research, I found all this really amazing stuff. But one of my favorite pictures that I came across is a sort of a wide shot of the manufacturing facility. I think it's—I believe it was North American Rockwell. I think at the time was the name of the company, which has since been acquired and acquired by Boeing. But their facility was in Downey, California, and it's a wide shot of the the whole the floor. And there are these conical wooden structures made out of plywood that look like cabinets. And it's it's prototypes of the command module, but they're in like the most basic everyday materials. And for me, as someone who's not an engineer, that was like it just made it more accessible and tangible to be like these people weren't wizards; they were real people that had to solve and figure out all the shapes, and that was really cool. Oh,
 
-[00:06:30] Adam: the cat! You specifically called that picture out to me a few weeks ago, and I I agree with you. It's remarkable, especially because it it does make the whole process more accessible. In film, we would, uh, before we build anything, whether it's a prop or a set, we build a foam core or cardboard mock-up of it in order to get to know it. And again, yeah, you you tend to think in the abstract, like oh, all those brilliant men and women that got us to the moon. And it's like no, they were just building a whole bunch of command modules and seeing which ones were the easiest to fit inside. And that's the only way you can actually do it is to make it and climb in it.
+[00:06:30] Adam: the cat! You specifically called that picture out to me a few weeks ago, and I I agree with you. It's remarkable, especially because it does make the whole process more accessible. In film, we would before we build anything, whether it's a prop or a set, we build a foam core or cardboard mock-up of it in order to get to know it. And again, yeah, you tend to think in the abstract, like oh, all those brilliant men and women that got us to the moon. And it's like no, they were just building a whole bunch of command modules and seeing which ones were the easiest to fit inside. And that's the only way you can actually do it is to make it and climb in it.
 
-[00:07:02] Jen Schachter: Yeah, yeah. Um, and we, I worked on a cardboard prototype of of just the hatch and the stand here a couple of days ago, and I was marveling at how tiny it is. Like I actually finally built it to scale and stood next to it, and I was like, this is really small. Yeah. The window is like you know, it's like a little porthole. It's tiny.
+[00:07:02] Jen Schachter: Yeah, yeah. And we, I worked on a cardboard prototype of just the hatch and the stand here a couple of days ago, and I was marveling at how tiny it is. Like I actually finally built it to scale and stood next to it, and I was like, this is really small. Yeah. The window is like it's like a little porthole. It's tiny.
 
 [00:07:19] Adam: And with all those crazy moving parts on it.
 
 [00:07:23] Jen Schachter: Oh my gosh.
 
-[00:07:23] Norm: And part of this this project, which spans months, like the not even like the past time you were here, but even the time before you were here, was when you started working on this. The idea came about because the Smithsonian National Air and Space Museum had done scans, right? Just like for Armstrong’s suit. They had done, I think, commissioned two different types of scans: a photogrammetry and a lidar scan of the hatch, and was seeing if this dataset could be useful.
+[00:07:23] Norm: And part of this project, which spans months, like the not even like the past time you were here, but even the time before you were here, was when you started working on this. The idea came about because the Smithsonian National Air and Space Museum had done scans, right? Just like for Armstrong’s suit. They had done, I think, commissioned two different types of scans: a photogrammetry and a lidar scan of the hatch, and was seeing if this dataset could be useful.
 
 [00:07:49] Adam: Well, they were. They had scanned the command module itself,
 
@@ -112,21 +112,21 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:08:10] Unknown speaker: Mm-hmm.
 
-[00:08:10] Adam: who was such a freaking rock star on this project. I mean, it's he's his talent at 3D construction and design and engineering is remarkable. Also, because he's, it's only been dawning on him slowly that it's that it's a genuine and abiding skill he possesses, right?
+[00:08:10] Adam: who was such a freaking rock star on this project. I mean, it's he's his talent at 3D construction and design and engineering is remarkable. Also, because he's, it's only been dawning on him slowly that it's a genuine and abiding skill he possesses, right?
 
 [00:08:31] Unknown speaker: Yeah.
 
 [00:08:31] Adam: He's like, I didn't know this was that hard, and it's like it's beautiful. Every single one of these mechanical pieces. If you wanted to make a working hatch from his drawing, I believe you almost could.
 
-[00:08:42] Jen Schachter: Oh, you you absolutely could. I mean, he he put all of the tolerances there for machining, and if you go, I mean, you can you can download this fully functioning model. It's a Fusion 360 file, and the entire every single mechanism articulates the latches, you know, set off all the linkages all the way around the door and
+[00:08:42] Jen Schachter: Oh, you absolutely could. I mean, he put all of the tolerances there for machining, and if you go, I mean, you can download this fully functioning model. It's a Fusion 360 file, and the entire every single mechanism articulates the latches set off all the linkages all the way around the door and
 
-[00:08:59] Adam: The gearbox. He put he tweeted the gearbox the other day. He managed to reach out to the Smithsonian and find, in conjunction with them, one of the original mechanical drawings of the gearbox and built it actually. I mean, it's it's jaw dropping.
+[00:08:59] Adam: The gearbox. He put he tweeted the gearbox the other day. He managed to reach out to the Smithsonian and find, in conjunction with them, one of the original mechanical drawings of the gearbox and built it actually. I mean, it's jaw dropping.
 
 [00:09:14] Jen Schachter: Yeah,
 
 [00:09:14] Adam: how much detail.
 
-[00:09:14] Jen Schachter: Yeah, and he you know he based it off of the scan, so it's it's directly modeled off of the the drawings and the original scan data. So it's it's perfectly to scale. I mean, it's as close it's as close as I think we we could ever get to having a real model of a of a piece of space hardware that's that's fully functioning. It’s, I mean, it’s like it's amazing. I know Andrew is listening and he's building this with us currently as this is as this is airing, and it's like. Andrew, you did an amazing job.
+[00:09:14] Jen Schachter: Yeah, and he you know he based it off of the scan, so it's directly modeled off of the drawings and the original scan data. So it's perfectly to scale. I mean, it's as close as I think we could ever get to having a real model of a piece of space hardware that's fully functioning. It’s, I mean, it’s like it's amazing. I know Andrew is listening and he's building this with us currently as this is airing, and it's like. Andrew, you did an amazing job.
 
 [00:09:40] Adam: Well, so Andrew, Andrew is one of the collaborators, but there's over 40 other collaborators on this project.
 
@@ -138,17 +138,17 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:10:03] Norm: So it's different than you know when we the builders, the past kind of collaborative projects you've done, where the sculptures have been kind of jigsawed together. How did you decide how to split apart the model that Andrew had done and distribute that between these collaborators?
 
-[00:10:17] Jen Schachter: Um. Yeah. So we, I did a little bit of work to understand, like who would be best suited for certain parts, and some of them, you know, it's just a single linkage with three or four components, and then other like the folks at NYCCNC are made the entire gearbox, which consists of you know 20 or so different assemblies. So they, you know, we we divvied it up based on what what folks' capacity was and what type of facilities they had. Yeah,
+[00:10:17] Jen Schachter: Um. Yeah. So we, I did a little bit of work to understand, like who would be best suited for certain parts, and some of them it's just a single linkage with three or four components, and then other like the folks at NYCCNC are made the entire gearbox, which consists of you know 20 or so different assemblies. So they we divvied it up based on what folks' capacity was and what type of facilities they had. Yeah,
 
 [00:10:43] Norm: It’s big and small.
 
 [00:10:44] Unknown speaker: Yeah.
 
-[00:10:44] Adam: I'm already dreaming about putting together one for myself someday. Someday. By the way, we'll we'll link to the actual downloadable files here below the below the podcast. You can. They are publicly available. They are open source. We've released them to the NASA, Smithsonian have released them to the public. And there's already people who've made their own half scale doors, and some people are working on full scale ones too.
+[00:10:44] Adam: I'm already dreaming about putting together one for myself someday. Someday. By the way, we'll we'll link to the actual downloadable files here below the podcast. You can. They are publicly available. They are open source. We've released them to the NASA, Smithsonian have released them to the public. And there's already people who've made their own half scale doors, and some people are working on full scale ones too.
 
 [00:11:06] Jen Schachter: Yeah, there's two. I think at least two that I've seen fully full scale 3D printed versions of this using the files that Andrew created. So they're they're out there, and you can you can access them online and make your own at home.
 
-[00:11:18] Adam: And also, all of these wonderful collaborators are are we've given them lots of latitude to film, photograph, and cover in every medium that they choose the build. And I've been following it on my Twitter feed, and it's just been so delightful. The enthusiasm of people like Jimmy DiResta and all these other folks, like showing their work and really getting excited about it.
+[00:11:18] Adam: And also, all of these wonderful collaborators are we've given them lots of latitude to film, photograph, and cover in every medium that they choose the build. And I've been following it on my Twitter feed, and it's just been so delightful. The enthusiasm of people like Jimmy DiResta and all these other folks, like showing their work and really getting excited about it.
 
 [00:11:40] Jen Schachter: Yeah, yeah, and seeing how different people approach it. I know, like for Jimmy's. Pieces. He 3D printed all of the parts so that he could print them. He could understand them mechanically, and then manufactured them in in brass and some like exotic hardwood. And it's absolutely beautiful. But I heard him talking about it on his podcast, and he was saying, " I was terrified when I saw the drawings because it's that mechanically intimidating." And so he he did the three dimensional print first, and then manufactured it.
 
@@ -156,13 +156,13 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:12:13] Jen Schachter: Yeah, yeah, almost.
 
-[00:12:14] Adam: And yeah, you came up with the title " Project Egress," which I totally love. I think it's I think it's the perfect title for this. And you really brought in all of these spaces and and curated this group. The way in which this draws this community close to help celebrate this incredible thing, it moves me. And even more, I cannot wait till next Thursday when we get together and. Assemble all 46 pieces of this thing from all across the from all across the globe. We hope it goes okay. We brought a lot of tools and glue and double stick tape and things to fix things that might not have worked. I mean, something's going to go cattywampus at some point.
+[00:12:14] Adam: And yeah, you came up with the title " Project Egress," which I totally love. I think it's the perfect title for this. And you really brought in all of these spaces and curated this group. The way in which this draws this community close to help celebrate this incredible thing, it moves me. And even more, I cannot wait till next Thursday when we get together and. Assemble all 46 pieces of this thing from all across the globe. We hope it goes okay. We brought a lot of tools and glue and double stick tape and things to fix things that might not have worked. I mean, something's going to go cattywampus at some point.
 
-[00:12:55] Jen Schachter: Yeah, yeah, and we ran into that with Rosie too. I mean, we're like sawing off edges of 3D prints and packing tape around the arm. I mean, like, well, hopefully it'll be a little a little step above that for the Smithsonian, but we'll make it work.
+[00:12:55] Jen Schachter: Yeah, yeah, and we ran into that with Rosie too. I mean, we're like sawing off edges of 3D prints and packing tape around the arm. I mean well, hopefully it'll be a little step above that for the Smithsonian, but we'll make it work.
 
 [00:13:07] Norm: What type of hardware are you guys? Is it going to be nuts and bolts and screwed together?
 
-[00:13:10] Adam: Yeah, yeah. We're we're we're. Okay. So Microsoft the Microsoft Product Design Group, new friends of mine, have generously contributed a whole bunch. They contributed the base and the the the raw frame of the door that we will be bolting to, and they put brass inserts in all the holes on that door frame. And that’s not to say that everyone's hole patterns are going to perfectly match that. We're going to bring lots of drills. We got hot glue. We got crazy glue. We're We're ready for anything on this. Oh, and we haven't put any restrictions on anybody for the color or paint scheme. This this isn't meant to look exactly like the like the door, and it's not going to function. ladies, You're not going to be able to operate the gearbox, but it will. Each each space that's contributed has has chosen their own finish.
+[00:13:10] Adam: Yeah, yeah. We're. Okay. So Microsoft the Microsoft Product Design Group, new friends of mine, have generously contributed a whole bunch. They contributed the base and the raw frame of the door that we will be bolting to, and they put brass inserts in all the holes on that door frame. And that’s not to say that everyone's hole patterns are going to perfectly match that. We're going to bring lots of drills. We got hot glue. We got crazy glue. We're ready for anything on this. Oh, and we haven't put any restrictions on anybody for the color or paint scheme. This isn't meant to look exactly like the door, and it's not going to function. ladies, You're not going to be able to operate the gearbox, but it will. Each each space that's contributed has has chosen their own finish.
 
 [00:13:54] Jen Schachter: Yeah, everyone will have a different interpretation, and some of them will be wacky. You know,
 
@@ -172,19 +172,19 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:14:07] Jen Schachter: Yeah, like exquisite corpse. You know those things where you fold the paper and draw, and, uh, yeah, it'll be very much like that. We have no idea because we haven't. I've seen individual parts, but we haven't seen them all laid out next to each other. So
 
-[00:14:18] Adam: Um, you and I have a funny history building these things together because we end up in a in a groove. We end up in a groove where we barely speak, but our our brains are running on super parallel tracks. And I I I find that groove. I have found that groove with certain people over the years. Jamie Hyneman is certainly one of them. It is a very pleasurable flow state, isn't it?
+[00:14:18] Adam: You and I have a funny history building these things together because we end up in a groove. We end up in a groove where we barely speak, but our brains are running on super parallel tracks. And I I I find that groove. I have found that groove with certain people over the years. Jamie Hyneman is certainly one of them. It is a very pleasurable flow state, isn't it?
 
 [00:14:41] Jen Schachter: Yeah, yeah, and I'm excited to to bring Andrew into that because he he has all of this in his head and he knows more than anyone how all the pieces fit together. So I I'm curious to see how that all fits together with the three of us working and we'll be building it live in front of a live audience at the Air and Space Museum.
 
 [00:14:56] Adam: And we'll be live streaming that build.
 
-[00:14:59] Jen Schachter: I believe, I believe so. I hope so.
+[00:14:59] Jen Schachter: I believe so. I hope so.
 
 [00:15:00] Adam: So all the relevant links will be going up here so you guys can follow along with this. And the Smithsonian's keeping this piece in their collection. We're making a piece for the permanent collection of the Smithsonian. How crazy is that?
 
 [00:15:12] Norm: That's crazy.
 
-[00:15:13] Adam: You know, given how much like Tested has talked about the space program and how much we celebrate it here for the ingenuity, it's delightful to get to participate on the ground level with all those folks in D.C.
+[00:15:13] Adam: Given how much like Tested has talked about the space program and how much we celebrate it here for the ingenuity, it's delightful to get to participate on the ground level with all those folks in D.C.
 
 [00:15:26] Jen Schachter: Yeah, it's. I mean, the the community builds that we've done in the past have kind of been that you sort of wrap your arms around an entire group of makers and like build something together, and that's that's the part that I just I'm like buzzing right now. I'm so excited.
 
@@ -194,31 +194,31 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:15:41] Adam: that was I. I was one of the one of the people. That's that's awesome.
 
-[00:15:44] Norm: I'm blown away by just how many different programs they have going on next week or this week as you’re listening to this to celebrate the occasion. There’s, uh, the projection mapping they have announced for Washington Monument.
+[00:15:44] Norm: I'm blown away by just how many different programs they have going on next week or this week as you’re listening to this to celebrate the occasion. There’s the projection mapping they have announced for Washington Monument.
 
-[00:15:55] Adam: They're projecting a the 500 and some odd foot tall Saturn rocket that took the men to the moon onto the Washington Monument actual size and are doing a digital projection of the of the launch.
+[00:15:55] Adam: They're projecting a the 500 and some odd foot tall Saturn rocket that took the men to the moon onto the Washington Monument actual size and are doing a digital projection of the launch.
 
 [00:16:09] Jen Schachter: Yeah, with like smoke and a truck full of speakers. Like I, when they were describing it to me, I was getting goosebumps. It's going to be phenomenal.
 
 [00:16:16] Adam: And they're doing a whole bunch of these over the whole week. They're doing it at different times of the day and the night. There's actually one show at 3 a.m. when it's super quiet. I I'm I I don't think I'm going to get a lot of sleep next week in DC.
 
-[00:16:28] Norm: And I know they did. They released a four to six part documentary series. I think on PBS. That's under Smithsonian. And then also the data sets. When you talk about scale, something that Jen you brought up. Today is the the scan of the not just the hatch but the whole capsule can be now viewed on your phone or tablet in AR, so you can place it in your environment.
+[00:16:28] Norm: And I know they did. They released a four to six part documentary series. I think on PBS. That's under Smithsonian. And then also the data sets. When you talk about scale, something that Jen you brought up. Today is the scan of the not just the hatch but the whole capsule can be now viewed on your phone or tablet in AR, so you can place it in your environment.
 
 [00:16:46] Unknown speaker: Oh wow!
 
-[00:16:46] Norm: Yeah. So you can actually see how it how it could compare to objects in your room to get a sense of that size.
+[00:16:46] Norm: Yeah. So you can actually see how it could compare to objects in your room to get a sense of that size.
 
 [00:16:54] Jen Schachter: Hmm. Yeah, you can stand next to it in in AR in your in your phone.
 
 [00:16:57] Adam: I did not realize that.
 
-[00:16:58] Jen Schachter: Yeah, we should we should do that.
+[00:16:58] Jen Schachter: Yeah, we should do that.
 
 [00:17:00] Adam: We should totally do that. That sounds amazing. We have packed up a bunch of tools over here on the pool table for the trip, including my spacesuit. It just feels like it should be there. It should be with me.
 
 [00:17:09] Jen Schachter: Well, if you are not going to be a Comic Con, you sort of have to do an Adam Incognito somewhere else, right?
 
-[00:17:13] Adam: I do, I do. It's required. I am not going to Comic Con for the first time in 12 years. I am sad about that, but I am psyched about why.
+[00:17:13] Adam: I do. It's required. I am not going to Comic Con for the first time in 12 years. I am sad about that, but I am psyched about why.
 
 [00:17:22] Norm: And then, in terms of the other things happening, I think we can say that SFMOMA is doing something interesting. They have an exhibit. They’ve announced
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:21:59] Norm: It's hung up above the exhibit, but it's one of those pieces that wherever ends up, it deserves to be a thing you can walk around. Yeah.
 
-[00:22:06] Adam: And it’s lit on the inside. And the the Pan Am plane is flying into the space station like the poster from 2001.
+[00:22:06] Adam: And it’s lit on the inside. And the Pan Am plane is flying into the space station like the poster from 2001.
 
 [00:22:13] Jen Schachter: Well, when we get back from DCA, I know where I'm going to go check out.
 
@@ -284,25 +284,25 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:22:18] Jen Schachter: Oh, there's yeah, there's too many good things happening at once.
 
-[00:22:21] Adam: Too many good things at once. Um, um, we are about halfway through the airing run for Savage Builds, of which you were one of the key key builders on it. Um, I'm loving looking at your at your social media feed at the pictures you have on your phone because they're so different than the ones I take.
+[00:22:21] Adam: Too many good things at once. We are about halfway through the airing run for Savage Builds, of which you were one of the key key builders on it. I'm loving looking at your social media feed at the pictures you have on your phone because they're so different than the ones I take.
 
-[00:22:37] Jen Schachter: Yeah, everyone's different perspective from where you know where they were working at during the during the build.
+[00:22:37] Jen Schachter: Yeah, everyone's different perspective from where you know where they were working at during the build.
 
 [00:22:42] Adam: So it'll happen. I'm going through my Twitter feed. I'm like, oh, that looks familiar. It's from my shoot. That's from the other. That looks interesting. Yeah.
 
-[00:22:48] Jen Schachter: Um. Yeah. Yeah. It's been fun. I I have so many awesome pictures. You know, there's a lot of time when you like you build the thing, and then once the cameras are rolling, there's a lot of kind of standing around waiting for things to be needed. So document document the process and everything that's happening. But I haven't been able to share them with anyone. So as I see the episodes coming up, I'm like, oh, now I can tell show people this cool thing that we were working on. But
+[00:22:48] Jen Schachter: Um. Yeah. Yeah. It's been fun. I have so many awesome pictures. There's a lot of time when you like you build the thing, and then once the cameras are rolling, there's a lot of kind of standing around waiting for things to be needed. So document document the process and everything that's happening. But I haven't been able to share them with anyone. So as I see the episodes coming up, I'm like, oh, now I can tell show people this cool thing that we were working on. But
 
-[00:23:09] Adam: Delightful. I uh uh we threw you in the deep end on that on that show.
+[00:23:09] Adam: Delightful. I we threw you in the deep end on that show.
 
-[00:23:13] Jen Schachter: Uh, it was it was a new one for me. I mean, I've I've never worked on a TV show before, definitely. And there's a lot of the the crew have been working together with you for years.
+[00:23:13] Jen Schachter: It was a new one for me. I mean, I've I've never worked on a TV show before, definitely. And there's a lot of the crew have been working together with you for years.
 
 [00:23:23] Adam: Yeah.
 
 [00:23:23] Jen Schachter: And so I was very much the green person on set.
 
-[00:23:26] Adam: It's a good family, though. I I knew you would be well well cared for.
+[00:23:26] Adam: It's a good family, though. I knew you would be well well cared for.
 
-[00:23:30] Jen Schachter: Uh, everyone is amazing, and I learned like every single day was like learning. It was information overload. I was learning so much.
+[00:23:30] Jen Schachter: Everyone is amazing, and I learned like every single day was like learning. It was information overload. I was learning so much.
 
 [00:23:37] Adam: Like a fire hose.
 
@@ -314,7 +314,7 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:24:05] Adam: The weather was such a nightmare.
 
-[00:24:06] Jen Schachter: We had all these, you know, you have all this planning and timelines and when you're going to do shoots, and then just it poured for like three months straight at the beginning of the year.
+[00:24:06] Jen Schachter: We had all these you have all this planning and timelines and when you're going to do shoots, and then just it poured for like three months straight at the beginning of the year.
 
 [00:24:13] Adam: It poured, and we should let you know that you'll notice that I'm rarely in a t-shirt in for the first five or six episodes, and that's because it was freaking cold in that shop, like so cold. We would have like cheese as a snack, like one afternoon, and then we just leave it on the table because we were basically working in a refrigerator.
 
@@ -332,11 +332,11 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:25:08] Adam: nitroglycerin is what will have just aired when you're listening.
 
-[00:25:10] Norm: Exactly. So this Friday, as you're listening to this, I don't have you have you announced?
+[00:25:10] Norm: Exactly. So this Friday, as you're listening to this, I don't have you announced?
 
 [00:25:15] Adam: I don't know what is it.
 
-[00:25:16] Norm: Oh, it's it's the thing sitting right there.
+[00:25:16] Norm: Oh, it's the thing sitting right there.
 
 [00:25:19] Adam: Oh, it's the ZF two.
 
@@ -344,23 +344,23 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:25:21] Adam: Yes. Yeah. So yeah, the after nitroglycerin, the episode will air is my build of the ZF-1 from the Fifth Element, the egg gun that shoots six different things nets. Arrows, flames, ice, bullets, and a raw, an exploding tipped rocket. We made one. We attempted to do our best to make one that actually functioned in every way to the original, and how close we got is a story in and of itself.
 
-[00:25:52] Jen Schachter: I'm I'm really excited to see the episode.
+[00:25:52] Jen Schachter: I'm really excited to see the episode.
 
-[00:25:55] Adam: This was one where we did a we did a whole day of beauty shots of of just showing it off in that beautiful warehouse space down on Gerald was great.
+[00:25:55] Adam: This was one where we did a whole day of beauty shots of just showing it off in that beautiful warehouse space down on Gerald was great.
 
 [00:26:05] Jen Schachter: Yes, it's interesting to watch the episodes a few months later because it's a totally different perspective and all you know the magic of editing and all this stuff and we never get to really see it from from that that side of the camera. You just kind of deliver the baby and watch it grow up. And now now we're getting to see it. It's it's really awesome to come back around.
 
-[00:26:25] Adam: We also have a celebrity guest star on the ZF1 episode, Gary Oldman, who famously played Zorg in the Fifth Element. He couldn't come to set, so we engineered a Skype. Call, and he was generous enough to share how he invented the voice of Zorg, in conjunction with Luc Besson. Oh yeah, and he talked about what it was like to fire the flamethrower and fire the various things on set, and the ways. I mean, he had phenomenal stories. My whole crew, we shot our piece here in San Francisco, and then my son thing two went down to Gary's house and filmed with him there. And my crew, everyone had hearts coming out of their eyes by the end. Gary was so generous and so sweet. He and I have known each other for years because he's a maker. He's a maker and he builds things and paints things and he's always getting his hands dirty. He's an avid photographer. He's got a lot of wonderful hobbies and we do have an extended plan to build something together one day. We just have not gotten around to it. I love, I love the secret makers that I have met over the years. Like, yeah, it's awesome.
+[00:26:25] Adam: We also have a celebrity guest star on the ZF1 episode, Gary Oldman, who famously played Zorg in the Fifth Element. He couldn't come to set, so we engineered a Skype. Call, and he was generous enough to share how he invented the voice of Zorg, in conjunction with Luc Besson. Oh yeah, and he talked about what it was like to fire the flamethrower and fire the various things on set, and the ways. I mean, he had phenomenal stories. My whole crew, we shot our piece here in San Francisco, and then my son thing two went down to Gary's house and filmed with him there. And my crew, everyone had hearts coming out of their eyes by the end. Gary was so generous and so sweet. He and I have known each other for years because he's a maker. He's a maker and he builds things and paints things and he's always getting his hands dirty. He's an avid photographer. He's got a lot of wonderful hobbies and we do have an extended plan to build something together one day. We just have not gotten around to it. I love the secret makers that I have met over the years. Like, yeah, it's awesome.
 
 [00:27:32] Norm: We'll consider then this episode phase one of that plan
 
 [00:27:35] Adam: Precisely. Yes, of a long-term plan.
 
-[00:27:37] Norm: And and on the site this coming Monday, next Monday, we'll have another video with some close-up details after Savage Build airs of the ZF two, so you can get a close look at that.
+[00:27:37] Norm: And on the site this coming Monday, next Monday, we'll have another video with some close-up details after Savage Build airs of the ZF two, so you can get a close look at that.
 
 [00:27:48] Adam: Yeah, we've lined it up next to the ZF-1. I'm not sure that happens in great detail in the actual episode. I'm looking forward to it.
 
-[00:27:56] Norm: Oh, and so as recording this, you're days away from flying out. What what are the last things that need to be done?
+[00:27:56] Norm: Oh, and so as recording this, you're days away from flying out. What are the last things that need to be done?
 
 [00:28:02] Adam: We're actually figuring out which bags to distribute to whom in order to get there without incurring ridiculous baggage fees.
 
@@ -380,7 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:28:45] Adam: this is really important. I miss those when you don't get to do a photo one.
 
-[00:28:47] Norm: I think I, you know, we're there fewer days this year, but I'm going to definitely spend some time. Because Kishore's going to be down there with me. I'm going to hang out with him. Probably meet up with Frank down there.
+[00:28:47] Norm: I think I we're there fewer days this year, but I'm going to definitely spend some time. Because Kishore's going to be down there with me. I'm going to hang out with him. Probably meet up with Frank down there.
 
 [00:28:56] Adam: He’s good. Kishore’s getting his costume. I saw him last night at the Exploratorium. He's like rapidly getting his costume cosplay stuff together.
 

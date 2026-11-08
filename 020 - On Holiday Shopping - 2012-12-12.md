@@ -10,13 +10,13 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:00:03] Norm: And I'm Norm.
 
-[00:00:04] Will: I feel like, and we're recording at night, and I feel like I feel like we should use a kind of NPR voice for this one. You know, it should be—
+[00:00:04] Will: I feel like, and we're recording at night, and I feel like we should use a kind of NPR voice for this one. You know, it should be—
 
 [00:00:10] Adam: These are really good Schweddy balls.
 
 [00:00:12] Will: Good evening.
 
-[00:00:13] Norm: You know, we also need really fancy names if we're going to be on NPR.
+[00:00:13] Norm: We also need really fancy names if we're going to be on NPR.
 
 [00:00:16] Will: Oh, like a— I'm, I'm V. William Smith.
 
@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:00:30] Norm: They're all good names.
 
-[00:00:31] Will: The Schweddy balls thing. I was making cookies in the in the kitchen when it came on this year on the the SNL.
+[00:00:31] Will: The Schweddy balls thing. I was making cookies in the kitchen when it came on this year on the SNL.
 
 [00:00:37] Unknown speaker: Yeah.
 
@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:01:14] Will: Yeah.
 
-[00:01:14] Adam: So I didn't realize that when you're in another market like LA or Chicago, half, 90% of LAR sounds of of of NPR sounds exactly like the Schweddy ball sketch.
+[00:01:14] Adam: So I didn't realize that when you're in another market like LA or Chicago, half, 90% of LAR sounds of NPR sounds exactly like the Schweddy ball sketch.
 
 [00:01:27] Will: Oh yeah.
 
@@ -66,7 +66,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:01:40] Will: No, no, that's not to say—
 
-[00:01:41] Norm: You know, Adam, or Alec Baldwin does do a really great show on NPR where he interviews people.
+[00:01:41] Norm: Adam, or Alec Baldwin does do a really great show on NPR where he interviews people.
 
 [00:01:45] Will: Really?
 
@@ -76,21 +76,21 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:01:48] Adam: I did.
 
-[00:01:48] Norm: It was, uh, who was it this weekend?
+[00:01:48] Norm: It was who was it this weekend?
 
 [00:01:50] Adam: Kristen Wiig, and he interviewed Dick Cavett this weekend.
 
 [00:01:53] Will: Oh wow. Yeah.
 
-[00:01:54] Norm: He did Billy Joel when I when I listened.
+[00:01:54] Norm: He did Billy Joel when I listened.
 
 [00:01:57] Adam: He's interviewing all of his neighbors in Montauk. This is what he's doing.
 
 [00:02:00] Will: That makes sense.
 
-[00:02:02] Adam: You know, he's got that great raspy voice. He talks like this. He's— I'm interviewing Dick Cavett. He's my neighbor in Montauk, and you're like, it's like rich people, rich white people.
+[00:02:02] Adam: He's got that great raspy voice. He talks like this. He's— I'm interviewing Dick Cavett. He's my neighbor in Montauk, and you're like, it's like rich people, rich white people.
 
-[00:02:12] Will: The the radio show.
+[00:02:12] Will: The radio show.
 
 [00:02:13] Adam: The radio show.
 
@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:02:22] Adam: No.
 
-[00:02:24] Will: Christmas holiday gift giving season is upon us. Right here. Yeah, Christmas, Hanukkah, the whole thing, it's all about giving gifts and and you know there's a bunch of ways you can do this. You can go tromp down through the shopping district and go buy the stuff that you know with all the people that are in the crowds and—
+[00:02:24] Will: Christmas holiday gift giving season is upon us. Right here. Yeah, Christmas, Hanukkah, the whole thing, it's all about giving gifts and you know there's a bunch of ways you can do this. You can go tromp down through the shopping district and go buy the stuff that you know with all the people that are in the crowds and—
 
 [00:02:39] Adam: You can—
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:02:44] Adam: Yeah, you can go to the Ferry Building and fantasize about mass murder. Or—
 
-[00:02:48] Will: You know, the Ferry Building. I got to say, you can get the you can go to Boccalone and get the get the salami and the and that that is that's worth the trip. Yeah.
+[00:02:48] Will: You know, the Ferry Building. I got to say, you can get the you can go to Boccalone and get the salami and the and that that is that's worth the trip. Yeah.
 
 [00:02:58] Adam: So let's talk about a Christmas buying guide.
 
@@ -124,17 +124,17 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:03:10] Unknown speaker: Hmm.
 
-[00:03:11] Norm: The, the trick is not to have a last-minute gift.
+[00:03:11] Norm: The trick is not to have a last-minute gift.
 
 [00:03:12] Unknown speaker: Yeah.
 
-[00:03:13] Adam: Oh, I always have last-minute gift stuff. I, I will tell you that in San Francisco, down on Potrero Street Avenue—
+[00:03:13] Adam: Oh, I always have last-minute gift stuff. I will tell you that in San Francisco, down on Potrero Street Avenue—
 
 [00:03:21] Norm: Avenue.
 
 [00:03:22] Will: Street. Yeah. Avenue.
 
-[00:03:24] Adam: I've been here 22 years, and I know, I'm not sure. Um, is a store called Dandelion, and it's been there for decades.
+[00:03:24] Adam: I've been here 22 years, and I know, I'm not sure. Is a store called Dandelion, and it's been there for decades.
 
 [00:03:30] Will: Okay.
 
@@ -146,17 +146,17 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:03:40] Norm: Everything has birds on it, or something.
 
-[00:03:42] Adam: It is all, it's almost like that. I mean, everything from beautiful little things for the table, like salt cellars, to desk tchotchkes, to golf stuff, to French nouveau plates and glasses, to, so, you know, from the large to the small, the prices are really reasonable. The people there are amazing, and it has been one of our secret last-minute gift locations forever.
+[00:03:42] Adam: It is all, it's almost like that. I mean, everything from beautiful little things for the table, like salt cellars, to desk tchotchkes, to golf stuff, to French nouveau plates and glasses, to, so from the large to the small, the prices are really reasonable. The people there are amazing, and it has been one of our secret last-minute gift locations forever.
 
 [00:04:03] Norm: Thanks for giving it away.
 
 [00:04:04] Adam: Yeah, I know.
 
-[00:04:05] Will: Our our secret our gift our gift trip. My wife's birthday is in the early December, so we usually go on like a a long weekend road trip—
+[00:04:05] Will: Our secret our gift trip. My wife's birthday is in the early December, so we usually go on like a long weekend road trip—
 
 [00:04:13] Adam: Oh.
 
-[00:04:13] Will: That weekend, and then that gives us an excuse to go hit antique stores or whatever we want to see along the way. So it's it's both. I mean, poor Gina. She goes. We go out on holiday and for her birthday, and then she ends up buying Christmas, Christmas presents for everyone. But it's fun because you get to kind of tool around. Yeah, it's at this point in my life, I like shopping for other people more than I do buying crap.
+[00:04:13] Will: That weekend, and then that gives us an excuse to go hit antique stores or whatever we want to see along the way. So it's both. I mean, poor Gina. She goes. We go out on holiday and for her birthday, and then she ends up buying Christmas, Christmas presents for everyone. But it's fun because you get to kind of tool around. Yeah, it's at this point in my life, I like shopping for other people more than I do buying crap.
 
 [00:04:33] Norm: So there are tiers of presents. There are presents for people you can buy on Amazon or—
 
@@ -168,7 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:04:43] Norm: No, Amazon is—
 
-[00:04:44] Will: When I when I go when I went home for Christmas on the East Coast, Amazon is the greatest thing ever because you go buy all the stuff for the people and you send it back and you don't have to haul it on the airplane.
+[00:04:44] Will: When I go when I went home for Christmas on the East Coast, Amazon is the greatest thing ever because you go buy all the stuff for the people and you send it back and you don't have to haul it on the airplane.
 
 [00:04:51] Adam: Oh no, 100%.
 
@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:04:57] Will: Yeah.
 
-[00:04:58] Norm: Yeah, it's it's what one a.m. is for.
+[00:04:58] Norm: Yeah, it's what one a.m. is for.
 
 [00:04:59] Will: You can get booze, guns, cigarettes, anything you want on Amazon. It's there.
 
@@ -202,17 +202,17 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:05:40] Will: Hold on. What's your favorite coffee table book?
 
-[00:05:42] Adam: Ah, God, I just bought this really beautiful one about, um, charnel houses, like houses of the dead, churches full of bones.
+[00:05:42] Adam: Ah, God, I just bought this really beautiful one about charnel houses, like houses of the dead, churches full of bones.
 
 [00:05:50] Will: Pretty grim.
 
-[00:05:51] Adam: Yeah, but I, you know, it's I, I also purchased a couple of—
+[00:05:51] Adam: Yeah, but I it's I, I also purchased a couple of—
 
 [00:05:53] Unknown speaker: It's very—
 
 [00:05:54] Will: Third Indiana Jones movie.
 
-[00:05:56] Adam: I purchased a couple of, um, big Ron Cobb volumes recently. Ron Cobb is an amazing illustrator who did a bunch of the design for the interiors of the Nostromo and Alien, and a bunch of other stuff that you've seen. He co-directed Dark Star, if I am not incorrect about that. Just a seminal science fiction designer. That's the most recent thing that's shown up. Norm?
+[00:05:56] Adam: I purchased a couple of big Ron Cobb volumes recently. Ron Cobb is an amazing illustrator who did a bunch of the design for the interiors of the Nostromo and Alien, and a bunch of other stuff that you've seen. He co-directed Dark Star, if I am not incorrect about that. Just a seminal science fiction designer. That's the most recent thing that's shown up. Norm?
 
 [00:06:16] Norm: Yeah, I have too many. I like behind the scenes stuff, so I get I have all the behind the scenes Star Wars and Batman books.
 
@@ -244,13 +244,13 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:06:41] Adam: We've got it downstairs.
 
-[00:06:42] Will: Which is, it's awesome. The the original binding I think came with like lunar asteroid or something and sold for $15,000 or something ridiculous, but they reissued it like three years ago. It's great.
+[00:06:42] Will: Which is, it's awesome. The original binding I think came with like lunar asteroid or something and sold for $15,000 or something ridiculous, but they reissued it like three years ago. It's great.
 
 [00:06:51] Adam: That's awesome.
 
-[00:06:52] Will: I've given away a lot of copies of that. Um. So okay. So holiday gifts.
+[00:06:52] Will: I've given away a lot of copies of that. So okay. So holiday gifts.
 
-[00:06:55] Adam: Holiday gifts. Um. We we. I want to talk about Etsy as a great place for holiday gifts. Uh. There's still plenty of time to get stuff shipped. Uh. Remember that Etsy is an, Etsy dot com. Yeah. Uh. Is an international uh site. So you want to make sure that you're looking at somebody who's actually located in the United States if you want it here by Christmas.
+[00:06:55] Adam: Holiday gifts. We. I want to talk about Etsy as a great place for holiday gifts. There's still plenty of time to get stuff shipped. Remember that Etsy is an, Etsy dot com. Yeah. Is an international site. So you want to make sure that you're looking at somebody who's actually located in the United States if you want it here by Christmas.
 
 [00:07:15] Will: Well, you can filter by that.
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:07:28] Unknown speaker: Inside this price.
 
-[00:07:29] Adam: People offering two-day shipping. Um. And I will also say that one of the things that I love Etsy for, and we talked about it at a greater length in another podcast, but one of the things I loved, in the future, one of the things I love about Etsy is letterpress. Now, for those who don't know, letterpress is people who are printing things in the old way they used to with with with etched metal plates pressed into paper, and the difference is just massive. It looks. What's that?
+[00:07:29] Adam: People offering two-day shipping. And I will also say that one of the things that I love Etsy for, and we talked about it at a greater length in another podcast, but one of the things I loved, in the future, one of the things I love about Etsy is letterpress. Now, for those who don't know, letterpress is people who are printing things in the old way they used to with etched metal plates pressed into paper, and the difference is just massive. It looks. What's that?
 
 [00:07:56] Norm: We, I have letterpress business cards. I've, I have here. I will show you.
 
@@ -288,11 +288,11 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:08:06] Will: They feel they they feel like a cloth almost.
 
-[00:08:08] Adam: They do, and it it feels handmade. And on Etsy are tons of little boutique presses that make Christmas cards, birthday cards, anniversary cards, all of these things, and you can buy them very cheap. In fact, my wife and I just—
+[00:08:08] Adam: They do, and it feels handmade. And on Etsy are tons of little boutique presses that make Christmas cards, birthday cards, anniversary cards, all of these things, and you can buy them very cheap. In fact, my wife and I just—
 
 [00:08:21] Unknown speaker: Yeah.
 
-[00:08:22] Adam: Every few weeks buy a bunch of cards from different makers on Etsy, and we keep here. Yeah, I know a lot of people have an emergency card box. That's just our card box. We go shopping in our own box, which has, at any given point, you know, 100 cards in it.
+[00:08:22] Adam: Every few weeks buy a bunch of cards from different makers on Etsy, and we keep here. Yeah, I know a lot of people have an emergency card box. That's just our card box. We go shopping in our own box, which has, at any given point 100 cards in it.
 
 [00:08:37] Norm: Here's the funny thing about letterpress. We actually have a video about letterpress that's going up maybe in a week or two. Because there's tons of places in the city that actually do it.
 
@@ -304,7 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:08:49] Will: Well, and a bunch of fonts.
 
-[00:08:50] Norm: Having and the type the typesetting, but um. Having the actual indentation and the texture, the original letterpress did not want that. Was considered—
+[00:08:50] Norm: Having and the type the typesetting, but. Having the actual indentation and the texture, the original letterpress did not want that. Was considered—
 
 [00:08:59] Will: That was frowned upon.
 
@@ -316,7 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:09:01] Norm: But because that's such a hallmark of the letterpress format now, it's what everyone wants.
 
-[00:09:06] Adam: Well, and you know the um, what's funny is that also funny is that there's a type of ink that is on business cards that's that's itself dimensional. They put the ink on and then they bake it. It's puffy.
+[00:09:06] Adam: Well, and you know the what's funny is that also funny is that there's a type of ink that is on business cards that's itself dimensional. They put the ink on and then they bake it. It's puffy.
 
 [00:09:19] Unknown speaker: Yeah.
 
@@ -324,7 +324,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:09:24] Will: That sounds right.
 
-[00:09:25] Adam: I think that's what that's what that stuff is called. I used to do graphic design for a living, and I can't believe I can't draw that actual word out of my head anymore. But that was actually a cheap, cheap way of achieving the same dimensional effect as old letterpress for business cards.
+[00:09:25] Adam: I think that's what that stuff is called. I used to do graphic design for a living, and I can't believe I can't draw that actual word out of my head anymore. But that was actually a cheap, cheap way of achieving the same dimensional effect as old letterpress for business cards.
 
 [00:09:40] Will: But the other way.
 
@@ -338,13 +338,13 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:10:08] Norm: And you love the design. That's why you buy them, and you get to appreciate them before you give them away.
 
-[00:10:12] Adam: But you also forgot that you bought them, so you get to go through like, okay, uh, you know, our niece is having a birthday. Let's look through the birthday cards. Oh, this—
+[00:10:12] Adam: But you also forgot that you bought them, so you get to go through like, okay you know, our niece is having a birthday. Let's look through the birthday cards. Oh, this—
 
 [00:10:19] Will: Is perfect.
 
 [00:10:20] Adam: And then you give it to them. What's funny is then that they say it sounds a little weird. I gave a birthday card to my friend Tracy a few weeks ago, and she was like, "This card is great. Where did you get this?" And the answer is, "I have no idea. I had it in a box." Now that sounds like I didn't really care, but I really did.
 
-[00:10:38] Will: Yeah, you, like you, you went through and dug through the box to find it, just because the box wasn't at Hallmark doesn't mean your effort was worth, was not worthwhile.
+[00:10:38] Will: Yeah, you, like you went through and dug through the box to find it, just because the box wasn't at Hallmark doesn't mean your effort was worth, was not worthwhile.
 
 [00:10:45] Norm: I bought it three years ago for you. Right.
 
@@ -352,7 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:10:47] Adam: Yes.
 
-[00:10:49] Will: The card. See, I've always objected to the fact that I don't know what it is. I've objected to cards. Because of the Hallmark effect, the oh, you got to go and flip, and you find the one that has the oh, it says this this poem perfectly expresses my love for you.
+[00:10:49] Will: The card. See, I've always objected to the fact that I don't know what it is. I've objected to cards. Because of the Hallmark effect, the oh, you got to go and flip, and you find the one that has the oh, it says this poem perfectly expresses my love for you.
 
 [00:11:02] Unknown speaker: Yeah.
 
@@ -370,9 +370,9 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:11:12] Will: I don't think that's true. I don't. I think fortune cookies are a sign.
 
-[00:11:14] Adam: No, no, no, there was there was an article about him in the New York Times. There's a one guy wrote most of the fortunes you got up until like five or six years ago.
+[00:11:14] Adam: No, no, no, there was an article about him in the New York Times. There's a one guy wrote most of the fortunes you got up until like five or six years ago.
 
-[00:11:22] Will: If if I was in charge of the fortune cookie factory, the fortune— one out of 1,000 would have something either awesome or horrible.
+[00:11:22] Will: If I was in charge of the fortune cookie factory, the fortune— one out of 1,000 would have something either awesome or horrible.
 
 [00:11:28] Norm: You will find love—
 
@@ -380,9 +380,9 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:11:30] Will: Yeah, exactly. Flag Day. Thanks, Homer.
 
-[00:11:33] Adam: Um, so I also a couple of years ago, my wife gave me a beautiful axe for Christmas.
+[00:11:33] Adam: So I also a couple of years ago, my wife gave me a beautiful axe for Christmas.
 
-[00:11:42] Will: Like a like a wood-cutting axe, like a wood-cutting axe. Like double-bladed or one side with a hammer on the other side?
+[00:11:42] Will: Like a wood-cutting axe. Like double-bladed or one side with a hammer on the other side?
 
 [00:11:46] Adam: No, just a single-bladed wood-cutting axe with a beautifully painted handle, and it was made by this Brooklyn company called Best Made. Now, Best Made has expanded out to a bunch of other objects, and it really is like the website. If Wes Anderson's prop master could build a website, Best Made is what the website would look like.
 
@@ -394,7 +394,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:12:16] Adam: They have fantastic tools like measuring tapes that are the old style that snap out of the— out and become a solid one.
 
-[00:12:23] Will: Oh, those are those are so easy to break and awesome.
+[00:12:23] Will: Oh, those are so easy to break and awesome.
 
 [00:12:26] Adam: I know, and so I— Best Made. The website address is BestMadeCo dot com.
 
@@ -412,13 +412,13 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:12:51] Adam: I just bought this. It's a lensmatic compass. Now it's made by they researched and found a German company that makes what they consider to be the finest one, and they sell it on their site.
 
-[00:13:01] Will: This is just to be clear. This is the knockoff of this. Is what we learned to to shoot bearings and stuff with in Boy Scouts.
+[00:13:01] Will: This is just to be clear. This is the knockoff of this. Is what we learned to shoot bearings and stuff with in Boy Scouts.
 
 [00:13:08] Unknown speaker: Exactly.
 
 [00:13:08] Will: It's what every Boy Scout learned until probably the iPhone came out and they didn't need to learn maps anymore.
 
-[00:13:12] Adam: And this one's called. This one's actually so they they brand everything. This is Best Made Co.
+[00:13:12] Adam: And this one's called. This one's actually so they brand everything. This is Best Made Co.
 
 [00:13:16] Will: Okay.
 
@@ -434,15 +434,15 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:13:50] Will: It's absolutely gorgeous.
 
-[00:13:50] Adam: Um, and you'll see that when you actually hold it level and you turn, um, it's a very, very accurate compass. It's not spinning around trying to figure out what the hell direction it's pointing in.
+[00:13:50] Adam: And you'll see that when you actually hold it level and you turn it's a very, very accurate compass. It's not spinning around trying to figure out what the hell direction it's pointing in.
 
 [00:13:59] Will: Has a bubble level in the whole nine yards.
 
 [00:14:01] Adam: Yeah.
 
-[00:14:01] Will: What's the what's the axis on the side for? Is that to get make sure you're not—
+[00:14:01] Will: What's the axis on the side for? Is that to get make sure you're not—
 
-[00:14:04] Adam: I have not studied up enough to tell you. I, I, I have the little book right here. I'm going to sit in bed and read it tonight. And um, they have a beautiful book that I also bought as a Christmas present for, uh, one of my family members called How to, how to, um— God, I wish I could remember the exact title, but it's basically how to navigate if you have no compass and nothing.
+[00:14:04] Adam: I have not studied up enough to tell you. I have the little book right here. I'm going to sit in bed and read it tonight. And they have a beautiful book that I also bought as a Christmas present for one of my family members called How to— God, I wish I could remember the exact title, but it's basically how to navigate if you have no compass and nothing.
 
 [00:14:26] Will: Oh, so it's the moss on the north side of the tree—
 
@@ -456,7 +456,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:14:31] Adam: Um.
 
-[00:14:32] Will: Um, I, I mean, it's interesting because stuff like that. Like that, I I always like the kind of anachronistic instruments, the slide rules—
+[00:14:32] Will: I mean, it's interesting because stuff like that. Like that, I I always like the kind of anachronistic instruments, the slide rules—
 
 [00:14:38] Unknown speaker: Yes.
 
@@ -464,43 +464,43 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:14:39] Adam: Oh yeah.
 
-[00:14:40] Will: Uh, tape measure.
+[00:14:40] Will: Tape measure.
 
-[00:14:41] Adam: Well, that's um, again why, um, one of my favorite objects in the world is my Curta calculator.
+[00:14:41] Adam: Well, that's again why one of my favorite objects in the world is my Curta calculator.
 
-[00:14:47] Will: This is something that that my my grandfather knew how to use, and I would have, you know, have it in the foggiest.
+[00:14:47] Will: This is something that that my grandfather knew how to use, and I would have have it in the foggiest.
 
 [00:14:51] Norm: I have an abacus.
 
 [00:14:52] Will: I can work a slide rule, or I used to be able to.
 
-[00:14:54] Adam: This is this is yeah. I am just going to pause to derail this for a minute. This is called the coffee— it's like referred to as a coffee grinder. You actually the operation is ludicrously complex, but you actually set things here for the number of decimal points. You set your number on these long slides, and then you do addition by moving this, and then you. I mean—
+[00:14:54] Adam: This is yeah. I am just going to pause to derail this for a minute. This is called the coffee— it's like referred to as a coffee grinder. You actually the operation is ludicrously complex, but you actually set things here for the number of decimal points. You set your number on these long slides, and then you do addition by moving this, and then you. I mean—
 
 [00:15:19] Will: Yeah.
 
-[00:15:20] Adam: All these operations. However, you can factor out like two, uh—
+[00:15:20] Adam: All these operations. However, you can factor out like two—
 
 [00:15:25] Will: It's—
 
 [00:15:25] Adam: 14 decimal points with this freaking thing.
 
-[00:15:28] Will: Yeah, it's, it's, you'd have to have a slide rule like 20 feet long to do that.
+[00:15:28] Will: Yeah, it's, you'd have to have a slide rule like 20 feet long to do that.
 
-[00:15:30] Adam: Oh, yeah, no, this is nontrivial what you can do, and, uh, one of the things it was used for very frequently was, uh, rallying, uh, for calculating rally times while racing. Um, yeah, this is.
+[00:15:30] Adam: Oh, yeah, no, this is nontrivial what you can do, and one of the things it was used for very frequently was rallying for calculating rally times while racing. Um, yeah, this is.
 
 [00:15:43] Will: Yeah, at some point, some guy looked up and was like, "I've I've cracked it, guys! We've broken the slide rule. We— you throw out your slide rules. This thing is going to change the world." And then nobody could figure out.
 
-[00:15:51] Adam: They made something like they made hundreds of thousands of these between the '50s and and the early '70s when the Texas Instruments first digital—
+[00:15:51] Adam: They made something like they made hundreds of thousands of these between the '50s and the early '70s when the Texas Instruments first digital—
 
 [00:16:04] Will: The first solar calculator.
 
 [00:16:05] Adam: Calculator came out and it killed the Curta.
 
-[00:16:08] Will: Well, and if you and if you think about it, those digital calculators. I mean, I remember when I was 10, 10, 8 or 10 years old, maybe six years old. I had an aunt who gave me what I'm sure was a phenomenally expensive solar TI calculator.
+[00:16:08] Will: Well, and if you think about it, those digital calculators. I mean, I remember when I was 10, 10, 8 or 10 years old, maybe six years old. I had an aunt who gave me what I'm sure was a phenomenally expensive solar TI calculator.
 
 [00:16:18] Adam: Yeah.
 
-[00:16:18] Will: That was the foldable. It had the little little folding thing, and you you could do. I think it had eight eight decimal places you could go, and that was magic.
+[00:16:18] Will: That was the foldable. It had the little little folding thing, and you could do. I think it had eight eight decimal places you could go, and that was magic.
 
 [00:16:26] Adam: No, I know. I mean—
 
@@ -526,9 +526,9 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:17:08] Norm: Right. So what do you do?
 
-[00:17:10] Adam: Um, I'll often buy two.
+[00:17:10] Adam: I'll often buy two.
 
-[00:17:11] Norm: That's that's the right answer. Yes. I love this so much, and I don't have it. And the fact that I would want it for myself is a sign that it's a great gift.
+[00:17:11] Norm: That's the right answer. Yes. I love this so much, and I don't have it. And the fact that I would want it for myself is a sign that it's a great gift.
 
 [00:17:20] Adam: Yes.
 
@@ -540,13 +540,13 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:17:29] Will: Well, that's the hard thing.
 
-[00:17:31] Adam: Well, there's there's several ways of gift giving, right? Like there's the I really appreciate you gift, which you know I definitely, uh, I I will give my producers gifts this year. I have some custom gifts for the MythBusters crew. I do those, um, not every Christmas necessarily, but at least once a year, I do do a custom run of something for the MythBusters crew. And then there's the gifts for your loved ones, where you really want to you really want to get them something that they wouldn't consider or they didn't know existed. And that's those can be the hardest ones to find.
+[00:17:31] Adam: Well, there's there's several ways of gift giving, right? Like there's the I really appreciate you gift, which you know I definitely I I will give my producers gifts this year. I have some custom gifts for the MythBusters crew. I do those, um, not every Christmas necessarily, but at least once a year, I do do a custom run of something for the MythBusters crew. And then there's the gifts for your loved ones, where you really want to get them something that they wouldn't consider or they didn't know existed. And that's those can be the hardest ones to find.
 
-[00:18:04] Will: Well, sometimes sometimes something something sometimes you find something that's kind of life changing that's really easy. You know, like a few years ago, a friend of ours introduced us to this. It's a thermos, and it's just a thermos, but it's an amazing thermos.
+[00:18:04] Will: Well, sometimes sometimes something something sometimes you find something that's kind of life changing that's really easy. Like a few years ago, a friend of ours introduced us to this. It's a thermos, and it's just a thermos, but it's an amazing thermos.
 
 [00:18:16] Adam: It's the best thermos.
 
-[00:18:17] Will: Because you can, the— it's Japanese, so it's it's from people that normally make rice cookers, and you press the button, and the little lid flops open, so you don't pour coffee on yourself while you're trying to get the coffee in the little cup while you're driving with your knee and nice and like that's the kind of thing that like is a slam dunk. It's $20. You jam it in everybody's stocking.
+[00:18:17] Will: Because you can, the— it's Japanese, so it's from people that normally make rice cookers, and you press the button, and the little lid flops open, so you don't pour coffee on yourself while you're trying to get the coffee in the little cup while you're driving with your knee and nice and like that's the kind of thing that like is a slam dunk. It's $20. You jam it in everybody's stocking.
 
 [00:18:33] Norm: $36.
 
@@ -562,13 +562,13 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:18:44] Adam: Yeah.
 
-[00:18:45] Will: That's that's you know perfect.
+[00:18:45] Will: That's you know perfect.
 
-[00:18:48] Adam: And you know, other people—
+[00:18:48] Adam: And other people—
 
 [00:18:48] Will: It's hard.
 
-[00:18:49] Adam: Sometimes. And other people do these things like they they purchase gifts throughout the year. I've never been like for people that they love.
+[00:18:49] Adam: Sometimes. And other people do these things like they purchase gifts throughout the year. I've never been like for people that they love.
 
 [00:18:57] Will: Yeah, that's really hard to do.
 
@@ -580,7 +580,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:19:15] Will: It's good that you'll fight that.
 
-[00:19:16] Adam: The number of things that I want to buy them, and then the number of things that I actually will buy them are very different numbers. But, uh, you know, they both have abused my collection of high-end headphones to such a degree that when I found a review on Engadget recently for, uh, the best headphones for around $100—
+[00:19:16] Adam: The number of things that I want to buy them, and then the number of things that I actually will buy them are very different numbers. But they both have abused my collection of high-end headphones to such a degree that when I found a review on Engadget recently for the best headphones for around $100—
 
 [00:19:37] Will: No, no, that's a Wirecutter story.
 
@@ -592,7 +592,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:19:43] Will: It's okay. He doesn't listen to the show.
 
-[00:19:46] Adam: Um. It was Wirecutter. Those best headphones for under $100.
+[00:19:46] Adam: It was Wirecutter. Those best headphones for under $100.
 
 [00:19:50] Will: Yeah, they're fantastic.
 
@@ -602,7 +602,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:19:52] Adam: Yep.
 
-[00:19:53] Will: Um. So they don't tangle up. I can't, I wish I could remember what the model numbers, they're—
+[00:19:53] Will: So they don't tangle up. I can't, I wish I could remember what the model numbers, they're—
 
 [00:19:56] Norm: Oh God. Boing Boing had a pro tip. You want the the inserts, the the foam.
 
@@ -616,13 +616,13 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:20:06] Will: A little soft memory foam.
 
-[00:20:07] Adam: Um. And then uh uh uh. Also, each of my kids, they're both uh pretty accomplished musicians at this point.
+[00:20:07] Adam: And then. Also, each of my kids, they're both pretty accomplished musicians at this point.
 
 [00:20:13] Unknown speaker: Yeah.
 
-[00:20:13] Adam: Uh, and one got a bass and one got a really nice guitar.
+[00:20:13] Adam: And one got a bass and one got a really nice guitar.
 
-[00:20:17] Will: So I I mean, with kids, it's funny because sometimes kids ask for really unusual things. Like I, I remember when my when my kid sister was six years old, all she wanted in the world was an electric typewriter. Like she thought an electric typewriter was the coolest thing ever.
+[00:20:17] Will: So I I mean, with kids, it's funny because sometimes kids ask for really unusual things. Like I, I remember when my kid sister was six years old, all she wanted in the world was an electric typewriter. Like she thought an electric typewriter was the coolest thing ever.
 
 [00:20:31] Adam: I still think that the IBM Selectric.
 
@@ -634,7 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:20:40] Adam: Although someone's already done it, I'm sure.
 
-[00:20:41] Will: I would be really sad if— it's almost sad to take one apart, but we should do an anachronistic, um, anachronistic instruments.
+[00:20:41] Will: I would be really sad if— it's almost sad to take one apart, but we should do an anachronistic anachronistic instruments.
 
 [00:20:47] Adam: I totally agree.
 
@@ -648,15 +648,15 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:21:00] Unknown speaker: No.
 
-[00:21:00] Will: When I worked, when I worked on Capitol Hill, all of the all of the response secretaries, the ones that would write the letter responses, had IBM Selectrics, and you had to type the letter in perfectly once, but then you would just turn the dial to 25, hit go—
+[00:21:00] Will: When I worked on Capitol Hill, all of the response secretaries, the ones that would write the letter responses, had IBM Selectrics, and you had to type the letter in perfectly once, but then you would just turn the dial to 25, hit go—
 
 [00:21:12] Unknown speaker: Okay. Oh my God.
 
-[00:21:14] Will: And it would type out everything except for the address and the and the salutation and the date.
+[00:21:14] Will: And it would type out everything except for the address and the salutation and the date.
 
 [00:21:18] Adam: That's crazy.
 
-[00:21:19] Will: And it was it was a massive time saver because it was—
+[00:21:19] Will: And it was a massive time saver because it was—
 
 [00:21:21] Unknown speaker: Oh, yeah.
 
@@ -670,7 +670,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:21:35] Will: Yeah.
 
-[00:21:36] Adam: Yeah. A friend of mine's daughter only wants, uh, some little stuffed dog that actually poops.
+[00:21:36] Adam: Yeah. A friend of mine's daughter only wants some little stuffed dog that actually poops.
 
 [00:21:41] Will: Well, well, one year I wanted a bad dog— badminton racket. I didn't even want the net or the the. I just wanted the racket because I didn't really work out the whole mechanism. I, I just assumed that once you had your own racket, badminton would find you wherever you went.
 
@@ -692,7 +692,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:22:12] Will: Norm, you're going through— right, you're going through your third childhood now.
 
-[00:22:15] Adam: Yeah, that's what eBay is for, is for all of us to go through our third childhood.
+[00:22:15] Adam: Yeah, that's what eBay is for all of us to go through our third childhood.
 
 [00:22:18] Will: I always wanted an AT-AT, and I never got one.
 
@@ -704,15 +704,15 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:22:23] Will: No, now my wife says I can't, I don't have any room.
 
-[00:22:25] Adam: Oh, and actually, when I was doing, you know, gathering more memorabilia from Alien, I bought the entire Topps trading card set from Alien.
+[00:22:25] Adam: Oh, and actually, when I was doing gathering more memorabilia from Alien, I bought the entire Topps trading card set from Alien.
 
-[00:22:34] Will: Because you know the the total value on the Topps trading card set is. I mean, what did you your Marvel cards—
+[00:22:34] Will: Because you know the total value on the Topps trading card set is. I mean, what did you your Marvel cards—
 
 [00:22:40] Norm: Yeah, they're—
 
 [00:22:40] Will: They were a treasure to you as a child.
 
-[00:22:42] Norm: And and now they're cheap. It's $30.
+[00:22:42] Norm: And now they're cheap. It's $30.
 
 [00:22:44] Will: Yeah. For a whole box—
 
@@ -730,11 +730,11 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:23:26] Adam: Yes.
 
-[00:23:26] Will: And the places to look are like the local, not VA, the like the the—
+[00:23:26] Will: And the places to look are like the local, not VA, the like the—
 
 [00:23:32] Norm: Weeklies.
 
-[00:23:33] Will: But look in the look in look in your if you have a if you have a weekly alternative magazine, definitely check there. Look in the newspaper. Check Craigslist. They're usually in places like the like the, like the, like the, like the Shriners Hall and stuff like that, like the the places where they used to have computer shows. You guys will know what we're talking about. Go there and and find your find your—
+[00:23:33] Will: But look in the look in your if you have a weekly alternative magazine, definitely check there. Look in the newspaper. Check Craigslist. They're usually in places like the Shriners Hall and stuff like that the places where they used to have computer shows. You guys will know what we're talking about. Go there and find your—
 
 [00:23:52] Adam: Find your maker.
 
@@ -754,11 +754,11 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:24:08] Adam: Housekeeping.
 
-[00:24:09] Will: Um, new site. The podcast is on a new feed.
+[00:24:09] Will: New site. The podcast is on a new feed.
 
 [00:24:12] Unknown speaker: Yeah.
 
-[00:24:12] Will: So if you would like to subscribe to the podcast, you can on iTunes. We could use some reviews. We don't have any right now because this feed's brand new. Um, and and as always, uh, we'll be back next Tuesday with another episode of Still Untitled.
+[00:24:12] Will: So if you would like to subscribe to the podcast, you can on iTunes. We could use some reviews. We don't have any right now because this feed's brand new. And as always we'll be back next Tuesday with another episode of Still Untitled.
 
 [00:24:24] Adam: So we shall.
 

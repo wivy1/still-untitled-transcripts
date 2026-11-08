@@ -30,7 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:01:02] Norm: does that that feel weird? That sounds weird to me.
 
-[00:01:03] Adam: Totally seems. I'm having, um, I'm having like—
+[00:01:03] Adam: Totally seems. I'm having like—
 
 [00:01:03] Norm: A strong sense memory.
 
@@ -64,13 +64,13 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:01:33] Unknown speaker: All right.
 
-[00:01:33] Adam: It's on the on the left panel here.
+[00:01:33] Adam: It's on the left panel here.
 
 [00:01:33] Jeremy: Yeah.
 
-[00:01:33] Adam: The lead is just ever so slightly too short, and for some reason, it slowly works itself away. I might just have to, you know, zip tie it.
+[00:01:33] Adam: The lead is just ever so slightly too short, and for some reason, it slowly works itself away. I might just have to zip tie it.
 
-[00:01:47] Jeremy: You know, one of the voice artists for Adventure Time actually saw the video and asked me to build him an identical electronic like situation for his chair.
+[00:01:47] Jeremy: One of the voice artists for Adventure Time actually saw the video and asked me to build him an identical electronic like situation for his chair.
 
 [00:01:47] Adam: Nice,
 
@@ -78,7 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:01:47] Adam: Well, it's a trip to L.A.
 
-[00:01:47] Jeremy: It's a lot of work. If there's support issues, I can't come on his podcast and get the support call, you know, right away. So it's we'll see, we'll see. Right,
+[00:01:47] Jeremy: It's a lot of work. If there's support issues, I can't come on his podcast and get the support call right away. So it's we'll see. Right,
 
 [00:02:07] Norm: but it's also it would be a captain's chair.
 
@@ -98,23 +98,23 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:02:24] Adam: integrating electronics requires coordination in the building, in the design, in the execution. There's all sorts of stuff we had to communicate about, and we had a whole system that didn't work at first, right?
 
-[00:02:37] Jeremy: That's right. Yeah. Well, that was the beauty of that of that show. I think is that it did fail. You know, and it failed it failed really well. Yeah. But yeah, then we went back and saw what was wrong and fixed it.
+[00:02:37] Jeremy: That's right. Yeah. Well, that was the beauty of that show. I think is that it did fail. And it failed really well. Yeah. But yeah, then we went back and saw what was wrong and fixed it.
 
-[00:02:47] Norm: There are multiple components. The component you're talking about, this guy asking you about, is the the cards. So,
+[00:02:47] Norm: There are multiple components. The component you're talking about, this guy asking you about, is the cards. So,
 
 [00:02:53] Adam: oh, is that what he wants to do?
 
 [00:02:53] Jeremy: The whole thing, but yeah.
 
-[00:02:54] Norm: But the the cards specifically, you have
+[00:02:54] Norm: But the cards specifically, you have
 
-[00:02:57] Adam: I have reed switches, and that is a terrible, terrible way to go. Reed switches are super, super finicky. They're touchy. They fail. We had a failure mode of like 50% of the reed switches. And there is solid state electronics that do this that can switch a switch a current because of magnetism.
+[00:02:57] Adam: I have reed switches, and that is a terrible, terrible way to go. Reed switches are super, super finicky. They're touchy. They fail. We had a failure mode of like 50% of the reed switches. And there is solid state electronics that do this that can switch a current because of magnetism.
 
 [00:03:18] Jeremy: Right. Yeah. Well, and there is pinball machines are filled with them nowadays.
 
 [00:03:18] Adam: Yeah.
 
-[00:03:18] Jeremy: They all used to be, you know, physical switches, and then they moved to optical switches. So that's a possibility too: is just to put IR, you know, holes maybe in the bottom of the card so that it would read that way. Or yeah, there is a
+[00:03:18] Jeremy: They all used to be physical switches, and then they moved to optical switches. So that's a possibility too: is just to put IR holes maybe in the bottom of the card so that it would read that way. Or yeah, there is a
 
 [00:03:34] Norm: what's the smallest form factor card you could put you can make that would still have that magnet inside a specific location?
 
@@ -128,9 +128,9 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:04:01] Unknown speaker: Yeah, yeah
 
-[00:04:08] Norm: right. I mean, if someone wanted to make a you know a a very bootstrap low end type of electronic prop or something where you put a card in a door opens or some some animatronic thing happens, they could use this without having to program.
+[00:04:08] Norm: right. I mean, if someone wanted to make a you know a very bootstrap low end type of electronic prop or something where you put a card in a door opens or some some animatronic thing happens, they could use this without having to program.
 
-[00:04:22] Jeremy: No, the beauty is it looks like a regular switch. I mean, that was I'd never used those switches before. That was Adam's, you know, idea.
+[00:04:22] Jeremy: No, the beauty is it looks like a regular switch. I mean, that was I'd never used those switches before. That was Adam's idea.
 
 [00:04:27] Adam: And it's me from because I was born in the '70s, and I was like, oh yeah, reed switch. I had literally, it's a Will Smith was like, why didn't you use a blankety blank switch? And I know you guys are going to write about it in the comments because I can't remember because I'm old. But
 
@@ -140,7 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:05:00] Jeremy: yeah,
 
-[00:05:00] Adam: such a a relative. That's it's just relatively simple things. It was like 19 switches or something like that. 16 switches total.
+[00:05:00] Adam: such a relative. That's it's just relatively simple things. It was like 19 switches or something like that. 16 switches total.
 
 [00:05:07] Norm: And then you have interchangeable parts. Maintenance is super easy.
 
@@ -152,7 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:05:17] Adam: we could just put a laptop back there.
 
-[00:05:19] Norm: Now that's the that's the real old school brute force method. Putting a laptop behind everything. Oh, I have an old laptop, and then that's just waste of power.
+[00:05:19] Norm: Now that's the real old school brute force method. Putting a laptop behind everything. Oh, I have an old laptop, and then that's just waste of power.
 
 [00:05:26] Adam: Well, I mean, so one of my dream props is the Voight-Kampff machine from Blade Runner, and if you can see some of the behind the scenes photos of the crafts people and tech people working on the Voight-Kampff machine, which had three different monitors, which in the 1979, 1980, these were done with tiny CRT monitors,
 
@@ -160,11 +160,11 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:05:49] Adam: Which required all the signal input and all these electronics in order to be able to take that signal and turn it into an image.
 
-[00:05:57] Norm: Same with the the scanner in Aliens.
+[00:05:57] Norm: Same with the scanner in Aliens.
 
 [00:05:57] Adam: Mm hmm.
 
-[00:05:57] Norm: Right, the the proximity scanner,
+[00:05:57] Norm: Right, the proximity scanner,
 
 [00:06:02] Adam: yeah. Which I don't know if at ever am I right about this? Did it not ever quite work practically?
 
@@ -184,7 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:06:27] Adam: scanning functioning motion sensors into their Aliens motion tracker.
 
-[00:06:27] Jeremy: That’s great. We've been rewatching Star Trek: Next Generation in my household because my 10 year old is now interested in this, and it's so cool to see all the displays in the earlier seasons because none of them are actual displays. It's just like plastic with some moving, you know, filters behind them that reveal light in various ways, and it just creates an effect.
+[00:06:27] Jeremy: That’s great. We've been rewatching Star Trek: Next Generation in my household because my 10 year old is now interested in this, and it's so cool to see all the displays in the earlier seasons because none of them are actual displays. It's just like plastic with some moving filters behind them that reveal light in various ways, and it just creates an effect.
 
 [00:06:49] Adam: Is this original series or next gen?
 
@@ -200,7 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:07:01] Adam: You're smiling indulgently like I've told this story
 
-[00:07:30] Norm: twice before. Yeah, because because that's that's a unnecessary aspect of production design. It's like it's like a makeup artist, you know, programming LEDs to blink Morse code or something. Right. But it's like it totally because it's almost easier to make it functional and it adds to the performance.
+[00:07:30] Norm: twice before. Yeah, because that's a unnecessary aspect of production design. It's like a makeup artist programming LEDs to blink Morse code or something. Right. But it's like it totally because it's almost easier to make it functional and it adds to the performance.
 
 [00:07:46] Adam: It totally adds to the performance. So Ridley Scott said that when they kludged together all the interior of the Nostromo for Alien, the actors totally got into it because every switch lit something.
 
@@ -218,11 +218,11 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:08:15] Jeremy: I remember. I had a whole system involved where I’d press this button and then this button.
 
-[00:08:23] Norm: The aliens had programmed the real ship based on his acting movements of of that ship, and even like in helmets. We're talking about even like in the alien covenant helmets.
+[00:08:23] Norm: The aliens had programmed the real ship based on his acting movements of that ship, and even like in helmets. We're talking about even like in the alien covenant helmets.
 
 [00:08:23] Adam: Yeah.
 
-[00:08:23] Norm: You know, FBFX putting in monitors and LCDs in there. Yes, it's for ambient light, but also it helps immerse the actors into the character.
+[00:08:23] Norm: FBFX putting in monitors and LCDs in there. Yes, it's for ambient light, but also it helps immerse the actors into the character.
 
 [00:08:41] Adam: In the Prometheus helmets, there's one, two, three, four, five, six, seven, eight, nine. I think 11 working animated screens in the Prometheus costumes.
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:08:53] Adam: They're incredible.
 
-[00:08:53] Norm: It's a you can go on a deep dive into fake UI for film, even modern-day films, relatively modern-day, like near future films. At the exhibit we went to in in the UK, the science fiction exhibit, they had. I don't know if you saw this one station that had just the on-screen graphics for the Martian.
+[00:08:53] Norm: It's a you can go on a deep dive into fake UI for film, even modern-day films, relatively modern-day, like near future films. At the exhibit we went to in the UK, the science fiction exhibit, they had. I don't know if you saw this one station that had just the on-screen graphics for the Martian.
 
 [00:09:11] Adam: Oh no! I missed that.
 
@@ -238,7 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:09:12] Adam: Right,
 
-[00:09:12] Norm: and then they press the button, and then with the line, the the screen image change.
+[00:09:12] Norm: and then they press the button, and then with the line, the screen image change.
 
 [00:09:42] Adam: Wait, Jeff Bridges
 
@@ -246,15 +246,15 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:09:44] Adam: I was going to say Jeff Bridges is not in the Martian.
 
-[00:09:46] Norm: Jeff Daniels, yes, he's he's in the Martian. You know, Jeremy, the reason, or I'm not sure why the reason I I've in my memory
+[00:09:46] Norm: Jeff Daniels, yes, he's in the Martian. Jeremy, the reason, or I'm not sure why the reason I I've in my memory
 
 [00:09:46] Jeremy: Yeah.
 
-[00:09:46] Norm: that you've been on this podcast for, but that effect is very real. The the Mandela effect.
+[00:09:46] Norm: that you've been on this podcast for, but that effect is very real. The Mandela effect.
 
 [00:10:01] Jeremy: You've been referring to this recently. Can you refresh my memory? What is the Mandela effect?
 
-[00:10:05] Norm: Um. So I believe culturally, it's attributed to the fact that many people, in their collective memory, thought Nelson. There was a news report that Nelson Mandela died. No,
+[00:10:05] Norm: So I believe culturally, it's attributed to the fact that many people, in their collective memory, thought Nelson. There was a news report that Nelson Mandela died. No,
 
 [00:10:15] Adam: no, yes. There's a large number of people who believe they distinctly remember when they heard that Nelson Mandela died on Baffin Island, where he was in prison for 27 years.
 
@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:10:36] Norm: Yes.
 
-[00:10:37] Adam: But but there's there's many other
+[00:10:37] Adam: But there's there's many other
 
 [00:10:40] Norm: phenomena.
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:11:15] Adam: Exactly. Exactly. So I and I remember reading about the Bernstein Bears as a thing and being like, " Wow, no, I really do remember saying as a kid, Bernstein Bears, Bernstein Bears, and just like it should have been spelled E-I-N like any other Bernstein, but it's not. There's an A there.
 
-[00:11:30] Norm: And you can Google all of these, like this list of things. Most famously, recently, of course, was the Sinbad, the the comedian, and people believing that there were there was a movie he starred in '90 called Kazam.
+[00:11:30] Norm: And you can Google all of these, like this list of things. Most famously, recently, of course, was the Sinbad, the comedian, and people believing that there were there was a movie he starred in '90 called Kazam.
 
 [00:11:45] Adam: But they're mistaking that for the Shaq movie. where Shaq played a genie called
 
@@ -312,21 +312,21 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:12:08] Jeremy: It wasn’t purely invented.
 
-[00:12:09] Norm: And also, people deduce like his name is Sinbad, and so it's evoking, yeah, Sinbad and the voyage of the seven seas, and there, that's the the clothing could be very genie-like,
+[00:12:09] Norm: And also, people deduce like his name is Sinbad, and so it's evoking, yeah, Sinbad and the voyage of the seven seas, and there, that's the clothing could be very genie-like,
 
 [00:12:09] Jeremy: right, right, right, right
 
-[00:12:09] Norm: So, but the the reason it ties to this podcast is, did we talk about it last week? No, the video we released. So I broke my camera lens filter again. And Adam, we shot a video.
+[00:12:09] Norm: So, but the reason it ties to this podcast is, did we talk about it last week? No, the video we released. So I broke my camera lens filter again. And Adam, we shot a video.
 
-[00:12:33] Adam: Let's let's just be clear. Like like most photographers, Norm has a frangible, has a a clear glass covering on the front of his expensive lenses. Yes. As a as a what you call it a an ablative, a protective barrier, so that if he drops the lens, that's what shatters, not the front element of the actual lens.
+[00:12:33] Adam: Let's let's just be clear. Like most photographers, Norm has a frangible, has a clear glass covering on the front of his expensive lenses. Yes. As a what you call it a an ablative, a protective barrier, so that if he drops the lens, that's what shatters, not the front element of the actual lens.
 
 [00:12:55] Norm: Right. It's a UV filter. You can put multiple filters, and unlike most photographers, I don't use a camera strap.
 
 [00:12:55] Adam: Right. So
 
-[00:12:55] Norm: I don't I don't put a Strap around my my chest or my hand, and I dropped the camera. Broke the filter. Brought it to Adam. We shot a video with Adam fixing the lens, and you took it to a bandsaw. The filter.
+[00:12:55] Norm: I don't put a Strap around my chest or my hand, and I dropped the camera. Broke the filter. Brought it to Adam. We shot a video with Adam fixing the lens, and you took it to a bandsaw. The filter.
 
-[00:13:13] Adam: Well, so we first tried this this this wrench that I thought was meant for removing filters, but it's actually meant for re-rounding the the threads for it. And when that didn't work, because this entire thing had happened before a few months ago when you got your this the Mark IV, am I right?
+[00:13:13] Adam: Well, so we first tried this wrench that I thought was meant for removing filters, but it's actually meant for re-rounding the threads for it. And when that didn't work, because this entire thing had happened before a few months ago when you got your this the Mark IV, am I right?
 
 [00:13:31] Norm: Yes, the Canon 5D.
 
@@ -342,13 +342,13 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:14:08] Norm: And I came back, and you said, " Oh, I, I fix it. I got the filter off." But then you told the story of how you took it to a bandsaw.
 
-[00:14:17] Adam: So Norm, like Norm, you you contorted into a sort of a question mark where you were almost hovering off your chair at the thought because I had to take this camera lens to the bandsaw to notch both sides of the lens without actually messing up your expensive lens, and I did it. Well, so then you dropped the camera. This is like a year and a half ago.
+[00:14:17] Adam: So Norm, like Norm, you contorted into a sort of a question mark where you were almost hovering off your chair at the thought because I had to take this camera lens to the bandsaw to notch both sides of the lens without actually messing up your expensive lens, and I did it. Well, so then you dropped the camera. This is like a year and a half ago.
 
 [00:14:38] Norm: Yeah, six months ago. Yeah, six months ago. Yes, absolutely. So
 
 [00:14:40] Adam: then you dropped. You had the same thing happen again. This time, confident that I knew I could do this, I again took it to the bandsaw and notched it. We covered it on Tested, but there was a whole bunch of commentary in the thread.
 
-[00:14:53] Norm: Yes, and people were posting in the the comments of the video. I've seen this. This is a video I've seen before, to the point where people on Twitter were saying they had seen, they had vividly remembered the thumbnail of the video. Which was the thumbnail is the lens going into the bandsaw, and
+[00:14:53] Norm: Yes, and people were posting in the comments of the video. I've seen this. This is a video I've seen before, to the point where people on Twitter were saying they had seen, they had vividly remembered the thumbnail of the video. Which was the thumbnail is the lens going into the bandsaw, and
 
 [00:15:11] Jeremy: because they would have seen a video, a photo of your cracked lens six months ago.
 
@@ -376,7 +376,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:16:03] Adam: such are my powers of storytelling.
 
-[00:16:05] Norm: It's it's amazing. People are absolutely convinced, and I think some one way they tried to justify it was they think that there was a similar reaction that Michael Stevens had when you did the video with him when you tweaked his glasses to put the microphone in. Oh,
+[00:16:05] Norm: It's amazing. People are absolutely convinced, and I think some one way they tried to justify it was they think that there was a similar reaction that Michael Stevens had when you did the video with him when you tweaked his glasses to put the microphone in. Oh,
 
 [00:16:23] Adam: that was dremeling, and people found it awful to watch me dremeling close to glasses lenses.
 
@@ -384,9 +384,9 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:16:28] Adam: interesting.
 
-[00:16:30] Jeremy: I just want to know how do you know where to stop? I mean, watching you do that on the bandsaw, you you there's no margin of error. I mean, you won't.
+[00:16:30] Jeremy: I just want to know how do you know where to stop? I mean, watching you do that on the bandsaw, you there's no margin of error. I mean, you won't.
 
-[00:16:39] Adam: There's a there's a yeah
+[00:16:39] Adam: There's a yeah
 
 [00:16:40] Jeremy: there's a
 
@@ -402,7 +402,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:17:10] Jeremy: I got it
 
-[00:17:10] Adam: right, and so then I know that aluminum is strong enough to use as a wrench, and I needed a material on either side of the fully hardened alloy. What do you call it? Ring of the filter that is also anodized, so it's very rigid. And if I'm 180 degrees offset, I'm balancing the the load. So then it's just a matter of holding on to the lens carefully, which is better with hands than any vise. So yeah, I if you saw, I didn't come. There wasn't zero margin of error. There literally was like the thickness of a paper match, which from a machining standpoint is like scads. And I, you know, I [unclear: couldn’t / can] go very.
+[00:17:10] Adam: right, and so then I know that aluminum is strong enough to use as a wrench, and I needed a material on either side of the fully hardened alloy. What do you call it? Ring of the filter that is also anodized, so it's very rigid. And if I'm 180 degrees offset, I'm balancing the load. So then it's just a matter of holding on to the lens carefully, which is better with hands than any vise. So yeah, I if you saw, I didn't come. There wasn't zero margin of error. There literally was like the thickness of a paper match, which from a machining standpoint is like scads. And I I [unclear: couldn’t / can] go very.
 
 [00:17:54] Jeremy: I'd forgotten. So I, I was imagining you were actually cutting it off.
 
@@ -422,13 +422,13 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:18:06] Norm: yeah.
 
-[00:18:07] Adam: So I'm pulling it off like a scope, like a scope ring, or any other. These watches use this this type of wrench. But there is a much more exciting explanation than cultural false memory for the Mandela effect,
+[00:18:07] Adam: So I'm pulling it off like a scope ring, or any other. These watches use this type of wrench. But there is a much more exciting explanation than cultural false memory for the Mandela effect,
 
 [00:18:07] Norm: Hmm. which is
 
 [00:18:25] Adam: which is that it's caused by anomalies created by experiments in the Large Hadron Collider.
 
-[00:18:33] Norm: This is the this is the conspiracy theory.
+[00:18:33] Norm: This is the conspiracy theory.
 
 [00:18:36] Adam: This is a conspiracy theory. It's my favorite conspiracy theory.
 
@@ -460,7 +460,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:19:59] Norm: my goodness!
 
-[00:20:00] Adam: But it is. It is, it is a movie that both Norm and I have watched in its entirety recently.
+[00:20:00] Adam: But it is. It is a movie that both Norm and I have watched in its entirety recently.
 
 [00:20:06] Jeremy: Where do you watch this movie now? It's not in the theaters.
 
@@ -494,7 +494,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:21:01] Norm: so he reached out and you know every film. The reason I watched The Great Wall, because I had extra two hours, and I I know that really talented people work behind the scenes of that film, and I wanted to appreciate their work.
 
-[00:21:21] Adam: Also, look, I wanted to. There's been a there has been a lot of important debate about the casting of people of color in Hollywood, consistently taking white actors and turning them Japanese, like Scarlett Johansson in in Ghost in the Shell, or not even turning Japanese but changing the plot of Japanese stories to fit white actors, and these are important debates to have. And this came up with Matt Damon starring in The Great Wall, and
+[00:21:21] Adam: Also, look, I wanted to. There's been a there has been a lot of important debate about the casting of people of color in Hollywood, consistently taking white actors and turning them Japanese, like Scarlett Johansson in Ghost in the Shell, or not even turning Japanese but changing the plot of Japanese stories to fit white actors, and these are important debates to have. And this came up with Matt Damon starring in The Great Wall, and
 
 [00:21:51] Norm: which is not an American film.
 
@@ -502,19 +502,19 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:22:34] Norm: It's an interesting take on that exchange, that cultural exchange, because the way we typically think of it is that there's an American film made in the Hollywood studio system that maybe has some foreign investment, and for that movie to be successful overseas, then they put in a token character, and that's it happens so often. Token casting.
 
-[00:22:55] Adam: There's um there's a theory online that I've read that the the That the length of the scenes in * The Martian* about the Chinese help with getting help to Matt Damon had to do with Chinese money for the Martian film. It
+[00:22:55] Adam: There's there's a theory online that I've read that the length of the scenes in * The Martian* about the Chinese help with getting help to Matt Damon had to do with Chinese money for the Martian film. It
 
 [00:23:09] Norm: portrayed the country in a very national good light.
 
-[00:23:13] Adam: There's also cases in which American films are are edited differently with extra storylines added for release in China.
+[00:23:13] Adam: There's also cases in which American films are edited differently with extra storylines added for release in China.
 
-[00:23:20] Norm: In * Iron Man* three, for example, that whole subplot where the the arc reactor being removed from Tony Stark's body, which is just a mention in in the epilogue of the film, is a full scene because it's an Asian doctor. He does it in China, and and again shows off their talents and and fulfills that obligation.
+[00:23:20] Norm: In * Iron Man* three, for example, that whole subplot where the arc reactor being removed from Tony Stark's body, which is just a mention in the epilogue of the film, is a full scene because it's an Asian doctor. He does it in China, and again shows off their talents and fulfills that obligation.
 
-[00:23:40] Adam: But this this is oh sorry go ahead.
+[00:23:40] Adam: But this is oh sorry go ahead.
 
 [00:23:41] Jeremy: This movie was made for the Chinese audience. Do you think
 
-[00:23:43] Norm: it was made for both? So I think it was it was done within the Chinese film industry. It had almost 99% Asian actors, Chinese actors, but they spoke a mixture of Mandarin and English, not dubbed. So it was.
+[00:23:43] Norm: it was made for both? So I think it was done within the Chinese film industry. It had almost 99% Asian actors, Chinese actors, but they spoke a mixture of Mandarin and English, not dubbed. So it was.
 
 [00:23:59] Adam: It's a peculiar movie,
 
@@ -524,15 +524,15 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:24:09] Norm: Speaking English exclusively,
 
-[00:24:11] Adam: with with the Chinese actors, and look, I just thought I'm in a hotel room in Seattle. I've got I can't sleep, and I'm scrolling through the movies, and I'm thinking, what do I have energy for, right? So, there was like a lot of emotional movies, and I'm there. Right. I'm away from home. I don't want to watch something that's going to make me sad about the world. I need some escapism, and I don't want to watch another Jason Sudeikis comedy. So, which seems
+[00:24:11] Adam: with the Chinese actors, and look, I just thought I'm in a hotel room in Seattle. I've got I can't sleep, and I'm scrolling through the movies, and I'm thinking, what do I have energy for, right? So, there was like a lot of emotional movies, and I'm there. Right. I'm away from home. I don't want to watch something that's going to make me sad about the world. I need some escapism, and I don't want to watch another Jason Sudeikis comedy. So, which seems
 
 [00:24:38] Norm: to be like those
 
-[00:24:39] Adam: as much as as good as those are. I decided, yeah, let's watch this. And again, for all these reasons, I'm interested in the cultural exchange.
+[00:24:39] Adam: as much as good as those are. I decided, yeah, let's watch this. And again, for all these reasons, I'm interested in the cultural exchange.
 
 [00:24:39] Unknown speaker: Yeah.
 
-[00:24:39] Adam: You know, I've I've I've always loved the idea that the American Western sort of died in America. Went to Japan, became a whole different genre under under Akira Kurosawa, paying homage to it and making it grow up, and then it goes to Italy where Sergio Leone brings it back to America through it. Like so, this idea of cultures moving and appropriating in in in an artistically reasonable way, parts of each other's culture that help us frame ourselves and understand ourselves. And again, I say this understanding that the debate about what is proper cultural appropriation and what is I can't remember the actual term of art right now is an important debate, and it's a it's a reasonable debate to be having with all of this. And I wanted to see I wanted to see how the Great Wall did it.
+[00:24:39] Adam: I've always loved the idea that the American Western sort of died in America. Went to Japan, became a whole different genre under under Akira Kurosawa, paying homage to it and making it grow up, and then it goes to Italy where Sergio Leone brings it back to America through it. Like so, this idea of cultures moving and appropriating in an artistically reasonable way, parts of each other's culture that help us frame ourselves and understand ourselves. And again, I say this understanding that the debate about what is proper cultural appropriation and what is I can't remember the actual term of art right now is an important debate, and it's a reasonable debate to be having with all of this. And I wanted to see how the Great Wall did it.
 
 [00:24:39] Unknown speaker: Yep.
 
@@ -590,11 +590,11 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:27:24] Norm: Remember?
 
-[00:27:33] Adam: So the the sequel, which is called
+[00:27:33] Adam: So the sequel, which is called
 
 [00:27:35] Norm: Oh, I don't know. Sword of Destiny.
 
-[00:27:36] Adam: Sword of destiny. Well done. That was that was because you were like, I don't know. Oh, actually, I do. The sequel, Sword of Destiny, is 10 minutes in. If you loved Crouching Tiger, 10 minutes into Sword of Destiny, you'll be like, I don't know about this movie, but I'm here to say, Sword of Destiny is really lovely. I'm. It's not as. It's not as. Technically amazing as Crouching Tiger, it doesn't include such transcendent moments as the sword fight in the bamboo forest, in the trees of the bamboo forest, or things like that. But it has a lovely heart, and Donnie Yen and Michelle Yeoh do a tremendous job at bringing in a fabulously complex relationship, unfulfilled relationship, into the into the core of this film. And I really, really liked it. I found that it hit its emotional moments, even as it wasn't, like I said, it wasn't as as as technically masterfully put together as as Crouching Tiger.
+[00:27:36] Adam: Sword of destiny. Well done. That was because you were like, I don't know. Oh, actually, I do. The sequel, Sword of Destiny, is 10 minutes in. If you loved Crouching Tiger, 10 minutes into Sword of Destiny, you'll be like, I don't know about this movie, but I'm here to say, Sword of Destiny is really lovely. I'm. It's not as. It's not as. Technically amazing as Crouching Tiger, it doesn't include such transcendent moments as the sword fight in the bamboo forest, in the trees of the bamboo forest, or things like that. But it has a lovely heart, and Donnie Yen and Michelle Yeoh do a tremendous job at bringing in a fabulously complex relationship, unfulfilled relationship, into the core of this film. And I really, really liked it. I found that it hit its emotional moments, even as it wasn't, like I said, it wasn't as technically masterfully put together as Crouching Tiger.
 
 [00:28:32] Jeremy: I would expect that a movie like that, probably done on a stricter budget, who knows? Netflix has, you know, their own banks probably, but that it would be done using a lot more computers than the originally used wires. Yeah,
 
@@ -636,9 +636,9 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:30:05] Norm: Oh, and they show it. They show the full fight, but the story is that it happens in their minds between a drop of water Wow. As water is falling. Yeah.
 
-[00:30:13] Adam: It's so well done. It's so beautiful. Um,
+[00:30:13] Adam: It's so well done. It's so beautiful.
 
-[00:30:18] Norm: that's that's my recommendation. If you haven't seen, um, uh, if you if you haven't seen it, if you're looking
+[00:30:18] Norm: that's my recommendation. If you haven't seen it, if you're looking
 
 [00:30:24] Adam: for an intro into Chinese cinema, so is it? Yeah, all of that director's films and Hero is not the first one.
 
@@ -662,13 +662,13 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:31:01] Adam: No.
 
-[00:31:01] Norm: Oh, it's a it's a cultural revolution movie.
+[00:31:01] Norm: Oh, it's a cultural revolution movie.
 
 [00:31:01] Adam: Oh.
 
 [00:31:01] Norm: House of Flying Daggers.
 
-[00:31:07] Adam: House of Flying Daggers. I knew there was something flying in the title. House of Flying Daggers is also really beautiful and has some, again, really sophisticatedly graphic and graphic. What do you call this? It has wonderful use of CG in a very graphic and mannerist style. So, like, two people will be fighting in a room where rose petals are falling at this constant rate. That kind of thing. The color almost takes over your critical physics brain in some of these cases.
+[00:31:07] Adam: House of Flying Daggers. I knew there was something flying in the title. House of Flying Daggers is also really beautiful and has some, again, really sophisticatedly graphic and graphic. What do you call this? It has wonderful use of CG in a very graphic and mannerist style. So two people will be fighting in a room where rose petals are falling at this constant rate. That kind of thing. The color almost takes over your critical physics brain in some of these cases.
 
 [00:31:41] Norm: The cinematographer that he's worked with is a Western guy.
 
@@ -678,9 +678,9 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:31:46] Adam: it's not the Australian guy. It is. It's the Australian guy that shoots for Wong Kar Wai.
 
-[00:31:50] Norm: I I believe so.
+[00:31:50] Norm: I believe so.
 
-[00:31:52] Adam: Because there's like the the the the again his name escapes me, but there's this Aussie DP who works
+[00:31:52] Adam: Because there's like the again his name escapes me, but there's this Aussie DP who works
 
 [00:31:59] Norm: Christopher Doyle.
 
@@ -712,7 +712,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:32:46] Jeremy: Exactly. And Apparently, this is really serious and dark. Perfectly said. I mean,
 
-[00:32:53] Norm: If you watched the trailer. The the brief for the scriptwriter was like, write me a movie in which. Jackie Chan is sad and never smiles. Entire movie.
+[00:32:53] Norm: If you watched the trailer. The brief for the scriptwriter was like, write me a movie in which. Jackie Chan is sad and never smiles. Entire movie.
 
 [00:33:01] Jeremy: And the dude was too old to do his own stunts 15 years ago, and he's still doing them like a champion.
 
@@ -722,9 +722,9 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:33:14] Norm: is taken.
 
-[00:33:15] Jeremy: The yeah, it is. It's it's his.
+[00:33:15] Jeremy: The yeah, it is. It's his.
 
-[00:33:17] Norm: He does the old man, the retired, you know, old ex special forces agent
+[00:33:17] Norm: He does the old man, the retired old ex special forces agent
 
 [00:33:23] Jeremy: to avenge the death of his daughter.
 
@@ -742,7 +742,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:33:41] Norm: Spectre is up there.
 
-[00:33:43] Adam: Spectre is up there. Roger Deakins, like the I love him. I love him, and he's one of the best DPs going today. I'm super excited about about Blade Runner because of him. But I think from a and Look, I say that also knowing that the that the poker game in Casino Royale, and I've probably said this before, is so abysmally terrible.
+[00:33:43] Adam: Spectre is up there. Roger Deakins, like the I love him. I love him, and he's one of the best DPs going today. I'm super excited about about Blade Runner because of him. But I think from a and Look, I say that also knowing that the poker game in Casino Royale, and I've probably said this before, is so abysmally terrible.
 
 [00:33:43] Unknown speaker: It’s absurd.
 
@@ -754,7 +754,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:33:43] Jeremy: Oh, that's your plan.
 
-[00:33:43] Norm: Yes. And it was it was written in the height of the poker craze, and yet the hands they eventually reveal are absurd. It's like
+[00:33:43] Norm: Yes. And it was written in the height of the poker craze, and yet the hands they eventually reveal are absurd. It's like
 
 [00:34:28] Adam: I've got a full house. I've got a bigger full house. I've got four of a kind. I've got a straight flush. I've got a royal straight flush. Oh my! Like the
 
@@ -762,7 +762,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:34:44] Adam: It’s so astronomically out of any range of possibility.
 
-[00:34:48] Jeremy: So Adam, I need some parenting advice from you. Where do you start with Bond films with with your kids? What do you think is the first film I should introduce?
+[00:34:48] Jeremy: So Adam, I need some parenting advice from you. Where do you start with Bond films with your kids? What do you think is the first film I should introduce?
 
 [00:34:55] Adam: Wow, that's a really good question. So, how old are yours?
 
@@ -784,13 +784,13 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:35:17] Jeremy: okay,
 
-[00:35:17] Adam: male-female relationships, which is which is the movie in which Sean Connery does the whole " Yersh" and the woman's like " No," and he's like " Yersh."
+[00:35:17] Adam: male-female relationships, which is the movie in which Sean Connery does the whole " Yersh" and the woman's like " No," and he's like " Yersh."
 
 [00:35:25] Norm: I think it's Thunderball.
 
 [00:35:29] Adam: It's a horrifying.
 
-[00:35:30] Norm: Yeah. So the question is, how early do you want? I think the answer the answer is if you want them, if you want to introduce Bond to them as early as possible, as young as possible,
+[00:35:30] Norm: Yeah. So the question is, how early do you want? I think the answer is if you want them, if you want to introduce Bond to them as early as possible, as young as possible,
 
 [00:35:41] Jeremy: right? You gotta go later.
 
@@ -826,7 +826,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:36:44] Adam: Does he really?
 
-[00:36:44] Norm: In the opening scene, he he chases a woman down the beach. She gets she she rejects him, and he turns to the camera. He goes, " Well, that didn't happen to the other guy. That never happens to the other guy." Like a full-on acknowledgement that he was he was a new Bond, and that one had an amazing production design. Oh my God! From the guy who did * Strangelove*, and
+[00:36:44] Norm: In the opening scene, he chases a woman down the beach. She gets she rejects him, and he turns to the camera. He goes, " Well, that didn't happen to the other guy. That never happens to the other guy." Like a full-on acknowledgement that he was a new Bond, and that one had an amazing production design. Oh my God! From the guy who did * Strangelove*, and
 
 [00:37:06] Adam: yes, Ken Adams.
 
@@ -848,17 +848,17 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:37:39] Unknown speaker: Ken Adams is a giant
 
-[00:38:01] Norm: and production design or production today could not produce in the same way he did. Like when he draws his War Rooms, they are massive in scale. They they are like it's the Interior of the volcano base, like that is his design. In the Lazenby, when all the double O's are around their big round table with the tall chairs behind them, like you would never, you don't see that in like Kingsman at all. Yeah, they put that in a boardroom.
+[00:38:01] Norm: and production design or production today could not produce in the same way he did. Like when he draws his War Rooms, they are massive in scale. They are like it's the Interior of the volcano base, like that is his design. In the Lazenby, when all the double O's are around their big round table with the tall chairs behind them, like you would never, you don't see that in like Kingsman at all. Yeah, they put that in a boardroom.
 
-[00:38:26] Adam: What maybe, maybe with the Bond thing, maybe you, maybe you also introduce. You can pepper in all these Bond tenets, like the Bourne films and Archer. You can you can play around with helping them understand the full the full range of how our culture has responded to and and adopted and infused itself with James Bond.
+[00:38:26] Adam: What maybe, maybe with the Bond thing, maybe you also introduce. You can pepper in all these Bond tenets, like the Bourne films and Archer. You can play around with helping them understand the full range of how our culture has responded to and adopted and infused itself with James Bond.
 
 [00:38:52] Norm: Oh gosh, you could do that with so many of these essential tropes, like the Space Marine.
 
 [00:38:52] Adam: Yep.
 
-[00:38:52] Norm: You know, you start with aliens, and then you have this list of a dozen, two dozen movies that follow in its footsteps that establish that type of combining science fiction with Vietnam.
+[00:38:52] Norm: You start with aliens, and then you have this list of a dozen, two dozen movies that follow in its footsteps that establish that type of combining science fiction with Vietnam.
 
-[00:39:07] Adam: The the Verhoeven
+[00:39:07] Adam: The Verhoeven
 
 [00:39:09] Norm: Starship Troopers.
 
@@ -886,7 +886,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:39:45] Jeremy: I got to watch it again. I saw it once. I saw this is stupid. I didn't get how self self referential it probably was.
 
-[00:39:51] Norm: The movie works on so many levels. I remember watching as a kid in middle school and being a new first rated R film, one of the first rated R films I saw, and loving it, not realizing that I was loving this satire. You watch it now, realizing it's satire, and it is. It's it's deep.
+[00:39:51] Norm: The movie works on so many levels. I remember watching as a kid in middle school and being a new first rated R film, one of the first rated R films I saw, and loving it, not realizing that I was loving this satire. You watch it now, realizing it's satire, and it is. It's deep.
 
 [00:40:08] Jeremy: Yeah,
 
@@ -898,7 +898,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:40:30] Jeremy: How young?
 
-[00:40:32] Adam: They they keep lambasting me about this. I think they were like just just under 10 or 10, right around 10.
+[00:40:32] Adam: They keep lambasting me about this. I think they were like just just under 10 or 10, right around 10.
 
 [00:40:39] Jeremy: That's when I saw The Shining, and that was a mistake.
 
@@ -968,11 +968,11 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:42:35] Jeremy: and video games.
 
-[00:42:37] Adam: I mean, you know, have you ever seen the Spy Who Came in from the Cold?
+[00:42:37] Adam: I mean have you ever seen the Spy Who Came in from the Cold?
 
 [00:42:41] Jeremy: No,
 
-[00:42:41] Adam: with Richard Burton. It's it's from a John le Carré novel, and it's one of the darkest spy movies. Really, really hard to take, and really bleak in its outlook and execution. An amazing film, but you know, le Carré was kind of writing the antithesis of what Fleming was.
+[00:42:41] Adam: with Richard Burton. It's from a John le Carré novel, and it's one of the darkest spy movies. Really, really hard to take, and really bleak in its outlook and execution. An amazing film, but le Carré was kind of writing the antithesis of what Fleming was.
 
 [00:43:02] Norm: Well, we'd love to hear from you in the comments below, and thank you, Jeremy, for joining us.
 

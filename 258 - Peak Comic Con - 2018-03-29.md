@@ -30,7 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:00:55] Adam: it's a really civilized temperature.
 
-[00:00:57] Will: We we like, I was walking down the street on the way here today, and I was like, man. This is like the first day of spring, except for it's really like it's been like this all week.
+[00:00:57] Will: We like, I was walking down the street on the way here today, and I was like, man. This is like the first day of spring, except for it's really like it's been like this all week.
 
 [00:01:05] Norm: It's the first day of baseball. Doesn't that count as the first day of spring?
 
@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:01:11] Adam: Yes. Okay. Cool.
 
-[00:01:11] Will: Yeah, the large men with the with the wooden wooden sticks.
+[00:01:11] Will: Yeah, the large men with the wooden wooden sticks.
 
 [00:01:15] Adam: Hey, I I brought a piece of new technology into my house.
 
@@ -58,7 +58,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:01:34] Will: I'm well.
 
-[00:01:35] Adam: I I I I was. Here's the thing: I was totally against having a panopticon in my house.
+[00:01:35] Adam: I was. Here's the thing: I was totally against having a panopticon in my house.
 
 [00:01:42] Will: Yeah.
 
@@ -80,11 +80,11 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:02:13] Adam: Drink it in.
 
-[00:02:15] Will: So my Alexa, my my Echo has started going haywire lately.
+[00:02:15] Will: So my Alexa, my Echo has started going haywire lately.
 
 [00:02:19] Adam: Really?
 
-[00:02:20] Will: Yeah. Like there was a couple of days, maybe two weeks ago, where we just started having alarms that we didn't set off going off at two two o'clock in the morning, 2:20 in the morning, 2:45 in the morning. Then I unplugged it, so I don't know how much longer it would have gone. And then last night I was laying in bed getting ready to go to sleep, and it was just like the time is 12:22. I was like, " Well, I didn't ask you what the time was. Why are you talking to me?" So I'm I went from I've done the other I yeah I rebooted it. It seems to it seems to help temporarily. I don't know what's going on with it. It's weird.
+[00:02:20] Will: Yeah. Like there was a couple of days, maybe two weeks ago, where we just started having alarms that we didn't set off going off at two two o'clock in the morning, 2:20 in the morning, 2:45 in the morning. Then I unplugged it, so I don't know how much longer it would have gone. And then last night I was laying in bed getting ready to go to sleep, and it was just like the time is 12:22. I was like, " Well, I didn't ask you what the time was. Why are you talking to me?" So I'm I went from I've done the other I yeah I rebooted it. It seems to help temporarily. I don't know what's going on with it. It's weird.
 
 [00:02:48] Adam: Here's the thing: I had a lovely dinner with the CTO of a large Fortune 500 company, and he has like five of these in his house. And it's controlling over 100 smart devices in his life, and as far as he was concerned, like it was all a net awesome. Oh, right. Like, and I so that made me like, yeah, okay, let's give this a shot.
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:03:53] Adam: Right.
 
-[00:03:53] Will: Um, I find the Google one is even better. Oh, the the Google one is started out really rough and has gotten very good.
+[00:03:53] Will: I find the Google one is even better. Oh, the Google one is started out really rough and has gotten very good.
 
 [00:04:00] Adam: Have you seen?
 
@@ -120,21 +120,21 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:04:05] Will: Oh, I have a I have my own five year old. I've seen it.
 
-[00:04:07] Adam: I it's it's there's this amazing video of Eric Chang's son using the the the the Google whatever you call that thing
+[00:04:07] Adam: I it's there's this amazing video of Eric Chang's son using the Google whatever you call that thing
 
 [00:04:14] Will: Google Home yeah
 
-[00:04:15] Adam: Google Home um to to learn Chinese words for things oh so he's like hey Google hey Google and Eric's like you have to wait and he's like I don't have to wait
+[00:04:15] Adam: Google Home to learn Chinese words for things oh so he's like hey Google and Eric's like you have to wait and he's like I don't have to wait
 
-[00:04:27] Will: oh my my
+[00:04:27] Will: oh my
 
 [00:04:28] Adam: It's so it's the most delightful video to watch We watched a couple times I'll admit
 
-[00:04:32] Will: my my daughter will like she plays she knows all the tricks for the Alexa she'll be like Alexa you know what's what's happening today and it goes through and like Alexa, sing me a song
+[00:04:32] Will: my daughter will like she plays she knows all the tricks for the Alexa she'll be like Alexa you know what's what's happening today and it goes through and like Alexa, sing me a song
 
 [00:04:42] Adam: oh nice
 
-[00:04:42] Will: um she asks for the
+[00:04:42] Will: She asks for the
 
 [00:04:45] Adam: What kind of songs does she sing?
 
@@ -142,7 +142,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:04:53] Adam: really
 
-[00:04:53] Will: it's It's a
+[00:04:53] Will: it's a
 
 [00:04:55] Adam: happy birthday stretch Armstrong. Now only 16.99.
 
@@ -152,11 +152,11 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:05:03] Norm: The merits of logistics?
 
-[00:05:04] Will: Are you kidding me? It's, it's, it's. I am trying to think. It's just like it's.
+[00:05:04] Will: Are you kidding me? It's. I am trying to think. It's just like it's.
 
 [00:05:10] Norm: Automation is awesome.
 
-[00:05:12] Will: Yeah, that's it. That's one of them. It's, it's grim.
+[00:05:12] Will: Yeah, that's it. That's one of them. It's grim.
 
 [00:05:14] Adam: So, parenthood is constantly being bombarded by shitty music. It really is. Either you are going to concerts at your kid's school, which, by the way, are delightful, but they're exhausting.
 
@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:06:15] Adam: Yeah,
 
-[00:06:15] Will: once you introduce that to your like, we had a rule in our house when when our daughter was young that like toys that made noise weren't allowed in the house until we heard what they sounded like, not in her presence.
+[00:06:15] Will: once you introduce that to your like, we had a rule in our house when our daughter was young that like toys that made noise weren't allowed in the house until we heard what they sounded like, not in her presence.
 
 [00:06:26] Adam: Yeah, yeah,
 
@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:07:08] Adam: Everyone, keep going.
 
-[00:07:10] Will: This is this is what the legal teams of Kellogg's and Disney Pixar were able to agree upon. Um, I so so look. Here's the secret.
+[00:07:10] Will: This is what the legal teams of Kellogg's and Disney Pixar were able to agree upon. I so so look. Here's the secret.
 
 [00:07:19] Norm: I'm going to shift shift the topic.
 
@@ -214,7 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:07:35] Adam: regular Totoro, yeah,
 
-[00:07:37] Will: Inside Out. Like all the Giacchino to Pixar soundtracks are great. Just, just don't let them know that there's any. Yeah, don't let them know there's any music that exists outside of film. Like when when my daughter heard the new Jack White album, she's like, " Dad, what movie is this from?"
+[00:07:37] Will: Inside Out. Like all the Giacchino to Pixar soundtracks are great. Just, just don't let them know that there's any. Yeah, don't let them know there's any music that exists outside of film. Like when my daughter heard the new Jack White album, she's like, " Dad, what movie is this from?"
 
 [00:07:53] Adam: So, oh, nice.
 
@@ -224,7 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:07:58] Will: We have a limited time.
 
-[00:07:59] Norm: I'm looking across the the cave, and I see these these signs.
+[00:07:59] Norm: I'm looking across the cave, and I see these these signs.
 
 [00:08:03] Adam: Oh, yes,
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:09:01] Will: like and unsubscribe.
 
-[00:09:02] Adam: What it's gonna be. Um, Emma Gonzalez is standing up there for six minutes and 20 seconds in total silence
+[00:09:02] Adam: What it's gonna be. Emma Gonzalez is standing up there for six minutes and 20 seconds in total silence
 
 [00:09:09] Will: Yeah.
 
@@ -314,25 +314,25 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:09:55] Will: Your kickoff of con season,
 
-[00:09:56] Norm: and you know, I love conventions less so for the show floor these days and what's on the floor, and more for just seeing people and seeing
+[00:09:56] Norm: and I love conventions less so for the show floor these days and what's on the floor, and more for just seeing people and seeing
 
-[00:10:08] Adam: people you know, people that you like, people that you admire
+[00:10:08] Adam: people people that you like, people that you admire
 
-[00:10:10] Norm: exactly. And and and whether they're droid builders or cosplayers or just people who I've met at conventions, that ends up being most of what I do at these conventions because the floor, honestly, it's a lot of the same stuff, and I'm really interested to see as people are organizing conventions how they're going to shift from you know just a lot of the the Funko toys or these mystery loot boxes that people are selling and. And what? When do we hit peak convention? I don't know what that what that what it is. Yeah,
+[00:10:10] Norm: exactly. And whether they're droid builders or cosplayers or just people who I've met at conventions, that ends up being most of what I do at these conventions because the floor, honestly, it's a lot of the same stuff, and I'm really interested to see as people are organizing conventions how they're going to shift from you know just a lot of the Funko toys or these mystery loot boxes that people are selling and. And what? When do we hit peak convention? I don't know what that what it is. Yeah,
 
 [00:10:42] Adam: that's a good question.
 
-[00:10:45] Will: I mean, because you assume eventually, like, that all of the people that want to buy out of, uh, print Funko Pops are going to find a place to do that, right?
+[00:10:45] Will: I mean, because you assume eventually that all of the people that want to buy out of print Funko Pops are going to find a place to do that, right?
 
-[00:10:52] Norm: Yeah, and and there's a there's totally a case be made for a type of convention that you pay, you know, the the admission fee for the day to go to. You're paying basically to go enter a marketplace. You're paying so that all the the cool toy stores and collectible stores that if you're not in a hugely populated area, if you're in the Midwest or you may not have any of those stores. You're paying for all of those to be in one place at once. But then you're also paying to you know like like going to like like going to a you know a craft fair or you're going to a swap meet. Like you're paying to enter to buy more stuff.
+[00:10:52] Norm: Yeah, and there's a there's totally a case be made for a type of convention that you pay, you know, the admission fee for the day to go to. You're paying basically to go enter a marketplace. You're paying so that all the cool toy stores and collectible stores that if you're not in a hugely populated area, if you're in the Midwest or you may not have any of those stores. You're paying for all of those to be in one place at once. But then you're also paying to you know like going to a you know a craft fair or you're going to a swap meet. Like you're paying to enter to buy more stuff.
 
 [00:11:30] Will: But I mean, these cons aren't all about just buying stuff. I mean, for a lot of people, they are.
 
-[00:11:34] Norm: For a lot of people, they are, and and and there are panels, absolutely, and it's a place to go hear about the the newest you know comic book and the newest TV show.
+[00:11:34] Norm: For a lot of people, they are, and there are panels, absolutely, and it's a place to go hear about the newest you know comic book and the newest TV show.
 
-[00:11:41] Will: But the thing I realized going to PAX years ago is that for a lot of people, they go to PAX and and Comic Con and all these places because it's a place for them to be around like minded people, and it's there it's their shop to do that for the year, right? Like we get to sit around and talk about movies and comic books and whatever we want to talk about video games all the time. But if you're in some place that you don't have a friend group, a circle that's into the same exact things that you are, you might not have a place to go talk about anime or a place to talk about whatever game you're really into right now, or to talk about. I mean, I can't believe that people don't have superhero movies, but yeah.
+[00:11:41] Will: But the thing I realized going to PAX years ago is that for a lot of people, they go to PAX and Comic Con and all these places because it's a place for them to be around like minded people, and it's there it's their shop to do that for the year, right? Like we get to sit around and talk about movies and comic books and whatever we want to talk about video games all the time. But if you're in some place that you don't have a friend group, a circle that's into the same exact things that you are, you might not have a place to go talk about anime or a place to talk about whatever game you're really into right now, or to talk about. I mean, I can't believe that people don't have superhero movies, but yeah.
 
-[00:12:13] Adam: I remember the very first con I ever went to was a Star Trek convention here at the the big tall hotel, the one with the 50 story atrium downtown.
+[00:12:13] Adam: I remember the very first con I ever went to was a Star Trek convention here at the big tall hotel, the one with the 50 story atrium downtown.
 
 [00:12:22] Will: The Hyatt, probably.
 
@@ -340,7 +340,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:12:30] Will: you're like nerds. These are my people. Yeah,
 
-[00:12:33] Adam: And it was the first time I was able to purchase one of the. What are these? The the badges that did that that was next generation those those first electronic badges that came out, but you couldn't get them at the toy store. You could get them at the at the con.
+[00:12:33] Adam: And it was the first time I was able to purchase one of the. What are these? The badges that did that that was next generation those those first electronic badges that came out, but you couldn't get them at the toy store. You could get them at the con.
 
 [00:12:45] Norm: Well, one
 
@@ -350,7 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:12:56] Will: And Marvel has released 20 billion dollar movies about superheroes.
 
-[00:13:00] Norm: 18 movies over 10 years exactly. So, what is what is the next evolution of a comic book convention? Is it moving toward like a Pax or a Dragon Con where it's less about booths and it's more about small panels that people can go in and meeting spaces?
+[00:13:00] Norm: 18 movies over 10 years exactly. So, what is the next evolution of a comic book convention? Is it moving toward like a Pax or a Dragon Con where it's less about booths and it's more about small panels that people can go in and meeting spaces?
 
 [00:13:15] Will: Well, if you talk to the marketing experts, they say that millennials are interested in collecting experiences and not physical objects.
 
@@ -392,7 +392,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:14:23] Will: So you have to go see it. I wasn't planning on going to see it.
 
-[00:14:25] Norm: I think you should watch it. I mean, I think what did what did someone say? It's Spielberg has not made a popcorn movie like this since maybe the Crystal Skull. What's that movie? Right, the Indiana quote-unquote Indiana Jones movie
+[00:14:25] Norm: I think you should watch it. I mean, I think what did someone say? It's Spielberg has not made a popcorn movie like this since maybe the Crystal Skull. What's that movie? Right, the Indiana quote-unquote Indiana Jones movie
 
 [00:14:40] Will: that popped up on Hulu last night for me, and it said for people who like sci-fi.
 
@@ -402,7 +402,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:14:49] Adam: No, let's leave it when we see it.
 
-[00:14:50] Norm: In the spirit of it, it is if you've read the book, it is a film that pays a lot of homage and loves pop culture of the '80s, an era that we all grew up with and the movies that we all love.
+[00:14:50] Norm: In the spirit of it is if you've read the book, it is a film that pays a lot of homage and loves pop culture of the '80s, an era that we all grew up with and the movies that we all love.
 
 [00:15:02] Will: Yeah.
 
@@ -414,11 +414,11 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:15:11] Will: Who made the movies? 20th Century Fox.
 
-[00:15:12] Norm: W. B. Warner Brothers is distributing this one, so it it does that
+[00:15:12] Norm: W. B. Warner Brothers is distributing this one, so it does that
 
 [00:15:18] Adam: They refuse to shave off Henry Cavill's mustache.
 
-[00:15:21] Norm: That was that was paramount.
+[00:15:21] Norm: That was paramount.
 
 [00:15:22] Adam: I know. I know.
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:16:18] Norm: Correct me if I'm wrong. The Star Child that we saw at the Stanley Kubrick exhibit, the traveling exhibit, was that the original?
 
-[00:16:24] Adam: I believe that was. Wow. Wow. That's the actual one. You can see the eye mechanics in there, so the eyes did move in the shot slightly. So I want to work with Jeremy to to put in a little circuit that. Makes the eyes move,
+[00:16:24] Adam: I believe that was. Wow. Wow. That's the actual one. You can see the eye mechanics in there, so the eyes did move in the shot slightly. So I want to work with Jeremy to put in a little circuit that. Makes the eyes move,
 
 [00:16:35] Norm: and when you're talking about eye mechs, this isn't the first eye mechs you've made.
 
@@ -466,7 +466,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:17:07] Adam: Is it really?
 
-[00:17:08] Norm: For me, it's like when I think animatronics, I think eye mechs. You show me a picture of eye mechs, I know animatronics or or I guess robot hand, maybe like a armature.
+[00:17:08] Norm: For me, it's like when I think animatronics, I think eye mechs. You show me a picture of eye mechs, I know animatronics or I guess robot hand, maybe like a armature.
 
 [00:17:16] Will: Yeah, but but you know when you're you're right when we when I when we're thinking about like the Fifth Element masks that had the blinking eyes and the whole thing, yeah, I think about that and I like that was that is very much a relic of the '90s '90s film design to me.
 
@@ -480,7 +480,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:17:39] Norm: which is all you need to watch, really.
 
-[00:17:40] Will: You got you got the gist, probably.
+[00:17:40] Will: You got the gist, probably.
 
 [00:17:41] Norm: That was probably the best moment. The first 15 minutes have like that great opening.
 
@@ -488,9 +488,9 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:17:49] Adam: Wow, okay.
 
-[00:17:49] Will: gorgeous! It is the it's it's it's like I'm really glad that he still gets to make movies. If that makes like, I didn't like the movie, but I'm really glad that that movie exists. How's that?
+[00:17:49] Will: gorgeous! It is the it's like I'm really glad that he still gets to make movies. If that makes like, I didn't like the movie, but I'm really glad that that movie exists. How's that?
 
-[00:17:59] Adam: I you know I think we've talked about this before. I think what is the last Wachowski? Uh,
+[00:17:59] Adam: I you know I think we've talked about this before. I think what is the last Wachowski?
 
 [00:18:07] Will: Jupiter Ascending.
 
@@ -498,15 +498,15 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:18:20] Norm: That's the thing. It's more props on the the investors and the the sales team of whatever studio were able to get the funding.
 
-[00:18:27] Adam: Well, apparently that's one of the things where Valerian is quite brilliant at how Besson assembled the the funding, and I the details are not. At the top of my brain right now, but I remember reading an article back when it came out that he had done it in a particularly clever clever way that limited the exposure of all the parties.
+[00:18:27] Adam: Well, apparently that's one of the things where Valerian is quite brilliant at how Besson assembled the funding, and I the details are not. At the top of my brain right now, but I remember reading an article back when it came out that he had done it in a particularly clever clever way that limited the exposure of all the parties.
 
 [00:18:45] Will: Oh, that's interesting.
 
-[00:18:45] Norm: And we talk about often, you know, jokingly, and it's a real serious thing. Like the U.S. market is no longer the dominant, necessarily the dominant market in terms of the revenue made from a film. So when we talk about a movie like Kong Skull Island, it's produced by Legendary Pictures, but a lot of that risk is taken up by like Asian investment money because they know potentially that movie
+[00:18:45] Norm: And we talk about often jokingly, and it's a real serious thing. Like the U.S. market is no longer the dominant, necessarily the dominant market in terms of the revenue made from a film. So when we talk about a movie like Kong Skull Island, it's produced by Legendary Pictures, but a lot of that risk is taken up by like Asian investment money because they know potentially that movie
 
 [00:19:05] Adam: That international is gonna be huge, yeah.
 
-[00:19:06] Norm: exactly. It's going to be huge, and actually, I saw Pacific Rim too, and much of that film—it's not a spoiler to say—much of that film is actually in Chinese with subtitles, and I like that. I like that, you know.
+[00:19:06] Norm: exactly. It's going to be huge, and actually, I saw Pacific Rim too, and much of that film—it's not a spoiler to say—much of that film is actually in Chinese with subtitles, and I like that. I like that.
 
 [00:19:17] Will: That's cool.
 
@@ -518,7 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:19:32] Adam: Yeah.
 
-[00:19:33] Will: I mean, well, it's kind of what started with Ang Lee with Crouching Tiger, Hidden Dragon, right? Like he made a he made a. An Asian film for American audiences
+[00:19:33] Will: I mean, well, it's kind of what started with Ang Lee with Crouching Tiger, Hidden Dragon, right? Like he made a. An Asian film for American audiences
 
 [00:19:41] Adam: that was not in English,
 
@@ -544,11 +544,11 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:20:07] Norm: yeah,
 
-[00:20:07] Will: as long as as long as something the size of a building punches something else the size of a building, I'm going to walk away satisfied.
+[00:20:07] Will: as long as something the size of a building punches something else the size of a building, I'm going to walk away satisfied.
 
 [00:20:14] Adam: All right, we didn't mean to get pedantic on you, but that is kind of our bailiwick.
 
-[00:20:17] Will: Um, I think that's as good a place as any.
+[00:20:17] Will: I think that's as good a place as any.
 
 [00:20:19] Norm: It's a short one this week.
 

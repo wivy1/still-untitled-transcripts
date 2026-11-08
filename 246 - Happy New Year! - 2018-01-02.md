@@ -18,7 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:00:08] Norm: Happy New Year.
 
-[00:00:08] Will: When you were when you when you were a kid, way back in the in the last century,
+[00:00:08] Will: When you were a kid, way back in the last century,
 
 [00:00:08] Norm: yeah,
 
@@ -54,11 +54,11 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:00:48] Will: I forgot the one. Forgot to carry.
 
-[00:00:50] Adam: Um. So yeah, I never thought about. I never thought as far as 2018. Um. I if you'd asked me in the mid '90s, I would have thought that 2018 might feel a little closer to Blade Runner. Then it currently does.
+[00:00:50] Adam: So yeah, I never thought about. I never thought as far as 2018. I if you'd asked me in the mid '90s, I would have thought that 2018 might feel a little closer to Blade Runner. Then it currently does.
 
 [00:01:06] Will: That’s grim, but okay.
 
-[00:01:08] Adam: Yeah, well, I mean, that was my favorite movie then. I mean, you know, one of my all-time favorites.
+[00:01:08] Adam: Yeah, well, I mean, that was my favorite movie then. I mean one of my all-time favorites.
 
 [00:01:10] Will: I was hoping for Jetsons by 2018. Oh yeah, flying cars.
 
@@ -70,7 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:01:19] Adam: in which Tom Cruise bursts in a jetpack into someone's apartment and they're like videotaping their Roomba annoying their cat, or
 
-[00:01:33] Will: yeah, or the entire movie is just a series of selfies from from from posted Instagram.
+[00:01:33] Will: yeah, or the entire movie is just a series of selfies from posted Instagram.
 
 [00:01:38] Norm: mundane Black Mirror.
 
@@ -84,7 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:01:53] Adam: The situation?
 
-[00:01:54] Will: No, one of the other ones. He's like a medieval scholar. He went to he went and got a doctorate in maybe maybe just a master's. I can't remember, but in like medieval studies and and his his work showed up in a in a In a context that was not Snooki related on my Twitter feed.
+[00:01:54] Will: No, one of the other ones. He's like a medieval scholar. He went to he went and got a doctorate in maybe maybe just a master's. I can't remember, but in like medieval studies and his his work showed up in a context that was not Snooki related on my Twitter feed.
 
 [00:01:54] Unknown speaker (Adam or Will): Wow!
 
@@ -124,13 +124,13 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:03:05] Norm: Can you even use them as heating elements?
 
-[00:03:07] Will: Look, so when when when my daughter has a fever, she likes to she likes one of us to come climb in bed with her when she has like fever dreams and gets scared or whatever. And you get in there, and all she wants to do is snuggle because you're cool, and she's like the like the white hot light of a thousand burning suns next to you.
+[00:03:07] Will: Look, so when my daughter has a fever, she likes to she likes one of us to come climb in bed with her when she has like fever dreams and gets scared or whatever. And you get in there, and all she wants to do is snuggle because you're cool, and she's like the white hot light of a thousand burning suns next to you.
 
 [00:03:23] Norm: That's when Matt Damon dug up from you know to warm himself.
 
 [00:03:26] Will: Yeah, yeah, pretty much. So yeah,
 
-[00:03:27] Norm: what's that in the Martian? You know, [unclear speaker: Norm or Adam] oh,
+[00:03:27] Norm: what's that in the Martian? [unclear speaker: Norm or Adam] oh,
 
 [00:03:31] Adam: I was like, what?
 
@@ -140,15 +140,15 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:03:36] Will: Um, yeah. So no, she's fine now. She just you know they get sick. They're bad for like 36 hours, and now everything's cool again. Yeah,
 
-[00:03:43] Adam: yeah. So we had a lovely we had a lovely New Year's. We sent 2017 packing. There was um, it was a very we we throw this party every year uh pretty much, and it was a very emotional party more than most, and it wasn't like people were weeping or anything. It was just like um, you know, this is one of the key ways in which we engage with our friends. And we we have lovely gatherings. We see them socially, and this one particular, in particular, I felt like every goodbye was a was a real heartfelt and partially, you know, we got to stick together, sort of goodbye at the end of the party. And it was lovely. It was, we had we we had some fantastic non alcoholic drinks going.
+[00:03:43] Adam: yeah. So we had a lovely New Year's. We sent 2017 packing. There was it was a very we throw this party every year pretty much, and it was a very emotional party more than most, and it wasn't like people were weeping or anything. It was just like you know, this is one of the key ways in which we engage with our friends. And we have lovely gatherings. We see them socially, and this one particular, in particular, I felt like every goodbye was a real heartfelt and partially we got to stick together, sort of goodbye at the end of the party. And it was lovely. It was, we had some fantastic non alcoholic drinks going.
 
 [00:03:43] Will: Ooh.
 
 [00:03:43] Adam: The bartenders that we hire have some really awesome random radical non alcoholic drink recipes, and they made made up a whole bunch. And then there were also some really great absinthe and rum based cocktails at the party. It was great.
 
-[00:04:45] Will: It's it's a lovely every year. It's a lovely party. I was like, I had multiple people sent me texts and Twitter messages like, " Hey, we're sorry we didn't see you this year. You're still on the good list, right?" I was like, " Yeah, we were good. We're cool." But you know, sick.
+[00:04:45] Will: It's a lovely every year. It's a lovely party. I was like, I had multiple people sent me texts and Twitter messages like, " Hey, we're sorry we didn't see you this year. You're still on the good list, right?" I was like, " Yeah, we were good. We're cool." But sick.
 
-[00:04:58] Adam: a lot of a lot of friends of mine brought their spouses that I had not met
+[00:04:58] Adam: a lot of friends of mine brought their spouses that I had not met
 
 [00:04:58] Will: Ooh.
 
@@ -160,19 +160,19 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:05:23] Norm: It was wonderful to see, yeah, people in their dynamics and have extended conversations with some of our friends that we only could see a couple times a year.
 
-[00:05:30] Adam: Yeah, my mom, my mom was there. She was the life of the party. James Randi, the Amazing Randi,
+[00:05:30] Adam: Yeah, my mom was there. She was the life of the party. James Randi, the Amazing Randi,
 
 [00:05:30] Unknown speaker (Will or Norm): Wow.
 
-[00:05:30] Adam: came with with some friends of mine and some friends of his, and that was that was lovely. He held court over in the over by my couch in the living room. Perfect. I was thinking because the previous year was it the previous year that Phil Tippett sat close to that same spot, pretended to be cranky. I Phil pretends to be cranky, but Phil is just a sweet pussy cat of a man, and he's not actually cranky. So I was thinking Randi was like the white bearded guy over there in the corner.
+[00:05:30] Adam: came with some friends of mine and some friends of his, and that was lovely. He held court over in the over by my couch in the living room. Perfect. I was thinking because the previous year was it the previous year that Phil Tippett sat close to that same spot, pretended to be cranky. I Phil pretends to be cranky, but Phil is just a sweet pussy cat of a man, and he's not actually cranky. So I was thinking Randi was like the white bearded guy over there in the corner.
 
-[00:05:58] Norm: Yes, yes, He'd watch over the tree. Yeah. I was very impressed that you had much of your house open, and I know we've done like one video a long time ago about your home office, but you had your your home office. It was great to see.
+[00:05:58] Norm: Yes, yes, He'd watch over the tree. Yeah. I was very impressed that you had much of your house open, and I know we've done like one video a long time ago about your home office, but you had your home office. It was great to see.
 
-[00:06:11] Adam: Well, we we we the party has gotten bigger over the years, and we we experimented with some flow about the house, and so we opened up much more of the house to flow to spread the party out, and it really worked. So we had yeah my office, Julia's office. Um, we had signs on them. Julia's office was for introverts, mine was for extroverts.
+[00:06:11] Adam: Well, we the party has gotten bigger over the years, and we experimented with some flow about the house, and so we opened up much more of the house to flow to spread the party out, and it really worked. So we had yeah my office, Julia's office. We had signs on them. Julia's office was for introverts, mine was for extroverts.
 
 [00:06:30] Will: Nice. Yeah. Did you Myers Briggs people on the way in, or did you?
 
-[00:06:35] Adam: We let them self sort. Okay. We rearranged the deck, so this this all sounds way overly fancy. We have a tiny little deck, but we rearranged it so it could seat more people, and that was lovely.
+[00:06:35] Adam: We let them self sort. Okay. We rearranged the deck, so this all sounds way overly fancy. We have a tiny little deck, but we rearranged it so it could seat more people, and that was lovely.
 
 [00:06:44] Will: Oh, that's nice. Yeah. Is this the deck that I that we climbed up on the roof to launch?
 
@@ -190,7 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:06:57] Adam: Yeah, we flew a drone over the Mission District for an hour.
 
-[00:07:01] Will: I, I, at one point, I think we said, " Let's see how." Well, never mind. We shouldn't talk about this. But yeah. How did
+[00:07:01] Will: I, at one point, I think we said, " Let's see how." Well, never mind. We shouldn't talk about this. But yeah. How did
 
 [00:07:07] Norm: you guys spend your the week leading up to New Year's? The week between Christmas and New Year's? Always exactly one week.
 
@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:07:37] Norm: Which way did you go? You stayed with family in Portland.
 
-[00:07:39] Adam: We did. Well, no, we we stayed in a hotel up there, but we have good. We have a lot of family up there, so we did Christmas with them. A big long Christmas with them, which was great.
+[00:07:39] Adam: We did. Well, no, we stayed in a hotel up there, but we have good. We have a lot of family up there, so we did Christmas with them. A big long Christmas with them, which was great.
 
 [00:07:47] Will: Did you do down 101, or did you do down 5?
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:08:27] Will: Oh my god!
 
-[00:08:27] Adam: And that was that was very cool. There were a couple of micro breweries which we were going to stop at, but they don't have public. There were a couple places that we thought would have public areas, but don't.
+[00:08:27] Adam: And that was very cool. There were a couple of micro breweries which we were going to stop at, but they don't have public. There were a couple places that we thought would have public areas, but don't.
 
 [00:08:37] Will: Oh, like dog areas, yeah, yeah.
 
@@ -240,7 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:08:44] Adam: is it great?
 
-[00:08:44] Will: It's, I mean, it's it's not a tour. You just can walk in, and they have the factory open with glass on the top.
+[00:08:44] Will: It's, I mean, it's not a tour. You just can walk in, and they have the factory open with glass on the top.
 
 [00:08:44] Adam: Yeah,
 
@@ -248,15 +248,15 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:09:00] Adam: Lots of curds.
 
-[00:09:01] Will: Yeah, you can eat all the curds you want. They just they just hand them out like popcorn.
+[00:09:01] Will: Yeah, you can eat all the curds you want. They just hand them out like popcorn.
 
 [00:09:04] Adam: Lovely.
 
-[00:09:05] Norm: Um, next time in Portland, have you ever stayed at the Kennedy School?
+[00:09:05] Norm: Next time in Portland, have you ever stayed at the Kennedy School?
 
 [00:09:09] Adam: No.
 
-[00:09:09] Norm: Oh, it's it's one of the McMenamins properties. They renovate old
+[00:09:09] Norm: Oh, it's one of the McMenamins properties. They renovate old
 
 [00:09:13] Will: institutions, right?
 
@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:09:25] Adam: Oh, I'm going to ask you about the next time I go there. We stayed at the Kimpton Vintage. Again, I love Kimptons. Yeah, and unbelievably great hotel. We love the Kimptons because they're dog friendly, as you pointed out. But this one, like we're there over Christmas, and that staff working Christmas—I mean, that's a tough gig doing that service industry over the big holidays. And the staff was amazing; like every one of them was sunny and delightful and just fabulous. It was a great stay. It was really lovely.
 
-[00:09:54] Will: I and it's yeah, it's a good it's a good walking town too because there's a bunch of good stuff to walk to right around there. You're like near the cart pods, the whole thing. Portland's so good.
+[00:09:54] Will: I and it's yeah, it's a good walking town too because there's a bunch of good stuff to walk to right around there. You're like near the cart pods, the whole thing. Portland's so good.
 
 [00:10:03] Adam: It was cold as all. Get out!
 
@@ -290,7 +290,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:10:32] Will: Is that an SUV that you can't see out the back of?
 
-[00:10:34] Adam: No, you can kind of see out the back of it. It was for the dogs and us. And once we got to Portland, I took all the kids to see Star Wars, and you know, but it was like all hydroplaning black ice everywhere in Portland. Get on the freeway; no one's going over 30.
+[00:10:34] Adam: No, you can kind of see out the back of it. It was for the dogs and us. And once we got to Portland, I took all the kids to see Star Wars, and but it was like all hydroplaning black ice everywhere in Portland. Get on the freeway; no one's going over 30.
 
 [00:10:50] Will: Yeah,
 
@@ -356,7 +356,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:12:44] Norm: They don't like the snow. We wanted to expose her to snow.
 
-[00:12:49] Adam: She's so skinny and and and thin.
+[00:12:49] Adam: She's so skinny and thin.
 
 [00:12:51] Norm: I put on a sweater. She’ll do it. Yeah. But we love driving.
 
@@ -366,7 +366,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:13:00] Norm: Yeah, yeah. How about gift giving? You guys had success in your gift giving.
 
-[00:13:04] Adam: Yes, absolutely. You know, yeah. The thing one and thing two got some lovely gifts geared towards them.
+[00:13:04] Adam: Yes, absolutely. Yeah. The thing one and thing two got some lovely gifts geared towards them.
 
 [00:13:13] Norm: What was your favorite gift to give?
 
@@ -374,7 +374,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:13:18] Norm: this year that you gave this year.
 
-[00:13:20] Will: I, I put together a Barbie Dream House, Norm.
+[00:13:20] Will: I put together a Barbie Dream House, Norm.
 
 [00:13:23] Unknown speaker (Norm or Adam): Oh my goodness!
 
@@ -382,7 +382,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:13:26] Norm: Wow.
 
-[00:13:28] Will: But but Gina had asked for an instant pot, one of those one of those electric pressure cookers for a long long time, and I've wanted a pressure cooker for years. She's always been hesitant, simply because like you know, who wants a bomb in their kitchen?
+[00:13:28] Will: But Gina had asked for an instant pot, one of those electric pressure cookers for a long long time, and I've wanted a pressure cooker for years. She's always been hesitant, simply because like you know, who wants a bomb in their kitchen?
 
 [00:13:42] Adam: Exactly, exactly.
 
@@ -392,23 +392,23 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:13:43] Will: Yeah. Shockingly, Kenji Kenji did a whole thing about it before the holidays, but I I did the whole slow play. I was like, no, we're never going to have one of those things in our house. We have a rice cooker. We have a slow cooker. We're not doing it. No, no, no, no, no. And then
 
-[00:13:57] Norm: That's that's I like the theatricality. [unclear: I get gift giving / I get. Tree gift giving]. Christmas morning must be like an Apple keynote.
+[00:13:57] Norm: That's I like the theatricality. [unclear: I get gift giving / I get. Tree gift giving] Christmas morning must be like an Apple keynote.
 
 [00:14:03] Will: Surprises. Yeah, I want one more thing.
 
 [00:14:05] Norm: It's the one I had. I literally had one more thing this year.
 
-[00:14:07] Will: I hid I hid the Instant Pot in my office and then pulled it out after all the presents were opened.
+[00:14:07] Will: I hid the Instant Pot in my office and then pulled it out after all the presents were opened.
 
-[00:14:11] Adam: We go back and forth on that. This year, my wife and I. I mean, you know, we have a very we have a nice life and we we have a lot about what we need and so sometimes we we go out on Christmas and do stuff and this was one of those years where we each bought each other just some small lovely little things like really very it was a very minor Christmas on that regard. I bought the boys watches.
+[00:14:11] Adam: We go back and forth on that. This year, my wife and I. I mean we have a very we have a nice life and we have a lot about what we need and so sometimes we go out on Christmas and do stuff and this was one of those years where we each bought each other just some small lovely little things like really very it was a very minor Christmas on that regard. I bought the boys watches.
 
 [00:14:11] Will: Oh, nice!
 
-[00:14:11] Adam: You know, and that was great thinking about watches that were specific to them and I gave out a few of EDC one bags to some various folks and they were very appreciative.
+[00:14:11] Adam: And that was great thinking about watches that were specific to them and I gave out a few of EDC one bags to some various folks and they were very appreciative.
 
-[00:14:48] Will: The I was going to say the the socks. Dumbledore says it in one of the Harry Potter movies that he wants socks for Christmas,
+[00:14:48] Will: The I was going to say the socks. Dumbledore says it in one of the Harry Potter movies that he wants socks for Christmas,
 
-[00:14:54] Adam: dude. I got socks for Christmas, and I'm so my like my my family knows. Get me some Paul Smith socks, and I'm the happiest man alive.
+[00:14:54] Adam: dude. I got socks for Christmas, and I'm so my like my family knows. Get me some Paul Smith socks, and I'm the happiest man alive.
 
 [00:15:01] Will: I want like warm, thick, wooly, fuzzy socks. I'll be really happy. Yeah,
 
@@ -418,7 +418,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:15:08] Norm: Fantastic gifts.
 
-[00:15:09] Adam: Um, I saw uh, I saw several movies. Um, I by the way, and this is to talk about later, but I saw Shape of Water. Uh, I'm not going to oversell it because it's easy to do that. Uh, I don't want to set up too many expectations, but it's magnificent, and specifically, the characters in it are unlike characters you have met in movies before.
+[00:15:09] Adam: I saw several movies. I by the way, and this is to talk about later, but I saw Shape of Water. I'm not going to oversell it because it's easy to do that. I don't want to set up too many expectations, but it's magnificent, and specifically, the characters in it are unlike characters you have met in movies before.
 
 [00:15:09] Will: Ooh.
 
@@ -428,9 +428,9 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:15:32] Adam: but not just creatures, but characters, and these are people you haven't met the likes of before.
 
-[00:15:38] Norm: Because I see the trailer, and and Michael Shannon is in it, You know, and and I just see Michael Shannon from Boardwalk Empire.
+[00:15:38] Norm: Because I see the trailer, and Michael Shannon is in it and I just see Michael Shannon from Boardwalk Empire.
 
-[00:15:45] Adam: Nope, even Michael Shannon is a very different character than you imagine. He is going to be. There's obviously you understand he's he's a villain, but I also saw downsizing.
+[00:15:45] Adam: Nope, even Michael Shannon is a very different character than you imagine. He is going to be. There's obviously you understand he's a villain, but I also saw downsizing.
 
 [00:15:56] Will: Oh, the Matt Damon.
 
@@ -460,7 +460,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:16:55] Norm: and Hawaii, right?
 
-[00:16:56] Adam: Hawaii, yeah. So Payne is a is a. I kept watching downsizing, thinking, " Is this a Steven Soderbergh film? Because it felt just as as deeply competent and like. I also I was going back and forth thinking, is is it that or is it a Spike Jonze film? Right, it could have been either one in terms of how. Yeah,
+[00:16:56] Adam: Hawaii, yeah. So Payne is a. I kept watching downsizing, thinking, " Is this a Steven Soderbergh film? Because it felt just as as deeply competent and like. I also I was going back and forth thinking, is is it that or is it a Spike Jonze film? Right, it could have been either one in terms of how. Yeah,
 
 [00:17:18] Norm: I like both of those.
 
@@ -490,9 +490,9 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:17:40] Unknown speaker (Adam or Norm): Yes.
 
-[00:17:40] Adam: Um, holy hell, it's it's even better the second time. Oh yeah. Oh, there's so much more room to take it in on a second viewing. Um, and again the. All the scenes in in Snoke's throne room are some of the most beautiful battle scenes ever filmed.
+[00:17:40] Adam: Holy hell, it's even better the second time. Oh yeah. Oh, there's so much more room to take it in on a second viewing. And again the. All the scenes in Snoke's throne room are some of the most beautiful battle scenes ever filmed.
 
-[00:17:57] Will: If If you think about the gorgeous sets of 2017, that set, um, uh, what's his name's office from Blade Runner, um,
+[00:17:57] Will: If you think about the gorgeous sets of 2017, that set what's his name's office from Blade Runner
 
 [00:18:07] Adam: Mm-hmm.
 
@@ -526,7 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:19:10] Norm: Yeah,
 
-[00:19:10] Adam: but frankly, it was important to to Rian Johnson to shoot that live.
+[00:19:10] Adam: but frankly, it was important to Rian Johnson to shoot that live.
 
 [00:19:10] Norm: Uh huh.
 
@@ -540,7 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:19:33] Adam: And then sealing two two people inside of it
 
-[00:19:37] Will: on on a cliffside.
+[00:19:37] Will: on a cliffside.
 
 [00:19:37] Adam: On a cliffside,
 
@@ -550,9 +550,9 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:19:40] Norm: And then having acting wiping that milk off your face, off your beard, that Mark Hamill does.
 
-[00:19:45] Will: Well, but but not only that, like the the the pure kind of not giving a fuckedness of of the way he plays that is just so is so good.
+[00:19:45] Will: Well, but not only that, like the pure kind of not giving a fuckedness of the way he plays that is just so is so good.
 
-[00:19:55] Adam: I also love I also love when Rey says. I followed you around. You are not busy,
+[00:19:55] Adam: I also love when Rey says. I followed you around. You are not busy,
 
 [00:19:55] Will: Yeah.
 
@@ -564,7 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:20:14] Will: I mean, well, I mean, all along the film, it sets up, it sets something up. You think you see how it's going to go, and then they, and then Rian Johnson usurps your expectation.
 
-[00:20:22] Norm: You know, going back, I know we're talking a little more on Shape of Water, but the creature in the Shape of Water as you realize, was partly designed by Mike Hill.
+[00:20:22] Norm: Going back, I know we're talking a little more on Shape of Water, but the creature in the Shape of Water as you realize, was partly designed by Mike Hill.
 
 [00:20:22] Adam: Yes,
 
@@ -582,17 +582,17 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:20:49] Norm: like in a very tangible way. So like one of those really hand sculpted creatures.
 
-[00:20:53] Adam: And Sally Hawkins, the lead in in Shape of Water. The two leads are Sally Hawkins and Richard Jenkins, and Richard Jenkins is one of those " Hey, it's that guy"s. He's the guy opposite Bradley Whitford in Cabin in the Woods, the other technician. And you know, despite Robert McKee's exhortation to never use voiceover to explain your movie, Guillermo del Toro loves voiceover. He loves it. He's put it in most of his movies.
+[00:20:53] Adam: And Sally Hawkins, the lead in Shape of Water. The two leads are Sally Hawkins and Richard Jenkins is one of those " Hey, it's that guy"s. He's the guy opposite Bradley Whitford in Cabin in the Woods, the other technician. And despite Robert McKee's exhortation to never use voiceover to explain your movie, Guillermo del Toro loves voiceover. He loves it. He's put it in most of his movies.
 
 [00:21:26] Norm: The opening of the Pacific Rim?
 
-[00:21:28] Adam: but he does not necessarily. It's always at a different service. The Shape of Water. The voiceover is never really explaining the movie. It's just lending some extra depth emotionally to what's going on. And Jenkins' voice is magnificent. Like just even in the trailer, that trailer where you hear him, you know,
+[00:21:28] Adam: but he does not necessarily. It's always at a different service. The Shape of Water. The voiceover is never really explaining the movie. It's just lending some extra depth emotionally to what's going on. And Jenkins' voice is magnificent. Like just even in the trailer, that trailer where you hear him
 
 [00:21:46] Will: I'm going to go see it this week. I like. We'll, we'll bust out.
 
 [00:21:50] Norm: that's not a full spoiler cast. We'll
 
-[00:21:51] Adam: talk about it because it's a it's a it's a it's a beautiful fairy tale and. I love that it's getting so much critical acclaim. That it's doing so well. It's doing well in the box office, right?
+[00:21:51] Adam: talk about it because it's a beautiful fairy tale and. I love that it's getting so much critical acclaim. That it's doing so well. It's doing well in the box office, right?
 
 [00:22:01] Norm: It's still a limited release.
 
@@ -620,7 +620,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:22:46] Norm: Yeah, saw Valerian.
 
-[00:22:48] Will: We never talked about it. I thought I was. I I like Valerian a lot. Like I, I, I.
+[00:22:48] Will: We never talked about it. I thought I was. I like Valerian a lot. Like I, I, I.
 
 [00:22:54] Norm: miscast, I think, a little bit in in the the leads, but I thought story wise was fantastic. Visually, of course,
 
@@ -638,7 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:23:33] Adam: A friend of mine was teaching a film class at SF State, and he he knows Walter Murch and brought Walter Murch in to give a lecture to the students. If you don't know who Walter Murch is, look him up. He's an absolute legend and a genius. And Walter Murch came in, and they the college's video projector. Walter Murch looked at it and was like. No, we can't show my movie on this. He's like, it's upscaled and it's making my movie look like a soap opera. It's over sharpening it, and unless we can down crank it. there's no reason to watch an old movie on this this terrible upscaling projector.
 
-[00:24:07] Norm: Yeah, you don't. You only need to tweak and tune, and and that's part of the joy of like buying. It's part of the frustration and joy. Like people are spending money on these TVs these days. I'm sure a significant portion of those people don't even have the HDR enabled or something, right?
+[00:24:07] Norm: Yeah, you don't. You only need to tweak and tune, and that's part of the joy of like buying. It's part of the frustration and joy. Like people are spending money on these TVs these days. I'm sure a significant portion of those people don't even have the HDR enabled or something, right?
 
 [00:24:07] Adam: Right, right, right.
 
@@ -648,7 +648,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:24:26] Norm: 10 or 30 for denoising or sharpening? Yeah, I love it.
 
-[00:24:32] Will: I, the the one joy, the one great joy of not going home at the holidays is that I don't have to go see all my relatives that have their TVs with motion smoothing on.
+[00:24:32] Will: I, the one joy, the one great joy of not going home at the holidays is that I don't have to go see all my relatives that have their TVs with motion smoothing on.
 
 [00:24:39] Norm: Oh God, yeah,
 
@@ -670,7 +670,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:24:58] Adam: Jeff Daniels.
 
-[00:24:58] Norm: Jeff Daniels is the villain. Sam Waterston's in it. One of the Michelle Dockery, I want to say from from Downton Abbey, is the lead. It's a mining town called La Belle, where an accident years ago killed all the men, and
+[00:24:58] Norm: Jeff Daniels is the villain. Sam Waterston's in it. One of the Michelle Dockery, I want to say from Downton Abbey, is the lead. It's a mining town called La Belle, where an accident years ago killed all the men, and
 
 [00:24:58] Will: Oh.
 
@@ -698,7 +698,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:26:09] Adam: Yeah, yeah.
 
-[00:26:09] Will: But but like Dumb and Dumber, you saw his range.
+[00:26:09] Will: But like Dumb and Dumber, you saw his range.
 
 [00:26:15] Adam: Oh oh, just before we wrap, I you know one of the reasons I love having parties is to introduce people I know to other people I know.
 
@@ -714,15 +714,15 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:27:00] Adam: Mike has had a singular mission for the past few months to get Jack to quit Twitter. I believe his Twitter handle, Mike's Twitter handle, is " I want Jack to quit" or some version of that.
 
-[00:27:10] Will: So, but but prior to his his old man crankiness, he designed a lot of the early web. Like he does, he was at Mule Designs and prior, he designed like I think Flickr was one of the ones that he. I can’t remember if he.
+[00:27:10] Will: So, but prior to his his old man crankiness, he designed a lot of the early web. Like he does, he was at Mule Designs and prior, he designed like I think Flickr was one of the ones that he. I can’t remember if he.
 
-[00:27:23] Adam: Mike is a master, and he's wonderful, and he's he's been a good friend for a long time, and we love getting together to complain about politics. And so I wrote to him, and I was like, Mike, what should I pay a young designer? And he was like, I'm really glad you asked. He goes, What is it? You know, what's it for? What is it? How does it work? Okay. And he came back with a thing and said, By the way, if that kid wants to reach out to me, let me know. Please pass on my details. This is a. I remember being a young maker of things and having no idea what to charge, and I got to introduce the two of them to each other. And Mike was like, " Whatever you do, charge double what you thought you should charge. And by the way, double zero is still zero, so don't be an asshole and do anything for free." He says this to the kid.
+[00:27:23] Adam: Mike is a master, and he's wonderful, and he's been a good friend for a long time, and we love getting together to complain about politics. And so I wrote to him, and I was like, Mike, what should I pay a young designer? And he was like, I'm really glad you asked. He goes, What is it? You know, what's it for? What is it? How does it work? Okay. And he came back with a thing and said, By the way, if that kid wants to reach out to me, let me know. Please pass on my details. This is a. I remember being a young maker of things and having no idea what to charge, and I got to introduce the two of them to each other. And Mike was like, " Whatever you do, charge double what you thought you should charge. And by the way, double zero is still zero, so don't be an asshole and do anything for free." He says this to the kid.
 
-[00:28:09] Will: Well, I mean, but but like like it's it's a hard thing, especially when you're starting out, to get to a point where you're like, I don't think I'm very good at this. Is my my time seems like it should be worth zero because that's what I think it's worth in my head,
+[00:28:09] Will: Well, I mean, but it's a hard thing, especially when you're starting out, to get to a point where you're like, I don't think I'm very good at this. Is my time seems like it should be worth zero because that's what I think it's worth in my head,
 
 [00:28:09] Adam: right?
 
-[00:28:09] Will: And and like the thing that he does on his blog, I can't um, is it on the Mule Designs blog or is it on his Medium blog? That's
+[00:28:09] Will: And like the thing that he does on his blog, I can't is it on the Mule Designs blog or is it on his Medium blog? That's
 
 [00:28:28] Adam: a good question. I'm not exactly sure. If
 
@@ -730,17 +730,17 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:28:30] Adam: Mm-hmm.
 
-[00:28:30] Will: Um, I think I think most of the stuff is on his Medium blog.
+[00:28:30] Will: I think most of the stuff is on his Medium blog.
 
 [00:28:37] Adam: I think you're right.
 
-[00:28:39] Will: Um, but yeah, it's it's super important that you that you establish what your time is worth,
+[00:28:39] Will: But yeah, it's super important that you establish what your time is worth,
 
 [00:28:39] Adam: Yeah.
 
 [00:28:39] Will: and you figure out a way to do this and make a living at it.
 
-[00:28:46] Adam: And and and
+[00:28:46] Adam: And
 
 [00:28:46] Will: It’s okay to get paid.
 
@@ -766,7 +766,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:29:22] Adam: Yeah,
 
-[00:29:22] Will: and and like you can't do 40 hours of testing on a on a set of products.
+[00:29:22] Will: and like you can't do 40 hours of testing on a set of products.
 
 [00:29:22] Adam: No,
 
@@ -812,13 +812,13 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:30:33] Adam: That's awesome.
 
-[00:30:33] Will: I did the the slow oven prime rib turned out great. I did the Hasselback potato gratin, which is the best potatoes I've ever had my life.
+[00:30:33] Will: I did the slow oven prime rib turned out great. I did the Hasselback potato gratin, which is the best potatoes I've ever had my life.
 
 [00:30:48] Adam: Awesome.
 
-[00:30:48] Will: I think I did Alice Waters cream spinach because that's the That's the classic that we always do. Yeah, yeah. Let's see some cakes, some beef stew, and then my yeah. It's Kenji. Thank you so much,
+[00:30:48] Will: I think I did Alice Waters cream spinach because that's the classic that we always do. Yeah, yeah. Let's see some cakes, some beef stew, and then my yeah. It's Kenji. Thank you so much,
 
-[00:31:01] Adam: absolutely, and joy, and happy New Year, everybody. Happy New Year, happy New Year, Merry Christmas, Happy Holidays, Kwanzaa, Hanukkah, whatever you're going to celebrate, whatever you celebrate, it Festivus,
+[00:31:01] Adam: absolutely, and joy, and happy New Year, everybody. Happy New Year, Merry Christmas, Happy Holidays, Kwanzaa, Hanukkah, whatever you're going to celebrate, whatever you celebrate, it Festivus,
 
 [00:31:10] Will: whatever you celebrated,
 

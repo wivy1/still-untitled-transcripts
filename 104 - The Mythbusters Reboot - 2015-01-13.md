@@ -10,7 +10,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:00:09] Norm: and I'm Norm.
 
-[00:00:10] Will: I tried a deliberate opener this time, and you know it was it was new and different. While Norm and I were in Vegas, one of the things we did was went out in the desert and flew multi rotors.
+[00:00:10] Will: I tried a deliberate opener this time, and you know it was new and different. While Norm and I were in Vegas, one of the things we did was went out in the desert and flew multi rotors.
 
 [00:00:20] Adam: Oh yes.
 
@@ -20,11 +20,11 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:00:34] Will: Oh my god, it's the best.
 
-[00:00:35] Norm: It is. Um, those glasses and technology for that, you can see a few years down the line how amazing that's going to be. The cameras are going to get better. The cameras right now they're using are basically security cameras because that's where you get low latency.
+[00:00:35] Norm: It is. Those glasses and technology for that, you can see a few years down the line how amazing that's going to be. The cameras are going to get better. The cameras right now they're using are basically security cameras because that's where you get low latency.
 
 [00:00:48] Will: Like 5 gigahertz analog.
 
-[00:00:49] Norm: 5.8 gigahertz, or they do 2.4. Um, but the exposure is not perfect on those. Well, and so. The people who do the races right now, they fly both indoor and outdoor. Some of them will go in warehouses and then out windows.
+[00:00:49] Norm: 5.8 gigahertz, or they do 2.4. But the exposure is not perfect on those. Well, and so. The people who do the races right now, they fly both indoor and outdoor. Some of them will go in warehouses and then out windows.
 
 [00:00:49] Adam: Dude,
 
@@ -32,7 +32,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:01:18] Adam: It was amazing. Okay, so turn, are you flying around flags?
 
-[00:01:21] Will: So we, yeah, we they had flags placed, and you could go high, low. You didn't like it was it was their infinite posts, right? So you could go as high as you wanted as long as you went around the flag.
+[00:01:21] Will: So we, yeah, we they had flags placed, and you could go high, low. You didn't like it was their infinite posts, right? So you could go as high as you wanted as long as you went around the flag.
 
 [00:01:28] Norm: There's nothing like flying someone else's $ 1,300 quadcopter as fast as you can.
 
@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:01:36] Adam: Can you tell where the other person is?
 
-[00:01:38] Will: Um, you could see the shadows. Like the sun was so far behind us that you could see the shadow of the other quad.
+[00:01:38] Will: You could see the shadows. Like the sun was so far behind us that you could see the shadow of the other quad.
 
 [00:01:42] Norm: Not if they're behind you,
 
@@ -60,19 +60,19 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:02:13] Adam: Oh my god,
 
-[00:02:13] Will: it was it was super fun.
+[00:02:13] Will: it was super fun.
 
 [00:02:14] Adam: Are you flying like this, or are you flying like
 
-[00:02:17] Will: no? We were flying the the normal normal controller, and um, like I Norm went out a couple weeks ago with Eric Cheng and some some other folks to do some
+[00:02:17] Will: no? We were flying the normal normal controller, and like I Norm went out a couple weeks ago with Eric Cheng and some some other folks to do some
 
 [00:02:17] Adam: that's a great
 
-[00:02:17] Will: FPV racing. And I understand why he came back so stoked about it because, like, I'm I am I finished the race and I went right back. I was like, I want to I want to do this some more.
+[00:02:17] Will: FPV racing. And I understand why he came back so stoked about it because I'm I am I finished the race and I went right back. I was like, I want to do this some more.
 
-[00:02:17] Adam: Awesome, but my my Inspire arrives soon.
+[00:02:17] Adam: Awesome, but my Inspire arrives soon.
 
-[00:02:39] Will: That that things that's like a gunboat. We I want I want the little tiny super fast one. Oh,
+[00:02:39] Will: That that things that's like a gunboat. We I want the little tiny super fast one. Oh,
 
 [00:02:39] Norm: both.
 
@@ -80,7 +80,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:02:45] Adam: I'm psyched about the Inspire one. I want to take it somewhere and go look at some stuff from.
 
-[00:02:49] Will: Yeah, take take your battleship. I'll I'll take my little PT boat or whatever. Um. So speaking of quads,
+[00:02:49] Will: Yeah, take take your battleship. I'll I'll take my little PT boat or whatever. So speaking of quads,
 
 [00:02:56] Adam: speaking of quads,
 
@@ -88,7 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:02:59] Adam: Yes, nice segue.
 
-[00:03:00] Will: Um, I guess that you guys fly octos there when you when you fly.
+[00:03:00] Will: I guess that you guys fly octos there when you fly.
 
 [00:03:04] Adam: We do. Our cameraman Duncan Clark has an octocopter that he built.
 
@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:03:23] Will: Okay.
 
-[00:03:23] Adam: Duct Tape Canyon was we shot in Utah. Okay. Um, and he was flying it down a river, and then he wasn't.
+[00:03:23] Adam: Duct Tape Canyon was we shot in Utah. Okay. And he was flying it down a river, and then he wasn't.
 
 [00:03:35] Norm: Wow, plane.
 
@@ -110,23 +110,23 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:03:35] Norm: That's even riskier.
 
-[00:03:38] Adam: And it was cool. I mean, we got some great shots, and in fact, actually, you can see some fantastic shots from that plane. We used them in Dangerous Toys, the pilot that Jamie and I did last year. Um. And Duncan has, so eventually he took he took the the impetus he had for the plane and he put it into an octocopter, which he's been slowly upgrading and making bigger and bigger and bigger. Now he's got a really, I'd say it's like almost 20 pounds.
+[00:03:38] Adam: And it was cool. I mean, we got some great shots, and in fact, actually, you can see some fantastic shots from that plane. We used them in Dangerous Toys, the pilot that Jamie and I did last year. And Duncan has, so eventually he took the impetus he had for the plane and he put it into an octocopter, which he's been slowly upgrading and making bigger and bigger. Now he's got a really, I'd say it's like almost 20 pounds.
 
-[00:04:04] Will: Yeah, he was he was working on it when we were there to shoot the Ebola PSA, I think. And it was, I mean, it is a it is a big monster that you can put a real camera on. Yeah. He said he has good good linger time and all that stuff.
+[00:04:04] Will: Yeah, he was working on it when we were there to shoot the Ebola PSA, I think. And it was, I mean, it is a big monster that you can put a real camera on. Yeah. He said he has good good linger time and all that stuff.
 
-[00:04:15] Adam: Yeah, and he's he's gotten really good at it, you know, because it's you're not just flying something that has a camera on it. You're also a cameraman, which means every frame has to tell a story. Yes. And so you can't just, you know, while it might be interesting to pan across the city, if it's in an episode, there has to be a reason it's panning across the city, which means you have to keep in mind what you've got. That's actually one of the things I'm super excited about the Inspire One is that it comes with dual controllers, so you can have a cameraman controlling the camera shot while a guy is actually
+[00:04:15] Adam: Yeah, and he's gotten really good at it because it's you're not just flying something that has a camera on it. You're also a cameraman, which means every frame has to tell a story. Yes. And so you can't just while it might be interesting to pan across the city, if it's in an episode, there has to be a reason it's panning across the city, which means you have to keep in mind what you've got. That's actually one of the things I'm super excited about the Inspire One is that it comes with dual controllers, so you can have a cameraman controlling the camera shot while a guy is actually
 
-[00:04:46] Will: Well, it doesn’t, it doesn’t come with them, but you can get that as an oh yeah.
+[00:04:46] Will: Well, it doesn’t come with them, but you can get that as an oh yeah.
 
-[00:04:49] Norm: You notice that if you watch a lot of these quadcopter montages, there are plenty of them, really beautiful ones around San Francisco or around the world. Where Places where some of the regulation may be a little laxer. Yeah. Um. The shots they choose are you can tell they're restricted by like battery time. Like they did, you know, they they did as many shots above this as they could, and then they got maybe three seconds they can use, and then it gets cut off right at the end. And so they're not fulfilling the potential of this because everyone's still learning.
+[00:04:49] Norm: You notice that if you watch a lot of these quadcopter montages, there are plenty of them, really beautiful ones around San Francisco or around the world. Where Places where some of the regulation may be a little laxer. Yeah. The shots they choose are you can tell they're restricted by like battery time. Like they did, you know, they did as many shots above this as they could, and then they got maybe three seconds they can use, and then it gets cut off right at the end. And so they're not fulfilling the potential of this because everyone's still learning.
 
 [00:04:49] Adam: Yeah.
 
 [00:04:49] Norm: They're learning how to use these well.
 
-[00:05:17] Will: It's like any other tool of of film, right? Like it took it took 10 years before we learned how to use the crash zoom and and you know stuff like that.
+[00:05:17] Will: It's like any other tool of film, right? Like it took 10 years before we learned how to use the crash zoom and you know stuff like that.
 
-[00:05:25] Adam: And it's it's one of the things Duncan and I were talking about. He said he wanted to make one that was that was that had a payload large enough to be able to handle a red camera. And I thought about that overnight. I thought, well, first I thought that's really cool because you know red is a cinema cinema quality ready camera. Then I realized you don't need to put a red on that. You you don't need to make it any heavier, any more of a payload than can hold a Blackmagic with a nice prime lens on it. First of all, because you're almost 99% of what you're going to do is in daylight. Second of all, if you're if it's a flying shot, it's a master shot, which means you're not going to use more than four or five seconds of it at the most. Right. So with the Blackmagic at daylight, that's where it shines.
+[00:05:25] Adam: And it's one of the things Duncan and I were talking about. He said he wanted to make one that was that had a payload large enough to be able to handle a red camera. And I thought about that overnight. I thought, well, first I thought that's really cool because you know red is a cinema cinema quality ready camera. Then I realized you don't need to put a red on that. You don't need to make it any heavier, any more of a payload than can hold a Blackmagic with a nice prime lens on it. First of all, because you're almost 99% of what you're going to do is in daylight. Second of all, if you're if it's a flying shot, it's a master shot, which means you're not going to use more than four or five seconds of it at the most. Right. So with the Blackmagic at daylight, that's where it shines.
 
 [00:06:07] Norm: And you shoot in ProRes?
 
@@ -138,7 +138,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:06:09] Norm: Post processing does a lot of the work.
 
-[00:06:15] Adam: Yeah, totally. Um, so yeah, but but the the the flying machine with the smaller and smaller higher quality cameras is both a really exciting pair of developments commensurate with each other, and they've given us a tremendous amount of extra production value on MythBusters.
+[00:06:15] Adam: Yeah, totally. So yeah, but the flying machine with the smaller and smaller higher quality cameras is both a really exciting pair of developments commensurate with each other, and they've given us a tremendous amount of extra production value on MythBusters.
 
 [00:06:31] Will: Well, so this episode, so we're recording this the Monday after the Simpsons episode.
 
@@ -164,9 +164,9 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:06:56] Adam: I'm really proud of that episode. Proud of this whole season.
 
-[00:06:59] Will: It was. It was a dramatic change in, like, as Gina said, Gina hasn't watched a ton of MythBusters because it's kind of out of her wheelhouse. But we were watching on Saturday night. She was like, " This seems. This seems a little bit more kind of mature, not not not in terms of tone and and dialogue and stuff, but in terms of like how it's shot and how it's produced and post processing and post effects and stuff like that. Like it was. It looked like a different show in a lot of ways.
+[00:06:59] Will: It was. It was a dramatic change in as Gina said, Gina hasn't watched a ton of MythBusters because it's kind of out of her wheelhouse. But we were watching on Saturday night. She was like, " This seems. This seems a little bit more kind of mature, not not not in terms of tone and and dialogue and stuff, but in terms of like how it's shot and how it's produced and post processing and post effects and stuff like that. Like it was. It looked like a different show in a lot of ways.
 
-[00:07:28] Adam: It did. And to us, it feels like we're making a different show. And you know, we looked at a lot of the things that we've been doing. You get into patterns, just like any relationship.
+[00:07:28] Adam: It did. And to us, it feels like we're making a different show. And we looked at a lot of the things that we've been doing. You get into patterns, just like any relationship.
 
 [00:07:39] Will: You get a rut.
 
@@ -176,13 +176,13 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:07:58] Adam: Excuse me.
 
-[00:08:01] Will: But so so that's that's that's interesting because one of the things that you did that I don't think you would have done before is when you you built a scale model of the toy of the three toilets. So yeah, it was Simpsons myths. Spoilers, by the way.
+[00:08:01] Will: But so so that's interesting because one of the things that you did that I don't think you would have done before is when you built a scale model of the toy of the three toilets. So yeah, it was Simpsons myths. Spoilers, by the way.
 
 [00:08:12] Adam: Spoilers, yes. If you haven't seen it, spoilers. But come on, I'm just going to talk about it.
 
 [00:08:15] Will: You tested the cherry bombs exploding.
 
-[00:08:18] Adam: Bart throws a cherry bomb in the toilet, and it makes all of the toilets in the school gush like geysers. And we we tested that.
+[00:08:18] Adam: Bart throws a cherry bomb in the toilet, and it makes all of the toilets in the school gush like geysers. And we tested that.
 
 [00:08:24] Will: Yes, you did Homer blocking the bowling ball. The blocking the wrecking ball.
 
@@ -222,7 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:09:24] Will: but not so much.
 
-[00:09:30] Adam: No, um, and that's been really, really entertaining because we have the time to go in and talk about that stuff and do that, and then also, as we've said in every interview we've done about this season, um, because Jamie and I are providing 100% of all the content, uh, there's space again for the process for building stuff, and that was very apparent in the early episodes of MythBusters, and as we've gotten, the only reason that's disappeared from the Episodes we've made since then is because we tell more complicated stories. There's more narrative beats to hit. There's not enough time to show how Jamie built a cool table saw rig to make this thing, or how Adam problem solved the pneumatics three different times and kept screwing it up.
+[00:09:30] Adam: No and that's been really, really entertaining because we have the time to go in and talk about that stuff and do that, and then also, as we've said in every interview we've done about this season because Jamie and I are providing 100% of all the content there's space again for the process for building stuff, and that was very apparent in the early episodes of MythBusters, and as we've gotten, the only reason that's disappeared from the Episodes we've made since then is because we tell more complicated stories. There's more narrative beats to hit. There's not enough time to show how Jamie built a cool table saw rig to make this thing, or how Adam problem solved the pneumatics three different times and kept screwing it up.
 
 [00:10:17] Will: Well, you showed Jamie, Jamie's giant ridiculous drill hole, having a spherical hole driller.
 
@@ -234,7 +234,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:10:17] Will: I mean that was super good. And I I feel like that's another one of those things that wouldn't have been shown, or maybe would have just been in the background.
 
-[00:10:31] Adam: Well, we were also thinking about. We went back and forth. We had the ability to buy something and just fill it with concrete. There there there are things we could buy. And Jamie, again, thinking through the model from this new perspective of like, oh, we could actually cover a complicated build enough to tell the very interesting story. And Jamie's like, all right, let me think of a really weird and cool way to make a concrete ball. We could do it this way, and you know, once Jamie gets excited.
+[00:10:31] Adam: Well, we were also thinking about. We went back and forth. We had the ability to buy something and just fill it with concrete. There are things we could buy. And Jamie, again, thinking through the model from this new perspective of like, oh, we could actually cover a complicated build enough to tell the very interesting story. And Jamie's like, all right, let me think of a really weird and cool way to make a concrete ball. We could do it this way, and once Jamie gets excited.
 
 [00:11:00] Will: Oh yeah,
 
@@ -242,13 +242,13 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:11:01] Will: It's unstoppable. He’s unstoppable.
 
-[00:11:02] Adam: no, and I thought that was a fantastic and and awesome and beautiful build, and the final result was great.
+[00:11:02] Adam: no, and I thought that was a fantastic and awesome and beautiful build, and the final result was great.
 
-[00:11:08] Will: Well, in the amount of time, I mean, just the amount of time, because I'm sure it was a full day out there to dig the hole, pour the concrete, and then another full day to come back out and and you know break it out, and probably somebody drove out a couple of times in between to make sure it had dried, cured appropriately.
+[00:11:08] Will: Well, in the amount of time, I mean, just the amount of time, because I'm sure it was a full day out there to dig the hole, pour the concrete, and then another full day to come back out and you know break it out, and probably somebody drove out a couple of times in between to make sure it had dried, cured appropriately.
 
 [00:11:08] Adam: Yep. And then there's all the problem solving of the metal structure inside and how those are going to join together, and then how you're going to fill it with concrete, etc. And then Jamie’s got to polish his balls.
 
-[00:11:29] Will: Yeah, and and you had to put some tape on the outside. You had to tape his balls.
+[00:11:29] Will: Yeah, and you had to put some tape on the outside. You had to tape his balls.
 
 [00:11:33] Adam: We had to tape up his balls.
 
@@ -256,27 +256,27 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:11:43] Adam: I wouldn't say we allowed them. You can't stop our camera team.
 
-[00:11:47] Norm: Yeah, so and that's something that shows. Yeah, like you know, with time lapses and and dolly movements and stuff like that.
+[00:11:47] Norm: Yeah, so and that's something that shows. Yeah, like with time lapses and dolly movements and stuff like that.
 
-[00:11:52] Adam: We we we have been blessed on MythBusters over the years, and I don't know if we've talked about the camera, but. You know, you're on when you're a television personality. You have a relationship to the camera, which means you have a relationship to the cameraman. And I've been doing this long enough. I could work with a cameraman who's not a nice person. I luckily only had to ever do that a couple of times. But in the beginning, it's really important you have a good relationship with your cameraman. You know, you guys work with Joey, and it's like that. That dialogue, even the silent dialogue, is super critical.
+[00:11:52] Adam: We have been blessed on MythBusters over the years, and I don't know if we've talked about the camera, but. You're on when you're a television personality. You have a relationship to the camera, which means you have a relationship to the cameraman. And I've been doing this long enough. I could work with a cameraman who's not a nice person. I luckily only had to ever do that a couple of times. But in the beginning, it's really important you have a good relationship with your cameraman. You guys work with Joey, and it's like that. That dialogue, even the silent dialogue, is super critical.
 
-[00:12:24] Will: We've been really blessed, and we've had a series of awesome producers. And then, but then we've also worked with people who are like outside contractors, which sometimes get in in a pinch when schedules don't work.
+[00:12:24] Will: We've been really blessed, and we've had a series of awesome producers. And then, but then we've also worked with people who are like outside contractors, which sometimes get in a pinch when schedules don't work.
 
 [00:12:33] Adam: And they don’t Speak the same language, and usually the biggest problem.
 
-[00:12:35] Will: it's shorthand, right? It is literally that. Oh, we want to do the this shot, and I don't even have to tell Joey because he knows. Oh, he's working over his shoulder, and it's it's this is the way to do that.
+[00:12:35] Will: it's shorthand, right? It is literally that. Oh, we want to do the this shot, and I don't even have to tell Joey because he knows. Oh, he's working over his shoulder, and it's this is the way to do that.
 
-[00:12:44] Adam: And and our camera crew, it's comprised of Scott Sorensen, who's our A camera. He started with us as a runner.
+[00:12:44] Adam: And our camera crew, it's comprised of Scott Sorensen, who's our A camera. He started with us as a runner.
 
 [00:12:50] Will: He was on Octoberkast 2013. I think.
 
-[00:12:53] Adam: Yeah, I came here. Willie Nail, who also started with us as a runner. He's our second camera, and Duncan Clark, who also started as an intern. We we we have a real farm team on MythBusters,
+[00:12:53] Adam: Yeah, I came here. Willie Nail, who also started with us as a runner. He's our second camera, and Duncan Clark, who also started as an intern. We have a real farm team on MythBusters,
 
 [00:13:06] Will: but it's good. That's that's a great way to hire people,
 
-[00:13:08] Adam: There’s nothing better, yeah, right? Because they've gotten to really get the whole thing from the ground up, and they've become such great storytellers with camera, and more than that, they're super inspired. So on any given weekend, you could go in and find Scott, like you know, all those little MythBusters interstitials before the commercials where the cars are on the fake highway. Like Scott just goes and does that on the weekends, and you know, Duncan is like he brings that octocopter no matter where we go, and as frequently we don't bring it out during the day.
+[00:13:08] Adam: There’s nothing better, yeah, right? Because they've gotten to really get the whole thing from the ground up, and they've become such great storytellers with camera, and more than that, they're super inspired. So on any given weekend, you could go in and find Scott, like all those little MythBusters interstitials before the commercials where the cars are on the fake highway. Like Scott just goes and does that on the weekends, and Duncan is like he brings that octocopter no matter where we go, and as frequently we don't bring it out during the day.
 
-[00:13:38] Will: Has he flown it inside that big that big building that you did the Star Wars episode in?
+[00:13:38] Will: Has he flown it inside that big building that you did the Star Wars episode in?
 
 [00:13:43] Adam: The Star Wars episode, ah, he's flown it inside a few buildings.
 
@@ -290,11 +290,11 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:13:43] Will: Wow!
 
-[00:13:43] Adam: And that was that was a thing.
+[00:13:43] Adam: And that was a thing.
 
 [00:14:06] Will: probably haunted.
 
-[00:14:07] Adam: That was that was a thing to fly it indoors. It's totally it's totally it's very loud
+[00:14:07] Adam: That was a thing to fly it indoors. It's totally it's very loud
 
 [00:14:07] Unknown: Oh, yeah.
 
@@ -312,7 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:15:32] Will: FS700 or
 
-[00:15:34] Adam: yeah, FS700 for for even more high speeds.
+[00:15:34] Adam: yeah, FS700 for even more high speeds.
 
 [00:15:36] Norm: You can shoot different shutters. You can show particles flying everywhere. Different frame rates to slow down at certain parts.
 
@@ -322,9 +322,9 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:16:23] Adam: right? And so that's the kind of stuff we've been doing. Being able having a three member camera crew gives us the luxury of being able to go back over that stuff and pull out just some of the most awesome shots.
 
-[00:16:35] Norm: How involved are you in the post production, the the sign posting?
+[00:16:35] Norm: How involved are you in the post production, the sign posting?
 
-[00:16:39] Adam: The sign posting, not incredibly. We'll talk to the camera very specifically before we're doing anything and explain carefully to the editors and to Katie back in Sydney who does the. Who does the animations and does that that that beautiful tracking, beautiful tracking shots of the of the measurements appearing. This next week, which is the Indiana Jones special, shows this in like some of my favorite details.
+[00:16:39] Adam: The sign posting, not incredibly. We'll talk to the camera very specifically before we're doing anything and explain carefully to the editors and to Katie back in Sydney who does the. Who does the animations and does that that that beautiful tracking shots of the measurements appearing. This next week, which is the Indiana Jones special, shows this in like some of my favorite details.
 
 [00:17:07] Will: This is where you braid the whip.
 
@@ -332,7 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:17:09] Will: Oh, nice! I've seen footage.
 
-[00:17:11] Adam: We did a teaser about it at Comic Con. So if they have questions, they call us up and they ask us. But again, that's also the post production team getting excited about the science and the engineering and the the the the mechanics and layering in even more because they're interested in it. So I watch it and I go, " Oh, that's totally cool." So it's it's not like you know, there's a single person just layering all of this in. It is it is each member of the crew taking that responsibility.
+[00:17:11] Adam: We did a teaser about it at Comic Con. So if they have questions, they call us up and they ask us. But again, that's also the post production team getting excited about the science and the engineering and the mechanics and layering in even more because they're interested in it. So I watch it and I go, " Oh, that's totally cool." So it's not like there's a single person just layering all of this in. It is each member of the crew taking that responsibility.
 
 [00:17:38] Norm: Turns out, all that stuff that you write down when you're fucking around gets put on screen.
 
@@ -340,15 +340,15 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:17:43] Will: And hours. I assume what, like 10 or 12 hours, 20 hours, probably.
 
-[00:17:58] Adam: Well, it depends. On of main camera footage and second camera coverage, it's probably not a ton. But when you talk about 10 GoPros and Blackmagics placed all over the Alameda runway, each is rolling for its full battery or SD card of footage. Sometimes we we we we hone that before sending it. But sometimes we run out of time, and someone's just got to sift through it.
+[00:17:58] Adam: Well, it depends. On of main camera footage and second camera coverage, it's probably not a ton. But when you talk about 10 GoPros and Blackmagics placed all over the Alameda runway, each is rolling for its full battery or SD card of footage. Sometimes we hone that before sending it. But sometimes we run out of time, and someone's just got to sift through it.
 
 [00:17:58] Norm: Wow!
 
-[00:17:58] Adam: So there's definitely times though where we bring the A camera and we wave so that they know this is important. And we're like, editors, editors, pay attention. What we're about to do is this and this and this. Now you realize you could cut it in one of two ways. You might want to cut this bit before that bit, but you might want to cut it after. So I'm going to give you two pieces of to-camera, so you can cut it either way.
+[00:17:58] Adam: So there's definitely times though where we bring the A camera and we wave so that they know this is important. And we're like, editors, editors, pay attention. What we're about to do is this and this. Now you realize you could cut it in one of two ways. You might want to cut this bit before that bit, but you might want to cut it after. So I'm going to give you two pieces of to-camera, so you can cut it either way.
 
 [00:18:44] Norm: Oh my goodness!
 
-[00:18:45] Adam: That's that's the kind of writing.
+[00:18:45] Adam: That's the kind of writing.
 
 [00:18:46] Norm: communication.
 
@@ -358,7 +358,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:18:52] Adam: Yes.
 
-[00:18:54] Will: So, so the thing that's interesting to me about that is you you guys are doing the same thing that we do on a much larger scale because, like, when we the reason we can produce as much video as we do is that when we're walking around shooting stuff, Joey is editing it in his head as he's shooting it, so he's he is shooting it in a way that it is easy to edit and fast, and and you guys are doing that to a different end to tell stories across continents and and
+[00:18:54] Will: So, so the thing that's interesting to me about that is you guys are doing the same thing that we do on a much larger scale because when we the reason we can produce as much video as we do is that when we're walking around shooting stuff, Joey is editing it in his head as he's shooting it, so he's he is shooting it in a way that it is easy to edit and fast, and you guys are doing that to a different end to tell stories across continents and
 
 [00:19:16] Adam: well, and let's talk that that editing is interesting because
 
@@ -368,7 +368,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:19:25] Will: table sawing it sounds like your ears are definitely getting better
 
-[00:19:28] Adam: yes the uh uh wait where were we oh editing it's right so look the world is full of camera people and some of them their job for something like the Kardashians look I don't know maybe if you're camera for cameraman for the Kardashians I might be wrong but for a lot of these reality shows it's button on.
+[00:19:28] Adam: yes the wait where were we oh editing it's right so look the world is full of camera people and some of them their job for something like the Kardashians look I don't know maybe if you're camera for cameraman for the Kardashians I might be wrong but for a lot of these reality shows it's button on.
 
 [00:19:28] Will: Mm-hmm.
 
@@ -376,7 +376,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:19:51] Will: Assume, assume like Top Chef or something like that, where they're in a confined environment. There's like 20 people in there,
 
-[00:19:55] Adam: and that's that's being edited by a director in the truck. That's being you know, it's basically all the footage is being grabbed. On MythBusters, we don't have that luxury. We have one main camera. We have two cameras for discussions between Jamie and I, so we don't have to redo them, and that keeps it more natural. But for the most part, our cameramen have to think like editors, and that means something has to be moving in the shot all the time. You'll notice my favorite shots are the ones where it's like, you know, let's say it's raining during the lawnmower episode last year, or was it this year? I don't think lawnmowers aired yet.
+[00:19:55] Adam: and that's being edited by a director in the truck. That's being it's basically all the footage is being grabbed. On MythBusters, we don't have that luxury. We have one main camera. We have two cameras for discussions between Jamie and I, so we don't have to redo them, and that keeps it more natural. But for the most part, our cameramen have to think like editors, and that means something has to be moving in the shot all the time. You'll notice my favorite shots are the ones where it's like let's say it's raining during the lawnmower episode last year, or was it this year? I don't think lawnmowers aired yet.
 
 [00:20:35] Norm: Has it?
 
@@ -396,7 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:21:14] Will: That's awesome.
 
-[00:21:14] Adam: That's all part of the you guys know it's all part of the visual language of of what you're of what you're talking about. And the the the cameramen that work well on MythBusters are the ones that the editor gets stuff and it's like wow, it's almost a cut sequence. Like, I mean, you can put a monitor on top of it.
+[00:21:14] Adam: That's all part of the you guys know it's all part of the visual language of what you're talking about. And the cameramen that work well on MythBusters are the ones that the editor gets stuff and it's like wow, it's almost a cut sequence. Like, I mean, you can put a monitor on top of it.
 
 [00:21:30] Will: That's not to say that there's not a ton of work to be done in editing.
 
@@ -416,7 +416,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:21:55] Will: at best.
 
-[00:22:07] Adam: It's it's like in the beginning you hold stuff up. You're like, now this is a mechanic and the yeah you do like this. This is a mechanical thing, and the cameraman has to teach you in in television. You have to go like this, this
+[00:22:07] Adam: It's like in the beginning you hold stuff up. You're like, now this is a mechanic and the yeah you do like this. This is a mechanical thing, and the cameraman has to teach you in television. You have to go like this
 
 [00:22:07] Will: yeah,
 
@@ -442,7 +442,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:23:25] Adam: I can't quite remember now, but yes. No, everything's on high def.
 
-[00:23:27] Will: But I mean, the thing that's happened that I've noticed happening in the last couple of years on sports and news and stuff like that is that the TV com the the the TV companies in general, the the production companies, I guess,
+[00:23:27] Will: But I mean, the thing that's happened that I've noticed happening in the last couple of years on sports and news and stuff like that is that the TV com the TV companies in general, the production companies, I guess,
 
 [00:23:39] Adam: manufacturers.
 
@@ -454,7 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:23:40] Adam: right?
 
-[00:23:40] Will: Whereas for a long time on ESPN, if you watched a football game, the the overlays would be four three, and then there'd just be some extra stuff, extra video on the side. Yeah. Have you guys changed how you're shooting the show to take advantage of HD? Did that happen a long time ago?
+[00:23:40] Will: Whereas for a long time on ESPN, if you watched a football game, the overlays would be four three, and then there'd just be some extra stuff, extra video on the side. Yeah. Have you guys changed how you're shooting the show to take advantage of HD? Did that happen a long time ago?
 
 [00:24:02] Adam: I think that happened a long time ago.
 
@@ -466,7 +466,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:24:16] Adam: It just it's very difficult.
 
-[00:24:17] Will: If you leave the the phone connector on, recording? Yeah, the camera always punks out. Like that's the thing we found is if you leave the phone connected, 30 minutes is that hard limit.
+[00:24:17] Will: If you leave the phone connector on, recording? Yeah, the camera always punks out. Like that's the thing we found is if you leave the phone connected, 30 minutes is that hard limit.
 
 [00:24:26] Adam: Yeah.
 
@@ -484,13 +484,13 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:25:07] Will: Are you guys using those Blackmagic cameras? Like, like I mean, because I know you kind of use the GoPros. Like they're they're not exactly disposable, but they're kind of disposable.
 
-[00:25:13] Adam: We're not using the Blackmagic's in place where we expect bad things to happen. But again, we also have camera housings that we've built for stuff, padded camera housings, and Blackmagic's. There's a there's an aluminum over case you can buy for them. All of ours have are heavily armored for this. But yeah, we so let's see, let's see, process the camera work, the camera look. The extra time to put in, the more facts, more supporting material that helps the audience understand. I mean, for us, it's it's not like it's it's not at all like we've been chomping at the bit to make the show this way. It's more like you get used to making something in a certain way, and that's not always good. You can get vanilla, you can get comfortable.
+[00:25:13] Adam: We're not using the Blackmagic's in place where we expect bad things to happen. But again, we also have camera housings that we've built for stuff, padded camera housings, and Blackmagic's. There's a there's an aluminum over case you can buy for them. All of ours have are heavily armored for this. But yeah, we so let's see, process the camera work, the camera look. The extra time to put in, the more facts, more supporting material that helps the audience understand. I mean, for us, it's not like it's not at all like we've been chomping at the bit to make the show this way. It's more like you get used to making something in a certain way, and that's not always good. You can get vanilla, you can get comfortable.
 
-[00:26:01] Will: Well, you. I mean, you said something a couple of years ago when when you first started talking about this, I think privately.
+[00:26:01] Will: Well, you. I mean, you said something a couple of years ago when you first started talking about this, I think privately.
 
 [00:26:01] Adam: Yeah.
 
-[00:26:01] Will: That you said you know you realized that you'd gotten too good at myth busting when you knew the answer to the to the myth before you had to test it, and that kind of colored the way you were setting up the tests.
+[00:26:01] Will: That you said you know you realized that you'd gotten too good at myth busting when you knew the answer to the myth before you had to test it, and that kind of colored the way you were setting up the tests.
 
 [00:26:01] Adam: Yes.
 
@@ -500,17 +500,17 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:26:44] Will: non-lethal weapon, of course.
 
-[00:26:46] Adam: Non-lethal, yes, right. So we built that weapon, and then we realized, okay, you know, it's it's '80s television. Like, there's very little basis in reality for almost everything that they make. But what if Jamie and I were stranded in a lumberyard with the exact same materials? What would we do? So that's what we did, and we steadfastly did not engage with the material of what we had at our disposal, or really talking to each other about what design of machine we would build until the cameras are rolling.
+[00:26:46] Adam: Non-lethal, yes, right. So we built that weapon, and then we realized, okay it's '80s television. Like, there's very little basis in reality for almost everything that they make. But what if Jamie and I were stranded in a lumberyard with the exact same materials? What would we do? So that's what we did, and we steadfastly did not engage with the material of what we had at our disposal, or really talking to each other about what design of machine we would build until the cameras are rolling.
 
 [00:26:46] Will: Oh, that's awesome!
 
 [00:26:46] Adam: Then we get this completely genuine machine. A second episode happens later on this season called " The Transformers." There's a story about a Frenchman stranded in the desert with a deux chevaux, a little Citroen car. It looks a little like a Beetle, but it predates it by
 
-[00:27:37] Will: the the one with the cloth top, right?
+[00:27:37] Will: the one with the cloth top, right?
 
 [00:27:39] Adam: Yeah, yeah. This one, not, but yes, it's that one you're thinking of
 
-[00:27:43] Will: from from The Professional or something like that. There's a there's a famous car chase with those.
+[00:27:43] Will: from The Professional or something like that. There's a famous car chase with those.
 
 [00:27:46] Adam: No,
 
@@ -530,7 +530,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:27:59] Will: Okay.
 
-[00:28:00] Adam: And when we were talking about this, we wanted, we wanted, we wanted to try something different. And so what we did was, we didn't look at the pictures of what he built. We did not engage with his machine at all. We found the correct make and model of the car. We stranded ourselves in the middle of nowhere, which was a landfill nearby, and using the same complement of hand tools and processes, we tried the same thing. And only then did we look at his design, and that was cool.
+[00:28:00] Adam: And when we were talking about this, we wanted to try something different. And so what we did was, we didn't look at the pictures of what he built. We did not engage with his machine at all. We found the correct make and model of the car. We stranded ourselves in the middle of nowhere, which was a landfill nearby, and using the same complement of hand tools and processes, we tried the same thing. And only then did we look at his design, and that was cool.
 
 [00:28:33] Will: Oh, I can't wait to see that.
 
@@ -542,13 +542,13 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:28:52] Will: which is the thing that was missing before.
 
-[00:28:57] Adam: And makes it. I don't think that was missing before, but I think that I think that there are ways in which this extra time, the extra time we have to tell these stories, and again, that's the other thing: we're not telling three stories or four stories per episode; we're telling two.
+[00:28:57] Adam: And makes it. I don't think that was missing before, but I think that there are ways in which this extra time, the extra time we have to tell these stories, and again, that's the other thing: we're not telling three stories or four stories per episode; we're telling two.
 
 [00:29:10] Will: And it's always two-ish.
 
 [00:29:11] Adam: It's always two-ish, and it might be 2.3. You know, a smaller, a small, small story, but for the most part, we have trouble making small stories. We tend to get interested, and things get fat really quickly. But that extra time to tell the story has has felt a little like a luxury because, again, that story can get deeper and deeper.
 
-[00:29:29] Will: I I was really surprised by the Simpsons episode, like the by the by the outcome of the Homer.
+[00:29:29] Will: I was really surprised by the Simpsons episode, like the by the outcome of the Homer.
 
 [00:29:34] Adam: I was surprised by both outcomes.
 
@@ -558,7 +558,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:29:48] Will: Yeah, that was pretty amazing.
 
-[00:29:48] Adam: I was really shocked. And our our associate producer Eric Haven, who is the genius at finding stuff, we really tasked him with the worst thing ever, which was find us two houses to destroy. And that's why we had to build those because we looked we looked everywhere within a 1,000 mile radius of MythBusters.
+[00:29:48] Adam: I was really shocked. And our associate producer Eric Haven, who is the genius at finding stuff, we really tasked him with the worst thing ever, which was find us two houses to destroy. And that's why we had to build those because we looked everywhere within a 1,000 mile radius of MythBusters.
 
 [00:29:48] Will: Wow.
 
@@ -568,7 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:30:08] Adam: that were you know in the we're about to be recycled. Let's accelerate the process.
 
-[00:30:11] Will: Well, you know, it's it's a matter of time. Hey, so we asked for some questions from the audience.
+[00:30:11] Will: Well it's a matter of time. Hey, so we asked for some questions from the audience.
 
 [00:30:11] Adam: Okay, yeah.
 
@@ -594,15 +594,15 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:30:44] Will: Yeah. Did you have some some STEM episodes people can look forward to? I mean, they're all kind of STEM episodes, right?
 
-[00:30:50] Adam: Mythbusters is STEM. Okay. STEAM. Sorry. Mythbusters is STEAM. I mean, we are we are we are in of by and for and all about STEM. So yes,
+[00:30:50] Adam: Mythbusters is STEM. Okay. STEAM. Sorry. Mythbusters is STEAM. I mean, we are in of by and for and all about STEM. So yes,
 
-[00:31:02] Will: do you do you do you know what hardware you are using to do? Because it seemed like you were doing some time lapses and motorized time lapses and stuff like that.
+[00:31:02] Will: do you know what hardware you are using to do? Because it seemed like you were doing some time lapses and motorized time lapses and stuff like that.
 
 [00:31:09] Adam: Ah, yes, we have a couple of really cool movers now.
 
 [00:31:12] Unknown: Oh, that's from grips.
 
-[00:31:12] Adam: We have some belt driven movers with with programmable heads, so that you can get these long tracking shots that are also time lapse. And that's Willie Nail’s particular bailiwick, and he's been having lots of fun.
+[00:31:12] Adam: We have some belt driven movers with programmable heads, so that you can get these long tracking shots that are also time lapse. And that's Willie Nail’s particular bailiwick, and he's been having lots of fun.
 
 [00:31:29] Norm: That is not something. That is something that's tough to get right.
 
@@ -628,33 +628,33 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:32:27] Adam: There is no. We're not doing any more physical work to make MythBusters than we've ever done before. We are. It's just that there hasn't been shots of us building, so people automatically thought there's a whole team of people building stuff for Adam and Jamie. There's not. What else you got?
 
-[00:32:43] Will: Um. Let's see. Fred Smith wants to know what's the hardest thing about the new format. Is it just the the extra onus on you guys to be the connective tissue?
+[00:32:43] Will: Let's see. Fred Smith wants to know what's the hardest thing about the new format. Is it just the extra onus on you guys to be the connective tissue?
 
-[00:32:54] Adam: For me, yeah. For me personally, you know, the the I work hand in glove with my executive producer Dan Tapster about how these stories fit together, and I love working with Dan on the ground. Dan's not in San Francisco. He's across the world, and it's not like we can be in constant communication. So every sequence has to follow every other sequence. You have to tell a cohesive story when you're not sure how the editors are going to cut it, and you're not sure what the result of your experiment is going to be, which is usually. So that means the mental calisthenics that I have to do in working with my director Steve Christiansen and Jamie is significantly greater.
+[00:32:54] Adam: For me, yeah. For me personally, you know, the I work hand in glove with my executive producer Dan Tapster about how these stories fit together, and I love working with Dan on the ground. Dan's not in San Francisco. He's across the world, and it's not like we can be in constant communication. So every sequence has to follow every other sequence. You have to tell a cohesive story when you're not sure how the editors are going to cut it, and you're not sure what the result of your experiment is going to be, which is usually. So that means the mental calisthenics that I have to do in working with my director Steve Christiansen and Jamie is significantly greater.
 
-[00:33:39] Will: Because you have to, you have to keep all avenues open.
+[00:33:39] Will: Because you have to keep all avenues open.
 
-[00:33:42] Adam: All avenues open. You can't, you can't shoot something that the editor can't cut with. So you've got to be thinking: How might they cut with this? Where will this go? Where will that go? There might be a great thing you want to do, but there's no point to it, or it doesn't fit within the story. It's too tangential, and you know that when they get into the editing room and stuff's got to get cut out.
+[00:33:42] Adam: All avenues open. You can't shoot something that the editor can't cut with. So you've got to be thinking: How might they cut with this? Where will this go? Where will that go? There might be a great thing you want to do, but there's no point to it, or it doesn't fit within the story. It's too tangential, and you know that when they get into the editing room and stuff's got to get cut out.
 
 [00:34:00] Norm: That's gonna be the one.
 
 [00:34:01] Adam: That's gonna go. You don't ever want to spend a day building something, filming it, and not have it make it into the episode.
 
-[00:34:07] Will: I mean, at the end of the day, I know we've talked about this on this show before, and Norm and I feel the same way. When we're shooting stuff, it's, it's really, like the worst thing I feel like I can do is waste everybody that's working with me's time.
+[00:34:07] Will: I mean, at the end of the day, I know we've talked about this on this show before, and Norm and I feel the same way. When we're shooting stuff, it's really, like the worst thing I feel like I can do is waste everybody that's working with me's time.
 
 [00:34:07] Adam: Yeah.
 
 [00:34:07] Will: Right. And
 
-[00:34:19] Adam: well, you don't know either. I mean, you, you know, you, sometimes the footage comes back, and the experiment was so much fun and screwed up so many times in so many hilarious ways that the first rough cut comes in at like 60 minutes, and I got to cut it down to 42 and a half, and you're like, oh man. Well, it means a lot of new media for the web and stuff like that, but still, it's that again. Those mental calisthenics of how does the sequence fit? Where do we start it? Where do we end it? Where do we? How do we talk about the stuff in the middle? We have lists of things that we want to get to to touch upon. This is important. This is important. This is important. That that's the mental work is has doubled to make the show for me.
+[00:34:19] Adam: well, you don't know either. I mean you, sometimes the footage comes back, and the experiment was so much fun and screwed up so many times in so many hilarious ways that the first rough cut comes in at like 60 minutes, and I got to cut it down to 42 and a half, and you're like, oh man. Well, it means a lot of new media for the web and stuff like that, but still, it's that again. Those mental calisthenics of how does the sequence fit? Where do we start it? Where do we end it? Where do we? How do we talk about the stuff in the middle? We have lists of things that we want to get to touch upon. This is important. This is important. This is important. That that's the mental work is has doubled to make the show for me.
 
 [00:35:02] Will: I think that's about it. I think this is as good a place as any to wrap up.
 
-[00:35:05] Adam: I'm I'm I'm really excited about these episodes. I'm glad we're talking about it within the run of the season, and we should talk about Indy next week because the Indiana Jones episode is a real stunner.
+[00:35:05] Adam: I'm really excited about these episodes. I'm glad we're talking about it within the run of the season, and we should talk about Indy next week because the Indiana Jones episode is a real stunner.
 
 [00:35:13] Will: I and I know it's close to you.
 
-[00:35:15] Adam: Yeah, very close to my heart. I got to. I wore I wore an Indy costume every day for two and a half months.
+[00:35:15] Adam: Yeah, very close to my heart. I got to. I wore an Indy costume every day for two and a half months.
 
 [00:35:15] Norm: Oh my goodness!
 

@@ -10,7 +10,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:00:03] Norm: and I'm Norm.
 
-[00:00:04] Adam: You know, we were you were talking about a little applause before you went out because Norm was clapping for the camera
+[00:00:04] Adam: We were you were talking about a little applause before you went out because Norm was clapping for the camera
 
 [00:00:08] Will: it's nice to get a pre-applause.
 
@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:01:01] Unknown (Adam or Will): if I've ever heard this one.
 
-[00:01:01] Adam: Okay, so this is it's from a long, long, long time ago. I mean, like maybe the late '90s. And she has Ice T on, and she's talking to him, and he's super smart, right? He's, I mean, a brilliant creator, and also like really, really able to talk about the cultural impact and the reasons and the, you know, I love hearing Ice T talk about. this stuff.
+[00:01:01] Adam: Okay, so this is it's from a long, long, long time ago. I mean, like maybe the late '90s. And she has Ice T on, and she's talking to him, and he's super smart, right? He's, I mean, a brilliant creator, and also like really, really able to talk about the cultural impact and the reasons and the I love hearing Ice T talk about. this stuff.
 
 [00:01:25] Will: He is self-aware in a way that a lot of music musicians aren't.
 
@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:02:17] Unknown speaker: what?
 
-[00:02:17] Adam: And he goes, and and you might go, " I ain't gonna call me a bitch." And he'll say, " Come over here, baby." And he leans into the microphone. He goes, " Stop your crying." He says, " You know I love you." And again, pause, pause, pause, and he goes, " But you still my bitch." And she goes, " We'll be right back after this." It's crazy town.
+[00:02:17] Adam: And he goes, and you might go, " I ain't gonna call me a bitch." And he'll say, " Come over here, baby." And he leans into the microphone. He goes, " Stop your crying." He says, " You know I love you." And again, pause, pause, pause, and he goes, " But you still my bitch." And she goes, " We'll be right back after this." It's crazy town.
 
 [00:02:45] Will: She's so good.
 
@@ -64,7 +64,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:03:02] Adam: Oh, and a wonderful man,
 
-[00:03:02] Will: a delightful human being. You know, he was talking about Trump and immigration, and I mean, he's a book coming out. But he was talking about internment camps in Japanese internment camps, where
+[00:03:02] Will: a delightful human being. He was talking about Trump and immigration, and I mean, he's a book coming out. But he was talking about internment camps in Japanese internment camps, where
 
 [00:03:13] Adam: he spent part of his childhood.
 
@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:03:16] Adam: Yeah,
 
-[00:03:16] Will: it was a fascinating interview. But like, just in the mechanics of interviewing someone, he's so gregarious and outgoing, and is is has a million stories and is ready to to go. That they hit the wall, so Krasny got the hey, we got to cut in for the for the for the fundraiser,
+[00:03:16] Will: it was a fascinating interview. But like, just in the mechanics of interviewing someone, he's so gregarious and outgoing, and is is has a million stories and is ready to go. That they hit the wall, so Krasny got the hey, we got to cut in for the fundraiser,
 
 [00:03:33] Adam: yeah.
 
@@ -120,7 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:04:58] Will: How could they? Well, they interview so many people; it's not like they can. Exactly, they don't have a 20-person research staff.
 
-[00:05:02] Adam: It's a, it's a, it's a fire hose of material he's got to manage, and so he wasn't crazy familiar with MythBusters. He knew us as local heroes and that kind of stuff. So I got to see the degree to which his team does great research for him and works with him, and how he, like, even between ad breaks or whatever you call it, station IDs, he is. It's beautiful to watch that machine operate. Well, right, him and his team are a fantastic unit in terms of taking new information and getting a really substantive interview out of a subject he might not have even met before,
+[00:05:02] Adam: It's a fire hose of material he's got to manage, and so he wasn't crazy familiar with MythBusters. He knew us as local heroes and that kind of stuff. So I got to see the degree to which his team does great research for him and works with him, and how he even between ad breaks or whatever you call it, station IDs, he is. It's beautiful to watch that machine operate. Well, right, him and his team are a fantastic unit in terms of taking new information and getting a really substantive interview out of a subject he might not have even met before,
 
 [00:05:39] Will: and it's recorded live.
 
@@ -148,7 +148,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:06:37] Norm: minute by minute, you are scheduled.
 
-[00:06:39] Adam: Yep. But and and it was fascinating that the shows that I had that I always have the most fun doing are the big morning zoo shows in markets all over the country because there is like six people in the room, they're all yelling and screaming. You barely have to do any heavy lifting because they have their whole machine.
+[00:06:39] Adam: Yep. But and it was fascinating that the shows that I had that I always have the most fun doing are the big morning zoo shows in markets all over the country because there is like six people in the room, they're all yelling and screaming. You barely have to do any heavy lifting because they have their whole machine.
 
 [00:06:54] Will: They're doing their bits.
 
@@ -160,7 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:07:27] Norm: You keep giving you nothing.
 
-[00:07:28] Adam: You're just like, really? That that okay? Well, wait, you know, and they're not bringing any of the energy you're bringing, and it's just it it's it's horrifying.
+[00:07:28] Adam: You're just like, really? That that okay? Well, wait and they're not bringing any of the energy you're bringing, and it's just it it's horrifying.
 
 [00:07:38] Will: It's so hard to be so so I did I used to do those for the Fox Radio Network when Windows when new Windowses would come out because I was the Windows guy at a computer magazine, and you'd get up at three o'clock in the morning and start talking to people in the East Coast and go all the way across the country, but there was one. There's one
 
@@ -180,15 +180,15 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:08:34] Adam: Oh no!
 
-[00:08:34] Will: And she was like, " No, actually, this is Jean." And I felt about that small. And then you know, I had 30 seconds between that one and the next one to get going. And
+[00:08:34] Will: And she was like, " No, actually, this is Jean." And I felt about that small. And then I had 30 seconds between that one and the next one to get going. And
 
 [00:08:42] Adam: all of a sudden, your brain is a guy sleeping behind his Tesla steering wheel.
 
-[00:08:46] Will: Yeah, it was. It was just like you just you just see it you see it coming at you, and you're like, " Oh man, I'm gonna I'm gonna swing for the fences on this one. I got to go for it." So
+[00:08:46] Will: Yeah, it was. It was just like you just see it you see it coming at you, and you're like, " Oh man, I'm gonna I'm gonna swing for the fences on this one. I got to go for it." So
 
 [00:08:54] Adam: yeah.
 
-[00:08:55] Norm: And sometimes they have angles. They're going for they they they the whole interview. They just want to ask that one question or the one thing. Yeah,
+[00:08:55] Norm: And sometimes they have angles. They're going for they the whole interview. They just want to ask that one question or the one thing. Yeah,
 
 [00:09:02] Adam: there's that, and then there's the morning zoo shows. Do tend to redound to the Can you bust the myth about my ex-wife? You know, the humor humor hasn't changed for some of these shows in 30 or 40 years.
 
@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:09:40] Will: Yeah, beautiful and toothless Tri Cities Regional Airport.
 
-[00:09:43] Adam: And I yeah, I had a lovely week, and I finished it off by talking to to our friends over at Boston Dynamics in Boston.
+[00:09:43] Adam: And I yeah, I had a lovely week, and I finished it off by talking to our friends over at Boston Dynamics in Boston.
 
 [00:09:50] Will: Oh, nice.
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:13:30] Will: Yeah.
 
-[00:13:30] Adam: It is a ticking clock. Look, I I work really hard on my mental state at that point because um, if you travel with me as my wife does, I can get really panicky because I'm a super obsessively on time guy. Hmm. So it means I'm can be very unpleasant to be in an airport with when things are confusing. So I work really hard to try and like let's remember the stakes. This is just an early flight home. If I miss it, there's like 40 flights today getting from Boston to San Francisco. It's not a tragedy if I don't make this. I'm not gonna die. No one's gonna. There's nothing's gonna happen. So I really,
+[00:13:30] Adam: It is a ticking clock. Look, I I work really hard on my mental state at that point because if you travel with me as my wife does, I can get really panicky because I'm a super obsessively on time guy. Hmm. So it means I'm can be very unpleasant to be in an airport with when things are confusing. So I work really hard to try and like let's remember the stakes. This is just an early flight home. If I miss it, there's like 40 flights today getting from Boston to San Francisco. It's not a tragedy if I don't make this. I'm not gonna die. No one's gonna. There's nothing's gonna happen. So I really,
 
 [00:14:03] Norm: but I do play out all the like all the scenarios.
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:14:17] Norm: And it says, " Oh, not working. You could walk, or you could take the tram the other direction. One is 30 minutes, and one's 26 minutes, and the flight leaves in like 18 minutes.
 
-[00:14:33] Will: Right. You like your your window to get on the plane is closing.
+[00:14:33] Will: Right. You like your window to get on the plane is closing.
 
 [00:14:36] Norm: Well, one, my first instinct is start moving.
 
@@ -368,15 +368,15 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:14:57] Adam: right? Yeah. Yeah. Jesus Christ.
 
-[00:14:57] Will: I, I.
+[00:14:57] Will: I.
 
-[00:14:57] Adam: How about when United used to book some of their seats through U.S. Air, so you'd get to the U.S. Air counter only for them to tell you, you had to go all the way to Terminal One to go.
+[00:14:57] Adam: How about when United used to book some of their seats through U.S. Air, so you'd get to the U.S. Air counter only for them to tell you had to go all the way to Terminal One to go.
 
 [00:15:10] Will: Or United's in Terminal A sometimes now too, and you have to walk all the way around.
 
-[00:15:14] Adam: And, and there's nothing on your ticket that says which.
+[00:15:14] Adam: And there's nothing on your ticket that says which.
 
-[00:15:17] Will: No. I I one time made it from my house, which is a 25 minute drive. I I waited. I had a cab or a Lyft, whatever, Lyft, Uber, cab, something coming, and the guy just didn't come, and he didn't come, and he didn't come. And I was going for a really long time, so I didn't want to have to pay to park.
+[00:15:17] Will: No. I one time made it from my house, which is a 25 minute drive. I waited. I had a cab or a Lyft, whatever, Lyft, Uber, cab, something coming, and the guy just didn't come, and he didn't come. And I was going for a really long time, so I didn't want to have to pay to park.
 
 [00:15:36] Adam: Right.
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:16:32] Adam: Oh,
 
-[00:16:32] Will: he guns it. We we we take the speed bump on the way out of the parking lot in the air. Right. He turns. You just go straight on the freeway. It's like one stop next exit to the freeway from there.
+[00:16:32] Will: he guns it. We take the speed bump on the way out of the parking lot in the air. Right. He turns. You just go straight on the freeway. It's like one stop next exit to the freeway from there.
 
 [00:16:44] Adam: That feels good.
 
@@ -456,17 +456,17 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:18:10] Will: Okay.
 
-[00:18:10] Adam: Not sure. It was in Berkeley. I don't think it was recorded. Yeah, um, but but there are a lot of interviews he did publicly for this book, and it's wonderful. In fact, I'd say the the deepest dive that I've yet heard is on, Ezra Klein's show,
+[00:18:10] Adam: Not sure. It was in Berkeley. I don't think it was recorded. Yeah but there are a lot of interviews he did publicly for this book, and it's wonderful. In fact, I'd say the deepest dive that I've yet heard is on, Ezra Klein's show,
 
 [00:18:31] Will: okay,
 
 [00:18:31] Adam: which actually terrific, terrific freaking podcast. Usually politics. Ezra Klein is crazy smart, and he's a super fan of Randall Munroe, so they get really into the weeds in a lovely way.
 
-[00:18:43] Will: The the chapters that Chris Hadfield answered, where he asked Chris Hadfield questions in that book, are exceptional.
+[00:18:43] Will: The chapters that Chris Hadfield answered, where he asked Chris Hadfield questions in that book, are exceptional.
 
-[00:18:50] Adam: Well, that was the best part of the interview. Is his going through like he said he called Chris Hadfield with the goal to get Chris Hadfield to hang up on him by asking him ever more absurd aviation questions, and so he opened with, " If you had to land a plane and there's no roads and there's no parking lots and no flat land around you, is there a crop that is better than others?" And not only did he take this. Question seriously, but Chris had actual protocols in his head about which crops are better to land in at which times of year. Like corn is good, but only until May, right? Like, and it got it went it went nuts from there. Like, there was no question too absurd for Chris not to have considered it already as part of surviving in the air. Like
+[00:18:50] Adam: Well, that was the best part of the interview. Is his going through like he said he called Chris Hadfield with the goal to get Chris Hadfield to hang up on him by asking him ever more absurd aviation questions, and so he opened with, " If you had to land a plane and there's no roads and there's no parking lots and no flat land around you, is there a crop that is better than others?" And not only did he take this. Question seriously, but Chris had actual protocols in his head about which crops are better to land in at which times of year. Like corn is good, but only until May, right? Like, and it got it went nuts from there. Like, there was no question too absurd for Chris not to have considered it already as part of surviving in the air. Like
 
-[00:19:34] Will: the the moments that we had with Chris, like at the the green room at Comic Con and stuff like that, we had like an hour, and I was just grilling him. I was like, " Am I asking too many questions?" It's like I don't care how many times I'm going to get to talk to him. It's he's it's it captures that. Randall did a really amazing job of capturing that kind of access.
+[00:19:34] Will: the moments that we had with Chris, like at the green room at Comic Con and stuff like that, we had an hour, and I was just grilling him. I was like, " Am I asking too many questions?" It's like I don't care how many times I'm going to get to talk to him. It's he's it's it captures that. Randall did a really amazing job of capturing that kind of access.
 
 [00:19:50] Adam: He also, I must say, as an as a regular interviewer of people, there's also a wonderful earlier a couple years ago. Randall interviewed Chris as part of a thing, and it went online. And his opening question was, " When you were on the ISS, do you get to know and be familiar with parts of Earth that you see down to that you didn't expect and I'm not sure I'm getting the question exactly right, but Chris said, " Wow, I've never gotten that question before." And I'm thinking, this guy gets interviewed like every other day of his whole life, and that's a brand new question. That's pretty amazing. That's Randall's also an amazing interviewer, as well as being a great interviewee.
 
@@ -488,13 +488,13 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:20:56] Norm: Brad Pitt in space. He's going to on to the edge of solar systems [unclear: 'to meet us'].
 
-[00:21:00] Will: Brad Pitt, Brad Pitt,
+[00:21:00] Will: Brad Pitt,
 
-[00:21:01] Norm: right, right. You know, oh, what was that? Buzz was the Buzzfeed headline, right? Brad Astra gets sad. Astra looking for his dad. Astra who may be bad. Astra in the new film. Ad Astra.
+[00:21:01] Norm: right, right. Oh, what was that? Buzz was the Buzzfeed headline, right? Brad Astra gets sad. Astra looking for his dad. Astra who may be bad. Astra in the new film. Ad Astra.
 
 [00:21:15] Adam: Nice.
 
-[00:21:15] Norm: There was a what was it? A Reddit comment. I like this film. I think I would have liked it more if I hated my dad. Well, you’ve got, you’ve got the movie. We should talk about it.
+[00:21:15] Norm: There was a what was it? A Reddit comment. I like this film. I think I would have liked it more if I hated my dad. Well, you’ve got the movie. We should talk about it.
 
 [00:21:29] Adam: I will see it. I haven't seen it.
 
@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:21:46] Will: Hard sci-fi, but not.
 
-[00:21:47] Adam: I believe I believe Chris Gilman at Global Effects.
+[00:21:47] Adam: I believe Chris Gilman at Global Effects.
 
 [00:21:51] Norm: There are so many different spacesuits.
 
@@ -514,7 +514,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:21:58] Norm: Yes, if you can watch it in on the biggest screen possible, on IMAX or Dolby, I recommend doing that.
 
-[00:22:03] Will: Okay, I'll make I'll make time this weekend. Go see it.
+[00:22:03] Will: Okay, I'll make time this weekend. Go see it.
 
 [00:22:05] Norm: We want more movies like this.
 
@@ -524,7 +524,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:22:10] Norm: Oh, I saw that last weekend or last week too.
 
-[00:22:12] Will: Hustlers is the the
+[00:22:12] Will: Hustlers is the
 
 [00:22:14] Adam: J Lo
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:22:18] Adam: Not a heist film.
 
-[00:22:18] Norm: No, it's it's
+[00:22:18] Norm: No, it's
 
 [00:22:20] Adam: okay. Don't don't. I don't.
 
@@ -546,7 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:22:24] Adam: J Lo is one of my heroes.
 
-[00:22:26] Norm: Yeah, you know, it surfaced again this weekend because she was at um some fashion show, but then
+[00:22:26] Norm: Yeah, you know, it surfaced again this weekend because she was at some fashion show, but then
 
 [00:22:32] Will: she wore the green dress.
 
@@ -558,7 +558,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:22:42] Adam: Oh, because everyone wanted to see the dress that was taped to her bosom.
 
-[00:22:43] Norm: Everyone was Everyone was googling at that time. Just Google text search.
+[00:22:43] Norm: Everyone was googling at that time. Just Google text search.
 
 [00:22:48] Adam: Wow.
 
@@ -648,7 +648,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:26:12] Will: [unclear: 'Not Elena Christensen' / 'Not Atlanta Christian'].
 
-[00:26:13] Adam: And and then, sorry, I'm. It's a Mike Binder film.
+[00:26:13] Adam: And then, sorry, I'm. It's a Mike Binder film.
 
 [00:26:17] Will: Okay.
 
@@ -658,7 +658,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:26:26] Adam: I'm in that movie because I recently watched Bull Durham only about three or four months ago.
 
-[00:26:31] Will: It's it is like the that that triangle is exceptional in that you know you have the the you have the young you have the young up and comer
+[00:26:31] Will: It's it is like the that that triangle is exceptional in that you know you have the young up and comer
 
 [00:26:39] Adam: which
 
@@ -678,7 +678,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:27:00] Norm: of the Worlds.
 
-[00:27:01] Will: No, no, no, no. It was like a it was like a taut psychological thriller.
+[00:27:01] Will: No, no, no, no. It was like a taut psychological thriller.
 
 [00:27:05] Norm: I don't know.
 
@@ -690,7 +690,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:27:09] Adam: especially in War of the Worlds. He's terrifying.
 
-[00:27:11] Will: Yeah. Um. And and he's just such a. Feckless goofball,
+[00:27:11] Will: Yeah. And he's just such a. Feckless goofball,
 
 [00:27:16] Adam: yeah,
 
@@ -698,17 +698,17 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:27:18] Adam: perfect pair of terms,
 
-[00:27:19] Will: and like, like everything from like I was watching even his delivery, he he does like a '50s inspired screwball wind up where he looks up at the sky and then just wangs him out there.
+[00:27:19] Will: and everything from like I was watching even his delivery, he does like a '50s inspired screwball wind up where he looks up at the sky and then just wangs him out there.
 
 [00:27:28] Unknown speaker: Yeah,
 
 [00:27:29] Norm: well, it's Hudsucker Proxy, yeah, it's his character. It
 
-[00:27:31] Will: is, yeah. I mean, it's it's kind of the same character as Hudsucker Proxy. Yeah. Um, but the the Hudsucker Proxy guy had a vision, and I think that Nuke LaLoosh has is an empty vessel, um, which Kevin Costner pours all of the knowledge into, and it's just a lovely story that everybody holds their own in that movie. The sexual politics of the mid '80s, yeah,
+[00:27:31] Will: is, yeah. I mean, it's kind of the same character as Hudsucker Proxy. Yeah. But the Hudsucker Proxy guy had a vision, and I think that Nuke LaLoosh has is an empty vessel which Kevin Costner pours all of the knowledge into, and it's just a lovely story that everybody holds their own in that movie. The sexual politics of the mid '80s, yeah,
 
-[00:27:51] Adam: they don't, they don't, they, they, it's yeah, well, it just wouldn't have been made that way today.
+[00:27:51] Adam: they don't, they, it's yeah, well, it just wouldn't have been made that way today.
 
-[00:27:57] Will: Well, the thing that I realized about that movie is it's it's like I I feel like they said it in like the late '70s when it was made in the mid '80s.
+[00:27:57] Will: Well, the thing that I realized about that movie is it's like I I feel like they said it in like the late '70s when it was made in the mid '80s.
 
 [00:28:07] Adam: Yeah,
 
@@ -730,25 +730,25 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:28:37] Will: Like it's that that that role. Her name is Annie Savoy, I think. Is just it's such a she's so full of shit.
 
-[00:28:45] Adam: Yep, and and actually the stuff that I found held up the least were the things that were the big selling points of the movie back when it came out. So his speech about I'll tell you what I believe in is unwatchable to me now.
+[00:28:45] Adam: Yep, and actually the stuff that I found held up the least were the things that were the big selling points of the movie back when it came out. So his speech about I'll tell you what I believe in is unwatchable to me now.
 
-[00:28:57] Will: It's it's I mean you you look at it and it's still a a piece of film history that is the thing that everybody remembers from that movie,
+[00:28:57] Will: It's I mean you look at it and it's still a piece of film history that is the thing that everybody remembers from that movie,
 
 [00:29:05] Adam: right?
 
-[00:29:05] Will: But the thing that the thing that's good is the dancing at the end. Right when when
+[00:29:05] Will: But the thing that the thing that's good is the dancing at the end. Right when
 
 [00:29:10] Adam: the dancing at the end, his challenge to meet out inside the ballpark where he throws baseball at me.
 
 [00:29:15] Will: Yeah,
 
-[00:29:15] Adam: right. Those little moments. It earns it earns all of its dramatic moments.
+[00:29:15] Adam: right. Those little moments. It earns all of its dramatic moments.
 
 [00:29:19] Will: When Millie and Annie are working with Nuke pitching after the road, the failed road, like the road trip montage is is so good.
 
 [00:29:27] Adam: Yeah.
 
-[00:29:27] Will: Like all of the things that they do, it has all of those like pieces, and they're put together in such a delightful way, and it all comes together. It's it's it's a perfect movie. It's one of my favorites.
+[00:29:27] Will: Like all of the things that they do, it has all of those like pieces, and they're put together in such a delightful way, and it all comes together. It's a perfect movie. It's one of my favorites.
 
 [00:29:36] Norm: Why did he never play an astronaut?
 
@@ -780,9 +780,9 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:30:04] Adam: I finished. I'm caught up. Watched the latest episode of Succession last night.
 
-[00:30:12] Will: I I have heard so many people talking about that that I need to go and watch it.
+[00:30:12] Will: I have heard so many people talking about that that I need to go and watch it.
 
-[00:30:17] Adam: It's worth watching. It's you got to be ready for some deep psychological damage because it is just about the most screwed up family the the the the messed up toll that the horrifying patriarch played by Brian Cox has enacted upon his five kids in this show. Every one of them is just a complete train wreck. Kieran Culkin
+[00:30:17] Adam: It's worth watching. It's you got to be ready for some deep psychological damage because it is just about the most screwed up family the messed up toll that the horrifying patriarch played by Brian Cox has enacted upon his five kids in this show. Every one of them is just a complete train wreck. Kieran Culkin
 
 [00:30:41] Norm: wow
 
@@ -804,7 +804,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:31:12] Adam: well, and that wonderful bit. So, Bull Durham also doesn't do anything to educate the audience. You're deep in technical talk, and they don't help you explain. When Costner first meets Wuhl, and he's like, " Oh yeah, you and I met at the blah blah blah blah blah," and you sent me an easy pitch, and I tattooed it over the right. And they're going through all this terminology, not helping you know what it means.
 
-[00:31:34] Will: Well, and they play they play what looks like real for a movie. It's very real baseball. Like they don't have like there's a moment when
+[00:31:34] Will: Well, and they play what looks like real for a movie. It's very real baseball. Like they don't have like there's a moment when
 
 [00:31:40] Norm: it's not like movie poker.
 
@@ -812,7 +812,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:31:43] Adam: my plan is to get the best hand while you have the second best hand.
 
-[00:31:45] Will: Here's my four of a kind, your royal flush. No, but he like there's a moment there's a there's multiple moments where where he's on the mound and it's the perfect time for him to just zing a fastball right down the middle, or for Kevin Costner to tee one up and knock it out of the park, and they don't do it.
+[00:31:45] Will: Here's my four of a kind, your royal flush. No, but he like there's a moment there's a there's multiple moments where he's on the mound and it's the perfect time for him to just zing a fastball right down the middle, or for Kevin Costner to tee one up and knock it out of the park, and they don't do it.
 
 [00:32:03] Adam: Yeah,
 
@@ -820,7 +820,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:32:04] Adam: yeah,
 
-[00:32:04] Will: it's it's it's such a yeah.
+[00:32:04] Will: it's such a yeah.
 
 [00:32:06] Adam: And on that front, a shout out to for the love of the game.
 
@@ -870,11 +870,11 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:33:18] Adam: Madonna.
 
-[00:33:18] Will: Um, like they,
+[00:33:18] Will: Like they,
 
 [00:33:21] Adam: Robert Wuhl must be in that too.
 
-[00:33:23] Will: I think he might be. I think he's a reporter or a caller, like the the commentator or something.
+[00:33:23] Will: I think he might be. I think he's a reporter or a caller, like the commentator or something.
 
 [00:33:29] Adam: Maybe could be.
 
@@ -922,11 +922,11 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:34:10] Adam: Yeah, She killed. That show kills. That show slaps. That show sings. It's amazing.
 
-[00:34:15] Will: It's it's very good. I was looking to see if he was in. He's not that I can see. Anyway,
+[00:34:15] Will: It's very good. I was looking to see if he was in. He's not that I can see. Anyway,
 
 [00:34:20] Adam: did you watch the Emmys last night? We didn't. We just played cards.
 
-[00:34:22] Norm: It's a little bits, little bits. I actually watched a lot of the Creative Arts Emmys.
+[00:34:22] Norm: It's a little bits. I actually watched a lot of the Creative Arts Emmys.
 
 [00:34:25] Adam: Oh,
 
@@ -972,11 +972,11 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:35:01] Adam: No, no, I think we can jump right into it. But if you don't, if you haven't seen the boys, just turn it off now. I think we're gonna talk.
 
-[00:35:07] Norm: We'll do a we'll do a fake outro. So we'll end the podcast as is with our shoutouts. Next week we're gonna be at New York Comic Con.
+[00:35:07] Norm: We'll do a fake outro. So we'll end the podcast as is with our shoutouts. Next week we're gonna be at New York Comic Con.
 
 [00:35:14] Adam: Yes, New York Comic Con.
 
-[00:35:14] Norm: There's amazing incognito that we'll have the the videos for shortly after.
+[00:35:14] Norm: There's amazing incognito that we'll have the videos for shortly after.
 
 [00:35:20] Adam: Sorry, actually, and I have a bit of housekeeping to do. Next Friday I am doing a New York Comic Con event, small, 300 people only. Friday at 4:30 as part of Anime Fest.
 
@@ -1006,11 +1006,11 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:36:13] Adam: I love the idea of this.
 
-[00:36:15] Will: I, I mean, well, hopefully you like the execution too. It's called Brad and Will Made a Tech Pod, which was a placeholder name, and then we did a soft launch
+[00:36:15] Will: I mean, well, hopefully you like the execution too. It's called Brad and Will Made a Tech Pod, which was a placeholder name, and then we did a soft launch
 
 [00:36:22] Norm: that's sort of like still untitled.
 
-[00:36:23] Will: It's kind of like so, yeah. It was a soft launch that went that got hard unexpectedly, and we we reserve the right to change the name, but it's out there. You can find it at techpod.content.town.
+[00:36:23] Will: It's kind of like so, yeah. It was a soft launch that went that got hard unexpectedly, and we reserve the right to change the name, but it's out there. You can find it at techpod.content.town.
 
 [00:36:36] Adam: Wow,
 
@@ -1060,17 +1060,17 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:37:26] Adam: Dark show.
 
-[00:37:27] Will: Yeah, it it opens incredibly dark.
+[00:37:27] Will: Yeah, it opens incredibly dark.
 
 [00:37:29] Adam: Yeah.
 
-[00:37:29] Will: Like it, like it's it's unpleasantly rapey all the way through.
+[00:37:29] Will: Like it, like it's unpleasantly rapey all the way through.
 
 [00:37:34] Adam: Yeah.
 
 [00:37:34] Will: Like even even like there's mental abuse, coercion, all sorts of horrible, weird power dynamics.
 
-[00:37:42] Adam: The the the Superman breastfeeding.
+[00:37:42] Adam: The Superman breastfeeding.
 
 [00:37:45] Norm: Mm-hmm.
 
@@ -1082,7 +1082,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:37:55] Adam: God, incredible.
 
-[00:37:57] Will: I I so when I thought I had read the boys 20 years ago, by the way, I'm pretty sure I was thinking of something else that Garth Ennis wrote.
+[00:37:57] Will: I so when I thought I had read the boys 20 years ago, by the way, I'm pretty sure I was thinking of something else that Garth Ennis wrote.
 
 [00:38:04] Norm: The preacher.
 
@@ -1114,13 +1114,13 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:38:43] Adam: Right, right,
 
-[00:38:44] Norm: right. Here, the the the
+[00:38:44] Norm: right. Here, the
 
 [00:38:46] Adam: Homelander is is ambiguous for a while until you.
 
 [00:38:49] Will: Man, I did not think that at all.
 
-[00:38:51] Adam: I, I, you know, I was basically taking it on faith. Like, okay, we don't know, we don't know yet. They haven't told me. They haven't explained.
+[00:38:51] Adam: I was basically taking it on faith. Like, okay, we don't know yet. They haven't told me. They haven't explained.
 
 [00:38:57] Norm: It's not to us, to the world.
 
@@ -1128,7 +1128,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:39:00] Norm: That world.
 
-[00:39:00] Will: I mean, yes. The the the most disconcerting part of the whole thing is knowing what you know about these awful people and then watching the crowds cheer for them.
+[00:39:00] Will: I mean, yes. The most disconcerting part of the whole thing is knowing what you know about these awful people and then watching the crowds cheer for them.
 
 [00:39:09] Adam: Yeah.
 
@@ -1140,11 +1140,11 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:39:10] Will: Um.
 
-[00:39:11] Adam: Well, you know, maybe the most Upsetting, intense commentary on today.
+[00:39:11] Adam: Well maybe the most Upsetting, intense commentary on today.
 
 [00:39:15] Will: I mean, look, there's a. We could argue that it is ripped straight from the headlines for 40 percent of the country. No, it was. It's it's fascinating. They ended it. Is that's how the comic? I haven't read the entire.
 
-[00:39:26] Norm: No, it's it's it's not. It's not tied to the comics, really. So
+[00:39:26] Norm: No, it's not. It's not tied to the comics, really. So
 
 [00:39:30] Adam: they're they're totally continuing. I I was really impressed, and I was surprised by how upsetting the scene in which the townie rapes Aquaman. That's
 
@@ -1176,13 +1176,13 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:40:28] Adam: Yep.
 
-[00:40:28] Will: The the the speech, the the kind of turning point of the whole series for me was when she's standing at the at the evangelical conference and she's she's like getting ready to do the rah rah speech. She's like, no, fuck it. I'm telling. I mean, here's here's the truth.
+[00:40:28] Will: The speech, the kind of turning point of the whole series for me was when she's standing at the evangelical conference and she's like getting ready to do the rah rah speech. She's like, no, fuck it. I'm telling. I mean, here's here's the truth.
 
 [00:40:40] Adam: Yeah.
 
 [00:40:41] Will: And
 
-[00:40:41] Adam: and she brings that the actress brings such a level of of intelligent introspective presence to the role that it's really fascinating. I really liked. I said this last time, but I really liked that she also. I liked the arc between her and Dennis Quaid's son, Jack. Jack Quaid.
+[00:40:41] Adam: and she brings that the actress brings such a level of intelligent introspective presence to the role that it's really fascinating. I really liked. I said this last time, but I really liked that she also. I liked the arc between her and Dennis Quaid's son, Jack. Jack Quaid.
 
 [00:41:00] Norm: Jack Quaid. Yeah. Yeah.
 
@@ -1210,11 +1210,11 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:41:30] Norm: Yes,
 
-[00:41:31] Will: but I mean, you you have no idea what Black Noir's intentions are. The arc between, sorry, Queen Maeve,
+[00:41:31] Will: but I mean, you have no idea what Black Noir's intentions are. The arc between, sorry, Queen Maeve,
 
 [00:41:40] Adam: yeah,
 
-[00:41:40] Will: and and Starlight.
+[00:41:40] Will: and Starlight.
 
 [00:41:42] Adam: Oh, and Starlight, yes,
 
@@ -1248,11 +1248,11 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:42:19] Norm: He's a visual director.
 
-[00:42:21] Will: I, I um,
+[00:42:21] Will: I
 
 [00:42:23] Norm: okay.
 
-[00:42:24] Will: I I like that movie a lot. I think it's a. I think is very true. I think the ending for that is way better than the bad ending of the graphic novel.
+[00:42:24] Will: I like that movie a lot. I think it's a. I think is very true. I think the ending for that is way better than the bad ending of the graphic novel.
 
 [00:42:32] Adam: Ah, interesting. Okay,
 
@@ -1272,7 +1272,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:42:46] Adam: leftovers.
 
-[00:42:47] Norm: Leftovers. Yeah, so I'm gonna, you know, I'm gonna give it a chance.
+[00:42:47] Norm: Leftovers. Yeah, so I'm gonna I'm gonna give it a chance.
 
 [00:42:50] Adam: The thing that I always know that I'm gonna get with Damon Lindelof's productions is a genuine emotion. He's really interested in character and emotional arcs, and it's always going to be deep. I'm one of the fans who loves the ending of Lost. I know that not everybody does. I've watched it twice. Yeah, big fan. I'm really excited.
 
@@ -1292,7 +1292,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:43:36] Adam: Yeah,
 
-[00:43:36] Will: I didn't. I I was surprised that she survived.
+[00:43:36] Will: I didn't. I was surprised that she survived.
 
 [00:43:38] Norm: They left. That at the perfect place to end.
 
@@ -1312,7 +1312,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:43:51] Adam: Oh god, I so want there.
 
-[00:43:53] Will: Yeah, yeah. It it was it's.
+[00:43:53] Will: Yeah, yeah. It was it's.
 
 [00:43:55] Adam: Hey, if there are any producers of the boys who listen to this podcast and want tested to maybe do a one day build of a prop for next season, you let us know.
 
@@ -1324,7 +1324,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:44:07] Adam: Yeah, I couldn't do it better than they did it, man. That's some excellent makeup work.
 
-[00:44:11] Will: I mean, the the production on that thing was incredible.
+[00:44:11] Will: I mean, the production on that thing was incredible.
 
 [00:44:14] Adam: Really, really well done.
 

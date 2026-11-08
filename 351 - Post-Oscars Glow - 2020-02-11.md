@@ -52,13 +52,13 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:00:59] Adam: Really,
 
-[00:00:59] Will: I mean, usually they turn off because they're afraid the the PG&E is going to burn down the thing.. But in this case, but this time it was just the wind blew up a tree over a power line.
+[00:00:59] Will: I mean, usually they turn off because they're afraid the PG&E is going to burn down the thing.. But in this case, but this time it was just the wind blew up a tree over a power line.
 
 [00:01:07] Adam: Wow.
 
 [00:01:07] Will: Yeah.
 
-[00:01:07] Norm: But in Orlando, they are known for their attractions and their theme parks, their theme parks, and there is Walt Disney World. So that's where I spent all five days last week visiting the four parks of Disney World, including Hollywood Studios, which now has Galaxy's Edge.
+[00:01:07] Norm: But in Orlando, they are known for their attractions and their theme parks, and there is Walt Disney World. So that's where I spent all five days last week visiting the four parks of Disney World, including Hollywood Studios, which now has Galaxy's Edge.
 
 [00:01:24] Adam: Wow.
 
@@ -116,11 +116,11 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:03:00] Norm: . That's what it is. They're building out a hotel. In the Walt Disney World compound,
 
-[00:03:05] Adam: you know it's funny. I tried to watch that HBO show with Hugh Laurie, and I just couldn't get into it.
+[00:03:05] Adam: It's funny. I tried to watch that HBO show with Hugh Laurie, and I just couldn't get into it.
 
 [00:03:10] Norm: Oh, it's from the creator of Veep. I,
 
-[00:03:12] Adam: I, I clearly it was from the creator of Veep, and there's a lot of that same kind of humor. But it wasn't. It just didn't quite. I'm going to give it more time. Yeah, I'm going to give it a few more episodes because I love Hugh Laurie. I love Josh Gad. I love everyone in the cast.
+[00:03:12] Adam: I clearly it was from the creator of Veep, and there's a lot of that same kind of humor. But it wasn't. It just didn't quite. I'm going to give it more time. Yeah, I'm going to give it a few more episodes because I love Hugh Laurie. I love Josh Gad. I love everyone in the cast.
 
 [00:03:27] Norm: Oh, boy, do the kids love Josh Gad?
 
@@ -170,23 +170,23 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:04:10] Will: Yeah.
 
-[00:04:10] Adam: Um, aside from them being, I think, from a watching standpoint, the most boring and least interesting of all the,
+[00:04:10] Adam: Aside from them being, I think, from a watching standpoint, the most boring and least interesting of all the,
 
 [00:04:21] Will: They're always the most boring.
 
-[00:04:20] Adam: they are really all they they absolutely we're talking about, um, small increments here. But I found last night's to be surpassingly boring. I was really like, I just didn't care. I I enjoyed Chris Rock and Steve Martin making some jokes up at the front. Um, and I thought some of the speeches were wonderful, and I I'm very happy with a lot of the winners last night, actually. But I found the actual broadcast itself, you know what it needs? It needs a host. It needs someone with a point of view.
+[00:04:20] Adam: they are really all they absolutely we're talking about small increments here. But I found last night's to be surpassingly boring. I was really like, I just didn't care. I enjoyed Chris Rock and Steve Martin making some jokes up at the front. And I thought some of the speeches were wonderful, and I I'm very happy with a lot of the winners last night, actually. But I found the actual broadcast itself, you know what it needs? It needs a host. It needs someone with a point of view.
 
-[00:04:51] Will: Like the the Maya Rudolph, Kristen Wiig segment was brilliant, really, really funny, but went on like, you know, it went on a real long time.
+[00:04:51] Will: Like the Maya Rudolph, Kristen Wiig segment was brilliant, really, really funny, but went on like, you know, it went on a real long time.
 
 [00:04:59] Adam: Also, I, some part of Twitter that I was intersecting with this morning was really upset about that whole bit about how they were somehow insulting people in film, and I'm like, no, they're making fun. Of people not knowing how come on, let's let's have a joke about some meta analysis here.
 
-[00:05:14] Will: Well, I mean, they they did the same thing later with the DP when Will Ferrell and I can't remember who he's out with did the DP nomination,
+[00:05:14] Will: Well, I mean, they did the same thing later with the DP when Will Ferrell and I can't remember who he's out with did the DP nomination,
 
 [00:05:22] Adam: right?
 
-[00:05:22] Will: Like, like where they were like.
+[00:05:22] Will: Like where they were like.
 
-[00:05:24] Adam: Sorry, that that was, uh, Will Ferrell and Kristen. It wasn't Kristen Wiig.
+[00:05:24] Adam: Sorry, that that was Will Ferrell and Kristen. It wasn't Kristen Wiig.
 
 [00:05:30] Will: No, I don't.
 
@@ -204,13 +204,13 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:05:40] Will: that was really really good
 
-[00:05:41] Adam: that was amazing. Sorry. And Will Ferrell did the one of like, uh, the cinematographers, uh, get you the coffee in the morning that that kind of thing.
+[00:05:41] Adam: that was amazing. Sorry. And Will Ferrell did the one of like the cinematographers get you the coffee in the morning that that kind of thing.
 
 [00:05:50] Will: yeah yeah.
 
 [00:05:51] Adam: I thought it was very funny,
 
-[00:05:52] Will: and like the the thing I landed on is like everybody who cares knows what the cinematographer does. If they had done that for like sound editing and sound mixing, then it would have been a bad joke. Yeah, but I thought it was okay for like everybody knows that the DP is the is like responsible, like yeah.
+[00:05:52] Will: and like the thing I landed on is like everybody who cares knows what the cinematographer does. If they had done that for like sound editing and sound mixing, then it would have been a bad joke. Yeah, but I thought it was okay for like everybody knows that the DP is the is like responsible, like yeah.
 
 [00:06:05] Unknown speaker: Yeah.
 
@@ -262,11 +262,11 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:07:11] Adam: They said he's going to win both the foreign language. Oh.
 
-[00:07:12] Norm: This was a. It was a. It was such a bad thing that happened on Twitter. It was a week ago. The Academy opened up this whole form that you could fill out online for your predictions, and it generates a little scorecard for like what you think for your for your bingo night.
+[00:07:12] Norm: This was a. It was a. It was such a bad thing that happened on Twitter. It was a week ago. The Academy opened up this whole form that you could fill out online for your predictions, and it generates a little scorecard for like what you think for your bingo night.
 
 [00:07:27] Adam: Yeah.
 
-[00:07:27] Norm: And somehow one of the submissions someone else put in, or so they say, was tweeted out as by the Academy by the Academy Twitter account as my Oscar predictions. So the Academy's Oscar predictions were tweeted out with Parasite as Best Picture, and people were freaking out.
+[00:07:27] Norm: And somehow one of the submissions someone else put in, or so they say, was tweeted out as by the Academy Twitter account as my Oscar predictions. So the Academy's Oscar predictions were tweeted out with Parasite as Best Picture, and people were freaking out.
 
 [00:07:46] Will: Yeah,
 
@@ -286,7 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:08:05] Norm: No, no one at the Academy knows.
 
-[00:08:06] Will: It's it's handled by whatever. Maybe Price Waterhouse.
+[00:08:06] Will: It's handled by whatever. Maybe Price Waterhouse.
 
 [00:08:08] Adam: PwC.
 
@@ -316,15 +316,15 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:08:29] Will: movie's real good.
 
-[00:08:32] Adam: You know, I think it is so well deserved for that movie to win everything that it won and more. It, I mean.. We talked about it just last week, but holy shit, what a what a thrilling ride! I have never watched a movie in which I was so thrilled by the plot and what the characters would do. It has some of the most efficient character building I've ever seen in a movie because I kind of like I am on board with everyone immediately as soon as you meet them. They're doing incredible storytelling.
+[00:08:32] Adam: I think it is so well deserved for that movie to win everything that it won and more. It, I mean.. We talked about it just last week, but holy shit, what a thrilling ride! I have never watched a movie in which I was so thrilled by the plot and what the characters would do. It has some of the most efficient character building I've ever seen in a movie because I kind of like I am on board with everyone immediately as soon as you meet them. They're doing incredible storytelling.
 
-[00:09:02] Norm: And we know the the whole Oscar race is. Political in the sense that there's lobbying and there's relationship building and it is voters in the academy which they select the members of the academy.
+[00:09:02] Norm: And we know the whole Oscar race is. Political in the sense that there's lobbying and there's relationship building and it is voters in the academy which they select the members of the academy.
 
 [00:09:15] Adam: And we know that there's problematic things going on that people don't watch all the movies and they.
 
-[00:09:19] Norm: But there, this seemed to be a win where no one was outraged and everyone felt like, everyone felt like it deserved to win.
+[00:09:19] Norm: But there, this seemed to be a win where no one was outraged and everyone felt like it deserved to win.
 
-[00:09:28] Adam: That's true. Oh, excuse me. Sorry. Um, I didn't mean to yawn on camera. I hope I didn't make you yawn. Yawning is contagious. If you're yawning right now, I apologize. Now a bunch of people are yawning.
+[00:09:28] Adam: That's true. Oh, excuse me. Sorry. I didn't mean to yawn on camera. I hope I didn't make you yawn. Yawning is contagious. If you're yawning right now, I apologize. Now a bunch of people are yawning.
 
 [00:09:39] Will: Remember that time Adam Savage made you yawn?
 
@@ -332,19 +332,19 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:09:52] Will: Yeah. Which continues to be a thing.
 
-[00:09:54] Adam: Which still ends up being a real problem for them. However, yes, I think that there was a lot of well-deserved awards. I thought the, uh, uh, uh, uh.. The score. The woman who won for best score was
+[00:09:54] Adam: Which still ends up being a real problem for them. However, yes, I think that there was a lot of well-deserved awards. I thought the.. The score. The woman who won for best score was
 
 [00:10:09] Norm: for Joker.
 
-[00:10:09] Adam: For Joker, um, I, uh, again still haven't seen that movie. I know I need to see it, but I thought her speech was adorable, and the degree to which she was surprised and delighted was infectious.
+[00:10:09] Adam: For Joker I again still haven't seen that movie. I know I need to see it, but I thought her speech was adorable, and the degree to which she was surprised and delighted was infectious.
 
-[00:10:21] Will: I was making dinner during that one, unfortunately. Uh, the thing I loved was that when every time Bong Joon Ho came up to accept an award, he clearly was thinking, " Oh, this is the last time I am going to be up here tonight," and and like each time was surprised, and it was it was so it was so nice because he's been making movies for what 15 years now,
+[00:10:21] Will: I was making dinner during that one, unfortunately. The thing I loved was that when every time Bong Joon Ho came up to accept an award, he clearly was thinking, " Oh, this is the last time I am going to be up here tonight," and like each time was surprised, and it was so nice because he's been making movies for what 15 years now,
 
 [00:10:39] Norm: yeah,
 
 [00:10:39] Will: yeah, like a long time.
 
-[00:10:41] Norm: And you can watch them on Netflix. Snowpiercer, Okja, which Netflix paid for, and, um, all worth watching. Memories of Murder.
+[00:10:41] Norm: And you can watch them on Netflix. Snowpiercer, Okja, which Netflix paid for, and all worth watching. Memories of Murder.
 
 [00:10:47] Adam: Memories of Murder is the one I've been seeing on Twitter today that a lot of people are tweeting. If you liked Parasite, see Memories of Murder, and so that's next on my list.
 
@@ -352,7 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:11:12] Adam: This is what I've been finding out on Twitter this morning. Is a whole education in South Korean cinema, including the fact that South Koreans seem to really enjoy films that bend and break genres boundaries all over the place, so that they have like horror, comedy, police procedurals, and all sorts of like. This sounds great. So I have this list that I gathered from Twitter just while surfing this morning of a bunch of stuff to check out.
 
-[00:11:36] Norm: Mother, old boy. Um, I saw the devil.. The good, the bad, the weird.
+[00:11:36] Norm: Mother, old boy. I saw the devil.. The good, the bad, the weird.
 
 [00:11:42] Adam: The good, the bad, the weird. That was a title that came across this morning..
 
@@ -362,7 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:11:45] Norm: So good.? Yeah.
 
-[00:11:47] Will: I, I mean, I assume that right now throughout Hollywood there are executive assistants and associate producers collecting all the films that they've seen. All the Korean movies that they can watch as quickly as possible.
+[00:11:47] Will: I mean, I assume that right now throughout Hollywood there are executive assistants and associate producers collecting all the films that they've seen. All the Korean movies that they can watch as quickly as possible.
 
 [00:11:57] Adam: To find out how quickly they can purchase the U.S. rights
 
@@ -374,7 +374,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:12:01] Norm: Not just to redistribute, but
 
-[00:12:04] Adam: To adapt. right? Of course, yeah, absolutely. And then there'll be so, like, two years from now, there'll be some amazing ones, and then there'll be some real bottom feeders.
+[00:12:04] Adam: To adapt. right? Of course, yeah, absolutely. And then there'll be so two years from now, there'll be some amazing ones, and then there'll be some real bottom feeders.
 
 [00:12:13] Will: I'm sure the fast follows are going to be ugly. Yeah. On
 
@@ -398,7 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:12:36] Adam: For Thelma Louise. Yeah, because really that was such a breakout moment for him, and so well carried, and still like I just watched Thelma Louise a couple of years ago, and it holds the hell up.
 
-[00:12:47] Will: Well, and and like I was thinking, I was talking about this with Gina after we were watching the show. I was like, I think Brad Pitt is the first actor that I like went and saw a movie in the theater for the first thing. I was like, oh, that guy was that guy, the guy that was in one scene that could have just been the pretty boy, and you would have never thought about again, was actually really good.
+[00:12:47] Will: Well, and like I was thinking, I was talking about this with Gina after we were watching the show. I was like, I think Brad Pitt is the first actor that I like went and saw a movie in the theater for the first thing. I was like, oh, that guy was that guy, the guy that was in one scene that could have just been the pretty boy, and you would have never thought about again, was actually really good.
 
 [00:13:02] Adam: Yeah.
 
@@ -424,11 +424,11 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:13:40] Norm: and then he did Fight Club, and everything was all right,
 
-[00:13:42] Adam: dude. I mean, look, you know, I'm a huge fan of Brad Pitts. I know a lot of people that have worked with him in LA over the years, and what I've heard from almost every one of them is, you may not love his acting in every film, but like Tom Cruise, you've rarely worked with anyone who busts their ass more to make a thing good. That he is a tremendous acting partner, uh, and super generous with his time and his energy, and I that that speaks a lot of good to a person for me,
+[00:13:42] Adam: dude. I mean, look I'm a huge fan of Brad Pitts. I know a lot of people that have worked with him in LA over the years, and what I've heard from almost every one of them is, you may not love his acting in every film, but like Tom Cruise, you've rarely worked with anyone who busts their ass more to make a thing good. That he is a tremendous acting partner and super generous with his time and his energy, and I that that speaks a lot of good to a person for me,
 
 [00:14:11] Will: especially somebody who's been working for that long.
 
-[00:14:13] Adam: And and to it's fun funny, I like he's the best part of both * Ad Astra* and he's my favorite part of of * Once Upon a Time in Hollywood*. Right, like I think that he gives the the nuanced performance that carries both of those films to to to the degree that I liked them. And I had problems with both of those movies, um, but I thought he was stellar in each.
+[00:14:13] Adam: And to it's fun funny, I like he's the best part of both * Ad Astra* and he's my favorite part of * Once Upon a Time in Hollywood*. Right, like I think that he gives the nuanced performance that carries both of those films to the degree that I liked them. And I had problems with both of those movies but I thought he was stellar in each.
 
 [00:14:34] Norm: You guys should both still watch * 1917*.
 
@@ -450,7 +450,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:14:57] Will: Yeah,
 
-[00:14:57] Norm: yeah, and I think it could have won for for editing too because. That that's a film where editors like, oh, that's a nice hidden cut.
+[00:14:57] Norm: yeah, and I think it could have won for editing too because. That that's a film where editors like, oh, that's a nice hidden cut.
 
 [00:15:03] Unknown speaker: What did the editor do?
 
@@ -466,7 +466,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:15:27] Will: Yeah.
 
-[00:15:27] Norm: Uh, so that they would they the take they chose from end of the shooting day is what they led with to roll into the next next take for next scene.
+[00:15:27] Norm: So that they would they the take they chose from end of the shooting day is what they led with to roll into the next next take for next scene.
 
 [00:15:35] Unknown speaker: That's bananas.
 
@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:15:45] Adam: I'm super psyched about that.
 
-[00:15:46] Will: Um, Taika Waititi, like, holy cow! Like, the are you and a couple of friends of mine had recommended that I watch Hunt for the Wilderpeople years ago.
+[00:15:46] Will: Taika Waititi holy cow! Like, the are you and a couple of friends of mine had recommended that I watch Hunt for the Wilderpeople years ago.
 
 [00:15:55] Norm: Oh, yeah.
 
@@ -494,13 +494,13 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:16:09] Norm: Mm-hmm.
 
-[00:16:09] Will: Yeah, um.. And Thor Ragnarok. Honestly,
+[00:16:09] Will: Yeah.. And Thor Ragnarok. Honestly,
 
 [00:16:12] Unknown speaker: Of course.
 
 [00:16:12] Will: Thor Ragnarok still is the number one watched Marvel movie in my house.
 
-[00:16:16] Adam: Yeah, no, it's it's it's stunning.
+[00:16:16] Adam: Yeah, no, it's stunning.
 
 [00:16:17] Will: Yeah.
 
@@ -514,9 +514,9 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:17:03] Unknown speaker: Oh, delightful.
 
-[00:17:03] Norm: And the video is out. Where you can watch it right now on the channel, but, uh, tell tell me about interacting with Matt.
+[00:17:03] Norm: And the video is out. Where you can watch it right now on the channel, but tell tell me about interacting with Matt.
 
-[00:17:10] Adam: Well, uh, so Matt Parker, uh, of Numberphile fame and also, uh, Stand Up Maths fame is a, uh, a mathematician enthusiast, uh, who's written a wonderful book that's been out in the UK for a while called Humble Pi, P-I. Uh, and it's just been released in the US. It's the first, uh, it's the first book of my book club. Um, and it's a terrific book. It's it's basically how maths can go wrong in the real world. So it starts with those like the decimal point that screwed a NASA mission.
+[00:17:10] Adam: Well so Matt Parker of Numberphile fame and also Stand Up Maths fame is a mathematician enthusiast who's written a wonderful book that's been out in the UK for a while called Humble Pi, P-I. And it's just been released in the US. It's the first book of my book club. And it's a terrific book. It's basically how maths can go wrong in the real world. So it starts with those like the decimal point that screwed a NASA mission.
 
 [00:17:43] Will: Beagle,
 
@@ -560,7 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:20:39] Norm: They got to solve that problem.
 
-[00:20:42] Adam: Um, sorry, I touched it. It was vibrating.
+[00:20:42] Adam: Sorry, I touched it. It was vibrating.
 
 [00:20:44] Norm: This is a video that we'll be releasing eventually. But you do projects over the weekend, and there was a project you did over this weekend. Was it this weekend?
 
@@ -576,7 +576,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:21:14] Unknown speaker: Yes.
 
-[00:21:17] Adam: The case I made for the Blade Runner blaster. That was not the that was not the first case I made for an object I loved, but it started me on a path of really workshopping these cases until they felt like they were part of the universe that I wanted the object to take me to.
+[00:21:17] Adam: The case I made for the Blade Runner blaster. That was not the first case I made for an object I loved, but it started me on a path of really workshopping these cases until they felt like they were part of the universe that I wanted the object to take me to.
 
 [00:21:34] Will: The microscope case.
 
@@ -588,7 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:21:42] Norm: I don't think we have.
 
-[00:21:43] Adam: So we're going to do some show and tells soon of these cases because I realize I have an entire art show here called Vessel, which is when I love something like this Chewbacca mask that Tom Spina and his craftspeople made, uh, that is crazy accurate. I made a case that displays it. In the way that I feel befits its import to me, but also the case feels like it's part of the Star Wars universe, and I designed it that way.
+[00:21:43] Adam: So we're going to do some show and tells soon of these cases because I realize I have an entire art show here called Vessel, which is when I love something like this Chewbacca mask that Tom Spina and his craftspeople made that is crazy accurate. I made a case that displays it. In the way that I feel befits its import to me, but also the case feels like it's part of the Star Wars universe, and I designed it that way.
 
 [00:22:12] Will: It feels like maybe an Empire guy might display that.
 
@@ -602,9 +602,9 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:23:07] Adam: And we know Tony Stark's is stored in nanotechnology that ignores the conservation of mass, but that's fine.
 
-[00:23:12] Will: Well, but or or in the hall of armors, yeah,
+[00:23:12] Will: Well, but or in the hall of armors, yeah,
 
-[00:23:15] Adam: all the hall of armors, yes. But as far as like, I am traveling. I'm Scott Lang. Where does Ant Man's what is what is the case that Ant Man's suit goes in?
+[00:23:15] Adam: all the hall of armors, yes. But as far as like, I am traveling. I'm Scott Lang. Where does Ant Man's what is the case that Ant Man's suit goes in?
 
 [00:23:23] Will: I think Scott Lang just wears it underneath his normal clothes because he's a dork.
 
@@ -612,7 +612,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:23:27] Norm: that's a fun brief for any prop designer.
 
-[00:23:29] Adam: Yeah. So this particular costume was the longest I've ever spent trying to figure out what the case should look like, and eventually I found an old, um, a, a shipping case that that feel felt right. And then I had the costume in there for a while, and then I had a better idea about this case, so I modified it. And again, we'll shoot the show and tell about it. Go up at the end of the month, you'll get to see what I'm talking about. But this is a long way of saying that we realized in the tested morning, Monday morning meeting this morning that I come in and do a lot of stuff on the weekends just. Like if I have a few hours, and we rarely talk about it on the cast because or on the channel because I I don't cover it. Well, lately I've been shooting more time lapses, and we'll do some more. I guess they're kind of they're not quite one day builds, but they're slightly more than show and tells, and you'll get to see what I do on a random Sunday.
+[00:23:29] Adam: Yeah. So this particular costume was the longest I've ever spent trying to figure out what the case should look like, and eventually I found an old a shipping case that that feel felt right. And then I had the costume in there for a while, and then I had a better idea about this case, so I modified it. And again, we'll shoot the show and tell about it. Go up at the end of the month, you'll get to see what I'm talking about. But this is a long way of saying that we realized in the tested morning, Monday morning meeting this morning that I come in and do a lot of stuff on the weekends just. Like if I have a few hours, and we rarely talk about it on the cast because or on the channel because I I don't cover it. Well, lately I've been shooting more time lapses, and we'll do some more. I guess they're kind of they're not quite one day builds, but they're slightly more than show and tells, and you'll get to see what I do on a random Sunday.
 
 [00:24:21] Will: Ooh,
 
@@ -662,7 +662,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:25:51] Adam: It's all abstract segues for [unclear]..
 
-[00:25:53] Norm: Yeah. Yeah. Yes. Yeah, and that is actually going up this this Thursday. So the next spot project.
+[00:25:53] Norm: Yeah. Yeah. Yes. Yeah, and that is actually going up this Thursday. So the next spot project.
 
 [00:25:58] Adam: That's the cool thing, right?
 
@@ -670,7 +670,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:26:11] Adam: Oh my God, this build for Spot that that is going up on Thursday, I was so ecstatic about it. I would go home every night and ogle pictures on my phone of the build.
 
-[00:26:21] Will: Is this the one that I came in and I was like? And I think, I think everybody else that hit the door was like, " Where the hell are you going to store this thing?"
+[00:26:21] Will: Is this the one that I came in and I was like? And I think everybody else that hit the door was like, " Where the hell are you going to store this thing?"
 
 [00:26:25] Adam: Everyone, yeah, everyone. We put it in storage yesterday.
 
@@ -694,7 +694,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:27:35] Will: Yeah, they wanted onshore wind.
 
-[00:27:36] Adam: They wanted they wanted lots of sand. They wanted lots of headwind so that they could get the lift they needed without speed. Right? They needed to experiment. Well, Kitty Hawk, when they went there, was so remote. Most of the population of Kitty Hawk are descend, were descendants of shipwrecks. Shipwreck survivors.
+[00:27:36] Adam: They wanted lots of sand. They wanted lots of headwind so that they could get the lift they needed without speed. Right? They needed to experiment. Well, Kitty Hawk, when they went there, was so remote. Most of the population of Kitty Hawk are descend, were descendants of shipwrecks. Shipwreck survivors.
 
 [00:27:54] Will: Oh my!
 
@@ -718,7 +718,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:28:29] Will: wow,
 
-[00:28:29] Adam: you know, manifest destiny and all that.
+[00:28:29] Adam: Manifest destiny and all that.
 
 [00:28:32] Will: Good wind,
 
@@ -728,19 +728,19 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:28:36] Norm: As good as the Muybridge biography,
 
-[00:28:38] Adam: Um, no Rebecca Solnit's Muybridge book, uh, not River of Dreams, but we, uh, Rebecca Solnit's book about Muybridge is one of the best books on technology and biography I've read. I've read in decades. Walter Isaacson is a reliably terrific writer, and the Wright brothers' biography is wonderful. Uh, and the, the, the, the, the other thing that's really amazing is they were unequivocally the first, and their documentation was fantastic. But a tipping point was happening in culture right then.
+[00:28:38] Adam: Um, no Rebecca Solnit's Muybridge book, uh, not River of Dreams, but we Rebecca Solnit's book about Muybridge is one of the best books on technology and biography I've read. I've read in decades. Walter Isaacson is a reliably terrific writer, and the Wright brothers' biography is wonderful. And the other thing that's really amazing is they were unequivocally the first, and their documentation was fantastic. But a tipping point was happening in culture right then.
 
 [00:29:13] Norm: Yeah, that's similar.
 
 [00:29:14] Adam: Like, yeah, it's important to realize that they did their first flight in like basically within three months of their first flight. Someone had crossed the English Channel on a fundamentally different plane. Like that's how close the whole world was to kind of getting it, and they figured out a kind of a key aspect of control and made it really extant, and it sort of opened these floodgates.
 
-[00:29:37] Will: Well, I mean, that stuff that has happened so many times through history. Like, if you look at the invention of calculus with, uh, uh, uh, Newton and, uh, I want to say Leibniz, but it's
+[00:29:37] Will: Well, I mean, that stuff that has happened so many times through history. Like, if you look at the invention of calculus with Newton and I want to say Leibniz, but it's
 
 [00:29:47] Adam: it is
 
 [00:29:48] Will: Leibniz, yeah.
 
-[00:29:49] Adam: Um, uh, the invention of the camera happens
+[00:29:49] Adam: The invention of the camera happens
 
 [00:29:49] Unknown speaker: Yeah.
 
@@ -782,13 +782,13 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:30:46] Adam: Did you drink the blue milk? Is that what you're gonna ask?
 
-[00:30:48] Will: No, no, no. We know it's not milk, Adam. He, he, like the thing that is interesting to me about Batuu is that Disney has the world of technology at their hand, and rather than try to build like automated. Characters that people can interact with. They were just like we're just paying a bunch of people to walk around in character and engage with the audience. Like, did you-
+[00:30:48] Will: No, no, no. We know it's not milk, Adam. He, like the thing that is interesting to me about Batuu is that Disney has the world of technology at their hand, and rather than try to build like automated. Characters that people can interact with. They were just like we're just paying a bunch of people to walk around in character and engage with the audience. Like, did you-
 
 [00:31:08] Norm: I didn't do a lot of that character interaction.
 
 [00:31:10] Will: Okay,
 
-[00:31:10] Norm: you can. You can get the app, and there are hidden layers of the world that you can reveal if you have the time. If you want to spend your whole day there, and we know people who've done that. Yeah. And the promise is they will have droids and and robots that will walk around.
+[00:31:10] Norm: you can. You can get the app, and there are hidden layers of the world that you can reveal if you have the time. If you want to spend your whole day there, and we know people who've done that. Yeah. And the promise is they will have droids and robots that will walk around.
 
 [00:31:25] Adam: But no cosplaying.
 
@@ -806,11 +806,11 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:31:48] Norm: They're not going to escort you off.
 
-[00:31:50] Will: Yeah. Well, no, we have friends who went in close enough to Star Wars costume that they had to get inspected by the costume person on the way into the into the world.
+[00:31:50] Will: Yeah. Well, no, we have friends who went in close enough to Star Wars costume that they had to get inspected by the costume person on the way into the world.
 
 [00:31:58] Norm: Wow.
 
-[00:31:58] Will: And get they were like this this belt buckle is a little too close. If you take the belt off, you're good.
+[00:31:58] Will: And get they were like this belt buckle is a little too close. If you take the belt off, you're good.
 
 [00:32:03] Adam: Wow!
 
@@ -826,7 +826,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:32:11] Will: Yeah.
 
-[00:32:11] Adam: A river of shadows is Rebecca Solnit's book about Eadweard Muybridge and the invention of cinema, and it's a stunning bit of cultural work. It's a it's a fundamentally different kind of biography, but really worth reading if you're wondering, and it's a pretty quick read.
+[00:32:11] Adam: A river of shadows is Rebecca Solnit's book about Eadweard Muybridge and the invention of cinema, and it's a stunning bit of cultural work. It's a fundamentally different kind of biography, but really worth reading if you're wondering, and it's a pretty quick read.
 
 [00:32:26] Will: What color lightsaber did you get, Norm?
 
@@ -860,7 +860,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:32:47] Adam: I'm. I I'm dying to go.
 
-[00:32:49] Norm: We'll find. We'll find. We'll find a way. Life will find a way to get you in a Galaxy's Edge, even if it means staying at a a themed non-cruise hotel.
+[00:32:49] Norm: We'll find. We'll find. We'll find a way. Life will find a way to get you in a Galaxy's Edge, even if it means staying at a themed non-cruise hotel.
 
 [00:32:57] Will: Space cruise. Space
 
@@ -892,7 +892,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:33:36] Adam: There's that too.
 
-[00:33:34] Will: You went to, you went to CERN?
+[00:33:34] Will: You went to CERN?
 
 [00:33:39] Norm: Yeah, France. Yeah, yeah,
 
@@ -924,7 +924,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:34:05] Adam: Which where?
 
-[00:34:06] Norm: Um, Looking for looking for a mind at work. For work is in line that Sam Seaborn says in a season four episode.
+[00:34:06] Norm: Looking for a mind at work. For work is in line that Sam Seaborn says in a season four episode.
 
 [00:34:16] Adam: Wow, I'm looking for a mind at work.
 

@@ -24,13 +24,13 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:01:21] Norm: yeah, very soon, just in a week or so, for people who don't know your work, how would you best describe yourself?
 
-[00:01:27] Tom Spina: Well, let's see here. It's a lot. We, you know, the simplest way to do it is we we make and restore cool stuff. I think is like how I would boil it down. But I have two companies. One is called Tom Spina Designs. The other is called Regal Robot. Tom Spina Designs started about a dozen years ago. Really, it began when I was this big, though. Like I think so many people,
+[00:01:27] Tom Spina: Well, let's see here. It's a lot. We, you know, the simplest way to do it is we make and restore cool stuff. I think is like how I would boil it down. But I have two companies. One is called Tom Spina Designs. The other is called Regal Robot. Tom Spina Designs started about a dozen years ago. Really, it began when I was this big, though. Like I think so many people,
 
 [00:01:49] Adam: Like all of our endeavors did.
 
 [00:01:49] Tom Spina: yeah, yeah, totally. And it grew out of me making masks and monsters and things like that, and morphed into this amazing journey of restoring original movie props and wardrobe and making awesome custom mannequins and. displays and things like that.
 
-[00:02:08] Adam: This is how I first became acquainted with you: is that I had visited Bob Burns' place and seen and seen the the American Werewolf in London head of the werewolf and its its decaying state as foam latex
+[00:02:08] Adam: This is how I first became acquainted with you: is that I had visited Bob Burns' place and seen the American Werewolf in London head of the werewolf and its its decaying state as foam latex
 
 [00:02:23] Tom Spina: often does.
 
@@ -62,7 +62,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:03:47] Adam: So it's whatever anyone needs. You do a lot of that kind of work.
 
-[00:03:54] Tom Spina: Right. Yeah. You know, sometimes it's creature work, doing like Cantina monsters for Star Wars commercials and things like that.
+[00:03:54] Tom Spina: Right. Yeah. Sometimes it's creature work, doing like Cantina monsters for Star Wars commercials and things like that.
 
 [00:03:59] Adam: It's one-time use. Sometimes it needs to last for 50 years.
 
@@ -74,13 +74,13 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:04:02] Adam: There's a market.
 
-[00:04:02] Tom Spina: Yeah, and it was just we had always thought there there was more that could be done with themed, you know, furniture and and bringing a bit of that like I'm sure you guys are big Disney park fans and stuff like that and theme park fans. We just I personally I love immersing myself in that stuff and and soaking up details and I feel like people like having stuff like that in their homes.
+[00:04:02] Tom Spina: Yeah, and it was just we had always thought there was more that could be done with themed furniture and bringing a bit of that like I'm sure you guys are big Disney park fans and stuff like that and theme park fans. We just I personally I love immersing myself in that stuff and soaking up details and I feel like people like having stuff like that in their homes.
 
 [00:04:45] Adam: What we also this is the thing we like having this stuff in our lives.
 
 [00:04:45] Tom Spina: Yeah,
 
-[00:04:45] Adam: it has given us it gives both of us in our in our in our surroundings and our environments a lot of sustenance and inspiration.
+[00:04:45] Adam: it has given us it gives both of us in our surroundings and our environments a lot of sustenance and inspiration.
 
 [00:04:56] Tom Spina: It maintains that sense of curiosity and everything.
 
@@ -96,13 +96,13 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:05:07] Tom Spina: It lives in between the. space of you know home goods and prop replicas, and it's sort of collectible in some cases, and it's sort of functional in other cases. But it's just you know for the most part, we're doing themed home decor, furniture, and sculpture and art.
 
-[00:05:24] Adam: And you're not just doing the you know I remember seeing the the very first Han Solo desk, and I was like, I want to meet the guy that pays for that has the disposable income for that kind of folly. It's wonderful. I love that guy. A lot of them are friends of mine.
+[00:05:24] Adam: And you're not just doing the you know I remember seeing the very first Han Solo desk, and I was like, I want to meet the guy that pays for that has the disposable income for that kind of folly. It's wonderful. I love that guy. A lot of them are friends of mine.
 
 [00:05:40] Tom Spina: We love them too.
 
 [00:05:41] Adam: And but you also have stuff that's lower cost. You have stuff that so it's the line is accessible.
 
-[00:05:47] Tom Spina: Exactly. And what we're trying to do now, actually, you know, we launched loud, so we launched with a Han Carbonite desk and the Millennium Falcon asteroid table and all this big crazy over the top. You know what we call our custom studio stuff. That's the premium stuff. But yeah, there's a lot of stuff we have in the works that's a little more down earth. And there's plenty of stuff in the art section like those Mandalorian skulls and all this cool stuff.
+[00:05:47] Tom Spina: Exactly. And what we're trying to do now, actually we launched loud, so we launched with a Han Carbonite desk and the Millennium Falcon asteroid table and all this big crazy over the top. You know what we call our custom studio stuff. That's the premium stuff. But yeah, there's a lot of stuff we have in the works that's a little more down earth. And there's plenty of stuff in the art section like those Mandalorian skulls and all this cool stuff.
 
 [00:06:07] Adam: Got to order one of those.
 
@@ -110,11 +110,11 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:06:16] Adam: So what? So since you're on the West Coast, what was the last thing you were working on in the shop?
 
-[00:06:23] Tom Spina: Oh boy! So we we have a
+[00:06:23] Tom Spina: Oh boy! So we have a
 
 [00:06:27] Adam: You can't talk about a lot of stuff you work on, can you?
 
-[00:06:28] Tom Spina: Yeah, that's really it. So we're we're working on one of my favorite things. We're working on I can't talk about. But we actually have a very full shop. So you guys were there just three or four weeks ago at this point, and when you guys were there, I think we had like four tables we were able to clear and work with while we were shooting, and now we have no tables. No, no, nothing. Everything is just full. That's a lot of restoration. We've got we've we've still got a couple of Gremlins in the shop. There's always Gremlins in the shop,
+[00:06:28] Tom Spina: Yeah, that's really it. So we're working on one of my favorite things. We're working on I can't talk about. But we actually have a very full shop. So you guys were there just three or four weeks ago at this point, and when you guys were there, I think we had like four tables we were able to clear and work with while we were shooting, and now we have no tables. No, no, nothing. Everything is just full. That's a lot of restoration. We've got we've we've still got a couple of Gremlins in the shop. There's always Gremlins in the shop,
 
 [00:06:55] Norm: and that's really started with the Rick Baker auction that prop store did.
 
@@ -124,13 +124,13 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:07:07] Adam: Jamie Hyneman worked on. Oh no, that's before his time. It turns out Gremlins is before his time.
 
-[00:07:11] Tom Spina: Ah, okay. Um. So yeah, but but it just seems there's always gremlins in the shop.
+[00:07:11] Tom Spina: Ah, okay. So yeah, but it just seems there's always gremlins in the shop.
 
 [00:07:11] Norm: Multiplying,
 
 [00:07:11] Tom Spina: yeah, right. Somebody got one of them wet, and now. But between the first movie ones, which we've restored a handful of, and certainly the Rick Baker stuff, which went through you know the big prop store auction, obviously, which we worked on with Rick and prop store to restore a bunch of stuff for it. But after that, when all of those gremlins got out there into the public, you know, a lot of them made their way to us to fix them up or display them or even just conserve them.
 
-[00:07:44] Adam: You're building that institutional knowledge too of the color, the color because these are parts that I'm I'm blown away by what I watched your folks do because
+[00:07:44] Adam: You're building that institutional knowledge too of the color because these are parts that I'm I'm blown away by what I watched your folks do because
 
 [00:07:44] Tom Spina: thank you.
 
@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:08:14] Tom Spina: and the age of the peach, and the character of the peach.
 
-[00:08:15] Adam: And you're also ceasing the the the rotting of the rest of it.
+[00:08:15] Adam: And you're also ceasing the rotting of the rest of it.
 
 [00:08:18] Tom Spina: Yeah, as much as you can within those spaces, you try and cauterize those wounds, so to speak.
 
@@ -158,11 +158,11 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:08:28] Norm: do the things that come through. A lot of it are were things that were made in the '80s and '90s, or a certain type of material.
 
-[00:08:35] Tom Spina: Well, yeah, it's a lot of foam latex. You know, there's a lot of people don't even know what foam latex is if you're a layperson, and that you know,
+[00:08:35] Tom Spina: Well, yeah, it's a lot of foam latex. There's a lot of people don't even know what foam latex is if you're a layperson, and that you know,
 
 [00:08:45] Adam: I say makeup sponge. That's the way I think about it.
 
-[00:08:47] Tom Spina: Yeah, kind of right. It's it's very squishy, very flexible, super light,
+[00:08:47] Tom Spina: Yeah, kind of right. It's very squishy, very flexible, super light,
 
 [00:08:51] Adam: Very close pore, very fine detail.
 
@@ -178,11 +178,11 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:09:22] Adam: someone had just stored this completely out of the light.
 
-[00:09:24] Tom Spina: It just yeah, you know, and and there's so many factors that go into foam though. It's like how was it blended?
+[00:09:24] Tom Spina: It just yeah and there's so many factors that go into foam though. It's like how was it blended?
 
 [00:09:24] Adam: Oh yeah.
 
-[00:09:24] Tom Spina: Was it washed after they they did? How was it painted? Was it stored this way?
+[00:09:24] Tom Spina: Was it washed after they did? How was it painted? Was it stored this way?
 
 [00:09:34] Adam: It requires like seven different, sometimes as many as seven or eight different chemicals all joined together in mixtures. And people who run foam—that's what you call it—
 
@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:09:57] Tom Spina: No, so I mean, what we're doing is we're using archival materials to fill in the gaps that are missing or to cauterize those wounds and to try and you know build up those those spaces that have gone away.
 
-[00:10:09] Adam: So you. I mean, I love putting my hands on original pieces. It's very exciting when you think about the every. You know, this came about because an art director and a director and a production designer started making drawings, and then somebody got called and you know went to work, and they made this thing, and it's lasted for all this time, and it was part of this narrative. Have you gotten to? I'm assuming you've you've met some of the makers of the of the pieces. Yeah. Have you gotten to talk to talk to them about like have Have you gotten specific questions from repairing their work that you would have not gotten had you not put your hands inside of it?
+[00:10:09] Adam: So you. I mean, I love putting my hands on original pieces. It's very exciting when you think about the every. You know, this came about because an art director and a production designer started making drawings, and then somebody got called and you know went to work, and they made this thing, and it's lasted for all this time, and it was part of this narrative. Have you gotten to? I'm assuming you've you've met some of the makers of the pieces. Yeah. Have you gotten to talk to them about like have Have you gotten specific questions from repairing their work that you would have not gotten had you not put your hands inside of it?
 
 [00:10:45] Tom Spina: That's an interesting question. I'm sure that I have. I'd be hard pressed to think of a, of an example.
 
@@ -216,13 +216,13 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:12:08] Adam: Right.
 
-[00:12:08] Tom Spina: So it's this weird latex shirt, and so I'm we're trying to figure out what it is, and then at some point somebody goes, " Why don't you ask Rick?" Like, " Oh yeah, why don't I ask?" Like, we should totally do that. So I email Rick, and I and he writes back almost immediately, and he's like, " I know exactly what that is." So they were shooting. I think he said it was like Entertainment Tonight or something at his studio, and this is mid '80s, and they had Muftak around the studio, and they put him up on top of the paint booth or something like that, just to be in the background. You know, have fun stuff. They finished the shoot, and he goes to get him down. Well, somebody put him on top of a five-gallon bucket of latex, and the lid wasn't on all the way. So when Rick pulled the thing down, the whole bucket of latex poured. Into Muftak and onto Rick's legs, and he said he was wearing shorts.
+[00:12:08] Tom Spina: So it's this weird latex shirt, and so I'm we're trying to figure out what it is, and then at some point somebody goes, " Why don't you ask Rick?" Like, " Oh yeah, why don't I ask?" Like, we should totally do that. So I email Rick, and I and he writes back almost immediately, and he's like, " I know exactly what that is." So they were shooting. I think he said it was like Entertainment Tonight or something at his studio, and this is mid '80s, and they had Muftak around the studio, and they put him up on top of the paint booth or something like that, just to be in the background. Have fun stuff. They finished the shoot, and he goes to get him down. Well, somebody put him on top of a five-gallon bucket of latex, and the lid wasn't on all the way. So when Rick pulled the thing down, the whole bucket of latex poured. Into Muftak and onto Rick's legs, and he said he was wearing shorts.
 
 [00:13:23] Unknown speaker: [unclear: So that's / Oh. So it's]
 
 [00:13:25] Norm: why he remembers that
 
-[00:13:26] Tom Spina: exactly. Yeah, and you know, just that's like there's no way to get that latex off without that's like a wax job.
+[00:13:26] Tom Spina: exactly. Yeah, and just that's like there's no way to get that latex off without that's like a wax job.
 
 [00:13:33] Adam: No, I've done that.
 
@@ -238,7 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:13:45] Norm: not a production thing, just accidental in his home.
 
-[00:13:47] Tom Spina: accidental, but and so yeah, so that's that's it.
+[00:13:47] Tom Spina: accidental, but and so yeah, so that's it.
 
 [00:13:51] Adam: So can we? I don't know how much of have you watched Stranger Things season two at all?
 
@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:14:09] Norm: nine episodes. Yeah, yeah, you're more more than halfway there.
 
-[00:14:12] Adam: Okay, so um, good. Oh, I finished it.
+[00:14:12] Adam: Okay, so good. Oh, I finished it.
 
 [00:14:15] Tom Spina: Oh, did you? Yeah,
 
@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:14:16] Tom Spina: Okay,
 
-[00:14:16] Adam: um, so we're gonna do, I guess, a half spoiler here. We'll get up to we'll get up to episode five.
+[00:14:16] Adam: So we're gonna do, I guess, a half spoiler here. We'll get up to episode five.
 
 [00:14:23] Tom Spina: Thank you.
 
@@ -280,7 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:14:35] Tom Spina: Yeah.
 
-[00:14:36] Adam: I was. I loved it. Was Mike Elizalde who built the the Demogorgon for the first one? Am I right?
+[00:14:36] Adam: I was. I loved it. Was Mike Elizalde who built the Demogorgon for the first one? Am I right?
 
 [00:14:36] Tom Spina: Yeah. Yeah. Yeah.
 
@@ -292,13 +292,13 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:14:50] Adam: It was a practical head, but no longer. Now I believe all the demis are CG.
 
-[00:14:55] Tom Spina: And and. Okay, so of what I've seen.
+[00:14:55] Tom Spina: And. Okay, so of what I've seen.
 
 [00:14:58] Adam: I knew you would have an opinion about this.
 
 [00:15:01] Tom Spina: Yeah. Of what I've seen, I I don't feel like I've seen a practical creature effect so far. You know, whether it's Dart when he's little or Dart when he's bigger, and maybe the dead cat body. Did they have to kill the cat?
 
-[00:15:13] Norm: You know, that was that was disturbing.
+[00:15:13] Norm: You know, that was disturbing.
 
 [00:15:14] Adam: The dead cat was actually the most upsetting and really well done bit. I watched it twice.
 
@@ -316,15 +316,15 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:15:35] Norm: Straight cold.
 
-[00:15:35] Adam: deeply straightforward ego. Is amazing. Um, I found something interesting. You you know as I do that like sometimes you'll watch the early VHS copies of Star Wars.
+[00:15:35] Adam: deeply straightforward ego. Is amazing. I found something interesting. You know as I do that like sometimes you'll watch the early VHS copies of Star Wars.
 
 [00:15:35] Tom Spina: Oh yeah,
 
-[00:15:35] Adam: you can see the matte lines because the color and the the the the the balancing was done for film, not for video.
+[00:15:35] Adam: you can see the matte lines because the color and the balancing was done for film, not for video.
 
 [00:15:35] Tom Spina: right.
 
-[00:15:35] Adam: Right. So oftentimes some of those witness marks for early films transferred to digital or to to video, that stuff shows up. And so I rarely judge a movie on how it looks on a television or computer screen.
+[00:15:35] Adam: Right. So oftentimes some of those witness marks for early films transferred to digital or to video, that stuff shows up. And so I rarely judge a movie on how it looks on a television or computer screen.
 
 [00:16:08] Tom Spina: Right.
 
@@ -332,7 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:16:20] Tom Spina: I'm loving it.
 
-[00:16:20] Adam: It's great. It was very satisfying. I'm very happy with what happened and how it happened. Um, the one. Note that I had a problem with was I kept seeing significant like contrast issues between the CG dart and the Demogorgon and the and the the real stuff. Now I'd expect to see that in like a bad transfer,
+[00:16:20] Adam: It's great. It was very satisfying. I'm very happy with what happened and how it happened. The one. Note that I had a problem with was I kept seeing significant like contrast issues between the CG dart and the Demogorgon and the real stuff. Now I'd expect to see that in like a bad transfer,
 
 [00:16:41] Tom Spina: right?
 
@@ -348,7 +348,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:16:54] Norm: I do have a. Yeah, my friend just got us the LG the C7 4K HDR, so I'll go check it out there. Yeah, maybe we'll. But that was way more interactive, right? Dart the polywog crawling on the hands. Yeah, that's so much more.
 
-[00:17:08] Tom Spina: And the the the polywog crawling around on his hand, like there were I didn't see any tracking issues. Like everything looked really good.
+[00:17:08] Tom Spina: And the polywog crawling around on his hand, like there were I didn't see any tracking issues. Like everything looked really good.
 
 [00:17:14] Adam: Yeah, absolutely. Like every aspect of the technical stuff was dead on the money. The animation was great.
 
@@ -356,17 +356,17 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:17:26] Norm: Yes.
 
-[00:17:26] Tom Spina: There was a hint. I and maybe I'm just imagining this. I heard a little Gremlins theme, like almost a little like that. It was just a hint of it. I don't know if it was on purpose or what, but I was thinking Gremlins the whole time, where he's bringing him to to school to show the professor.
+[00:17:26] Tom Spina: There was a hint. I and maybe I'm just imagining this. I heard a little Gremlins theme, like almost a little like that. It was just a hint of it. I don't know if it was on purpose or what, but I was thinking Gremlins the whole time, where he's bringing him to school to show the professor.
 
 [00:17:47] Norm: That sounds like. and that feel like the '80s thing that they brought in.
 
 [00:17:47] Tom Spina: Oh, totally.
 
-[00:17:47] Norm: This this season.
+[00:17:47] Norm: This season.
 
-[00:17:51] Adam: So, which episode have you just watched? Which is episode five? I watched it all at once. So, what what just happened?
+[00:17:51] Adam: So, which episode have you just watched? Which is episode five? I watched it all at once. So, what just happened?
 
-[00:17:56] Tom Spina: I'm trying to remember now. So, oh, they just called. They they just sent the the the letters off to the newspapers.
+[00:17:56] Tom Spina: I'm trying to remember now. So, oh, they just called. They just sent the letters off to the newspapers.
 
 [00:17:56] Adam: Oh, okay. So they so so right.
 
@@ -374,9 +374,9 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:18:14] Adam: Right, exactly. It's so perfect. That actor, you're totally right.
 
-[00:18:19] Norm: He has he has the what is the best line he says to the two the two kids. When he when he talks about oh to know everything or like there's one thing he says
+[00:18:19] Norm: He has the what is the best line he says to the two kids. When he talks about oh to know everything or like there's one thing he says
 
-[00:18:28] Adam: oh it's a burden seeing things as clearly as I do, right? you've told me a lot of whoppers tonight but that's the first lie yeah that was great interaction so what's going on with Hop right now in in oh
+[00:18:28] Adam: oh it's a burden seeing things as clearly as I do, right? you've told me a lot of whoppers tonight but that's the first lie yeah that was great interaction so what's going on with Hop right now in oh
 
 [00:18:40] Tom Spina: so he they just saved him from the right the tunnels
 
@@ -388,11 +388,11 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:18:56] Norm: not Wally just finding Finding Nemo Finding Dory and John Carter
 
-[00:18:59] Adam: right um he directed these two episodes I had dinner with him a couple weeks ago and asked what it was like and he said it's so the whole cast and crew of Stranger Things is so surprised to be in the middle of this wonderful maelstrom that they're in they're all so great and it is a deeply like loving family he said it was Absolutely amazing to spend a couple of episodes.
+[00:18:59] Adam: right he directed these two episodes I had dinner with him a couple weeks ago and asked what it was like and he said it's so the whole cast and crew of Stranger Things is so surprised to be in the middle of this wonderful maelstrom that they're in they're all so great and it is a deeply like loving family he said it was Absolutely amazing to spend a couple of episodes.
 
-[00:19:22] Tom Spina: So good to hear that. Yeah, you know, isn't it?
+[00:19:22] Tom Spina: So good to hear that. Yeah isn't it?
 
-[00:19:24] Norm: I love it. Opens up with the arcade. Like the arcade is a staple of the '80s. Oh my god! I don't know. I I didn't grow up going to arcades like that, but I could imagine in the Midwest. Like,
+[00:19:24] Norm: I love it. Opens up with the arcade. Like the arcade is a staple of the '80s. Oh my god! I don't know. I didn't grow up going to arcades like that, but I could imagine in the Midwest. Like,
 
 [00:19:35] Adam: oh no, I grew that my
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:20:13] Norm: that that was the experience. Yeah,
 
-[00:20:16] Tom Spina: yeah, I remember playing that laser disk so many times. I I don't think I ever played Dragon's Lair for more than about 12 seconds.
+[00:20:16] Tom Spina: yeah, I remember playing that laser disk so many times. I don't think I ever played Dragon's Lair for more than about 12 seconds.
 
 [00:20:16] Unknown speaker: Right,
 
@@ -454,7 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:21:29] Adam: Plus, the way Mad Max enters their consciousness is exactly the kind of like, what magic is this that you would have in middle school that this would be like scandalous?
 
-[00:21:39] Tom Spina: And it's not. They didn't just plug her into the group. There's friction. There's you know, there's actually some some you know, there's something interesting happening there. The the brother, I'm having a hard time with the. I assume it's a wig. It it feels wiggish.
+[00:21:39] Tom Spina: And it's not. They didn't just plug her into the group. There's friction. There's there's actually some some there's something interesting happening there. The brother, I'm having a hard time with the. I assume it's a wig. It feels wiggish.
 
 [00:21:54] Adam: Oh, his his hairband, his white snake hairband. Yeah, yeah,
 
@@ -480,7 +480,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:22:23] Norm: But
 
-[00:22:23] Adam: he does. I I don't disagree with you on that. We will do a full spoiler for the second half of Stranger Things, where we can really talk through the plot arcs, which is what we can't do now that you're only halfway through.
+[00:22:23] Adam: he does. I don't disagree with you on that. We will do a full spoiler for the second half of Stranger Things, where we can really talk through the plot arcs, which is what we can't do now that you're only halfway through.
 
 [00:22:33] Norm: But so far, super effective in terms of the rift she creates between this tight bond of the party,
 
@@ -504,9 +504,9 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:22:52] Norm: Yeah. 1984. It opens weird. It opens. It opens in the city. It takes it out of. It's weird to see scenes.
 
-[00:23:01] Tom Spina: That's true. Yeah. And do we do we come back to that? Because I'm starting to feel like we're like, okay, we set up eight, and I'm just waiting, and then it's okay. I'm still waiting.
+[00:23:01] Tom Spina: That's true. Yeah. And do we come back to that? Because I'm starting to feel like we're like, okay, we set up eight, and I'm just waiting, and then it's okay. I'm still waiting.
 
-[00:23:04] Norm: We do, we do, we do. You will see it.
+[00:23:04] Norm: We do. You will see it.
 
 [00:23:09] Tom Spina: Okay. Cool.
 
@@ -534,7 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:23:49] Tom Spina: Wow. Okay.
 
-[00:23:50] Adam: There was another there was another phrase someone spoke. Someone might have said win win, and again, basically, I came across several phrases in the course of watching where I thought, oh, that sounds too modern. I stopped, did some etymological research, and found out that they didn't. None of the things I looked up were wrong.
+[00:23:50] Adam: There was another phrase someone spoke. Someone might have said win win, and again, basically, I came across several phrases in the course of watching where I thought, oh, that sounds too modern. I stopped, did some etymological research, and found out that they didn't. None of the things I looked up were wrong.
 
 [00:23:50] Unknown speaker: Cool.
 
@@ -544,9 +544,9 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:24:10] Adam: No, but you have to have someone in the room who goes, " Wait a minute, is that how that would have been said?"
 
-[00:24:20] Tom Spina: Well, and I. I definitely the one that caught me was the KFC one, and I'm just thinking. And this is just my family. Yeah, it was always Kentucky Fried Chicken. It wasn't KFC until they started to, you know, try and disguise the fact that it wasn't, you know, totally healthy.
+[00:24:20] Tom Spina: Well, and I. I definitely the one that caught me was the KFC one, and I'm just thinking. And this is just my family. Yeah, it was always Kentucky Fried Chicken. It wasn't KFC until they started to, you know, try and disguise the fact that it wasn't totally healthy.
 
-[00:24:34] Adam: We never did. We never did fast food as a kid, and we my parents cooked almost every single meal. Um, and if we went out because we were poor for the better part of my childhood, my my my my dad did just enough work to keep the mortgage paid and to keep us fed and clothed, but there was no extra dough. So when we went out, we'd go to Beefsteak Charlie's on the East Coast. Yeah, all you could eat shrimp. Yeah, that's where I learned about a Shirley Temple, or if you wanted the more masculine version, Roy Rogers.
+[00:24:34] Adam: We never did. We never did fast food as a kid, and we my parents cooked almost every single meal. And if we went out because we were poor for the better part of my childhood, my dad did just enough work to keep the mortgage paid and to keep us fed and clothed, but there was no extra dough. So when we went out, we'd go to Beefsteak Charlie's on the East Coast. Yeah, all you could eat shrimp. Yeah, that's where I learned about a Shirley Temple, or if you wanted the more masculine version, Roy Rogers.
 
 [00:25:03] Tom Spina: Nice.
 
@@ -554,7 +554,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:25:06] Tom Spina: Oh yeah. Oh yeah. My wife still orders Shirley Temple anytime we go to a wedding. She's like, it's our drink. It's our move.
 
-[00:25:12] Adam: Um, I've discovered the adult equivalent of Shirley Temple since I don't drink alcohol is ginger ale. With a dash of bitters and a little lime,
+[00:25:12] Adam: I've discovered the adult equivalent of Shirley Temple since I don't drink alcohol is ginger ale. With a dash of bitters and a little lime,
 
 [00:25:20] Norm: so a virgin Moscow Mule.
 
@@ -596,7 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:27:06] Norm: great casting.
 
-[00:27:06] Adam: Yeah. And Paul Reiser, you know, my wife and I still, on a randomly daily basis, will go. It was look, it was a bad call, Ripley. We will say that Burke is so intrinsic to science fiction history, and then. You know, there was the half decade or so of Mad About You.
+[00:27:06] Adam: Yeah. And Paul Reiser, you know, my wife and I still, on a randomly daily basis, will go. It was look, it was a bad call, Ripley. We will say that Burke is so intrinsic to science fiction history, and then. There was the half decade or so of Mad About You.
 
 [00:27:06] Tom Spina: Oh yeah,
 
@@ -638,9 +638,9 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:27:56] Tom Spina: No, he was.
 
-[00:27:57] Adam: I I
+[00:27:57] Adam: I
 
-[00:27:59] Tom Spina: I got worried about him for a second, like like episode two and three.
+[00:27:59] Tom Spina: I got worried about him for a second, like episode two and three.
 
 [00:28:02] Adam: Totally. Totally reasonable. Like
 
@@ -658,15 +658,15 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:28:09] Adam: Totally.
 
-[00:28:09] Unknown speaker: Is um, uh,
+[00:28:09] Unknown speaker: Is
 
-[00:28:16] Adam: I'm I'm losing it. Nope, it's gone.
+[00:28:16] Adam: I'm losing it. Nope, it's gone.
 
 [00:28:16] Norm: Sorry, eleven, Mike.
 
 [00:28:19] Tom Spina: Yeah. No, I could have used more eleven in the first five episodes. That's the. I mean, and I don't know where this goes.
 
-[00:28:24] Adam: I think that's the right amount of tension. Eleven so intrinsic to the first to the first series,
+[00:28:24] Adam: I think that's the right amount of tension. Eleven so intrinsic to the first series,
 
 [00:28:30] Tom Spina: right?
 
@@ -692,7 +692,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:29:09] Adam: And she doesn't do that. Like she grounds that whole series in a performance that I find completely remarkable.
 
-[00:29:17] Tom Spina: But they they did that for all of the characters. Like there's no one in that. That feels out of place or miscast, or is you know over or underdoing it. Like they all just fit so well.
+[00:29:17] Tom Spina: But they did that for all of the characters. Like there's no one in that. That feels out of place or miscast, or is you know over or underdoing it. Like they all just fit so well.
 
 [00:29:26] Adam: Hold on, I'm just looking at Norm's new iPhone X.
 
@@ -706,11 +706,11 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:29:36] Norm: Do you feel like there was a hook like that? I think that they encapsulated perfectly from the '80s.
 
-[00:29:47] Adam: I love that you asked that because I thought that the that D and D scene, which I recently read, they wrote in like as long as it took to to to for it to be performed. They wrote that scene almost like bang, like that, and I thought it was a great challenge.
+[00:29:47] Adam: I love that you asked that because I thought that the that D and D scene, which I recently read, they wrote in like as long as it took to for it to be performed. They wrote that scene almost like bang, like that, and I thought it was a great challenge.
 
 [00:29:47] Tom Spina: Yeah,
 
-[00:29:47] Adam: tell me everything that's great about D and D in two minutes flat. Tell me everything that's formative about it, and they really did. Yeah, they nailed. I felt like jumping to the arcade and the the social aspect of the arcade and the games and the who's got the high scores.
+[00:29:47] Adam: tell me everything that's great about D and D in two minutes flat. Tell me everything that's formative about it, and they really did. Yeah, they nailed. I felt like jumping to the arcade and the social aspect of the arcade and the games and the who's got the high scores.
 
 [00:30:16] Tom Spina: The other shared experience of the time,
 
@@ -728,7 +728,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:30:34] Tom Spina: yeah. Well, which you would be. I mean,
 
-[00:30:35] Adam: um, I so here is my prediction for the next next season.
+[00:30:35] Adam: I so here is my prediction for the next next season.
 
 [00:30:38] Tom Spina: Yeah, what do you got?
 
@@ -760,7 +760,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:31:07] Tom Spina: Yeah.
 
-[00:31:07] Adam: Is it? Hey guys, if you if you want to know, I am happy to step into the writers' room and help you guys write this.
+[00:31:07] Adam: Is it? Hey guys, if you want to know, I am happy to step into the writers' room and help you guys write this.
 
 [00:31:12] Norm: Ghostbusters was this year. Jump in, yeah. Ghostbusters was their big pop culture movie anchor point this year. Oh yeah, the Polaroids of the moms when they got the costumes,
 
@@ -778,7 +778,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:31:33] Tom Spina: Yeah,
 
-[00:31:36] Norm: yeah, it's it's really good. It's like they filmed it all in one day, but it's you know totally worth watching after you watch the entire show.
+[00:31:36] Norm: yeah, it's really good. It's like they filmed it all in one day, but it's you know totally worth watching after you watch the entire show.
 
 [00:31:36] Adam: I love.
 
@@ -790,7 +790,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:31:53] Adam: right. Like good drama with some aspects that are dated, but in the right way that are more like nostalgia than oh that didn't work that doesn't work anymore.
 
-[00:32:03] Tom Spina: It's it's not even there's something about the first series that felt like you discovered something that had like you just forgot to watch
+[00:32:03] Tom Spina: It's not even there's something about the first series that felt like you discovered something that had like you just forgot to watch
 
 [00:32:13] Adam: right right
 
@@ -820,25 +820,25 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:32:40] Norm: We've done a good job teetering on the edge.
 
-[00:32:42] Adam: We have, we have. This has been a medium spoiler episode.
+[00:32:42] Adam: We have. This has been a medium spoiler episode.
 
 [00:32:45] Norm: Yes.
 
-[00:32:46] Tom Spina: Yes. I I appreciate that greatly.
+[00:32:46] Tom Spina: Yes. I appreciate that greatly.
 
 [00:32:46] Adam: You're very welcome.
 
 [00:32:46] Tom Spina: Seriously, because I do want to see them cold.
 
-[00:32:48] Adam: We will do a second full spoiler episode when we have Will back. Um, I'll be on the road, but I'll be doing this from the back of a bus.
+[00:32:48] Adam: We will do a second full spoiler episode when we have Will back. I'll be on the road, but I'll be doing this from the back of a bus.
 
 [00:32:55] Norm: Yeah. So,
 
-[00:32:56] Adam: Brain Candy Live starts a week from Wednesday, uh, in Rhode Island, uh, and then we do 24 cities around the country between next Wednesday and December 10, I believe, finishing up in Charlotte, North Carolina.
+[00:32:56] Adam: Brain Candy Live starts a week from Wednesday in Rhode Island and then we do 24 cities around the country between next Wednesday and December 10, I believe, finishing up in Charlotte, North Carolina.
 
 [00:33:10] Tom Spina: When you'll be very tired.
 
-[00:33:12] Adam: Um, it is a it's a lovely lifestyle living on the back of a bus. It's very. It's I I cannot wait to hit the road with Michael Stevens. Um, I will see you guys out on the road if. You are tested member. Shout out! Give a holler from the from the audience. I can't wait to to start taking the show out again.
+[00:33:12] Adam: It is a it's a lovely lifestyle living on the back of a bus. It's very. It's I I cannot wait to hit the road with Michael Stevens. I will see you guys out on the road if. You are tested member. Shout out! Give a holler from the audience. I can't wait to start taking the show out again.
 
 [00:33:28] Norm: And Tom, thank you so much.
 

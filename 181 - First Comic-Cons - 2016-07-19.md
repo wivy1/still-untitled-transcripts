@@ -10,7 +10,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:00:31] Rebecca: and I'm Rebecca.
 
-[00:00:32] Norm: We're back again. You know, we promise. We promise you'll be on soon. And guess what?
+[00:00:32] Norm: We're back again. We promise. We promise you'll be on soon. And guess what?
 
 [00:00:35] Rebecca: Wow,
 
@@ -28,7 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:01:00] Norm: Did someone dumpster dive?
 
-[00:01:01] Adam: Someone dumpster dived, and so there's folders all over the place. As I'm cleaning it up, I left my door open, and this guy walking past, like, is staring through the door open door of my shop. And I don't like that because I don't. Yeah, yeah. You know, it's not for public consumption necessarily.
+[00:01:01] Adam: Someone dumpster dived, and so there's folders all over the place. As I'm cleaning it up, I left my door open, and this guy walking past is staring through the door open door of my shop. And I don't like that because I don't. Yeah, yeah. It's not for public consumption necessarily.
 
 [00:01:17] Rebecca: You need a beaded curtain.
 
@@ -68,13 +68,13 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:01:51] Rebecca: I don't know. I don't know.
 
-[00:01:54] Adam: So I was thinking about hipsters this this week.
+[00:01:54] Adam: So I was thinking about hipsters this week.
 
 [00:01:57] Norm: Okay. Wait, how did that story end? Did he just look in and left? There was no interaction, no engagement.
 
-[00:02:02] Rebecca: Great story, great story, Adam.
+[00:02:02] Rebecca: Great story, Adam.
 
-[00:02:04] Adam: Here's what happened: is he was staring through the door, trying. I was, I was aware of him trying to figure out why, what was in this, what was, why is, what's going on through that door? And then he turned to watch me stand up behind one of my trash bins and went, " Oh, like, oh, that's why."
+[00:02:04] Adam: Here's what happened: is he was staring through the door, trying. I was aware of him trying to figure out why, what was in this, what was, why is, what's going on through that door? And then he turned to watch me stand up behind one of my trash bins and went, " Oh, like, oh, that's why."
 
 [00:02:25] Rebecca: Did you stand up holding like I'm picturing you with like a bunch of old banana peels in one hand
 
@@ -84,7 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:02:34] Rebecca: Oh, hello, neighbor.
 
-[00:02:38] Adam: And he goes, " Oh, hey, I like your work." I said, " Thank you," and he's like, " Have a good day," and then he walked off with his handlebar mustache. But I was thinking about hipsters, and I was thinking about my my my cameraman on MythBusters, Will Nail, used to hate it when I called him a hipster. But if the shoe fits,
+[00:02:38] Adam: And he goes, " Oh, hey, I like your work." I said, " Thank you," and he's like, " Have a good day," and then he walked off with his handlebar mustache. But I was thinking about hipsters, and I was thinking about my cameraman on MythBusters, Will Nail, used to hate it when I called him a hipster. But if the shoe fits,
 
 [00:02:54] Rebecca: most hipsters do hate it when you call them a hipster.
 
@@ -186,13 +186,13 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:05:46] Adam: He was not shot by police.
 
-[00:05:48] Rebecca: Yeah, he talks about people praying for forgiveness for the officer, and he talks about how like to him. No, like he would rather be angry, and this person doesn't deserve forgiveness because this person's going to face zero consequences. And he talks about how this is the only life that Prince had, and it was wasted, you know. So, yeah. Anyway, it's incredibly powerful and moving.
+[00:05:48] Rebecca: Yeah, he talks about people praying for forgiveness for the officer, and he talks about how like to him. No, like he would rather be angry, and this person doesn't deserve forgiveness because this person's going to face zero consequences. And he talks about how this is the only life that Prince had, and it was wasted. So, yeah. Anyway, it's incredibly powerful and moving.
 
-[00:06:13] Adam: It's a really important book. So the the construct of the book have I talked about it a little?
+[00:06:13] Adam: It's a really important book. So the construct of the book have I talked about it a little?
 
 [00:06:17] Norm: You have a little bit,
 
-[00:06:17] Adam: okay? Yeah, it's it's it's the talk. It's the talk that African American parents give to their children as they're coming of age about the realities of the world they're coming of age in. So the first word of the book is " son."
+[00:06:17] Adam: okay? Yeah, it's the talk. It's the talk that African American parents give to their children as they're coming of age about the realities of the world they're coming of age in. So the first word of the book is " son."
 
 [00:06:29] Rebecca: Yeah,
 
@@ -202,9 +202,9 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:06:29] Adam: It's really changed it. It altered the way I saw the world.
 
-[00:06:40] Rebecca: Yeah, and and I I think of myself as someone who is very open and and allied and you know supportive of Black Lives Matter and and things like that, but. Yeah, they were. He he put things into a context that I hadn't considered before. You know, even even even me, the pinnacle of liberal.
+[00:06:40] Rebecca: Yeah, and I I think of myself as someone who is very open and allied and you know supportive of Black Lives Matter and things like that, but. Yeah, they were. He put things into a context that I hadn't considered before. Even even even me, the pinnacle of liberal.
 
-[00:07:03] Adam: right, no We think that we're liberal until we really read a worldview that's radically the the construct. And we talked about this on the podcast last week about the my feeling the microaggression of the TSA agent. Yeah, stop right there. It was that book that helped me understand that microaggression because at one point in the book he has an altercation with a woman in a mall where it goes bad, and I think it's a woman. She's the person he has the altercation with. Says I could call the cops, and Ta-Nehisi says what they meant was I can have control of your body anytime I want.
+[00:07:03] Adam: right, no We think that we're liberal until we really read a worldview that's radically the construct. And we talked about this on the podcast last week about the my feeling the microaggression of the TSA agent. Yeah, stop right there. It was that book that helped me understand that microaggression because at one point in the book he has an altercation with a woman in a mall where it goes bad, and I think it's a woman. She's the person he has the altercation with. Says I could call the cops, and Ta-Nehisi says what they meant was I can have control of your body anytime I want.
 
 [00:07:39] Rebecca: Yeah,
 
@@ -224,9 +224,9 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:08:30] Adam: He's the awesome.
 
-[00:08:30] Rebecca: Yeah, and he's killing it. He's out there with his band now. Yeah, like he he moved smoothly from standup comedian to like now I'm now I have a guitar. Now I'm playing the guitar on stage. Now I'm a musician.
+[00:08:30] Rebecca: Yeah, and he's killing it. He's out there with his band now. Yeah, like he moved smoothly from standup comedian to like now I'm now I have a guitar. Now I'm playing the guitar on stage. Now I'm a musician.
 
-[00:08:42] Adam: Well, that's like last time he was in San Francisco. We had we had lunch. He came to lunch at our house, and we talked for a while. And he was just getting started with the music thing. He's like, it seems to be going really well.
+[00:08:42] Adam: Well, that's like last time he was in San Francisco. We had lunch. He came to lunch at our house, and we talked for a while. And he was just getting started with the music thing. He's like, it seems to be going really well.
 
 [00:08:52] Rebecca: Yeah, I hung out with him that same time. I think, and I met up with him on his way to the venue, and I'm like. Oh, you've got your your guitar, and he's like, " Yeah, of course I do. Like I'm playing this on stage." I was like, " Really?
 
@@ -244,7 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:09:11] Adam: yes.
 
-[00:09:12] Norm: Are you are you in w00tstock as well?
+[00:09:12] Norm: Are you in w00tstock as well?
 
 [00:09:13] Adam: I am, of course.
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:09:22] Adam: he's relaxing a little bit.
 
-[00:09:24] Rebecca: And Anne is recovering, I think, from some a minor medical procedure thing. So, yeah, I think they're they're having family time.
+[00:09:24] Rebecca: And Anne is recovering, I think, from some a minor medical procedure thing. So, yeah, I think they're having family time.
 
 [00:09:32] Adam: I will miss the Wheatons.
 
@@ -278,7 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:09:41] Norm: dancing barefoot,
 
-[00:09:42] Adam: we had a lot of mutual friends in common. But there was a time I didn't know him, and now having him as a friend, he's such a lovely, important presence in my life. You know, I mean, not just as a personal thing, but every now and then he'll put up one of his. Blogs about depression, which I find so powerful.
+[00:09:42] Adam: we had a lot of mutual friends in common. But there was a time I didn't know him, and now having him as a friend, he's such a lovely, important presence in my life. I mean, not just as a personal thing, but every now and then he'll put up one of his. Blogs about depression, which I find so powerful.
 
 [00:10:01] Rebecca: Yeah,
 
@@ -316,7 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:10:40] Adam: Endo pants.
 
-[00:10:41] Rebecca: You know, thank God we corrected that on camera, so I would have gotten so many angry. God. Rebecca, they're overpants.
+[00:10:41] Rebecca: Thank God we corrected that on camera, so I would have gotten so many angry. God. Rebecca, they're overpants.
 
 [00:10:49] Adam: In point of fact, Rebecca, I was at that very w00tstock 5.0 or whatever.
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:11:19] Rebecca: LeVar Burton just marching in the Black Lives Matter protest in D.C.
 
-[00:11:23] Adam: You know, I in L.A. I told this on the podcast, but I went I went to this Paramount event with Norm where we showed the new Star Trek trailer, and then afterwards I went to a meeting of secret nerds.
+[00:11:23] Adam: I in L.A. I told this on the podcast, but I went to this Paramount event with Norm where we showed the new Star Trek trailer, and then afterwards I went to a meeting of secret nerds.
 
 [00:11:36] Rebecca: Oh, secret nerd meeting!
 
@@ -350,7 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:12:05] Norm: No.
 
-[00:12:05] Rebecca: I was I was at a party with you, I think, and LeVar Burton walked in. I was talking to someone else, and he walked up to us, and I turned and was like, " Oh, hello!" And he's like, " Hello, I'm LeVar," and I was like, " I know who you are. LeVar, huge Reading Rainbow fan."
+[00:12:05] Rebecca: I was at a party with you, I think, and LeVar Burton walked in. I was talking to someone else, and he walked up to us, and I turned and was like, " Oh, hello!" And he's like, " Hello, I'm LeVar," and I was like, " I know who you are. LeVar, huge Reading Rainbow fan."
 
 [00:12:21] Norm: Is that the first time you met met LeVar Burton?
 
@@ -384,9 +384,9 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:12:48] Adam: Who am I missing? I haven't met. I haven't met Picard.
 
-[00:12:53] Norm: I bet. I bet Patrick Stewart's the one who doesn't hang. He's he's the one that's probably busier.
+[00:12:53] Norm: I bet. I bet Patrick Stewart's the one who doesn't hang. He's the one that's probably busier.
 
-[00:12:57] Rebecca: He's he's the he's the the dad who's always away at work.
+[00:12:57] Rebecca: He's the dad who's always away at work.
 
 [00:13:01] Adam: Here's the thing. Here's my pitch to Patrick Stewart. We recently saw some video of him eating his first slice of New York pizza.
 
@@ -402,7 +402,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:13:17] Adam: Oh. It's more like a taquito than a burrito, but.
 
-[00:13:26] Rebecca: Is this, this is how the show normally goes, right?
+[00:13:26] Rebecca: Is this is how the show normally goes, right?
 
 [00:13:28] Norm: Yes, yes.
 
@@ -432,7 +432,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:13:57] Rebecca: yeah.
 
-[00:13:59] Norm: But you've heard this story, Rebecca, from from the other Adam about we wanted to go to Aaron Douglas's party.
+[00:13:59] Norm: But you've heard this story, Rebecca, from the other Adam about we wanted to go to Aaron Douglas's party.
 
 [00:14:06] Adam: Oh yeah. And Aaron Douglas always throws this epic party at DragonCon,
 
@@ -442,7 +442,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:14:13] Adam: We build BSG models here.
 
-[00:14:14] Norm: That's right. Yeah. And then we so we tested entourage along with you know Kishore and Indre from Inquiring Minds. We were going to go to after a big panel to the Aaron Douglas party, and Adam, our producer, knows Aaron, and so we got to his hotel room, knocked door, no one picked up, like no one answers. Oh, maybe it's loud in there, and they couldn't hear. So call call Aaron up. Dialed it, no one picked up, and then we're hovering. How long should we hover out here? You know, we just go to another party, and then down the elevator we hear the door open. The elevator—it's the service elevator, so you know it's someone special when it's a service elevator at DragonCon. And first, and then out comes Jamie Bamber, Apollo. Okay, he's got to be here for the party. But then behind him, it's Gaius, and then Tricia Helfer, and then and then it's Adama comes out, and it's
+[00:14:14] Norm: That's right. Yeah. And then we so we tested entourage along with you know Kishore and Indre from Inquiring Minds. We were going to go to after a big panel to the Aaron Douglas party, and Adam, our producer, knows Aaron, and so we got to his hotel room, knocked door, no one picked up, like no one answers. Oh, maybe it's loud in there, and they couldn't hear. So call call Aaron up. Dialed it, no one picked up, and then we're hovering. How long should we hover out here? We just go to another party, and then down the elevator we hear the door open. The elevator—it's the service elevator, so you know it's someone special when it's a service elevator at DragonCon. And first, and then out comes Jamie Bamber, Apollo. Okay, he's got to be here for the party. But then behind him, it's Gaius, and then Tricia Helfer, and then it's Adama comes out, and it's
 
 [00:15:07] Adam: Edward,
 
@@ -456,7 +456,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:15:36] Norm: Don't worry, I'll approach them as equals. Yes. And went up there, and then they apparently Aaron wasn't there. The party wasn't ready yet. Now the best part was Edward James Olmos walks down the hallway. Walks to the very end, past everyone, past the door, turns around and walks. Let's go, and then they all left.
 
-[00:15:55] Adam: So I, so I had, I had lunch with Aaron in in Vancouver late last year, and I told him this story.
+[00:15:55] Adam: So I had lunch with Aaron in Vancouver late last year, and I told him this story.
 
 [00:16:02] Norm: Yeah,
 
@@ -468,7 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:16:12] Norm: He didn't knock. Walked down. We were all knocking the doors. Walked all the way down the end of the hallway. Turn around. Walk back. Let's go. And everyone left.
 
-[00:16:20] Adam: It's a great, great party. Um, I, I like particularly that he has the party in a room insulated by other rooms
+[00:16:20] Adam: It's a great, great party. I like particularly that he has the party in a room insulated by other rooms
 
 [00:16:27] Norm: Oh my God.
 
@@ -484,9 +484,9 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:16:37] Rebecca: Yeah.
 
-[00:16:37] Norm: And so it's their time to bond and their time to to reconnect.
+[00:16:37] Norm: And so it's their time to bond and their time to reconnect.
 
-[00:16:41] Adam: Well, wasn't there a famous story about a Firefly convention not happening and the the Cast was still there, so they held a meet and greet for the fans that had shown up for the canceled convention.
+[00:16:41] Adam: Well, wasn't there a famous story about a Firefly convention not happening and the Cast was still there, so they held a meet and greet for the fans that had shown up for the canceled convention.
 
 [00:16:53] Rebecca: I did not hear that. That’s amazing.
 
@@ -508,7 +508,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:17:14] Adam: yeah, he'll be there.
 
-[00:17:15] Rebecca: Okay, all right, yeah. The the one person I really wanted to meet at Comic Con, and this is a person that I've been trying to meet for the past 10 years, probably of my con-going life, is H. Jon Benjamin.
+[00:17:15] Rebecca: Okay, all right, yeah. The one person I really wanted to meet at Comic Con, and this is a person that I've been trying to meet for the past 10 years, probably of my con-going life, is H. Jon Benjamin.
 
 [00:17:28] Adam: Who is H. Jon Benjamin?
 
@@ -560,7 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:18:30] Adam: Yeah, it's ridiculous.
 
-[00:18:31] Rebecca: All right, now I'm really excited about Comic Con. I mean, I was kind of excited before. Now I'm really excited. The problem, so the problem with Jon Benjamin is that apparently he's very introverted and doesn't go out to parties and stuff. So. He's like a rare Pokemon that I need to, I need to like, like bait with treats, or something.
+[00:18:31] Rebecca: All right, now I'm really excited about Comic Con. I mean, I was kind of excited before. Now I'm really excited. The problem, so the problem with Jon Benjamin is that apparently he's very introverted and doesn't go out to parties and stuff. So. He's like a rare Pokemon that I need to like bait with treats, or something.
 
 [00:18:51] Adam: So, three years ago at Comic Con, three or four years ago at Comic Con, which is the hotel that's right at the end of the convention center,
 
@@ -588,7 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:19:48] Adam: This is this long pause, and Julia goes, " I think I got the wrong room." And he's like, " I guess you did." Which I think of as a sort of a signal that he might say, " Maybe it's the right room."
 
-[00:20:04] Rebecca: I, I mean, I'm just going to put this out there.
+[00:20:04] Rebecca: I mean, I'm just going to put this out there.
 
 [00:20:06] Adam: [unclear: I didn’t mention / I did mention].
 
@@ -614,7 +614,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:20:30] Adam: She knew that, she was like
 
-[00:20:30] Norm: that's that's not going to happen. No,
+[00:20:30] Norm: that's not going to happen. No,
 
 [00:20:32] Adam: Adam's not hanging out with the dude.
 
@@ -632,7 +632,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:20:49] Rebecca: Right.
 
-[00:20:50] Adam: And I’d just go, Whoa, you know,
+[00:20:50] Adam: And I’d just go, Whoa
 
 [00:20:52] Rebecca: who are they?
 
@@ -664,7 +664,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:21:33] Adam: Nice.
 
-[00:21:29] Rebecca: and later we we hung out all night. And the next day, Ken Plume told me that Ken took Terry Gilliam to the airport, and on the way, Terry mentioned me and said, " And I quote." She's a pistol.
+[00:21:29] Rebecca: and later we hung out all night. And the next day, Ken Plume told me that Ken took Terry Gilliam to the airport, and on the way, Terry mentioned me and said, " And I quote." She's a pistol.
 
 [00:21:50] Adam: You are a pistol.
 
@@ -682,7 +682,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:21:59] Rebecca: Yeah, yeah. Hell on my forehead.
 
-[00:22:02] Adam: Ken Plume did the same. He he he told me come to DragonCon the first time I went to DragonCon come to DragonCon I'll introduce you to Terry Gilliam and I was like all right we'll see how that goes I I've heard such things before and I arrived at DragonCon at 6 a.m. only to find that the Hilton had given away my hotel room that I had prepaid for
+[00:22:02] Adam: Ken Plume did the same. He told me come to DragonCon the first time I went to DragonCon come to DragonCon I'll introduce you to Terry Gilliam and I was like all right we'll see how that goes I I've heard such things before and I arrived at DragonCon at 6 a.m. only to find that the Hilton had given away my hotel room that I had prepaid for
 
 [00:22:21] Rebecca: yeah
 
@@ -694,7 +694,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:22:37] Rebecca: yeah that's the fuck you mode
 
-[00:22:38] Adam: ah anyway um but we finally did get to a room and I texted Ken at like 7:30 and said I'm in my room we just got in and he said Well, come upstairs to blah blah blah and have breakfast with me and Terry. And we did.
+[00:22:38] Adam: ah anyway but we finally did get to a room and I texted Ken at like 7:30 and said I'm in my room we just got in and he said Well, come upstairs to blah blah blah and have breakfast with me and Terry. And we did.
 
 [00:22:51] Rebecca: Nice.
 
@@ -716,13 +716,13 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:24:19] Norm: Yeah.
 
-[00:24:19] Rebecca: And so, like, all of our stuff was very DIY, you know. And so we were walking through the parade, and like people would look at us in a confused manner. So I just started yelling, " We're Bruces! We're we're all Bruces!" It's a Bruce Banner
+[00:24:19] Rebecca: And so all of our stuff was very DIY. And so we were walking through the parade, and like people would look at us in a confused manner. So I just started yelling, " We're Bruces! We're we're all Bruces!" It's a Bruce Banner
 
 [00:24:35] Adam: You’re literally running around explaining the joke.
 
 [00:24:37] Rebecca: Yeah, we're Bruces.
 
-[00:24:39] Adam: That's that's that's that's a deep commitment.
+[00:24:39] Adam: That's a deep commitment.
 
 [00:24:40] Rebecca: Yeah, yeah.
 
@@ -758,13 +758,13 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:25:10] Adam: Is there any? Okay, so anything special coming up on the site? this week?
 
-[00:25:12] Norm: We have all the stuff from the RPF party we talked about last week is going to be on the site this week. So you know, and then Comic Con stuff rolling out this weekend.
+[00:25:12] Norm: We have all the stuff from the RPF party we talked about last week is going to be on the site this week. So and then Comic Con stuff rolling out this weekend.
 
 [00:25:19] Adam: Very exciting.
 
 [00:25:20] Rebecca: Yes.
 
-[00:25:20] Adam: It'll be it'll be non Comic Con is nonstop, even more than Dragon Con is.
+[00:25:20] Adam: It'll be non Comic Con is nonstop, even more than Dragon Con is.
 
 [00:25:25] Rebecca: I'm gonna go. I'm gonna go back to sleep right after this and get a lot of sleep.
 

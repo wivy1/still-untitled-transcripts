@@ -22,13 +22,13 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:00:41] Melissa: Always happy to drop by if I can.
 
-[00:00:43] Adam: And Kayte, we I haven't seen much of you since we finished the since we finished the Blade Runner blimp.
+[00:00:43] Adam: And Kayte, we I haven't seen much of you since we finished the Blade Runner blimp.
 
 [00:00:48] Kayte: Yeah, I've been hibernating. Basically.
 
 [00:00:50] Adam: Is it time maybe to bring you in to start painting Cain?
 
-[00:00:53] Kayte: I'm I'm always ready to do that.
+[00:00:53] Kayte: I'm always ready to do that.
 
 [00:00:55] Adam: Okay. Okay, I think it might be time to start on Cain
 
@@ -52,7 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:01:27] Adam: It is. It's true.
 
-[00:01:27] Melissa: But um, but I'm also here
+[00:01:27] Melissa: But I'm also here
 
 [00:01:32] Adam: from the frying pan into the fire.
 
@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:02:15] Norm: I'm aware of it. Yeah,
 
-[00:02:17] Melissa: but in games, you you you acquire higher level armor.
+[00:02:17] Melissa: but in games, you acquire higher level armor.
 
 [00:02:21] Norm: Yes, right, of course.
 
@@ -90,15 +90,15 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:02:30] Adam: Yeah.
 
-[00:02:30] Melissa: But I also was very aware of like the the response. You know, I I know that people have very different tastes and interests and purposes, and I want I I wanted to see how you know I could contribute to to those different needs.
+[00:02:30] Melissa: But I also was very aware of like the response. I know that people have very different tastes and interests and purposes, and I want I I wanted to see how you know I could contribute to those different needs.
 
 [00:02:57] Adam: Yeah.
 
 [00:02:57] Melissa: And in a way that doesn't you know kill me.
 
-[00:02:59] Adam: I love I love that you're diving into a whole taxonomy, and your fidelity to the mechanical functioning is really neat because that's a challenge. It's it's it's really really difficult thing. It's like easy to the aesthetic is arguably easier to throw in, but getting aesthetics to work mechanically is is is a real challenge.
+[00:02:59] Adam: I love that you're diving into a whole taxonomy, and your fidelity to the mechanical functioning is really neat because that's a challenge. It's really really difficult thing. It's like easy to the aesthetic is arguably easier to throw in, but getting aesthetics to work mechanically is is is a real challenge.
 
-[00:03:18] Melissa: Yeah, thank you. I mean, it's interesting just because like some people won't usually go for the the harder part. Not like the tier three, they might start the tier one, but tier three is a lot more interesting.
+[00:03:18] Melissa: Yeah, thank you. I mean, it's interesting just because like some people won't usually go for the harder part. Not like the tier three, they might start the tier one, but tier three is a lot more interesting.
 
 [00:03:28] Adam: Yeah,
 
@@ -112,17 +112,17 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:03:45] Melissa: Yeah,
 
-[00:03:45] Adam: and I I think it's a really great object lesson for listeners of Tested anyone who comes across this podcast because. We all have limitations in our spaces. I'd love to be able to drive my car in my space. It's too small for two people, right? It becomes really, really tight when two people are moving around. Everybody's space presents different challenges, and I've asked people to tweet their tiny shops, their closet sewing kits, and things like that because I find it really inspiring. But your space is is tight and difficult to work in in a way
+[00:03:45] Adam: and I I think it's a really great object lesson for listeners of Tested anyone who comes across this podcast because. We all have limitations in our spaces. I'd love to be able to drive my car in my space. It's too small for two people, right? It becomes really, really tight when two people are moving around. Everybody's space presents different challenges, and I've asked people to tweet their tiny shops, their closet sewing kits, and things like that because I find it really inspiring. But your space is is tight and difficult to work in a way
 
 [00:04:16] Melissa: that's uncomfortable.
 
-[00:04:18] Adam: Well, I am amazed that I am amazed at the output you you you bring out of that space, and I am curious. Like you've been clearly working ever since you were last here. How many how many hours a week do you put into that space? Do you do you work out of there?
+[00:04:18] Adam: Well, I am amazed that I am amazed at the output you bring out of that space, and I am curious. Like you've been clearly working ever since you were last here. How many hours a week do you put into that space? Do you work out of there?
 
 [00:04:30] Melissa: I work seven days a week.
 
 [00:04:30] Adam: Wow!
 
-[00:04:30] Melissa: So it might have explained a little bit to to some people. I don't know. A lot of people aren't aware, but you know, there is the the music center company that my sisters and I run. So that's kind of like my daytime life. From we, I wake up, you know, start at seven. The company, the music school, in Queens, that's family business. The family, my sisters and I, we are there from. From morning until maybe eight PM, but in between then, I also try to find time to work on Lumecluster, and so then I might work. Oops, sorry. I might work on that maybe till midnight or three.
+[00:04:30] Melissa: So it might have explained a little bit to some people. I don't know. A lot of people aren't aware, but there is the music center company that my sisters and I run. So that's kind of like my daytime life. From we, I wake up start at seven. The company, the music school, in Queens, that's family business. The family, my sisters and I, we are there from. From morning until maybe eight PM, but in between then, I also try to find time to work on Lumecluster, and so then I might work. Oops, sorry. I might work on that maybe till midnight or three.
 
 [00:04:30] Adam: Wow. You're obsessed.
 
@@ -142,9 +142,9 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:05:34] Melissa: But yeah, there's music and art. You know, that's both in my life, and I'm I'm I'm very thankful for that. But it's it can get really tiring.
 
-[00:05:46] Adam: You're reminding me of when I first moved to San Francisco. I was working in theater, and I had a regular gig at a theater called Beach Blanket Babylon, which was I worked about three nights a week on that, and then I did. Five days a week, doing props for Berkeley Repertory Theater, and I was still doing both of those jobs. And like you were just describing, coming back to my shop. This is the benefit. It was you know I was 24, and working sometimes all night long just to go back to work at Berkeley Rep because I didn't find. I mean, when you're when you're younger, you have so much more energy. I remember thinking, like, I'll go out and do an errand these days, and I'll be like, " Wow, that that's my day, that errand." And like, I'm like, " Wow," and I'm in my 20s. I used to get like four things done in a day, and that that like. I have no regrets about being tired, right? Like that was just this moment of just pure output, just drive to keep on making stuff, to just work all night long, and it was it was really a delight.
+[00:05:46] Adam: You're reminding me of when I first moved to San Francisco. I was working in theater, and I had a regular gig at a theater called Beach Blanket Babylon, which was I worked about three nights a week on that, and then I did. Five days a week, doing props for Berkeley Repertory Theater, and I was still doing both of those jobs. And like you were just describing, coming back to my shop. This is the benefit. It was you know I was 24, and working sometimes all night long just to go back to work at Berkeley Rep because I didn't find. I mean, when you're younger, you have so much more energy. I remember thinking I'll go out and do an errand these days, and I'll be like, " Wow, that that's my day, that errand." And I'm like, " Wow," and I'm in my 20s. I used to get like four things done in a day, and that that like. I have no regrets about being tired, right? Like that was just this moment of just pure output, just drive to keep on making stuff, to just work all night long, and it was really a delight.
 
-[00:06:46] Melissa: Yeah, I'm like I'm telling myself stress is worth it, but then I hold the things in my hand and I'm. Well, cool. I made that. I think it's good, but you know, there's that doubt that's that's constantly there, and I'm not going to lie; it's it's really hard for me to deal with it, and and that's why again, I keep I'm I think I'm finding myself here a little bit more often in California. Just as I mentioned last time on the podcast, just trying to find creatives that get me. But you know, that has changed a lot of my mentality. Just understanding the process and that there's no wrong way to do it.
+[00:06:46] Melissa: Yeah, I'm like I'm telling myself stress is worth it, but then I hold the things in my hand and I'm. Well, cool. I made that. I think it's good, but there's that doubt that's constantly there, and I'm not going to lie; it's really hard for me to deal with it, and that's why again, I keep I'm I think I'm finding myself here a little bit more often in California. Just as I mentioned last time on the podcast, just trying to find creatives that get me. But you know, that has changed a lot of my mentality. Just understanding the process and that there's no wrong way to do it.
 
 [00:06:46] Adam: Nope.
 
@@ -170,37 +170,37 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:08:10] Kayte: Yes. So I think it's great. Like no matter what, you're like in there doing it, and you're learning along the way.
 
-[00:08:16] Melissa: But but to be fair, I mean, I'm I'm thinking a lot of other people have this. I have days where it seems like nothing is happening. It's just it stretches on for like days or sometimes a week or more of nothing happened. But failures. But even then, that's something.
+[00:08:16] Melissa: But to be fair, I mean, I'm I'm thinking a lot of other people have this. I have days where it seems like nothing is happening. It's just it stretches on for like days or sometimes a week or more of nothing happened. But failures. But even then, that's something.
 
 [00:08:16] Adam: It is.
 
-[00:08:16] Melissa: And and I think that's still been the biggest struggle for me, and I'm sure for plenty of others. And that's something I remind myself, which is, you know, I'm I might be struggling in some days, but then yes, there are those bursts and like that even a few hours of of discovery, and I'm like aha, I've got it. Then I'll remember all those days and weeks that I couldn't do anything, but I'm like okay. I need to get myself in the right mindset, but
+[00:08:16] Melissa: And I think that's still been the biggest struggle for me, and I'm sure for plenty of others. And that's something I remind myself, which is I'm I might be struggling in some days, but then yes, there are those bursts and like that even a few hours of discovery, and I'm like aha, I've got it. Then I'll remember all those days and weeks that I couldn't do anything, but I'm like okay. I need to get myself in the right mindset, but
 
 [00:08:53] Norm: Especially.
 
 [00:08:53] Adam: Go ahead.
 
-[00:08:53] Norm: I mean, especially since for a lot of your process seems like half of a significant portion of it is the digital, right? Where you get no physical tactile iteration; it's just at the computer screen, and that's frustrating. Anyone who works, you know, modeling—
+[00:08:53] Norm: I mean, especially since for a lot of your process seems like half of a significant portion of it is the digital, right? Where you get no physical tactile iteration; it's just at the computer screen, and that's frustrating. Anyone who works modeling—
 
 [00:09:10] Adam: it's funny though. When I'm doing organizing and research, I find the computer aspect of researching and refining and coming up with plans of attack just as satisfying as the actual making of stuff. But it—
 
 [00:09:23] Norm: that's a different part of the digital. Yeah, that's.
 
-[00:09:25] Adam: I will tell you, there's a dirty secret about creation, which is that those those moments of elation, they only get farther apart, specifically because the better you get, the more you demand of yourself, the more the the more you pursue excellence, the more you have to confront all of your own spielkas, all of your own stuff, and it means that those Those high points are even more satisfying, and in the middle, you you kind of develop the ability to muscle through all that shit. I mean, it's just there's no way around it. Like everyone, nobody escapes from that from that line. There's nobody who's just like every day is an unfettered joy. There's none of that. There's nobody who has time to just work in their shop all the time. You get a big shop, you've got to sudden somehow fund it, so you got to do work out of it. You got to bring people in. You don't have enough time to complete all the projects. You've got to collaborate. There's always something that feels less than perfect, but that's that's the nature of making anything.
+[00:09:25] Adam: I will tell you, there's a dirty secret about creation, which is that those those moments of elation, they only get farther apart, specifically because the better you get, the more you demand of yourself, the more you pursue excellence, the more you have to confront all of your own spielkas, all of your own stuff, and it means that those Those high points are even more satisfying, and in the middle, you kind of develop the ability to muscle through all that shit. I mean, it's just there's no way around it. Like everyone, nobody escapes from that line. There's nobody who's just like every day is an unfettered joy. There's none of that. There's nobody who has time to just work in their shop all the time. You get a big shop, you've got to sudden somehow fund it, so you got to do work out of it. You got to bring people in. You don't have enough time to complete all the projects. You've got to collaborate. There's always something that feels less than perfect, but that's the nature of making anything.
 
 [00:10:24] Melissa: And I feel like you know a lot of people think, well, I should be always wired and be be positive all the time. And I feel like that's great. It'd be great if we—
 
 [00:10:33] Adam: Wouldn't it?
 
-[00:10:34] Melissa: Yeah, but I mean, I don't know for for other people. I know for me, since I'm split between those two companies, it I require my I have to shift
+[00:10:34] Melissa: Yeah, but I mean, I don't know for other people. I know for me, since I'm split between those two companies, it I require my I have to shift
 
 [00:10:43] Adam: Yeah.
 
-[00:10:43] Melissa: thinking because those are still two separate companies. You're working with students and teachers and pianos and stuff. Lumecluster is. Fantasy armor, yeah, totally similar, right? It's totally similar, but but it's also like you know those interruptions and maybe I shouldn't say interruptions, but those shifts can also really be a drag sometimes. But still, things have to be done. But people think that you know it's got to be. They think it's just a switch.
+[00:10:43] Melissa: thinking because those are still two separate companies. You're working with students and teachers and pianos and stuff. Lumecluster is. Fantasy armor, yeah, totally similar, right? It's totally similar, but it's also like you know those interruptions and maybe I shouldn't say interruptions, but those shifts can also really be a drag sometimes. But still, things have to be done. But people think that you know it's got to be. They think it's just a switch.
 
 [00:11:11] Adam: Yeah, you're supposed to just go gear switching is maybe the most tiring thing.
 
-[00:11:14] Melissa: Yeah, and and I think people, myself included, you know, we beat ourselves up way too much, and I still have trouble with that. But
+[00:11:14] Melissa: Yeah, and I think people, myself included we beat ourselves up way too much, and I still have trouble with that. But
 
 [00:11:23] Kayte: you beat yourself up about beating yourself up.
 
@@ -208,23 +208,23 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:11:34] Adam: Yeah. Oh, those spirals—they're delightful. Yeah. No, look, I mean, the best part is I appreciate you're talking about them because I really think that it's important to be open about how difficult the process is. Nobody, nobody escapes from it being difficult. There's no amount of circumstance that suddenly turns it all into an unalloyed pleasure, and it's not because of anything that we lack or the nature of people. It's just that you're creating something from nothing, and when you're doing that, you're. It's a confrontational art.
 
-[00:12:06] Kayte: Well, something I have found about it that is actually a really great balance is that when you're going after it and you're doing this to find your happiness or because it makes you happy, you'll have these down times, and it starts to weigh on you, thinking like, No, all I'm looking for is like to do what I want. But on the other hand, when something really bad happens in your life, and when you're struggling, and you have that to turn to, it becomes your antidepressant. Like it becomes your boost, and all of a sudden, you're getting much more done than you ever thought you could. And it's like by the time you you pause and look around, you realize you've gotten through whatever that hard thing was. So like each time I've struggled with something in my personal life. It's like turning to your craft and your art is such a great motivator, and I feel like I've met a lot of really successful hyper creative people who have said like this is how you stay sane, like having that outlet.
+[00:12:06] Kayte: Well, something I have found about it that is actually a really great balance is that when you're going after it and you're doing this to find your happiness or because it makes you happy, you'll have these down times, and it starts to weigh on you, thinking like, No, all I'm looking for is like to do what I want. But on the other hand, when something really bad happens in your life, and when you're struggling, and you have that to turn to, it becomes your antidepressant. Like it becomes your boost, and all of a sudden, you're getting much more done than you ever thought you could. And it's like by the time you pause and look around, you realize you've gotten through whatever that hard thing was. So like each time I've struggled with something in my personal life. It's like turning to your craft and your art is such a great motivator, and I feel like I've met a lot of really successful hyper creative people who have said like this is how you stay sane, like having that outlet.
 
-[00:13:03] Adam: There's a there's a wonderful story that Baba Ram Dass tells about having been in an ashram in India when his mother died, and flying back to the states dressed in robes of a of a monk, and he sees his dad who's like a Republican businessman, and his dad and he have no idea how to talk to each other, and they certainly have no idea how to help each other through the grief of his mother and his wife dying. And Ram Dass is in the house for a couple of days when he initiates with his dad to take care of some canning that his mom hadn't gotten to yet, canning a bunch of food that she'd prepared, and after about a day of it, looking up and seeing his dad. Genuinely smiling at the work they were doing together—that just that labor in the face of something that you can't process or that you need time to to figure out a way through—is really, really healing.
+[00:13:03] Adam: There's a wonderful story that Baba Ram Dass tells about having been in an ashram in India when his mother died, and flying back to the states dressed in robes of a monk, and he sees his dad who's like a Republican businessman, and his dad and he have no idea how to talk to each other, and they certainly have no idea how to help each other through the grief of his mother and his wife dying. And Ram Dass is in the house for a couple of days when he initiates with his dad to take care of some canning that his mom hadn't gotten to yet, canning a bunch of food that she'd prepared, and after about a day of it, looking up and seeing his dad. Genuinely smiling at the work they were doing together—that just that labor in the face of something that you can't process or that you need time to figure out a way through—is really, really healing.
 
 [00:13:59] Kayte: Yeah, definitely.
 
-[00:14:01] Adam: Um, what is I? Kayte, I don't know what your home workshop space is like
+[00:14:01] Adam: What is I? Kayte, I don't know what your home workshop space is like
 
 [00:14:05] Kayte: Actually, I was—
 
 [00:14:06] Adam: or if it exists.
 
-[00:14:07] Kayte: I was just discussing this. So I used to have quite a large home workshop that is no more. I am currently in a probably about a 8 by 12 foot room that has a shop sink and a window. Um, Phil Tippett was generous enough to give me his old drafting table. It's amazing, as his daughter Sam puts it, it's pre-stained with red wine and frustration. Um, it's like my prized possession now, and that takes up most of the room.
+[00:14:07] Kayte: I was just discussing this. So I used to have quite a large home workshop that is no more. I am currently in a probably about a 8 by 12 foot room that has a shop sink and a window. Phil Tippett was generous enough to give me his old drafting table. It's amazing, as his daughter Sam puts it, it's pre-stained with red wine and frustration. It's like my prized possession now, and that takes up most of the room.
 
 [00:14:40] Adam: Is " Red Wine and Frustration" the title of Phil's autobiography?
 
-[00:14:43] Kayte: I hope so. I'm gonna I'm gonna pitch that one. Um, and so right now it's this tiny space, and it is crammed with. Tripods and studio lights and shelves and all of these things that I'm now I'm now having to figure out how to store up
+[00:14:43] Kayte: I hope so. I'm gonna pitch that one. And so right now it's this tiny space, and it is crammed with. Tripods and studio lights and shelves and all of these things that I'm now having to figure out how to store up
 
 [00:14:43] Adam: Yep.
 
@@ -238,7 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:15:51] Kayte: Yes, exactly.
 
-[00:15:52] Adam: Um, I came across something that may uh be of interest to you and. I sometimes just go down YouTube rabbit holes of interesting woodwork or machine work, and I found a guy who had a closet that he wanted to make maximal use of, but he knew that in his house the function of closets may change over time. So he built what's called a French cleat system, and this is strips of wood cut at a 45 mounted to the wall, and shelves that have a corresponding 45 mate with gussets that keep them hold held upright, so that you can re. And he puts the cleats two-inch-wide strips every five inches, all the way up all three walls. Very strong.
+[00:15:52] Adam: I came across something that may be of interest to you and. I sometimes just go down YouTube rabbit holes of interesting woodwork or machine work, and I found a guy who had a closet that he wanted to make maximal use of, but he knew that in his house the function of closets may change over time. So he built what's called a French cleat system, and this is strips of wood cut at a 45 mounted to the wall, and shelves that have a corresponding 45 mate with gussets that keep them hold held upright, so that you can re. And he puts the cleats two-inch-wide strips every five inches, all the way up all three walls. Very strong.
 
 [00:16:33] Norm: I love that.
 
@@ -252,11 +252,11 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:17:03] Norm: Okay, your shop is that at your house or is that a place you rent?
 
-[00:17:06] Kayte: Um, currently the small space is what I rent. The barn will go on my property. So,
+[00:17:06] Kayte: Currently the small space is what I rent. The barn will go on my property. So,
 
-[00:17:12] Norm: do you guys have thoughts about? I don't like having the place where I work be at home. I feel like it's tough to do this thing. I would rather rent a location that can keep messy. You know, and and when I'm there, that's the only thing I'm working on.
+[00:17:12] Norm: do you guys have thoughts about? I don't like having the place where I work be at home. I feel like it's tough to do this thing. I would rather rent a location that can keep messy. And when I'm there, that's the only thing I'm working on.
 
-[00:17:26] Kayte: Originally, I thought that's what I wanted, and I'll tell you this. So, before I had space in my house, but I wanted somewhere external. So, I started renting a studio space, and I found that I would find any excuse possible not to go there. I would be on my living room floor with everything spread out, and it's just like, wait, I'm paying for a space. Why am I doing this? And so, the idea of having a place in my house or like just outside my house on my property. Where I'm there, I can't have an excuse not to go in and and get to work, and I can stay in my pajamas. I can do whatever I want. I really like having it as close as possible. Now,
+[00:17:26] Kayte: Originally, I thought that's what I wanted, and I'll tell you this. So, before I had space in my house, but I wanted somewhere external. So, I started renting a studio space, and I found that I would find any excuse possible not to go there. I would be on my living room floor with everything spread out, and it's just like, wait, I'm paying for a space. Why am I doing this? And so, the idea of having a place in my house or like just outside my house on my property. Where I'm there, I can't have an excuse not to go in and get to work, and I can stay in my pajamas. I can do whatever I want. I really like having it as close as possible. Now,
 
 [00:18:06] Adam: I have had shops in my house and had shops out of my house, and I. It's interesting. I have often felt my desire to constantly be working has always been a problem in all of the relationships I've had, and consequently, I have spent a lot of time feeling like shop time. I have wasted a lot of time feeling like shop time is time stolen.
 
@@ -266,7 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:18:32] Unknown speaker: Yeah.
 
-[00:18:32] Adam: Especially when I was working on MythBusters and I had this space, I got here for like three hours a month. It was all just like catch as catch can, but there was a certain point at which you know the the the labor of raising teenage boys in this city with my partner and my ex wife and this whole panoply of folks involved that require my attention all the time. I have found that it is possible to be more distant from my family in a shop that's in my house, and more connected to my family in a shop that's 20 miles away.
+[00:18:32] Adam: Especially when I was working on MythBusters and I had this space, I got here for like three hours a month. It was all just like catch as catch can, but there was a certain point at which you know the labor of raising teenage boys in this city with my partner and my ex wife and this whole panoply of folks involved that require my attention all the time. I have found that it is possible to be more distant from my family in a shop that's in my house, and more connected to my family in a shop that's 20 miles away.
 
 [00:19:03] Unknown speaker: Yep.
 
@@ -276,25 +276,25 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:19:18] Adam: yeah.
 
-[00:19:18] Norm: And it's not just the when I visited, it wasn't just striking the the physical size; it was also the fact that I had to serve the dual purpose. You couldn't be messy in your space, Melissa, right? Because you needed also to be presentable as a place of business.
+[00:19:18] Norm: And it's not just the when I visited, it wasn't just striking the physical size; it was also the fact that I had to serve the dual purpose. You couldn't be messy in your space, Melissa, right? Because you needed also to be presentable as a place of business.
 
-[00:19:37] Melissa: Yeah, yeah. I just feel like hearing both of your stories about this. I feel like I have a lot of things to reflect on right now because I definitely haven't really separated it yet at all, to be honest. And I feel like a lot of on my social media, I look like I I am. I feel like I have it together for the most part, but. Yeah, my my private life and my work life is totally intertwined. Yeah. And right now, if I'm not working in the office, I'm working on it the moment I get out of bed. And I thought that made me happy. And I'm still not sure if I found that answer, whether or not it's it's like what what you're describing. Like maybe I I'll be going through what you said. You know, you thought that's what you wanted.
+[00:19:37] Melissa: Yeah, yeah. I just feel like hearing both of your stories about this. I feel like I have a lot of things to reflect on right now because I definitely haven't really separated it yet at all, to be honest. And I feel like a lot of on my social media, I look like I I am. I feel like I have it together for the most part, but. Yeah, my private life and my work life is totally intertwined. Yeah. And right now, if I'm not working in the office, I'm working on it the moment I get out of bed. And I thought that made me happy. And I'm still not sure if I found that answer, whether or not it's like what you're describing. Like maybe I I'll be going through what you said. You thought that's what you wanted.
 
 [00:20:16] Unknown speaker: Yeah.
 
-[00:20:17] Melissa: Or maybe not. I I need to find that for myself.
+[00:20:17] Melissa: Or maybe not. I need to find that for myself.
 
 [00:21:29] Adam: So I have a you didn't ask for advice, but I have some.
 
 [00:21:31] Melissa: Okay, I'm ready.
 
-[00:21:33] Adam: How I like to presage a lot of what might otherwise be mansplaining is that I learned a while back to spend time thinking how I want things to feel. So it's easy to be it's easy to get lost in the question of where do I want my shop? How big do I want it to be? But it's Those are really hard questions to answer in the abstract, but I have learned to spend lots of time thinking. How do I want it to feel when I'm at work? How do I want it to feel when I'm collaborating? How do I want the space to to to feel when I'm in it and when I'm not in it? Like those are more emotional choices, but they're really important ones to take care of because, frankly, asking that question made me quit jobs that were bad for me, which ended up making me available for jobs that were good for me. And I've quit some jobs under you know I I quit a film in the middle of it with six month old twins, and my ex was amazing enough to say I trust you, and like two weeks later I got hired on another film that I had always wanted to work on. And I mean those those were that was a really hard choice to make to give up the job, but I knew the only way I could possibly see the other one through was by making that was by making the choice based on how I want my life to feel.
+[00:21:33] Adam: How I like to presage a lot of what might otherwise be mansplaining is that I learned a while back to spend time thinking how I want things to feel. So it's easy to be it's easy to get lost in the question of where do I want my shop? How big do I want it to be? But it's Those are really hard questions to answer in the abstract, but I have learned to spend lots of time thinking. How do I want it to feel when I'm at work? How do I want it to feel when I'm collaborating? How do I want the space to feel when I'm in it and when I'm not in it? Like those are more emotional choices, but they're really important ones to take care of because, frankly, asking that question made me quit jobs that were bad for me, which ended up making me available for jobs that were good for me. And I've quit some jobs under you know I I quit a film in the middle of it with six month old twins, and my ex was amazing enough to say I trust you, and like two weeks later I got hired on another film that I had always wanted to work on. And I mean those those were that was a really hard choice to make to give up the job, but I knew the only way I could possibly see the other one through was by making that was by making the choice based on how I want my life to feel.
 
 [00:22:51] Norm: That sounds like a really good guiding principle for. Making things in general, like not what the thing does or what it looks like, but how it makes you feel, or how you want it to make other people feel, even when you're like filming a video, writing a story.
 
-[00:23:05] Adam: Totally true. I also I would be remiss if I didn't say my parents gave me a tremendous amount of latitude in these kinds of choices. They paid my rent when I wanted to quit a job with people I didn't like. That like so a lot of I came to that through a place of privilege, through a place of real privilege and gift from my parents. As like, yes, we'll create the space for you to figure that out. And they did it before I had learned how to work hard. So I don't know what kind of picture I presented to them, but it wasn't of someone with like total focus, because that was not how you would have described me at 19. But yeah, no, thinking about how something feels, how you want something to to pay you back emotionally, and what you want to put into it emotionally is really it's a great exercise.
+[00:23:05] Adam: Totally true. I also I would be remiss if I didn't say my parents gave me a tremendous amount of latitude in these kinds of choices. They paid my rent when I wanted to quit a job with people I didn't like. That like so a lot of I came to that through a place of privilege, through a place of real privilege and gift from my parents. As like, yes, we'll create the space for you to figure that out. And they did it before I had learned how to work hard. So I don't know what kind of picture I presented to them, but it wasn't of someone with like total focus, because that was not how you would have described me at 19. But yeah, no, thinking about how something feels, how you want something to pay you back emotionally, and what you want to put into it emotionally is really it's a great exercise.
 
-[00:23:53] Melissa: I mean, I totally agree with that too. But if I might also add. That question still creates so much conflict in me because I have the privilege to think about that. Like at least that's what the way I feel. Like that the fact that I can think about what I'm making, what makes me happy, I feel like already gives me an opportunity that a lot of people don't have. Granted, you know, it's because we, you know, worked very unfulfilling jobs. My sisters and I, we started another company together that got, you know, that went pretty well and got stable enough for me to move on to figure out what I want. And I, I, I tell myself, like, hey, this is wonderful thing that I, I, I'm privileged to be able to do. But, but at the same time, like, sometimes I feel kind of like, well, I need to make sure that I. Again, I'm not saying this is an okay way of thinking.
+[00:23:53] Melissa: I mean, I totally agree with that too. But if I might also add. That question still creates so much conflict in me because I have the privilege to think about that. Like at least that's what the way I feel. Like that the fact that I can think about what I'm making, what makes me happy, I feel like already gives me an opportunity that a lot of people don't have. Granted it's because we worked very unfulfilling jobs. My sisters and I, we started another company together that got, you know, that went pretty well and got stable enough for me to move on to figure out what I want. And I, I, I tell myself hey, this is wonderful thing that I, I, I'm privileged to be able to do. But at the same time sometimes I feel kind of like, well, I need to make sure that I. Again, I'm not saying this is an okay way of thinking.
 
 [00:23:53] Unknown speaker: Yeah. Okay.
 
@@ -302,7 +302,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:25:01] Adam: Well, I think it's easy sometimes to feel like when you're doing stuff that gives you deep amounts of pleasure, that you're somehow being indulgent. That is absolutely a very real thing. I remind myself that one of the other things I do that gives me great pleasure is sharing my work with others, hearing their stories, trumpeting their stories. I mean, this this is my job. My whole life is devoted to not just making the weird props that I want to have because I don't have one yet. It is also about spreading that joy and spreading that love, and in sharing the stuff that you're doing and sharing also. Look, there's a lot of people in your position who would hold their their techniques secret, and that is a way of walling off the world that I think would make you feel worse. Because you're sharing that stuff, you are opening up lines of possibility for others, and that is a real, a distinct value out in the world.
 
-[00:25:57] Melissa: I mean, I think in the end, what I what I'm learning as I'm you know getting into just creating things I I love and enjoy is that I hope it makes other people feel happy. And even just when I was in I was in L. A. Again before I came over San Francisco, um, someone asked, " Oh, are you happy with this?" I'm really happy seeing that you're so thrilled just to wear these things, and that you feel like a maybe I hate to say it like this like a better version of yourself, or just something that makes you feel uplifted and in your own unique way.
+[00:25:57] Melissa: I mean, I think in the end, what I what I'm learning as I'm you know getting into just creating things I I love and enjoy is that I hope it makes other people feel happy. And even just when I was in L. A. Again before I came over San Francisco someone asked, " Oh, are you happy with this?" I'm really happy seeing that you're so thrilled just to wear these things, and that you feel like a maybe I hate to say it like this like a better version of yourself, or just something that makes you feel uplifted and in your own unique way.
 
 [00:26:29] Adam: And transformed in a way that you identify with.
 
@@ -310,7 +310,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:26:30] Adam: Yeah,
 
-[00:26:30] Melissa: I don't want people to see it within my vision. And some people like, how do you want to see this? How do you want to see this in the shoot? I'm like, I want to see what you see, because I'm I don't want to be trapped within my own vision. Because there is a you know otherwise I feel like that I'll unintentionally create my own walls within my own mind of like this is the only way I can see my work. And I don't think that's I don't want to stop myself that way, so when I see, you know, I post so many images from so many different shoots, people various styles and professions, and seeing what they come up with, blows my mind.
+[00:26:30] Melissa: I don't want people to see it within my vision. And some people like, how do you want to see this? How do you want to see this in the shoot? I'm like, I want to see what you see, because I'm I don't want to be trapped within my own vision. Because there is a you know otherwise I feel like that I'll unintentionally create my own walls within my own mind of like this is the only way I can see my work. And I don't think that's I don't want to stop myself that way, so when I see I post so many images from so many different shoots, people various styles and professions, and seeing what they come up with, blows my mind.
 
 [00:26:30] Adam: Yeah.
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:26:30] Adam: Yeah.
 
-[00:26:30] Melissa: How dare you? And I think that's like, I guess that's what I learned from you. It's like you, you, you find, you know, when I grew up watching Mythbusters stuff, you find different tools, find new uses for them, and you just get creative.
+[00:26:30] Melissa: How dare you? And I think that's like, I guess that's what I learned from you. It's like you find, you know, when I grew up watching Mythbusters stuff, you find different tools, find new uses for them, and you just get creative.
 
 [00:26:30] Adam: Yeah.
 
@@ -334,11 +334,11 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:27:34] Adam: We share the uncertainty, and it's more than just sharing it within the build, but also sharing the way in which it makes you feel, can make you feel shitty about yourself, make you feel like you have no idea what you're doing. Those are really important stories to share, and so much like YouTube is amazing. Want to figure out how to replace the toner in this printer or fix this car? Someone has taken the time to show you, but so little shows you how grueling a simple project can get when you're just like you've stripped out your fourth IKEA screw and you have no idea how to get this thing together. And those are really important ways in which I think we help encourage others is being honest about that.
 
-[00:28:30] Kayte: I I find that aside from sharing with people the knowledge and the skills that I've gathered, I also like to share all my failures and the struggle that it took me to get there. Like there are so many ways. Obviously, this is a big topic in which something like social media and YouTube only presents the. Best side of things, and I mean, and I've participated in that myself. I think at one point I posted a picture of me like sipping pina coladas in Mexico when really I was sick in on the toilet, and I'm like, no, look, I'm having a great time right now. So it's like everybody's presenting this good side, but there's also something like, like I I think I've talked about this with the blimp. It was look at this amazing finished product, but you also didn't see the like week that I spent like crying in a ball on the floor because I couldn't get the electronics to work, and I just thought like this is the end. But it's funny. I I just really like to share that with other people because I think someone at home might be thinking, oh, I'm not as good as that. I'm struggling much more, and so there's something wrong. And I'm like, no, we're all doing it right. Like we're all struggling this much. It's just you're only seeing my end result.
+[00:28:30] Kayte: I find that aside from sharing with people the knowledge and the skills that I've gathered, I also like to share all my failures and the struggle that it took me to get there. Like there are so many ways. Obviously, this is a big topic in which something like social media and YouTube only presents the. Best side of things, and I mean, and I've participated in that myself. I think at one point I posted a picture of me like sipping pina coladas in Mexico when really I was sick in on the toilet, and I'm like, no, look, I'm having a great time right now. So it's like everybody's presenting this good side, but there's also something like I I think I've talked about this with the blimp. It was look at this amazing finished product, but you also didn't see the like week that I spent like crying in a ball on the floor because I couldn't get the electronics to work, and I just thought like this is the end. But it's funny. I just really like to share that with other people because I think someone at home might be thinking, oh, I'm not as good as that. I'm struggling much more, and so there's something wrong. And I'm like, no, we're all doing it right. Like we're all struggling this much. It's just you're only seeing my end result.
 
 [00:29:40] Melissa: It's okay. We're all crying in a ball.
 
-[00:29:43] Adam: Pretty much, pretty much. Um, Ana Marie Cox on her Twitter feed. On particularly difficult days, like the day the Mueller report came out, she loves asking people, " Okay, everyone, send me pictures of your pets." And that just be this mega thread of pet pictures. Like, we have to do this together.
+[00:29:43] Adam: Pretty much. Ana Marie Cox on her Twitter feed. On particularly difficult days, like the day the Mueller report came out, she loves asking people, " Okay, everyone, send me pictures of your pets." And that just be this mega thread of pet pictures. Like, we have to do this together.
 
 [00:30:03] Norm: I'm going to change the topic,
 
@@ -364,9 +364,9 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:30:30] Norm: Oh, I'm going to try to figure it out.
 
-[00:30:31] Kayte: So did they have to spend like their free time? Like, how did how did this group come together?
+[00:30:31] Kayte: So did they have to spend like their free time? Like, how did this group come together?
 
-[00:30:35] Adam: I'm not sure, but what's been making the rounds is a is a quartet of pictures.
+[00:30:35] Adam: I'm not sure, but what's been making the rounds is a quartet of pictures.
 
 [00:30:35] Norm: That's right.
 
@@ -404,7 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:31:54] Adam: Yeah.
 
-[00:31:55] Norm: So they did it for two nights on the 19th and the 22nd. Ran for almost two hours. I think the second night they may have they may have filmed it.
+[00:31:55] Norm: So they did it for two nights on the 19th and the 22nd. Ran for almost two hours. I think the second night they may have filmed it.
 
 [00:32:01] Kayte: I hope did they? I maybe they were able to raise some money through this.
 
@@ -454,7 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:33:06] Kayte: That's pretty impressive.
 
-[00:33:07] Adam: I that high school doing the the stage version of Alien is so thrilling. I mean, one of the we talk about how there's no shop classes in a lot of high schools anymore. There's no home economics where I learned to sew, and theater programs also are one of the things that gets cut as soon as budget cuts start coming down the pike. And it is so; those things are not ancillary to a good education. They're completely primary to it. I got a lot out of auto shop. I took an alternative energy class, which was basically a way to add another auto shop class for the gearheads in my high school. And boy, they were surprised to find a nerd like me in their midst. But I had a great time in that class.
+[00:33:07] Adam: I that high school doing the stage version of Alien is so thrilling. I mean, one of the we talk about how there's no shop classes in a lot of high schools anymore. There's no home economics where I learned to sew, and theater programs also are one of the things that gets cut as soon as budget cuts start coming down the pike. And it is so; those things are not ancillary to a good education. They're completely primary to it. I got a lot out of auto shop. I took an alternative energy class, which was basically a way to add another auto shop class for the gearheads in my high school. And boy, they were surprised to find a nerd like me in their midst. But I had a great time in that class.
 
 [00:33:48] Kayte: Yeah. I spent many a happy hour volunteering my time to paint sets for the theater department because it felt like the only way I was able to get like a fun, creative outlet.
 
@@ -500,9 +500,9 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:36:07] Adam: Yeah. So I mean, it's a way of saying that like reaching out to other makers is another place I go to find sustenance and to find that rejuvenation.
 
-[00:36:15] Kayte: Definitely, I've had that was one thing that I really liked about any time something like came up in my life. I had Phil Tippett right there going, you know, if you ever need like any kind of therapy, basically just come in and work with me. I'll put you to work. You won't. You can't think about it when you're making stuff, you know. And like, it's funny because I think a lot of my friends were like, " Well, that's a weird thing to say." I was like, " No, that's perfect." And I've never felt better.
+[00:36:15] Kayte: Definitely, I've had that was one thing that I really liked about any time something like came up in my life. I had Phil Tippett right there going, you know, if you ever need like any kind of therapy, basically just come in and work with me. I'll put you to work. You won't. You can't think about it when you're making stuff. And like, it's funny because I think a lot of my friends were like, " Well, that's a weird thing to say." I was like, " No, that's perfect." And I've never felt better.
 
-[00:36:40] Adam: No, Phil. Phil. I mean, he might present as a cranky old man, but I think of him like like Jonesy from Alien. Like he's a big tabby. He's a big cuddly tabby cat. Sorry, Phil. I gave away your secret. Not that I've snuggled with Phil, but
+[00:36:40] Adam: No, Phil. Phil. I mean, he might present as a cranky old man, but I think of him like Jonesy from Alien. Like he's a big tabby. He's a big cuddly tabby cat. Sorry, Phil. I gave away your secret. Not that I've snuggled with Phil, but
 
 [00:36:57] Norm: and he walks among monsters.
 
@@ -510,7 +510,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:37:04] Norm: Great, yeah. Melissa, where can people see the fruits of some of the things you're doing right now on this trip?
 
-[00:37:10] Melissa: Oh, oh, right now, most of it's on Instagram, Facebook, Twitter. But you know, always my my main stuff. Once you find you finally see like the finished stuff, it's all in my website, Lumecluster.com. I'll have tons of images and behind the scenes. That's that's the fun stuff. Seeing when we screw up, or or or just be complete idiots, because that's what we are really here for, right? To see us be time like totally idiots. Yeah.
+[00:37:10] Melissa: Oh, oh, right now, most of it's on Instagram, Facebook, Twitter. But always my main stuff. Once you find you finally see like the finished stuff, it's all in my website, Lumecluster.com. I'll have tons of images and behind the scenes. That's the fun stuff. Seeing when we screw up, or just be complete idiots, because that's what we are really here for, right? To see us be time like totally idiots. Yeah.
 
 [00:37:35] Norm: And Kayte, your stuff is on Instagram as well.
 
@@ -518,7 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:37:43] Norm: And there are a bunch of projects I know you're working on that we cannot discuss.
 
-[00:37:45] Kayte: Yes. You know, all in good time. Good, you know, good things come to those who wait.
+[00:37:45] Kayte: Yes. All in good time. Good good things come to those who wait.
 
 [00:37:51] Adam: Oh yeah. Oh, that one's going to be fun.
 
@@ -530,7 +530,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:38:16] Kayte: I gotta get one of those. Yeah,
 
-[00:38:17] Adam: we'll make sure we get a whole bunch here for various tested extended family. Yeah, and in once as soon as I am done with production on this show, which again we still have not settled on a title or an air date yet, but it's soon. Then I go out on the book tour, heading around the United States, and I. This is both the best and most difficult show I've ever made. I am really excited about it, and I also cannot wait to go out and just talk and take questions and talk about this this book that I wrote. I am really excited.
+[00:38:17] Adam: we'll make sure we get a whole bunch here for various tested extended family. Yeah, and in once as soon as I am done with production on this show, which again we still have not settled on a title or an air date yet, but it's soon. Then I go out on the book tour, heading around the United States, and I. This is both the best and most difficult show I've ever made. I am really excited about it, and I also cannot wait to go out and just talk and take questions and talk about this book that I wrote. I am really excited.
 
 [00:38:50] Norm: Yeah, I think that's a good place for us to end.
 

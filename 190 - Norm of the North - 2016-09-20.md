@@ -14,13 +14,13 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:00:52] Norm: I abstain.
 
-[00:00:54] Will: I think I think it's good for you.
+[00:00:54] Will: I think it's good for you.
 
 [00:00:56] Adam: It is really. It's like something right out of Alien. It's terrifying. So Will had a. Camera stuck down his throat, and they filmed him humming and breathing.
 
 [00:01:03] Norm: They use the same camera for the other way.
 
-[00:01:05] Will: No, no, no. That one bends more. This one, this one is literally. So this one, this one's a rod.
+[00:01:05] Will: No, no, no. That one bends more. This one is literally. So this one, this one's a rod.
 
 [00:01:11] Norm: When you get a certain age, they shove cameras down both ends.
 
@@ -28,7 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:01:15] Will: usually it's just a finger, or maybe two.
 
-[00:01:17] Adam: This is this is what it was like to hang out with Norm when he was 10.
+[00:01:17] Adam: This is what it was like to hang out with Norm when he was 10.
 
 [00:01:20] Will: Welcome,
 
@@ -52,11 +52,11 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:01:37] Norm: um,
 
-[00:01:38] Adam: um, so I, uh, yes, I just got back. Look, we're this is somewhat time shifted, as many of our podcasts tend to be.
+[00:01:38] Adam: So I, uh, yes, I just got back. Look, we're this is somewhat time shifted, as many of our podcasts tend to be.
 
 [00:01:45] Norm: We'll call this a part two.
 
-[00:01:46] Adam: This is a part two. Yeah. Um, I just got back from the Emmys, or as we affectionately call it, the Schmemmys, which is officially known as the Creative Arts Emmys, which this year. Has had its 88 categories split up between two days on Saturday and Sunday at the Microsoft, formerly the Nokia Theater in Los Angeles.
+[00:01:46] Adam: This is a part two. Yeah. I just got back from the Emmys, or as we affectionately call it, the Schmemmys, which is officially known as the Creative Arts Emmys, which this year. Has had its 88 categories split up between two days on Saturday and Sunday at the Microsoft, formerly the Nokia Theater in Los Angeles.
 
 [00:02:08] Will: Nokia,
 
@@ -64,7 +64,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:02:11] Adam: yeah,
 
-[00:02:11] Norm: the the one where the Oscars are.
+[00:02:11] Norm: the one where the Oscars are.
 
 [00:02:12] Will: It's the one where we had a show.
 
@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:02:21] Adam: But it was the schmemies were really fun. Once again, we were almost the last category, and once again, for the eighth time in a row, we lost.
 
-[00:02:31] Will: Is that is that a record? Like,
+[00:02:31] Will: Is that a record? Like,
 
 [00:02:33] Adam: oh god, no, no, no, no, no, no! Antiques Roadshow. So my good friend Sam Farrell, who's one of the EPs on Antiques Roadshow, he and I have a yearly commiseration drink at the Governor's Ball, and Sam Antiques Roadshow itself has been nominated 14 times, and Sam has personally lost 10 times.
 
@@ -98,15 +98,15 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:03:22] Norm: I am sorry, Alan, I was rooting for Celebrity Lip Sync Battle.
 
-[00:03:26] Adam: All those, all of those, all of those were. So, this is I've been telling people for weeks that that's who we were going to lose to. I was like, we're going to lose to Celebrity Lip Sync Battle, and everyone says the same thing. Oh, but I love that show; it's pretty good. I wouldn't have minded losing to Celebrity Lip Sync Battle, but whatever network it is that shows Shark Tank, they made a big campaign, and Shark Tank won.
+[00:03:26] Adam: All those, all of those were. So, this is I've been telling people for weeks that that's who we were going to lose to. I was like, we're going to lose to Celebrity Lip Sync Battle, and everyone says the same thing. Oh, but I love that show; it's pretty good. I wouldn't have minded losing to Celebrity Lip Sync Battle, but whatever network it is that shows Shark Tank, they made a big campaign, and Shark Tank won.
 
 [00:03:47] Will: So, as somebody who has gone and done, let's say something like 60 pitches in the last year, mostly unsuccessfully, Shark Tank is is farcical, like it is as far from reality
 
 [00:03:59] Adam: in terms of how you are pitching something
 
-[00:04:00] Will: as as anything. I've ever seen.
+[00:04:00] Will: as anything. I've ever seen.
 
-[00:04:04] Adam: Look, I've met the hosts of Shark Tank. They're nice people. They shoot a whole season in 17 days. More power to them. But you know, losing to them four times in a row, especially for our final season of MythBusters, we were sad. My crew was sad. I would have. That's mostly what I wanted to see. Like most of the producers, right? So they nominate all the producers for the episode who were credited, and the ones who I were in LA with me, most of them started out as excuse me, most of them started out as runners and interns on our show. So it was a real farm team. So I got to watch these guys grow from newbies into one of the best production teams in television, and that's what I wanted to see. I wanted to see those guys get rewarded. You know, wouldn't have minded a gold statue. So
+[00:04:04] Adam: Look, I've met the hosts of Shark Tank. They're nice people. They shoot a whole season in 17 days. More power to them. But losing to them four times in a row, especially for our final season of MythBusters, we were sad. My crew was sad. I would have. That's mostly what I wanted to see. Like most of the producers, right? So they nominate all the producers for the episode who were credited, and the ones who I were in LA with me, most of them started out as excuse me, most of them started out as runners and interns on our show. So it was a real farm team. So I got to watch these guys grow from newbies into one of the best production teams in television, and that's what I wanted to see. I wanted to see those guys get rewarded. Wouldn't have minded a gold statue. So
 
 [00:04:55] Will: anyway,
 
@@ -118,11 +118,11 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:05:02] Will: I mean, it's the last dance, right?
 
-[00:05:04] Adam: Yeah, completely. You know, until the next show, until the you know, hopefully. But we saw some. There were some very funny, very funny bits. There was one weird, weird, the weirdest loss of the evening. The most bizarre was carpool karaoke beating Beyonce's Lemonade.
+[00:05:04] Adam: Yeah, completely. Until the next show, until the hopefully. But we saw some. There were some very funny bits. There was one weird, weird, the weirdest loss of the evening. The most bizarre was carpool karaoke beating Beyonce's Lemonade.
 
 [00:05:26] Norm: A special variety show, variety special. Yeah,
 
-[00:05:30] Will: this is this is literally like the Simpsons joke,
+[00:05:30] Will: this is literally like the Simpsons joke,
 
 [00:05:33] Adam: right?
 
@@ -142,7 +142,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:05:50] Will: Why are they in the same category?
 
-[00:05:53] Adam: Why this is this is the this is television category.
+[00:05:53] Adam: Why this is the this is television category.
 
 [00:05:54] Will: okay okay awards
 
@@ -154,7 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:06:04] Will: yeah.
 
-[00:06:05] Adam: We've got a thing where there's like there's like 19 different makeup. And this is a I've bellyached about this every year. There's you know umpteen makeup categories, which there should be because there's lots of different kinds of makeup. And two reality program categories.
+[00:06:05] Adam: We've got a thing where there's like 19 different makeup. And this is a I've bellyached about this every year. There's you know umpteen makeup categories, which there should be because there's lots of different kinds of makeup. And two reality program categories.
 
 [00:06:18] Norm: Yeah, that's only a recent
 
@@ -168,7 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:06:26] Norm: unbelievable.
 
-[00:06:28] Adam: So you know, anyway, that's enough of my bellyaching. I don't really care because I got to walk the red carpet again. I got to see friends like Aisha Tyler and Janet Varney and Kristen Schaal on the carpet. Everyone looked amazing.
+[00:06:28] Adam: So anyway, that's enough of my bellyaching. I don't really care because I got to walk the red carpet again. I got to see friends like Aisha Tyler and Janet Varney and Kristen Schaal on the carpet. Everyone looked amazing.
 
 [00:06:40] Will: That’s awesome.
 
@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:06:43] Will: What were you wearing, Adam?
 
-[00:06:44] Adam: I was I was wearing a beautiful suit by Brooklyn Tailors, which is a sort of a semi tux. It was in a a wonderful, very slightly blue with with tuxedo lapels, but slightly more casual than a tux. My Mrs. Don't Try This picked it out for me last year, and it's my new favorite suit.
+[00:06:44] Adam: I was wearing a beautiful suit by Brooklyn Tailors, which is a sort of a semi tux. It was in a wonderful, very slightly blue with tuxedo lapels, but slightly more casual than a tux. My Mrs. Don't Try This picked it out for me last year, and it's my new favorite suit.
 
 [00:07:07] Will: I saw a picture from her Instagram or Facebook or something.
 
@@ -222,7 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:07:46] Adam: While I was on that road trip, Norm and Joey went to the Arctic.
 
-[00:07:51] Norm: Yeah, the high Arctic. This has been a trip that we had been we known about for about six months, and we only announced it about a couple weeks before the actual trip itself. There's a company called Quark Expeditions, and they're Effectively, like a like a high end cruise company, but instead of these 500 person, 1,000 person massive cruise ships, they take working ships and convert them with a little nicer amenities. And so, in this case, it was a retired Russian icebreaker.
+[00:07:51] Norm: Yeah, the high Arctic. This has been a trip that we had been we known about for about six months, and we only announced it about a couple weeks before the actual trip itself. There's a company called Quark Expeditions, and they're Effectively, like a high end cruise company, but instead of these 500 person, 1,000 person massive cruise ships, they take working ships and convert them with a little nicer amenities. And so, in this case, it was a retired Russian icebreaker.
 
 [00:08:21] Adam: Wow.
 
@@ -256,17 +256,17 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:09:09] Will: if an astronaut calls, right, pick up the phone.
 
-[00:09:12] Norm: Yeah. So Joey and I are not, you know, curing cancer or you know, changing the world that way. But what he wanted to do for this particular trip, they called it Generator Arctic, is get videographers, photographers, and creative types on the ship to document this trip for in their way, in our own way.
+[00:09:12] Norm: Yeah. So Joey and I are not curing cancer or changing the world that way. But what he wanted to do for this particular trip, they called it Generator Arctic, is get videographers, photographers, and creative types on the ship to document this trip for in their way, in our own way.
 
 [00:09:30] Will: People who are good at telling stories.
 
-[00:09:31] Adam: Oh, nice. What a, what a cool…
+[00:09:31] Adam: Oh, nice. What a cool…
 
-[00:09:31] Norm: Yeah, it was a really good concept because what we found out is that most of the people on the ship, that there are scientists and there are expedition leaders who are there doing their research. It's a very expensive trip, so most of the people there are retirees, kind of like a bucket list type trip. You know, go to Antarctica, go to Georgia, South Georgia, go to the Arctic, and they they have a perspective, and many of them are excellent photographers and have seen the world, but they don't have the same audience, and they, you know, it's it's it's a very exclusive trip.
+[00:09:31] Norm: Yeah, it was a really good concept because what we found out is that most of the people on the ship, that there are scientists and there are expedition leaders who are there doing their research. It's a very expensive trip, so most of the people there are retirees, kind of like a bucket list type trip. Go to Antarctica, go to Georgia, South Georgia, go to the Arctic, and they have a perspective, and many of them are excellent photographers and have seen the world, but they don't have the same audience, and they it's a very exclusive trip.
 
 [00:10:03] Will: They don’t have the science-ish background necessarily,
 
-[00:10:05] Norm: or just you know, it's. Going up to the Arctic is a rare thing, right? To experience that, and so because we have our YouTube channel and we have an audience, you know, we want to share what it means, what this beautiful place means to us with the rest of the world. So we filmed a lot, and it was just a great time.
+[00:10:05] Norm: or just it's. Going up to the Arctic is a rare thing, right? To experience that, and so because we have our YouTube channel and we have an audience we want to share what it means, what this beautiful place means to us with the rest of the world. So we filmed a lot, and it was just a great time.
 
 [00:10:22] Adam: So that's the informational. Was it? Did you? Was it altering? Was it mind blowing?
 
@@ -282,7 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:10:52] Will: Was it curious about the ship.
 
-[00:10:54] Norm: Very curious. It was. It was walking around on a large ice sheet hunting. We saw it hunt for seals. Wow! You know, there's a whole non-disturbance policy, so everyone would be very quiet.
+[00:10:54] Norm: Very curious. It was. It was walking around on a large ice sheet hunting. We saw it hunt for seals. Wow! There's a whole non-disturbance policy, so everyone would be very quiet.
 
 [00:11:04] Adam: don't throw a drone in the air and buzz them.
 
@@ -290,13 +290,13 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:11:15] Adam: You wanted to watch the cruelty of nature play itself out for your enjoyment.
 
-[00:11:18] Will: Like I, I used to be kind of okay. I used to think seals were really cute and and and had problems with you know orcas or whatever was was would polar bears whatever would eat seals. And then I watched March of the Penguins and realized that the seals just camp the penguin hole in the ice, and the penguins are way cuter than the seals. So you know, seals get what they deserve.
+[00:11:18] Will: Like I, I used to be kind of okay. I used to think seals were really cute and had problems with you know orcas or whatever was was would polar bears whatever would eat seals. And then I watched March of the Penguins and realized that the seals just camp the penguin hole in the ice, and the penguins are way cuter than the seals. So seals get what they deserve.
 
 [00:11:37] Norm: And then the polar bears just camp the seal holes in the ice,
 
 [00:11:39] Will: right? Well, and that's circle of life.
 
-[00:11:40] Adam: And if you read about the the Shackleton expedition, you learn about the leopard seal, which is about one of the scariest things you could imagine. It's a seal with bunch of razor sharp teeth, and they're super aggressive.
+[00:11:40] Adam: And if you read about the Shackleton expedition, you learn about the leopard seal, which is about one of the scariest things you could imagine. It's a seal with bunch of razor sharp teeth, and they're super aggressive.
 
 [00:11:52] Will: [unclear: Great! Oh yeah, horrific / Great, terrific].
 
@@ -320,7 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:12:08] Norm: It's a tusk.
 
-[00:12:10] Will: Well, I mean, but but
+[00:12:10] Will: Well, I mean, but
 
 [00:12:11] Norm: the unicorn of the sea has a little bit.
 
@@ -372,9 +372,9 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:12:56] Will: Almost got him. Almost.
 
-[00:12:59] Norm: But to answer your question, like it's it was life changing. There are moments when you're sitting there near the end of the trip, at the end of 18 days, when You can immerse in that environment, and we're we went from Greenland to the Canadian High Arctic, up through Hellgate and up to the Tanquary Fiord. You're sitting there, and one of the last places we stopped at was was a grave site for this expedition, Franklin's expedition, and there were these grave markers with a plaque. You got to read the plaque, and completely empty. And you're looking around all around you, and it's just sunset, completely empty except for the the people with you on these boats, and it's just very very peaceful, top of the world, the one of the most peaceful times. And it was near the end of the trip; everyone just sitting down, just quiet, and having a moment of silence. In the High Arctic is is life changing.
+[00:12:59] Norm: But to answer your question, like it's it was life changing. There are moments when you're sitting there near the end of the trip, at the end of 18 days, when You can immerse in that environment, and we're we went from Greenland to the Canadian High Arctic, up through Hellgate and up to the Tanquary Fiord. You're sitting there, and one of the last places we stopped at was was a grave site for this expedition, Franklin's expedition, and there were these grave markers with a plaque. You got to read the plaque, and completely empty. And you're looking around all around you, and it's just sunset, completely empty except for the people with you on these boats, and it's just very very peaceful, top of the world, the one of the most peaceful times. And it was near the end of the trip; everyone just sitting down, just quiet, and having a moment of silence. In the High Arctic is is life changing.
 
-[00:13:54] Adam: You know, I I just read this long, wonderful blog post by a guy who was hired to fly. He was hired to fly a private plane from Sweden. To San Diego,
+[00:13:54] Adam: I just read this long, wonderful blog post by a guy who was hired to fly. He was hired to fly a private plane from Sweden. To San Diego,
 
 [00:14:05] Will: that's a long way.
 
@@ -386,19 +386,19 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:14:35] Will: Wow,
 
-[00:14:35] Adam: it's that big, and it's that like, and they they would have challenges with each other as to who can spot a human settlement, and they would go hours and hours and hours and hours in a plane, not seeing any sign of human habitation.
+[00:14:35] Adam: it's that big, and it's that like, and they would have challenges with each other as to who can spot a human settlement, and they would go hours and hours in a plane, not seeing any sign of human habitation.
 
 [00:14:46] Will: I have to imagine, like I've been to Alaska before, but the more settled, like Anchorage and parts south, right?
 
 [00:14:54] Adam: Yeah.
 
-[00:14:54] Will: Even even there, even on the drive from Alaska from Anchorage to Seward, which is one of the more trafficked roads in in in Alaska, it felt. You felt alone in a way that you never that I've never felt, even in like the most desolate parts of the continental U.S.
+[00:14:54] Will: Even even there, even on the drive from Alaska from Anchorage to Seward, which is one of the more trafficked roads in Alaska, it felt. You felt alone in a way that you never that I've never felt, even in like the most desolate parts of the continental U.S.
 
-[00:15:12] Adam: Well, you know, one of the things they figured out when they first mapped the U.S. with GPS and and the full mapping was that there's no spot in the contiguous United States, not not including Alaska, where you are more than 25 miles from a road.
+[00:15:12] Adam: Well one of the things they figured out when they first mapped the U.S. with GPS and the full mapping was that there's no spot in the contiguous United States, not not including Alaska, where you are more than 25 miles from a road.
 
 [00:15:28] Norm: Hmm.
 
-[00:15:29] Will: That I mean, yeah, and and 25 miles is a is a it's a long day, but you can walk 25 miles in a day.
+[00:15:29] Will: That I mean, yeah, and 25 miles is a it's a long day, but you can walk 25 miles in a day.
 
 [00:15:35] Adam: Yeah, right. But you're talking about places where you can walk for weeks.
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:15:43] Adam: was the ship going all night long every time you were going to get to the next place?
 
-[00:15:47] Norm: Yeah, at night, and we were very lucky. It wasn't. It wasn't the the sea was very calm for most of the way.
+[00:15:47] Norm: Yeah, at night, and we were very lucky. It wasn't. It wasn't the sea was very calm for most of the way.
 
 [00:15:52] Adam: Did you take Dramamine or anything as a preemptive?
 
@@ -438,7 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:16:25] Will: And then behind you,
 
-[00:16:26] Norm: and behind you, behind you is the crack.
+[00:16:26] Norm: and behind you is the crack.
 
 [00:16:28] Adam: No way
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:16:31] Will: Oh, I assumed it was all like you were through the melty parts.
 
-[00:16:34] Norm: No, I mean part of it because it's you use a lot of fuel. It's a diesel. Diesel. Most of the trip, the money was for the fuel. It's the weight of the ship, and we learn about how icebreakers work, but it's just the weight of the ship and the shape of the the front of the ship,
+[00:16:34] Norm: No, I mean part of it because it's you use a lot of fuel. It's a diesel. Diesel. Most of the trip, the money was for the fuel. It's the weight of the ship, and we learn about how icebreakers work, but it's just the weight of the ship and the shape of the front of the ship,
 
 [00:16:51] Adam: prow.
 
@@ -458,7 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:16:53] Norm: Going above the ice and then pushing down on it and then cracking it, and sometimes the
 
-[00:16:58] Will: ship's moving like like this,
+[00:16:58] Will: ship's moving like this,
 
 [00:17:00] Norm: but it's in one fluid motion. So it's just like nonstop weight of the ship.
 
@@ -492,7 +492,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:17:21] Norm: The interesting pop culture feeling, and I think this is again a perspective that only because they brought nerds like us there, is the whole time it was Star Trek in my head.
 
-[00:17:31] Will: Oh, you're you're the voyages.
+[00:17:31] Will: Oh, you're the voyages.
 
 [00:17:33] Norm: I was just imagining, like I saw, I experienced the trip through the lens of a science fiction and Star Trek fan.
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:18:25] Adam: Oh, nice.
 
-[00:18:25] Norm: So, like, it wasn't just like eating, you know, sludge every day. There was a fancy,
+[00:18:25] Norm: So it wasn't just like eating sludge every day. There was a fancy,
 
 [00:18:31] Will: so
 
@@ -550,11 +550,11 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:18:38] Will: Okay.
 
-[00:18:36] Norm: Yeah, at least from the the Russian government and the Russian crew, Russian captain,
+[00:18:36] Norm: Yeah, at least from the Russian government and the Russian crew, Russian captain,
 
 [00:18:43] Will: Mm-hmm.
 
-[00:18:36] Norm: but the rooms were converted. We had like fancy meals, not buffets, but like we had like you know we had fish or lamb and duck, you know, and and
+[00:18:36] Norm: but the rooms were converted. We had like fancy meals, not buffets, but like we had like you know we had fish or lamb and duck and
 
 [00:18:52] Adam: Amazing.
 
@@ -584,7 +584,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:19:18] Adam: Yeah, yeah.
 
-[00:19:12] Norm: not very young people. I think the youngest person, you know, one person in their 30s. I think aside from our group, two people in their 30s. They usually do not interact a lot with the crew, like with the help, the service. So the people working the ship, we made friends with them, and we got to hang out with the Russians.
+[00:19:12] Norm: not very young people. I think the youngest person one person in their 30s. I think aside from our group, two people in their 30s. They usually do not interact a lot with the crew, like with the help, the service. So the people working the ship, we made friends with them, and we got to hang out with the Russians.
 
 [00:19:36] Adam: That's where all the cool. That's where you learned all the cool stuff.
 
@@ -594,7 +594,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:19:43] Will: that's really cool.
 
-[00:19:44] Norm: And they were so happy. They threw a disco party for us in the gym the last night because they said they would never have this type of experience again. You know, we traded them whiskey because they weren't allowed to drink. You know, for access, and it was
+[00:19:44] Norm: And they were so happy. They threw a disco party for us in the gym the last night because they said they would never have this type of experience again. We traded them whiskey because they weren't allowed to drink. For access, and it was
 
 [00:19:57] Will: nice.
 
@@ -614,7 +614,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:20:04] Norm: We filmed a bunch of stuff. Yeah, we did. We're doing these short daily videos, daily updates to watch our slow descent in the madness. It's on the site starting today, and then we shot a bunch of stuff with Chris and about the whole trip.
 
-[00:20:14] Will: Did they like when you when you signed on for this trip? Did they have a like the contingency for if you get locked in the ice, or is that just a thing that couldn't have happened at this time of year with this kind of ship?
+[00:20:14] Will: Did they like when you signed on for this trip? Did they have a like the contingency for if you get locked in the ice, or is that just a thing that couldn't have happened at this time of year with this kind of ship?
 
 [00:20:25] Norm: Yeah, no, this ship would not get trapped. I mean, you could break a propeller, but then you have three massive propeller, or yeah, for three propellers. If you even broke one blade, they have replacement blades on board, and
 
@@ -624,11 +624,11 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:20:47] Will: dry suits, yeah,
 
-[00:20:48] Norm: and and a lift, an elevator, basically that they sink down. But now that's too expensive, so you can get by with two propellers and go to port and then spend two weeks there replacing a blade.
+[00:20:48] Norm: and a lift, an elevator, basically that they sink down. But now that's too expensive, so you can get by with two propellers and go to port and then spend two weeks there replacing a blade.
 
 [00:20:59] Will: Wow!
 
-[00:20:59] Norm: But we got to see the massive, you know, four-ton blades
+[00:20:59] Norm: But we got to see the massive four-ton blades
 
 [00:21:03] Adam: sitting in storage,
 
@@ -636,11 +636,11 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:21:05] Will: or brass or something.
 
-[00:21:06] Norm: Uh, I I think steel.
+[00:21:06] Norm: I think steel.
 
 [00:21:07] Adam: I think they're bronze.
 
-[00:21:09] Norm: I'm not sure. It was it was it was rugged.
+[00:21:09] Norm: I'm not sure. It was rugged.
 
 [00:21:11] Adam: I ended up with a giant chunk of a boat propeller shaft made out of bronze from one of the MythBusters shoots. We blew it up.
 
@@ -648,17 +648,17 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:21:32] Adam: Chris always the tough hiking.
 
-[00:21:33] Norm: Of course, he was up every morning, super early, the tough hiking group, and like everyone wanted. And then at some point, like, let's just go on the tough hiking group with him. And
+[00:21:33] Norm: Of course, he was up every morning, super early, the tough hiking group, and like everyone wanted. And then at some point let's just go on the tough hiking group with him. And
 
 [00:21:41] Will: how how was it?
 
 [00:21:41] Norm: It was nice to walk up, hike in the snow, and literally walk in the footsteps of an astronaut.
 
-[00:21:50] Will: Did you? I assume you documented like the gear that you guys brought to to both document and to survive and all the that kind of stuff. Talk. I want to hear. I literally want to hear about this entire thing. It sounds like the coolest thing ever.
+[00:21:50] Will: Did you? I assume you documented like the gear that you guys brought to both document and to survive and all the that kind of stuff. Talk. I want to hear. I literally want to hear about this entire thing. It sounds like the coolest thing ever.
 
 [00:22:01] Adam: I can’t wait. That's so exciting, man.
 
-[00:22:02] Norm: It was yeah. There's parts of it that were so cold, extremely cold. Um, I was. My wife did not allow me to do this, but people did the polar plunge. Joey did the polar plunge, which is to go swimming.
+[00:22:02] Norm: It was yeah. There's parts of it that were so cold, extremely cold. I was. My wife did not allow me to do this, but people did the polar plunge. Joey did the polar plunge, which is to go swimming.
 
 [00:22:13] Adam: Oh wow! No way.
 
@@ -692,11 +692,11 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:22:35] Unknown speaker: Okay,
 
-[00:22:35] Norm: but when you you immediately,
+[00:22:35] Norm: but when you immediately,
 
 [00:22:38] Adam: the world's not ready.
 
-[00:22:38] Will: I would not, I would not put that past Fameli. If everybody's doing it, He's game.
+[00:22:38] Will: I would not put that past Fameli. If everybody's doing it, He's game.
 
 [00:22:43] Norm: it looks painful. Bodies go numb in seconds.
 
@@ -764,9 +764,9 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:24:23] Adam: Wow.
 
-[00:24:23] Will: What um, what I I have to imagine for somebody like you who is, you are traditionally the most connected person I know.
+[00:24:23] Will: What I I have to imagine for somebody like you who is, you are traditionally the most connected person I know.
 
-[00:24:31] Norm: Yeah. It took a time. It took it took a while.
+[00:24:31] Norm: Yeah. It took a time. It took a while.
 
 [00:24:33] Will: You were a little broken.
 
@@ -778,15 +778,15 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:24:46] Will: You get the email?
 
-[00:24:37] Norm: but you have the the fake what the local website. Just clicking refresh, get your daily updates. Yeah.
+[00:24:37] Norm: but you have the fake what the local website. Just clicking refresh, get your daily updates. Yeah.
 
-[00:24:52] Will: Did you um, did you did you feel like like did this did it spawn some inner creativity that you didn't didn't anticipate or didn't know you had?
+[00:24:52] Will: Did you feel like did this did it spawn some inner creativity that you didn't didn't anticipate or didn't know you had?
 
 [00:25:00] Norm: It was
 
 [00:25:00] Will: Did you do writing or take more photos?
 
-[00:25:03] Norm: Yeah, oh, definitely. Um, it was also really humbling to be with a really Amazing group of artists,
+[00:25:03] Norm: Yeah, oh, definitely. It was also really humbling to be with a really Amazing group of artists,
 
 [00:25:08] Adam: Mm-hmm.
 
@@ -794,7 +794,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:25:36] Adam: I love the dedicated musician Chris really is. That's awesome,
 
-[00:25:38] Norm: and and sing songs while the ice while the sun was still setting at you know one a.m. and the ice is rolling by. Like those are the kind of nice moments that.
+[00:25:38] Norm: and sing songs while the ice while the sun was still setting at you know one a.m. and the ice is rolling by. Like those are the kind of nice moments that.
 
 [00:25:47] Unknown speaker: That's awesome!
 
@@ -822,13 +822,13 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:26:29] Norm: weather station.
 
-[00:26:30] Adam: I I want to tell you that traveling around the country now, most of the time, what people come up and say is, " I love the Tested videos, man. It's just everywhere. It's so satisfying. I love hearing that.
+[00:26:30] Adam: I want to tell you that traveling around the country now, most of the time, what people come up and say is, " I love the Tested videos, man. It's just everywhere. It's so satisfying. I love hearing that.
 
-[00:26:40] Will: I I stopped in a gas station in Endurance, California, I think, just north of Weed.
+[00:26:40] Will: I stopped in a gas station in Endurance, California, I think, just north of Weed.
 
 [00:26:45] Adam: Yeah.
 
-[00:26:45] Will: Um, somebody somebody there was like, " Hey, are you are you from Tested? I met I met oh god, I can't remember his name. I met a guy at the 12th and Hawthorne Cart Pods in Portland who came out from behind the kitchen and in one of the cart pods and was like, " Hey, I I absolutely love what you guys do. Please tell Adam Norm that you guys are awesome.
+[00:26:45] Will: Somebody somebody there was like, " Hey, are you are you from Tested? I met I met oh god, I can't remember his name. I met a guy at the 12th and Hawthorne Cart Pods in Portland who came out from behind the kitchen and in one of the cart pods and was like, " Hey, I I absolutely love what you guys do. Please tell Adam Norm that you guys are awesome.
 
 [00:27:06] Unknown speaker: Oh, that's awesome.
 
@@ -846,7 +846,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:27:15] Will: So if you're further north, let us know.
 
-[00:27:18] Adam: Yeah, we want to hear about it. But you know, don't send a picture larger than 80k if you want.
+[00:27:18] Adam: Yeah, we want to hear about it. But don't send a picture larger than 80k if you want.
 
 [00:27:23] Norm: If you're bandwidth constrained. Yeah.
 

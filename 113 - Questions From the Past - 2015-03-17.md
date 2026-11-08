@@ -10,7 +10,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:01:32] Norm: and I'm Norm.
 
-[00:01:33] Will: You know, there's nothing that makes you feel inadequate as a radio voice like talking to Roman Mars for five minutes.
+[00:01:33] Will: There's nothing that makes you feel inadequate as a radio voice like talking to Roman Mars for five minutes.
 
 [00:01:40] Norm: The guy from our live show.
 
@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:01:55] Will: 15 20 years.
 
-[00:01:56] Adam: Yeah. So you know, he it's not only the tone, but he actually is able to speak in the type of sentences. That that NPR that that that radio requires. He
+[00:01:56] Adam: Yeah. So he it's not only the tone, but he actually is able to speak in the type of sentences. That that NPR that that that radio requires. He
 
 [00:02:09] Will: doesn't have the verbal tics. He's trained himself away from the verbal tics that everyone else has. The ums and the ahs and.
 
@@ -46,13 +46,13 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:03:01] Adam: Right.
 
-[00:03:01] Norm: Are you finding ways, like, then you you know if you say one phrase too often, then you got to choose five or six things that you can replace that with, that then you ingrain in your brains. You naturally go to the
+[00:03:01] Norm: Are you finding ways then you know if you say one phrase too often, then you got to choose five or six things that you can replace that with, that then you ingrain in your brains. You naturally go to the
 
 [00:03:24] Adam: yeah. There is some of that for a phrase for a verbal tic. I it's not hard for me to start a talk and just know you are not going to do that this time. No, so I can keep that. I can run that as a subroutine while I am talking. But more than that, I think that I can, as a speaker, get too comfortable with the off the cuff with the off the cuff narrative, and I'll give that narrative an arc. And sometimes I'll give a talk, and it'll be like four of those arcs all going to the same level and doing the same kind of travel. So on a graph, it just whereas really what I want is a graph that climbs.
 
 [00:04:05] Will: Do you want a stair step, not not a wave.
 
-[00:04:07] Adam: Yeah, so that's that's that's more the global reprogramming, and then the local reprogramming is. That will just log in my head, and I'll be like, " Nope, you're not going to do that." And I don't. I mean, I generally don't. Um, I don't ah when I speak, and that's conscious. That's based on a conscious effort. I pause when I'm pausing. I know to be quiet because time is moving much faster for me than it is for people listening, and I have the comfort of being able to search my mind and think of where that next thing is coming from.
+[00:04:07] Adam: Yeah, so that's more the global reprogramming, and then the local reprogramming is. That will just log in my head, and I'll be like, " Nope, you're not going to do that." And I don't. I mean, I generally don't. I don't ah when I speak, and that's conscious. That's based on a conscious effort. I pause when I'm pausing. I know to be quiet because time is moving much faster for me than it is for people listening, and I have the comfort of being able to search my mind and think of where that next thing is coming from.
 
 [00:04:38] Will: Completely good point. That time is moving much faster for you than the people who are listening.
 
@@ -62,13 +62,13 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:04:42] Norm: Well, in addition to an out of body experience, sometimes.
 
-[00:04:53] Will: But the other thing I've noticed is that when you're watching someone speak in public, and there is a long pause, like you had a a very long pause when you were talking to Astro on the stage on Saturday, where I could tell you had like six questions you wanted to ask, and you were kind of working down the flow chart of potential answers to figure out which one was going to get the most interesting answer, right?
+[00:04:53] Will: But the other thing I've noticed is that when you're watching someone speak in public, and there is a long pause, like you had a very long pause when you were talking to Astro on the stage on Saturday, where I could tell you had like six questions you wanted to ask, and you were kind of working down the flow chart of potential answers to figure out which one was going to get the most interesting answer, right?
 
 [00:04:53] Adam: Yeah.
 
-[00:04:53] Will: And I knew what was happening. Cause I mean, we've we've talked about this stuff a lot, but the audience was kind of leaning forward, waiting for it. Like they were, they were, they were ready to go. They were. It was building the tension that they had.
+[00:04:53] Will: And I knew what was happening. Cause I mean, we've we've talked about this stuff a lot, but the audience was kind of leaning forward, waiting for it. Like they were ready to go. They were. It was building the tension that they had.
 
-[00:05:23] Adam: Which you know, I've had this from real. I've had this from both sides of the equation. I've certainly had it on the show when we have experts on the show who aren't used to being on television. I can see in them the feeling of like they'll say something and they'll get halfway through and they'll flub and they'll be like, " Sorry, sorry, sorry," and you go, " It's okay, it's cool. You don't have to. You don't have to worry. We can do this again." Do you guys have we talked about Bob? Do you know Bob Parks?
+[00:05:23] Adam: Which I've had this from real. I've had this from both sides of the equation. I've certainly had it on the show when we have experts on the show who aren't used to being on television. I can see in them the feeling of like they'll say something and they'll get halfway through and they'll flub and they'll be like, " Sorry, sorry, sorry," and you go, " It's okay, it's cool. You don't have to. You don't have to worry. We can do this again." Do you guys have we talked about Bob? Do you know Bob Parks?
 
 [00:05:49] Will: No.
 
@@ -76,13 +76,13 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:05:49] Will: Okay.
 
-[00:05:49] Adam: for a few years, and this is in the late '90s during the previous tech boom. And they sent him to the good one of the Good Morning America, the Regis and Kathie Lee, and he was on their show, and he was visibly nervous. And it was lovely watching. He said they are Regis and Kathie Lee, and all those guys. You know, we were on Kelly Ripa. They're so good at relaxing you, like they're asking him about stuff, and they really know their marks. And if at one point he got just a little flustered and like wasn't sure where he was, and Kathie Lee put her hand on his shoulder, and she he said he felt a hand at the small of his back, sort of calming him down. Like they really know how to slow things down for you. And when Damien and I were on David Letterman, I'm sitting there across from him at his desk. It's one of the most
+[00:05:49] Adam: for a few years, and this is in the late '90s during the previous tech boom. And they sent him to the good one of the Good Morning America, the Regis and Kathie Lee, and he was on their show, and he was visibly nervous. And it was lovely watching. He said they are Regis and Kathie Lee, and all those guys. We were on Kelly Ripa. They're so good at relaxing you, like they're asking him about stuff, and they really know their marks. And if at one point he got just a little flustered and like wasn't sure where he was, and Kathie Lee put her hand on his shoulder, and she he said he felt a hand at the small of his back, sort of calming him down. Like they really know how to slow things down for you. And when Damien and I were on David Letterman, I'm sitting there across from him at his desk. It's one of the most
 
 [00:05:49] Will: Good God.
 
 [00:05:49] Adam: Oh, one of the most iconic things I can think of because I've been watching Letterman since he debuted when I was a teenager.
 
-[00:07:11] Will: Oh yeah, since he was destroying wedding cakes with a with a weed whacker and didn't know what a weed whacker was for.
+[00:07:11] Will: Oh yeah, since he was destroying wedding cakes with a weed whacker and didn't know what a weed whacker was for.
 
 [00:07:17] Adam: And I was thinking, wow, time is moving so slowly for him. He can see. He knows what I'm going to say. He can see the jokes coming from a mile away, find his space to slot them in, and comfortably drop them in where they're necessary. Where for me, I'm like, there's so much I want to cover.
 
@@ -98,9 +98,9 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:07:58] Unknown speaker: Yeah.
 
-[00:07:58] Will: then they're okay, and the audience will be okay with it, even if they're a little rough around the edges, as long as as long as that knowledge and passion come through.
+[00:07:58] Will: then they're okay, and the audience will be okay with it, even if they're a little rough around the edges, as long as that knowledge and passion come through.
 
-[00:08:21] Adam: You know, it's funny. I I asked Mary Roach about this, the author of Packing for Mars and Stiff and Bonk, and she's an amazing and wonderful wonderful writer, and she's a good friend of mine. And I was interviewing her on stage a few years ago, and I said, " How do you get the great information you do? I mean, you show up to these places like the Body Farm, and they're not used to having reporters come and ask them, let alone be actually interested in what they're doing
+[00:08:21] Adam: It's funny. I asked Mary Roach about this, the author of Packing for Mars and Stiff and Bonk, and she's an amazing and wonderful wonderful writer, and she's a good friend of mine. And I was interviewing her on stage a few years ago, and I said, " How do you get the great information you do? I mean, you show up to these places like the Body Farm, and they're not used to having reporters come and ask them, let alone be actually interested in what they're doing
 
 [00:08:50] Will: and knowledgeable about what they're doing." Yeah,
 
@@ -122,7 +122,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:09:39] Will: My favorite thing."
 
-[00:09:40] Adam: And really, so the trick is taking some of that mental energy and giving yourself the space to realize time moves much faster for you than it is for your listener, and you can take even what a five second pause before speaking. Your audience won't feel like it's that much, and they'll forget it almost as soon as it happened. Whereas for you, you start sweating, and you know you’re clenching.
+[00:09:40] Adam: And really, so the trick is taking some of that mental energy and giving yourself the space to realize time moves much faster for you than it is for your listener, and you can take even what a five second pause before speaking. Your audience won't feel like it's that much, and they'll forget it almost as soon as it happened. Whereas for you start sweating, and you know you’re clenching.
 
 [00:10:02] Will: What if I don't have another question? What if the questions are gone? What if they're all gone? I still have at least 10 minutes left.
 
@@ -178,13 +178,13 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:11:14] Adam: of the school that bitch is a fine word to use for anybody but a woman.
 
-[00:11:19] Will: Hmm. Yeah. I no. I that's a that's always been my my rule.
+[00:11:19] Will: Hmm. Yeah. I no. I that's a that's always been my rule.
 
 [00:11:19] Adam: Yeah.
 
 [00:11:19] Will: I feel like my feelings on that rule probably should change.
 
-[00:11:26] Norm: That's the the the Jesse school thinking.
+[00:11:26] Norm: That's the Jesse school thinking.
 
 [00:11:28] Adam: Jesse school.
 
@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:12:00] Adam: He's so good.
 
-[00:12:02] Will: Um. So last week we started with two questions that were
+[00:12:02] Will: So last week we started with two questions that were
 
 [00:12:02] Adam: Yes.
 
@@ -240,7 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:13:03] Will: We get just just we get this question about what should I do in college a lot.
 
-[00:13:07] Adam: Right. Okay. And this this is a very general answer, but I think it will. What I get the feeling is the questioner isn't sure what they want to make or what they want to work with to make, but they know that there are these facilities at the college. What degree choice, degree track, will afford them the ability to figure out
+[00:13:07] Adam: Right. Okay. And this is a very general answer, but I think it will. What I get the feeling is the questioner isn't sure what they want to make or what they want to work with to make, but they know that there are these facilities at the college. What degree choice, degree track, will afford them the ability to figure out
 
 [00:13:27] Will: like access to the labs and stuff like that.
 
@@ -256,11 +256,11 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:14:15] Will: Essentially, a badass state-supported maker space.
 
-[00:14:17] Adam: Yeah, and that's the kind of degree you want. You might not be interested in product design per se, but that degree will be insanely useful to you as a maker. You'll have the more you understand about manufacturing. If you want to be a maker, you're going to need to understand manufacturing because, I mean, I would assume that for most people, the goal might be to eventually make a living doing it. Makes sense. If you want to make a living, you want to make a product. You better be able to drive that product rather than pass on the the whole project to somebody else,
+[00:14:17] Adam: Yeah, and that's the kind of degree you want. You might not be interested in product design per se, but that degree will be insanely useful to you as a maker. You'll have the more you understand about manufacturing. If you want to be a maker, you're going to need to understand manufacturing because, I mean, I would assume that for most people, the goal might be to eventually make a living doing it. Makes sense. If you want to make a living, you want to make a product. You better be able to drive that product rather than pass on the whole project to somebody else,
 
-[00:14:45] Will: or at least understand enough about the the other stuff down the line from the part that you do, so you don't get fleeced or make bad choices or whatever.
+[00:14:45] Will: or at least understand enough about the other stuff down the line from the part that you do, so you don't get fleeced or make bad choices or whatever.
 
-[00:14:52] Adam: Exactly. So there's industrial design. There's art. And there's a lot of other things that you can do that are… You know, again, people might feel like an Art degree is too nebulous. A degree in making a living at as an artist is really difficult. I submit that making a living doing anything really specific is incredibly difficult. Any degree, any any specific, you know, if you want to be a forensic pathologist, I'll wager high-paying jobs in forensic pathology are are highly competitive
+[00:14:52] Adam: Exactly. So there's industrial design. There's art. And there's a lot of other things that you can do that are…again, people might feel like an Art degree is too nebulous. A degree in making a living at as an artist is really difficult. I submit that making a living doing anything really specific is incredibly difficult. Any degree, any any specific, you know, if you want to be a forensic pathologist, I'll wager high-paying jobs in forensic pathology are highly competitive
 
 [00:15:19] Will: and take a while to get there.
 
@@ -268,7 +268,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:15:38] Will: High school labs should be putting 3D printers in now.
 
-[00:15:39] Adam:  Yeah, and and give you experience with working with those things. So I would say choose the degree that gives you access to the most parts of the college within the making sphere that you can find.
+[00:15:39] Adam: Yeah, and give you experience with working with those things. So I would say choose the degree that gives you access to the most parts of the college within the making sphere that you can find.
 
 [00:15:50] Will: One of the things I usually recommend people, because I talked to a couple of freshmen after the event, people who are going to be freshmen in college in a couple of years, and they. Wondered what they should take. They wanted to, you know, they didn't know what they wanted to do, but they liked making stuff.
 
@@ -290,7 +290,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:16:58] Adam: why spend all that money. Getting your entry level requirements out of the way,
 
-[00:17:03] Norm: it means it means nothing.
+[00:17:03] Norm: it means nothing.
 
 [00:17:04] Adam: Totally, you get the degree from the college you graduate from. So the
 
@@ -324,13 +324,13 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:17:56] Will: Agree,
 
-[00:17:57] Adam: and I think that all bets are off when you're considering the investment of college. Like, yes, there may be some difficulties in in in matriculating socially. At the same time, there's a lot of people taking four or five years to finish their college degree because they have to work full time, and you know, transferring between schools where some of your credits don't transfer. My wife started at state and then went to two other colleges to get her first bachelor's degree.
+[00:17:57] Adam: and I think that all bets are off when you're considering the investment of college. Like, yes, there may be some difficulties in matriculating socially. At the same time, there's a lot of people taking four or five years to finish their college degree because they have to work full time, and transferring between schools where some of your credits don't transfer. My wife started at state and then went to two other colleges to get her first bachelor's degree.
 
-[00:18:22] Will: Well, and and I mean, our friend, we we have a couple of friends who've done realized something that I didn't realize until it was too late for me, which is, I mean, I didn't, I I walked out of college with no debt, which was which was an accomplishment of the time, and it's basically impossible now.
+[00:18:22] Will: Well, and I mean, our friend, we have a couple of friends who've done realized something that I didn't realize until it was too late for me, which is, I mean, I didn't, I I walked out of college with no debt, which was an accomplishment of the time, and it's basically impossible now.
 
 [00:18:36] Adam: Yeah, totally.
 
-[00:18:38] Will: Um, but the the spend as little as you can, unless you're going to be an engineer or a doctor or a lawyer or something. Where the difference between graduating first in your class at law school and graduating last in your class at law school is, you know, $500,000 a year versus $35,000 a year. Yeah, you know, you don't spend as avoid debt as much as possible. When it comes to college, so in that regard, I think the community college thing is the way to go.
+[00:18:38] Will: But the spend as little as you can, unless you're going to be an engineer or a doctor or a lawyer or something. Where the difference between graduating first in your class at law school and graduating last in your class at law school is$500,000 a year versus $35,000 a year. Yeah you don't spend as avoid debt as much as possible. When it comes to college, so in that regard, I think the community college thing is the way to go.
 
 [00:19:03] Adam: All right, next question. Okay,
 
@@ -338,27 +338,27 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:19:05] Norm: Oh, and graduate, graduate degree.
 
-[00:19:07] Will: Oh, graduate degrees. Uh, the same, same advice kind of applies.
+[00:19:07] Will: Oh, graduate degrees. The same, same advice kind of applies.
 
 [00:19:10] Adam: Yeah, I think so.
 
-[00:19:11] Will: Look at your, look at your arts and architecture and design stuff. The question is, I don't know if he'll, if, if, if you don't have the right undergraduate degree or experience, you'll be able to get into those programs.
+[00:19:11] Will: Look at your arts and architecture and design stuff. The question is, I don't know if he'll, if you don't have the right undergraduate degree or experience, you'll be able to get into those programs.
 
 [00:19:20] Norm: There are a lot of graduate degrees now which are interdisciplinary by design.
 
-[00:19:23] Adam: There are. I know that Art Center has a bunch. Um,
+[00:19:23] Adam: There are. I know that Art Center has a bunch.
 
 [00:19:23] Norm: NYU.
 
 [00:19:23] Adam: Absolutely, and some of these colleges, some of the lesser expensive colleges are incredibly hard to get into. Cooper Union is free and one of the most difficult colleges to get into. But it's really worth applying to those programs. One because of the cost savings, but two because hopefully at the graduate level, you've already built a body of work that is real and competitive, and there's no reason not to make an attempt to get into those programs.
 
-[00:19:54] Will: Excellent, and and then. The other thing is that there's also there's a ton of other free resources that if you aren't going to spend money and you don't then you don't have the requirement for money. You can audit tons of classes at MIT and Carnegie Mellon and stuff like that. They're all available for you.
+[00:19:54] Will: Excellent, and then. The other thing is that there's also there's a ton of other free resources that if you aren't going to spend money and you don't then you don't have the requirement for money. You can audit tons of classes at MIT and Carnegie Mellon and stuff like that. They're all available for you.
 
-[00:20:07] Adam: I also want to state, like, for the record, I think that there's a tremendous amount to be gotten out of a real education. I I don't have a college degree, and that's largely because it was a combination of a family chip on the shoulder and a level of personal arrogance in my late teens and early 20s.
+[00:20:07] Adam: I also want to state for the record, I think that there's a tremendous amount to be gotten out of a real education. I don't have a college degree, and that's largely because it was a combination of a family chip on the shoulder and a level of personal arrogance in my late teens and early 20s.
 
 [00:20:25] Will: I can't imagine.
 
-[00:20:26] Adam: I was so unbearable at 19, and you know, I my path is my path. I've made I've I'm happy with how it went, but by no means take my experience and go. Well, Adam doesn't have a college degree, therefore I don't need one. Everybody's totally different, and you know, if you can go to SF State and utilize their filmmaking department or product design department and get a great education for the really low amount that they charge. Go do it. I really strongly believe that's a fantastic thing.
+[00:20:26] Adam: I was so unbearable at 19, and I my path is my path. I've made I've I'm happy with how it went, but by no means take my experience and go. Well, Adam doesn't have a college degree, therefore I don't need one. Everybody's totally different, and you know, if you can go to SF State and utilize their filmmaking department or product design department and get a great education for the really low amount that they charge. Go do it. I really strongly believe that's a fantastic thing.
 
 [00:20:59] Will: If nothing else, you make a network of friends that you'll surround yourself with for the rest of your life.
 
@@ -370,7 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:21:57] Will: Just, just put just pour wet plaster,
 
-[00:21:59] Adam: pour wet plaster into the bottom. That would be my first thought. Now, if you want to drill small holes in the bottom, you're going to have to kind of inject it. Which for a can, that's going to be kind of a thing. They don't make 500 milliliter syringes for plaster. You could certainly build such a thing. You could also you could also make a container with a tube coming down. And if you do the shake and bake mixture on plaster,
+[00:21:59] Adam: pour wet plaster into the bottom. That would be my first thought. Now, if you want to drill small holes in the bottom, you're going to have to kind of inject it. Which for a can, that's going to be kind of a thing. They don't make 500 milliliter syringes for plaster. You could certainly build such a thing. You could also make a container with a tube coming down. And if you do the shake and bake mixture on plaster,
 
 [00:22:30] Will: what's the shake and bake mixture on plaster?
 
@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:22:53] Will: Okay.
 
-[00:22:53] Adam: Um. So what you do is you take your your water and you start sprinkling powder into it, and you just keep on sifting it in. You're not putting in chunks. You want to sift it in in a powder form. At a certain point, an island will form. That means at a certain point, the water is saturated enough with powder that it's no longer dissolving readily into the water, but an island forms in the middle and remains there. Not an island that disappears right away, but an island that remains there, probably and doesn't go away until you put your hand under and start to mix. When the island forms, you have the optimal relationship of powder to water. That's the shake and bake method. Then, okay. Once that island is formed, in order to minimize bubbles infused into the plaster, you stick your hand down at the bottom where you'll feel multi layers. You'll feel thicker plaster at the bottom, and you just move your fingers like that. For those who are listening, I am just oscillating my fingers like I'm tapping.
+[00:22:53] Adam: So what you do is you take your water and you start sprinkling powder into it, and you just keep on sifting it in. You're not putting in chunks. You want to sift it in a powder form. At a certain point, an island will form. That means at a certain point, the water is saturated enough with powder that it's no longer dissolving readily into the water, but an island forms in the middle and remains there. Not an island that disappears right away, but an island that remains there, probably and doesn't go away until you put your hand under and start to mix. When the island forms, you have the optimal relationship of powder to water. That's the shake and bake method. Then, okay. Once that island is formed, in order to minimize bubbles infused into the plaster, you stick your hand down at the bottom where you'll feel multi layers. You'll feel thicker plaster at the bottom, and you just move your fingers like that. For those who are listening, I am just oscillating my fingers like I'm tapping.
 
 [00:23:55] Will: You're playing the piano.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:24:51] Will: and then conceivably you could even, if you wanted to get a little bit of a slosh in there, you could drill up through the plaster into the hole that you had once it sets and put a little bit of liquid in the top or something.
 
-[00:24:59] Adam: I guess you could, or you could throw in in the middle of the plaster a film canister full of some lead shot.
+[00:24:59] Adam: I guess you could, or you could throw in the middle of the plaster a film canister full of some lead shot.
 
 [00:25:04] Will: Oh, that would do it.
 
@@ -424,23 +424,23 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:25:13] Adam: plaster should be about. It's going to be slightly lighter than water. Again, you could throw in a lead ingot into the middle if you wanted.
 
-[00:25:20] Will: Okay, I think that's a good that's a good place to start if nothing else. David Martin wants to know how often do you wreck your glasses at work, Adam?
+[00:25:20] Will: Okay, I think that's a good place to start if nothing else. David Martin wants to know how often do you wreck your glasses at work, Adam?
 
 [00:25:28] Adam: Oh, how often do I wreck my glasses? I don't think I've wrecked them very much at work. They've certainly split in the middle.
 
-[00:25:37] Will: I would consider that, you know,
+[00:25:37] Will: I would consider that
 
 [00:25:38] Adam: but that that happened on a Shark Week shoot with John Landis back in 2004, and then they had to repair them so that you couldn't see the break. It was very fun.
 
 [00:25:49] Will: Did you do a drill and put a pin?
 
-[00:25:51] Adam: Yeah, and then a little fiberglass around the outside. I I have a lot of pairs of glasses.
+[00:25:51] Adam: Yeah, and then a little fiberglass around the outside. I have a lot of pairs of glasses.
 
 [00:25:56] Will: I say, do you bring spares now?
 
 [00:25:58] Adam: I don't bring spares, but at any given point in time, I make sure I have two pairs of glasses. With my current prescription in them.
 
-[00:26:06] Will: It's a it's a like as somebody who can't see without his glasses. I've been doing that for about 15 years, and it just removes one level of anxiety completely.
+[00:26:06] Will: It's a like as somebody who can't see without his glasses. I've been doing that for about 15 years, and it just removes one level of anxiety completely.
 
 [00:26:15] Adam: Because let me tell you, all you have to do when you're getting into your car and putting on your sunglasses is accidentally place your glasses on the roof of your car to lose them.
 
@@ -462,7 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:26:36] Will: Oh no,
 
-[00:26:36] Adam: and I have a pair of progressives in this prescription, and it's time to go get my my sun. Actually, what I usually destroy are my sunglasses. Those are the glasses that really get abused, and whenever I buy a pair, I usually buy two. Pairs of sunglasses. I recognize that that's a first world solution.
+[00:26:36] Adam: and I have a pair of progressives in this prescription, and it's time to go get my sun. Actually, what I usually destroy are my sunglasses. Those are the glasses that really get abused, and whenever I buy a pair, I usually buy two. Pairs of sunglasses. I recognize that that's a first world solution.
 
 [00:27:05] Will: Do you do prescription sunglasses?
 
@@ -470,7 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:27:08] Norm: Expensive.
 
-[00:27:08] Adam: Yeah, yeah, yeah. No, don't get me wrong. It it is expensive, but for me, my eyes are very sensitive to the light, and it is the cost of doing business.
+[00:27:08] Adam: Yeah, yeah, yeah. No, don't get me wrong. It is expensive, but for me, my eyes are very sensitive to the light, and it is the cost of doing business.
 
 [00:27:16] Will: You guys are in the desert a lot.
 
@@ -486,13 +486,13 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:27:30] Will: Contacts. I always keep a pair of contacts in my bag.
 
-[00:27:36] Adam: I actually, I don't keep them in my bag, but I have, I have about 20 or 30 pairs on hand
+[00:27:36] Adam: I actually, I don't keep them in my bag, but I have about 20 or 30 pairs on hand
 
 [00:27:42] Will: of the one day throwaways.
 
 [00:27:43] Adam: Of the one day throwaways, yeah, those those are for costuming and stuff. And when I get down below like 10 pairs, I start to get nervous, and I'll order some new ones.
 
-[00:27:50] Will: The the I've never felt luxury like I did the first time I put those contacts in, wore them for like four hours, and it's like okay. Time to take them out.
+[00:27:50] Will: The I've never felt luxury like I did the first time I put those contacts in, wore them for like four hours, and it's like okay. Time to take them out.
 
 [00:27:58] Adam: I know,
 
@@ -512,7 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:28:15] Adam: with the fizzing thing, and they would. Yes.
 
-[00:28:17] Will: So you know what you know what makes me crazy is you because nobody does the thermo contact cleaning anymore. You like that's yeah, it's super bad because apparently heating up plastic releases all sorts of bad stuff or something.
+[00:28:17] Will: So you know what makes me crazy is you because nobody does the thermo contact cleaning anymore. You like that's yeah, it's super bad because apparently heating up plastic releases all sorts of bad stuff or something.
 
 [00:28:17] Adam: Yeah,
 
@@ -546,7 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:29:13] Will: Um.
 
-[00:29:14] Norm: And you were showing us uh paintball guns.
+[00:29:14] Norm: And you were showing us paintball guns.
 
 [00:29:17] Will: Oh, you had gotten the paintball guns that looked like real guns.
 
@@ -572,7 +572,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:29:43] Adam: Yeah.
 
-[00:29:43] Will: I mean, if you just know Tested through Jamie and Adam, Norm and I started Tested in 2010, two years before we we met you guys, and then the company that we worked for was sold to another company, which is the most boring thing in the world, except for the people who are involved.
+[00:29:43] Will: I mean, if you just know Tested through Jamie and Adam, Norm and I started Tested in 2010, two years before we met you guys, and then the company that we worked for was sold to another company, which is the most boring thing in the world, except for the people who are involved.
 
 [00:30:03] Adam: And who had the great foresight to put us together?
 
@@ -582,7 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:30:21] Will: right? So you were sitting directly to his left, so every time I had to look at you, there was a dong right over your right shoulder.
 
-[00:30:30] Adam: Oh yeah, so that was um. There's a terrible movie called Jade with David Caruso and Linda Fiorentino.
+[00:30:30] Adam: Oh yeah, so that was. There's a terrible movie called Jade with David Caruso and Linda Fiorentino.
 
 [00:30:30] Will: Okay,
 
@@ -638,25 +638,25 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:32:33] Will: Our last question comes from Andy I, and he says, " You guys have all spoken of ideas for things to build that were percolating your minds for ages before you actually started the project. What's the usual tipping point that moves you from 'I want to do this sometime' to 'I'm going to start ordering stuff and building it right now'? Can you identify a point of no return when you realize that you're now absolutely committed to finishing something?
 
-[00:32:54] Adam: Wow. No, it's not. It's not specific. It's very random. Sometimes it could be as simple. I I've started working on my 32 inch Millennium Falcon. I did that because Comic Con. What I finished, like I finished two long-term projects for Comic Con, but I also mostly finished two other long-term projects, which we're going to reveal later on this year, or maybe even early next year. At this point, so like a whole bunch that had been sitting on the benches and on shelves got went into deep storage because I didn't need to work on it anymore. So I looked around for the first time in years and thought, what What would I like to work on? And the 32-inch Falcon was sitting there on top of my vacuum former, and I pulled it down and started playing.
+[00:32:54] Adam: Wow. No, it's not. It's not specific. It's very random. Sometimes it could be as simple. I I've started working on my 32 inch Millennium Falcon. I did that because Comic Con. What I finished, like I finished two long-term projects for Comic Con, but I also mostly finished two other long-term projects, which we're going to reveal later on this year, or maybe even early next year. At this point, so like a whole bunch that had been sitting on the benches and on shelves got went into deep storage because I didn't need to work on it anymore. So I looked around for the first time in years and thought, what would I like to work on? And the 32-inch Falcon was sitting there on top of my vacuum former, and I pulled it down and started playing.
 
 [00:33:36] Will: You've had it for a long time, right?
 
 [00:33:37] Adam: Yeah, I've had these castings from Tim Ketzer for a while, but there are other times when I'm working on a prop from Dr. Strangelove that came about about visiting the Kubrick exhibit, and I'd never considered it before. Other times, there may be something that's percolating, or I have pieces of it, and what gets me interested is somebody else's interest. Now, that's often that is actually a frequent trigger, positive trigger for me is I'll meet someone who's like, Oh, I love that prop. And then I talk to them about it, and I get excited about it. And remember, I often, almost always, build two of something if I'm going to build it or multiples. So if it's a good friend of mine who's obsessed about a prop, and I only learn that he's obsessed about it, I've got a Buckaroo Banzai prop I'm working on that my friend Josh is totally. So don't anyone who knows Josh don't tell him this. That you know I've I've assembled the number to make two of them because he's obsessed with it. I totally want the pleasure of handing him this piece and his surprise. So really, seriously, don't tell Josh.
 
-[00:34:44] Will: It's well, it's like when when we were at Comic Con and you unveiled the Mecha Hand and Guillermo came in and you got to you you got to live that experience of seeing it completed, which you don't really get because you've been working on it for so long. It's all in your head,
+[00:34:44] Will: It's well, it's like when we were at Comic Con and you unveiled the Mecha Hand and Guillermo came in and you got to live that experience of seeing it completed, which you don't really get because you've been working on it for so long. It's all in your head,
 
 [00:34:44] Adam: right?
 
 [00:34:44] Will: You get that feeling.
 
-[00:34:59] Adam: You get that feeling, and that's so for me. The making and the completion—it's a very social act, and it's a—it's a—it's an act of of commutation of story and interest and passion and origins about our fascinations. So I love I love it when someone comes to the shop and says, " Oh, I love that prop. That's one of my favorite things." And I'm able to because I've got two or three of them. Go here, take this one home, and they're like, " No way."
+[00:34:59] Adam: You get that feeling, and that's so for me. The making and the completion—it's a very social act, and it's a—it's an act of commutation of story and interest and passion and origins about our fascinations. So I love it when someone comes to the shop and says, " Oh, I love that prop. That's one of my favorite things." And I'm able to because I've got two or three of them. Go here, take this one home, and they're like, " No way."
 
 [00:35:30] Will: Well, for me, it's often like, " A, do I have time to actually?" Like, I I don't have the I don't have the the big space to just leave stuff kind of partially done. So if I'm going to start something, I have let's say six weeks before,
 
 [00:35:44] Adam: right?
 
-[00:35:44] Will: You know, I have to. I have critical mass. Yeah,
+[00:35:44] Will: I have to. I have critical mass. Yeah,
 
 [00:35:44] Adam: yeah.
 
@@ -668,11 +668,11 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:36:00] Adam: Yeah.
 
-[00:36:00] Will: And and and that's that's the tip off for me.
+[00:36:00] Will: And that's the tip off for me.
 
 [00:36:03] Adam: So yeah, it's multiple and varied. There's also times when a project gets instigated because I've discovered a new process that I want to play with. I'm sure that better, more accessible, higher resolution 3D printing will initiate a bunch of projects I haven't even considered yet.
 
-[00:36:21] Will: Well, and not even that. The thing I'm excited—I mean, I've been doing 3D printing for a long time now. The thing I'm excited about is the stuff that you can do because of 3D printing, like like lost PLA casting.
+[00:36:21] Will: Well, and not even that. The thing I'm excited—I mean, I've been doing 3D printing for a long time now. The thing I'm excited about is the stuff that you can do because of 3D printing, like lost PLA casting.
 
 [00:36:21] Adam: Yeah.
 
@@ -700,11 +700,11 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:37:11] Norm: More satisfying.
 
-[00:37:12] Adam: You know, managing stuff like that with large clear bins from the container store, really, really good.
+[00:37:12] Adam: Managing stuff like that with large clear bins from the container store, really, really good.
 
 [00:37:20] Will: Oh yeah. Sorting.
 
-[00:37:21] Adam: Sorting with clear bins. I I can't stress enough how much better clear bins, clear stacking bins, while a little you know lightweight and can be damaged easily, right? Because that stuff shatters, is a phenomenal way to keep projects current. Because when you put them in a, everything that goes into a file box disappears.
+[00:37:21] Adam: Sorting with clear bins. I can't stress enough how much better clear bins, clear stacking bins, while a little you know lightweight and can be damaged easily, right? Because that stuff shatters, is a phenomenal way to keep projects current. Because when you put them in a, everything that goes into a file box disappears.
 
 [00:37:39] Will: Yeah.
 
@@ -730,7 +730,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:38:14] Adam: Start a real battle just to hold a sword.
 
-[00:38:17] Will: You know, I've been reading Joe Abercrombie books lately, and I don't think you do want to start a real battle.
+[00:38:17] Will: I've been reading Joe Abercrombie books lately, and I don't think you do want to start a real battle.
 
 [00:38:21] Adam: No, I know. I saw Braveheart. Would you want to be anywhere near that kind of battlefield?
 

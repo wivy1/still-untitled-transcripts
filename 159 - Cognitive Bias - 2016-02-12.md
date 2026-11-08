@@ -22,11 +22,11 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:00:14] Norm: Hello, everyone.
 
-[00:00:15] Adam: Hello. Um, I learned, and I was looking up elegant, beautiful formulas, elegant, beautiful science.
+[00:00:15] Adam: Hello. I learned, and I was looking up elegant, beautiful formulas, elegant, beautiful science.
 
 [00:00:15] Will: Okay.
 
-[00:00:15] Adam: And first of all, um, if your name isn’t Einstein or Euler, you're pretty much not on that list. I mean,
+[00:00:15] Adam: And first of all if your name isn’t Einstein or Euler, you're pretty much not on that list. I mean,
 
 [00:00:30] Norm: in terms of your contributions to elegant and beautiful formulas.
 
@@ -60,17 +60,17 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:01:33] Norm: And I think it says more. Maybe it says more about a way we do math than it does what the definitive, what those numbers mean, or something about infinity. I don't know.
 
-[00:01:43] Will: This this reminds me a lot of those conversations you have, is like when you take freshman physics.
+[00:01:43] Will: This reminds me a lot of those conversations you have, is like when you take freshman physics.
 
 [00:01:43] [unclear: Will / Adam / Norm]: Have you ever really looked at your hand?
 
 [00:01:49] Norm: Is your green the same as my green?
 
-[00:01:52] Will: Or or like what if
+[00:01:52] Will: Or like what if
 
 [00:01:54] Norm: what if it's all the matrix?
 
-[00:01:55] Will: What if what if Avogadro's constant Avogadro's number was off by one? You know, and you get to like the Planck constant.
+[00:01:55] Will: What if Avogadro's constant Avogadro's number was off by one? And you get to like the Planck constant.
 
 [00:01:55] Adam: Right.
 
@@ -98,9 +98,9 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:02:37] Will: I couldn’t. It's what I wanted. Ready Player One to be.
 
-[00:02:40] Adam: This is this is a deep science fiction. It's Chinese. It's translated. There is a lot of there is a lot to get to know about Chinese culture that is footnoted in the book.
+[00:02:40] Adam: This is a deep science fiction. It's Chinese. It's translated. There is a lot of there is a lot to get to know about Chinese culture that is footnoted in the book.
 
-[00:02:50] Will: Like you, if if you don't, I didn't understand what the implications of the Cultural Revolution were, and this gave me enough to start to know that I should go like first dig into Wikipedia, and now I am probably going to go read some more books. Actually, as a result,
+[00:02:50] Will: Like you, if you don't, I didn't understand what the implications of the Cultural Revolution were, and this gave me enough to start to know that I should go like first dig into Wikipedia, and now I am probably going to go read some more books. Actually, as a result,
 
 [00:03:01] Adam: and there are some bits in it. Like there's a bit early on where something. I'm not just no spoilers or anything. I'm just talking in the most general terms. When something happens and you're like, how is that possible? And then they explain how it's possible. And I have not been able to stop thinking about that. Yeah,
 
@@ -116,7 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:03:37] Norm: Yes,
 
-[00:03:38] Will: it's it's a
+[00:03:38] Will: it's a
 
 [00:03:38] Norm: that's right. 23rd or twenty, yeah, 23rd. Yeah,
 
@@ -134,11 +134,11 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:04:03] Will: Yeah,
 
-[00:04:03] Adam: It totally stands alone. It was. It's a remarkable piece of science fiction. It's a remarkable piece of fiction, and so it deals with it deals with some of the social. Well, I mean, science fiction often does this, but it
+[00:04:03] Adam: It totally stands alone. It was. It's a remarkable piece of science fiction. It's a remarkable piece of fiction, and so it deals with some of the social. Well, I mean, science fiction often does this, but it
 
 [00:04:16] Will: good science fiction.
 
-[00:04:18] Adam: The social dynamics and interpersonal dynamics are are really quite compelling, and don't some of them don't have anything to do with science fiction itself. It's just it's a very well it's a very rounded world
+[00:04:18] Adam: The social dynamics and interpersonal dynamics are really quite compelling, and don't some of them don't have anything to do with science fiction itself. It's just it's a very well it's a very rounded world
 
 [00:04:29] Norm: and relatable in today's political climate.
 
@@ -146,15 +146,15 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:04:55] Will: or been on rations for 15 years
 
-[00:04:57] Adam: or been on exactly. So there's China. Like again, completely different experience of the last of the last couple of millennia than we did,
+[00:04:57] Adam: or been on exactly. So there's China. Like again, completely different experience of the last couple of millennia than we did,
 
-[00:05:08] Will: and even more recently, they went through an entire like they know what the the current right war on science like they they saw the the the much amplified and much much worse version of that in the I guess '50s and '60s
+[00:05:08] Will: and even more recently, they went through an entire like they know what the current right war on science like they saw the much amplified and much much worse version of that in the I guess '50s and '60s
 
 [00:05:22] Adam: during the cultural
 
-[00:05:23] Will: during the cultural revolution and and have since come out the other side because they realized down that path lies ruin
+[00:05:23] Will: during the cultural revolution and have since come out the other side because they realized down that path lies ruin
 
-[00:05:29] Adam: Right. And, yeah that glimpse is really one of the as far as science fiction is always supposed to give you a glimpse of something that you would have never imagined just China as a subject in this book is a pretty remarkable uh, uh, reality I had I was unfamiliar with
+[00:05:29] Adam: Right. And, yeah that glimpse is really one of the as far as science fiction is always supposed to give you a glimpse of something that you would have never imagined just China as a subject in this book is a pretty remarkable reality I had I was unfamiliar with
 
 [00:05:46] Norm: you know what's another remarkable reality in science fiction that apparently exists
 
@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:06:16] Will: maybe I don't know.
 
-[00:06:17] Norm: And it totally agree that you know there's a lot of there are groups of people who are very, very adamant in their belief of a certain thing, and for whatever reason or not. But the to believe with conviction and not just as a troll that the Earth is flat, I couldn't I couldn't wrap my head around that. And there are maps that these the flat earther society has drawn up. Have you—do you know why this is coming up?
+[00:06:17] Norm: And it totally agree that you know there's a lot of there are groups of people who are very, very adamant in their belief of a certain thing, and for whatever reason or not. But the to believe with conviction and not just as a troll that the Earth is flat, I couldn't wrap my head around that. And there are maps that these the flat earther society has drawn up. Have you—do you know why this is coming up?
 
 [00:06:43] Will: No, I have no idea why this is coming up.
 
@@ -204,7 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:07:00] Adam: Yes,
 
-[00:07:02] Norm: exactly, and. I, I guess I guess it's been understood that there are organizations who may have these beliefs, and to me it just sounds like it's it's a farce, like they're doing it purely as a trolling.
+[00:07:02] Norm: exactly, and. I guess it's been understood that there are organizations who may have these beliefs, and to me it just sounds like it's a farce, like they're doing it purely as a trolling.
 
 [00:07:15] Will: Like you, all you need to do to prove that the world is round is have a well and a sunny day.
 
@@ -218,11 +218,11 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:07:26] Will: And a cell phone.
 
-[00:07:27] Norm: And so I tried to understand, like, what is their perception of the geography of the world?
+[00:07:27] Norm: And so I tried to understand what is their perception of the geography of the world?
 
 [00:07:33] Will: Okay.
 
-[00:07:34] Adam: Is the name of the rapper B period O period B period. Um. But also, it turns out Tia Tequila also believes the Earth is flat.
+[00:07:34] Adam: Is the name of the rapper B period O period B period. But also, it turns out Tia Tequila also believes the Earth is flat.
 
 [00:07:42] Norm: I have less.
 
@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:08:02] Adam: Can I see this map?
 
-[00:08:02] Norm: And and like. And there, there are pictures like, hey, that's that's
+[00:08:02] Norm: And like. And there are pictures like, hey, that's
 
 [00:08:05] Will: [unclear: if / That’s Tony, that’s Discworld]
 
@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:08:10] Adam: Wait a second. Hold on. Hold on.
 
-[00:08:12] Norm: That's just taking like a picture of a of a globe, a 2D picture, and cutting it out the stencil.
+[00:08:12] Norm: That's just taking like a picture of a globe, a 2D picture, and cutting it out the stencil.
 
 [00:08:17] Adam: Wow, that's not. How do they deal with the Bering Strait?
 
@@ -274,21 +274,21 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:08:40] Adam: Wow.
 
-[00:08:40] Will: I mean, this is like the this is like the pre Copernican idea that the Earth was at the center of the world, and we had all these different concentric rings that things rotated on to explain astronomy. You can explain anything, but I mean, we have people that are literally able to see the roundness of the Earth. We've we've sent people—
+[00:08:40] Will: I mean, this is like the pre Copernican idea that the Earth was at the center of the world, and we had all these different concentric rings that things rotated on to explain astronomy. You can explain anything, but I mean, we have people that are literally able to see the roundness of the Earth. We've we've sent people—
 
 [00:09:00] Adam: I have seen it.
 
 [00:09:01] Will: Yeah, you've seen it. We've sent people far enough away that they can see the entirety of the Earth.
 
-[00:09:06] Norm: Yeah. So this happened in late January, and and their arguments range from oh, you know, only NASA has provided photos from the Earth, or you use you use you know lenses.
+[00:09:06] Norm: Yeah. So this happened in late January, and their arguments range from oh only NASA has provided photos from the Earth, or you use you know lenses.
 
-[00:09:16] Adam: How come I can see this city that's [unclear: thirty three hundred / thirty / thirty-three], you know, 35 miles away, but it's not interrupted by the curvature of the Earth?
+[00:09:16] Adam: How come I can see this city that's [unclear: thirty three hundred / thirty / thirty-three] 35 miles away, but it's not interrupted by the curvature of the Earth?
 
 [00:09:24] Will: How how come, Adam?
 
 [00:09:24] Adam: this just he B.O.B. sent repeated tweets to Neil deGrasse Tyson with his supposed boom, like I'm busting your reality wide open, and it's frankly it's it made me sad.
 
-[00:09:38] Norm: So yeah, the this escalated to a point where Neil deGrasse Tyson, he has nephew, wrote a a counter rap, and Tyson dropped his own track called Flat to Fact, and I believe he performed this on on a on a late night show.
+[00:09:38] Norm: So yeah, the this escalated to a point where Neil deGrasse Tyson, he has nephew, wrote a counter rap, and Tyson dropped his own track called Flat to Fact, and I believe he performed this on a late night show.
 
 [00:09:57] Adam: He did. And he finished. This is the one where he finishes by dropping
 
@@ -312,7 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:10:47] Will: Well, shaming is never the right answer right?
 
-[00:10:48] Adam: I I totally agree with that. I don't think it's the right answer. I when I hear that someone believes that, but I think it's too easy for us to go, " What an idiot," and then just sort of high five each other.
+[00:10:48] Adam: I totally agree with that. I don't think it's the right answer. I when I hear that someone believes that, but I think it's too easy for us to go, " What an idiot," and then just sort of high five each other.
 
 [00:10:59] Norm: And so that's the discussion I wanted to bring about.
 
@@ -320,9 +320,9 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:11:16] Will: The Kennedy things totally—. I've been there. That's a hell of a shot.
 
-[00:11:21] Adam: And there is a human need. It is the same, I think, personally, that it has a similar impetus as people believing that the world's about to end. We want to believe we're that that that that famous what do you call it wish that you can give to someone: may you live in interesting times, right? I, I think that that—
+[00:11:21] Adam: And there is a human need. It is the same, I think, personally, that it has a similar impetus as people believing that the world's about to end. We want to believe we're that that that that famous what do you call it wish that you can give to someone: may you live in interesting times, right? I think that that—
 
-[00:11:47] Norm: that the 50 to 100 years that we occupy is a special significance in in the history of not only mankind but of Earth and the universe on a cosmic scale.
+[00:11:47] Norm: that the 50 to 100 years that we occupy is a special significance in the history of not only mankind but of Earth and the universe on a cosmic scale.
 
 [00:11:57] Will: I mean, if you look at
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:12:18] Adam: yeah,
 
-[00:12:18] Norm: right. And the the alternatives for that is that if you don't live in interesting times, quote unquote, is that you are insignificant. The reality
+[00:12:18] Norm: right. And the alternatives for that is that if you don't live in interesting times, quote unquote, is that you are insignificant. The reality
 
 [00:12:26] [unclear: Adam / Will]: you have to confront the fact that you are insignificant.
 
@@ -346,7 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:12:28] Adam: We are, as Tim Minchin says insignificant specks of carbon.
 
-[00:12:35] Norm: Well, and that kind of goes against the genetic code that we have to to procreate and to of survival.
+[00:12:35] Norm: Well, and that kind of goes against the genetic code that we have to procreate and to of survival.
 
 [00:12:42] Adam: Yeah, it's the it's that there are no animal conspiracy theorists. It is a result of our sentience, and I think it's a construction. I don't know. But you think there's some
 
@@ -372,7 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:13:15] Adam: But what's the
 
-[00:13:16] Will: word? Uh, Cosmodrome. What is it before they they figure out the anagram?
+[00:13:16] Will: word? Cosmodrome. What is it before they figure out the anagram?
 
 [00:13:22] Adam: Oh, that it's too many secrets. God, I can't remember.
 
@@ -392,9 +392,9 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:14:30] [unclear: Adam / Will]: I agree.
 
-[00:14:30] Will: It's it's.
+[00:14:30] Will: It's.
 
-[00:14:31] Norm: But going back to why people believe these things, and it's their need to believe in the conspiracy theory and need to believe in only the things they see, is because you can't comprehend the the bigger world and the bigger context is kind of scary. All all these things that you can't see, right? Um, and so, [unclear: what’s on the phone / there was a phone]? Um, you have a poster I think in the cave about. I think it's about argumentation.
+[00:14:31] Norm: But going back to why people believe these things, and it's their need to believe in the conspiracy theory and need to believe in only the things they see, is because you can't comprehend the bigger world and the bigger context is kind of scary. All all these things that you can't see, right? And so, [unclear: what’s on the phone / there was a phone] You have a poster I think in the cave about. I think it's about argumentation.
 
 [00:14:57] Adam: I have all the cognitive biases,
 
@@ -412,19 +412,19 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:15:26] Adam: Right.
 
-[00:15:26] Will: Um, and it's the techniques that you use to to to do that. In a lot of cases, it's interesting because when you know what they are, that along with a decent, healthy sense of empathy, lets you understand the world around you better than anything else you can do. I think.
+[00:15:26] Will: And it's the techniques that you use to do that. In a lot of cases, it's interesting because when you know what they are, that along with a decent, healthy sense of empathy, lets you understand the world around you better than anything else you can do. I think.
 
 [00:15:48] [unclear: Adam / Norm]: Right, right.
 
 [00:15:49] Norm: But it's still uphill. You ever get to fight it every time?
 
-[00:15:51] Adam: You have to fight it every single time. Every scientist worth their salt fights it constantly. There's a great bit in Hadfield's book, An Astronaut's Guide to Life on Earth, where he's in a NASA meeting. They're going over a they're you know going over a a test that they'd done, and Chris said, " I think that the results of the next one is going to be blah blah blah." He had something to say about the next test. And everyone kind of like okay, cool. And then somebody in the meeting said, " Don't, don't be swayed by Chris's level of intelligence and his authority. Let's you know make sure you test it yourself."
+[00:15:51] Adam: You have to fight it every single time. Every scientist worth their salt fights it constantly. There's a great bit in Hadfield's book, An Astronaut's Guide to Life on Earth, where he's in a NASA meeting. They're going over a they're you know going over a test that they'd done, and Chris said, " I think that the results of the next one is going to be blah blah blah." He had something to say about the next test. And everyone kind of like okay, cool. And then somebody in the meeting said, " Don't, don't be swayed by Chris's level of intelligence and his authority. Let's you know make sure you test it yourself."
 
 [00:15:51] Will: Yeah.
 
 [00:15:51] Adam: And Chris was a little bit pissed off, but he heard this and he realized, no, this is the deepest scientific way of approaching the thing. He does carry a tremendous amount of authority with what he says, and that shouldn't sway you.
 
-[00:16:43] Will: If if you want to see a perfect example of this, play a game like Werewolf or The Resistance or Secret Hitler or one of the they're they're basically party games about figuring out the state of a room based on imperfect knowledge. And you know, I think it's it's a it's a it's a so I played I played one of these games a few weeks ago. I made an assumption based on the fact that two people seemed to be working together, which indicated that they had knowledge the rest of the room wouldn't. Which then made me think, oh, they're the they're the bad guys, and I wasn't able to let go of it.
+[00:16:43] Will: If you want to see a perfect example of this, play a game like Werewolf or The Resistance or Secret Hitler or one of the they're basically party games about figuring out the state of a room based on imperfect knowledge. And I think it's a so I played one of these games a few weeks ago. I made an assumption based on the fact that two people seemed to be working together, which indicated that they had knowledge the rest of the room wouldn't. Which then made me think, oh, they're the bad guys, and I wasn't able to let go of it.
 
 [00:16:43] Adam: Yeah,
 
@@ -432,7 +432,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:16:43] Adam: Oh wow!
 
-[00:16:43] Will: Because I, I, I had made this one early assumption in the first like two or three minutes of an hour long game, and it's still fun as a result of like that's that's the way the game works, right?
+[00:16:43] Will: Because I, I, I had made this one early assumption in the first like two or three minutes of an hour long game, and it's still fun as a result of like that's the way the game works, right?
 
 [00:17:26] Adam: Yeah, yeah, yeah.
 
@@ -444,23 +444,23 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:17:35] Will: Yeah,
 
-[00:17:35] Norm: and and that's that was the premise.
+[00:17:35] Norm: and that's that was the premise.
 
 [00:17:37] Adam: And it shows that when I mean, I know that there's been studies that when you try and can give someone logical arguments against their conviction, it often makes them dig in.
 
 [00:17:45] Will: Well, and on
 
-[00:17:46] Adam: And all we any of us need to do is look inside our our own relationships to see the points at which we've dug into things that were dumb because we.
+[00:17:46] Adam: And all we any of us need to do is look inside our own relationships to see the points at which we've dug into things that were dumb because we.
 
 [00:17:55] Will: Yeah.
 
 [00:17:55] Adam: Yeah. Yep.
 
-[00:17:56] Will: Um. It was it was interesting because that initial assumption set put me in a position where any positive or negative feedback from those two people that I had fingered as the bad guys was gonna, was gonna, was gonna confirm my my initial error.
+[00:17:56] Will: It was interesting because that initial assumption set put me in a position where any positive or negative feedback from those two people that I had fingered as the bad guys was gonna confirm my initial error.
 
 [00:18:10] Adam: Yeah. Yeah.
 
-[00:18:11] Will: Um. Because it. Yeah. Either they're playing well or they're playing badly, and either one, I'm going to keep keep thinking that my initial aha was correct.
+[00:18:11] Will: Because it. Yeah. Either they're playing well or they're playing badly, and either one, I'm going to keep keep thinking that my initial aha was correct.
 
 [00:18:19] Norm: I mean, this is the kind of critical thinking that you hope you get taught in school—the cognitive biases—but it really isn't part of curriculum.
 
@@ -468,9 +468,9 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:18:27] Will: Well, the curriculum is about memorizing things and learning how to do basic math.
 
-[00:18:29] Adam: And let's go back. Let's pull back one more notch to to the shaming thing, because this is what what when you're shaming someone for a belief that is inarguably dumb, you aren't helping them, or you're not helping people who believe what they believe, or people who believe what you believe. I. You're you're not necessarily [unclear: good / —]. It's not the place. All you have to do is read a Reddit thread to see how toxic that can be. And I'm sorry for singling out Reddit. Any comment section of any website.
+[00:18:29] Adam: And let's go back. Let's pull back one more notch to the shaming thing, because this is what when you're shaming someone for a belief that is inarguably dumb, you aren't helping them, or you're not helping people who believe what they believe, or people who believe what you believe. I. You're not necessarily [unclear: good / —] It's not the place. All you have to do is read a Reddit thread to see how toxic that can be. And I'm sorry for singling out Reddit. Any comment section of any website.
 
-[00:19:04] Will: It's the It's the arguments we’ve been having in message boards since the dawn of the internet.
+[00:19:04] Will: It's the arguments we’ve been having in message boards since the dawn of the internet.
 
 [00:19:08] Adam: Yeah, exactly.
 
@@ -480,7 +480,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:19:23] Adam: I totally.
 
-[00:19:23] Will: Is a situation where the fact that we've let let a couple of people with really unbelievably misguided opinions and and some large voices damage herd immunity for massive swaths of population in North America is insane.
+[00:19:23] Will: Is a situation where the fact that we've let let a couple of people with really unbelievably misguided opinions and some large voices damage herd immunity for massive swaths of population in North America is insane.
 
 [00:19:23] Adam: It is insane.
 
@@ -522,11 +522,11 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:20:26] Adam: So look, I think this is. I think all three of us are agreed that this is a. We are asking for a perhaps. What do you call it? An olive branch to civil discussion.
 
-[00:20:39] Will: I, I, I. Empathy is better than not having empathy.
+[00:20:39] Will: I. Empathy is better than not having empathy.
 
 [00:20:44] Adam: Totally
 
-[00:20:44] Will: have empathy for the other people, even if they're saying something that is on the face, in in unimaginably dumb.
+[00:20:44] Will: have empathy for the other people, even if they're saying something that is on the face, in unimaginably dumb.
 
 [00:20:51] Adam: As Bugs Bunny said about the witch, she might not be pretty now, but she was someone's baby once. So you can remember that about Chancellor Trump.
 

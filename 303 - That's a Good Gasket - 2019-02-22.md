@@ -32,7 +32,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:01:04] Will: it's a. It's not a thermos.
 
-[00:01:05] Adam: I've got one in the in the Clavius base lunchbox over there that Tom Sachs built.
+[00:01:05] Adam: I've got one in the Clavius base lunchbox over there that Tom Sachs built.
 
 [00:01:11] Will: I have one for coffee, one for tea, and one that's just for cold water.
 
@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:01:17] Kishore: it it actually is too good at what it does. It like keeps stuff too hot. It's like like six hours later, it's like still burning hot.
 
-[00:01:25] Will: Nice. So the secret is to not preheat that. Like you know, you make a pour over coffee or something, you preheat the mug.
+[00:01:25] Will: Nice. So the secret is to not preheat that. Like you make a pour over coffee or something, you preheat the mug.
 
 [00:01:30] Adam: Yeah.
 
@@ -60,11 +60,11 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:01:42] Kishore: reviewing an item. Yeah.
 
-[00:01:42] Will: Oh. Yeah, we're we're a gateway drug for all sorts of thermal mug aficionados.
+[00:01:42] Will: Oh. Yeah, we're a gateway drug for all sorts of thermal mug aficionados.
 
 [00:01:46] Kishore: I have credit card receipts to prove that.
 
-[00:01:49] Will: The Zojirushi is one of those weird companies because I I don't know that this is true. Somebody's going to probably correct me, but my headcanon for why they make Like rice cookers and and thermal mugs and big coffee urns and all sorts of weird stuff. And the only thing I can tell in common with them is that they all have gaskets. Like they have these really fine rubber gaskets.
+[00:01:49] Will: The Zojirushi is one of those weird companies because I I don't know that this is true. Somebody's going to probably correct me, but my headcanon for why they make Like rice cookers and thermal mugs and big coffee urns and all sorts of weird stuff. And the only thing I can tell in common with them is that they all have gaskets. Like they have these really fine rubber gaskets.
 
 [00:02:10] Adam: Right.
 
@@ -72,17 +72,17 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:02:14] Adam: Is it somewhere they've got a gasket specialist? that's off the hook.
 
-[00:02:17] Will: Yes. Sometime in the '50s, they there was a gasket company. They were like, we need to we need to round up all the vertical interests around gaskets. And that's that's what they that's what they did. So they they like locked down all the Japanese industries that involved gasket making.
+[00:02:17] Will: Yes. Sometime in the '50s, they there was a gasket company. They were like, we need to round up all the vertical interests around gaskets. And that's what they did. So they like locked down all the Japanese industries that involved gasket making.
 
 [00:02:31] Adam: Oh my god!
 
 [00:02:31] Will: Gaskets.
 
-[00:02:31] Adam: So this strikes me as a really fertile genre of of of science fiction based on the most trivial aspects of engineering.
+[00:02:31] Adam: So this strikes me as a really fertile genre of science fiction based on the most trivial aspects of engineering.
 
-[00:02:42] Will: It's like it's like the William Gibson.
+[00:02:42] Will: It's like the William Gibson.
 
-[00:02:42] Adam: What happened? Right. So what it is, it's the it's the natural it's the natural extension of Guns, Germs, and Steel, right? Which was arguably Along with salt, one of the earliest books to kind of frame history through the lens of like these things, these trivial things were far more important than you thought. So now we project into the future, and you're like, you know, self-loading, self-loading gasket technology that's slightly pre-loaded was advanced by this company who then owned the market, and freshness became totally theirs,
+[00:02:42] Adam: What happened? Right. So what it is, it's the natural extension of Guns, Germs, and Steel, right? Which was arguably Along with salt, one of the earliest books to kind of frame history through the lens of like these things, these trivial things were far more important than you thought. So now we project into the future, and you're like self-loading gasket technology that's slightly pre-loaded was advanced by this company who then owned the market, and freshness became totally theirs,
 
 [00:03:16] Will: and thus was born Weyland-Yutani.
 
@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:03:19] Will: the gasket on that thing. It's a good gasket.
 
-[00:03:21] Kishore: All right, all right. Let's get to let's keep this gasket chat going.
+[00:03:21] Kishore: All right. Let's get to let's keep this gasket chat going.
 
 [00:03:25] Adam: Okay, speaking of science fiction, I just finished Cixin Liu's new book. It's not a new book, a Ball Lightning.
 
@@ -100,7 +100,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:03:39] Will: Cixin Liu is the Three Body Problem author, just for context, if you don't remember.
 
-[00:03:43] Kishore: And And so he wrote this before the trilogy.
+[00:03:43] Kishore: And so he wrote this before the trilogy.
 
 [00:03:47] Adam: He did actually. Frankly, I'm not, that was, That's why I was pausing in my head. I'm. I think he wrote it while writing the trilogy. I'm not positive.
 
@@ -120,7 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:04:34] Will: Oh that's great.
 
-[00:04:34] Adam: And I don't know if you've ever read any accounts of ball lightning, um, in which in the middle of a lightning storm, like a ball of what looks like cohesive plasma floats slowly through a room and then turns somebody to ash. Right? There's like. Ball lightning is weird. A significant number of human beings have witnessed it, like
+[00:04:34] Adam: And I don't know if you've ever read any accounts of ball lightning in which in the middle of a lightning storm, like a ball of what looks like cohesive plasma floats slowly through a room and then turns somebody to ash. Right? There's like. Ball lightning is weird. A significant number of human beings have witnessed it, like
 
 [00:04:54] Will: like enough that it's probably not an imagination or a shared hallucination or anything.
 
@@ -138,13 +138,13 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:05:27] Adam: Is so once it drops in the book, you're like, oh
 
-[00:05:31] Kishore: ! Is this the kind of thing that translates well too? Oh, like the the description of something technical like that?
+[00:05:31] Kishore: Is this the kind of thing that translates well too? Oh, like the description of something technical like that?
 
 [00:05:38] Adam: Well, it does because the explanation is so simple. So it's so ludicrously simple. It's a bit mind blowing
 
 [00:05:47] Will: It's just our spirits leaving our bodies and going up in space.
 
-[00:05:49] Kishore: I was gonna go, like, I don't—
+[00:05:49] Kishore: I was gonna go I don't—
 
 [00:05:50] Will: need to ask.
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:06:27] Adam: I think is the term
 
-[00:06:28] Will: yeah the the microwave my parents had was one from 1969 with a knob on it
+[00:06:28] Will: yeah the microwave my parents had was one from 1969 with a knob on it
 
 [00:06:33] Adam: oh
 
@@ -190,7 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:06:44] Adam: big chrome handle
 
-[00:06:45] Will: yeah it had a it had a like the The lever that you push down made a really satisfying crunch.
+[00:06:45] Will: yeah it had a like the lever that you push down made a really satisfying crunch.
 
 [00:06:51] Adam: Chunk, uh.
 
@@ -200,7 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:06:54] Will: We need more kchunks, really.
 
-[00:06:55] Adam: Well, you know, then we got the Juicero.
+[00:06:55] Adam: Well then we got the Juicero.
 
 [00:06:59] Kishore: Oh God,
 
@@ -212,7 +212,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:07:04] Kishore: when things are dead
 
-[00:07:04] Will: . Yeah, so so we were not allowed to use the microwave oven because it was very old, even when I was a child. And mom, we weren't even allowed to look into the microwave oven when it was on. To be perfectly frank, like my parents were geology majors and not great at the science sciences. So okay, so this this grape thing though was like I immediately wanted to go try it, and then I looked up to see if I was going to kill the microwave by not having enough stuff in there. And the answer was probably maybe, so I decided not to.
+[00:07:04] Will: Yeah, so so we were not allowed to use the microwave oven because it was very old, even when I was a child. And mom, we weren't even allowed to look into the microwave oven when it was on. To be perfectly frank, like my parents were geology majors and not great at the science sciences. So okay, so this grape thing though was like I immediately wanted to go try it, and then I looked up to see if I was going to kill the microwave by not having enough stuff in there. And the answer was probably maybe, so I decided not to.
 
 [00:07:34] Kishore: You can just put a cup of water in there and be fine.
 
@@ -220,7 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:07:36] Kishore: but it ruined it. It kind of dulls the effect. I mean, we should talk about this. So if you've never done this experiment, do try this at home.
 
-[00:07:44] Adam: Look, microwaves are microwaves are exceedingly inexpensive. Right, you can buy a $70 microwave
+[00:07:44] Adam: Look, microwaves are exceedingly inexpensive. Right, you can buy a $70 microwave
 
 [00:07:50] Will: unless they're attached to the wall.
 
@@ -234,7 +234,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:08:01] Kishore: So there's a new paper out because you can put a grape in, and the ideal way to put the grape in the microwave is you halve it, but you leave a little skin attaching the two halves of the grape, and then you just fire it up, and you'll see slowly, and usually about 15 to 20 seconds, you'll see a plasma arc from one half of the grape to the other side.
 
-[00:08:24] Will: Yeah, and and so
+[00:08:24] Will: Yeah, and so
 
 [00:08:26] Kishore: and then you'll get some smoky grape smell, which isn't bad.
 
@@ -258,7 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:09:00] Unknown speaker: That's a problem.
 
-[00:09:02] Will: You know, I have a theory about why dad jokes happen. As a, as an aside
+[00:09:02] Will: I have a theory about why dad jokes happen. As a, as an aside
 
 [00:09:06] Adam: here, I'd love to hear it because the fact that that's what goes through my comedy scroll now is really kicking my ass.
 
@@ -272,7 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:09:31] Will: No, that's what we do here.
 
-[00:09:32] Adam: that playing " Who's on First" by Abbott and Costello for my boys when they were about eight years old was one of the most enjoyable parenting moments of my life because watching their hungry eight year old brains receive the greatest comedy routine ever written and the depths of its, I just, I just an objective fact will.
+[00:09:32] Adam: that playing " Who's on First" by Abbott and Costello for my boys when they were about eight years old was one of the most enjoyable parenting moments of my life because watching their hungry eight year old brains receive the greatest comedy routine ever written and the depths of its, I just an objective fact will.
 
 [00:09:52] Will: I am just. I am. I am silently. Silence does not indicate compliance.
 
@@ -280,7 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:10:10] Will: Yeah, like you have a perfect audience. They laugh at everything, and as a result, your your sense of what is truly funny and what is not truly funny is is it's a dull knife. It goes from being very sharp and and rapier like when you are in your mid 30s to, uh, well,
 
-[00:10:24] Kishore: you know, it's gone too far when you go to your wife. You are like, I think I should try stand up.
+[00:10:24] Kishore: It's gone too far when you go to your wife. You are like, I think I should try stand up.
 
 [00:10:30] Will: Oh, No, no, no, you did that. How did that work out?
 
@@ -290,7 +290,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:10:34] Adam: Yeah, I tried stand up about the kids.
 
-[00:10:36] Will: Um, so that's a whole different thing.
+[00:10:36] Will: So that's a whole different thing.
 
 [00:10:40] Adam: Yes. Look, tried stand up is a specific phrase, and I don't think it's an accurate phrase because way back when, on the first live airing of his podcast, podcast Chris Hardwick. Oh, is there a thing?
 
@@ -306,9 +306,9 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:11:11] Will: Oh, no, it's yes and
 
-[00:11:12] Adam: okay. Largo is one of the great places to see comedy or music in the world, and it's an amazing place. And people like Patton Oswalt and Aimee Mann and Tig Notaro and that comedy troupe in LA, along with Thrilling Adventure Hour and folks like Wil Wheaton and our friends, it is a deeply wonderful place to go perform. But that's not. I want to tell you, I don't think that that's stand up because that's a deeply friendly, loving crowd. Stand up is going up and doing 15 minutes at Cobb's, where it's an aggressive stand up audience and people who've gone through that meat grinder. I have nothing but all respect for them. So when I say I've tried standup, I told some joke. I wrote jokes that I told in a friendly atmosphere, and they went over really well, and that was great. But I don't, I don't like to the standup comedians out there and my friends who do it. I recognize that I have just glimpsed a little peek from the mountaintop.
+[00:11:12] Adam: okay. Largo is one of the great places to see comedy or music in the world, and it's an amazing place. And people like Patton Oswalt and Aimee Mann and Tig Notaro and that comedy troupe in LA, along with Thrilling Adventure Hour and folks like Wil Wheaton and our friends, it is a deeply wonderful place to go perform. But that's not. I want to tell you, I don't think that that's stand up because that's a deeply friendly, loving crowd. Stand up is going up and doing 15 minutes at Cobb's, where it's an aggressive stand up audience and people who've gone through that meat grinder. I have nothing but all respect for them. So when I say I've tried standup, I told some joke. I wrote jokes that I told in a friendly atmosphere, and they went over really well, and that was great. But I don't like to the standup comedians out there and my friends who do it. I recognize that I have just glimpsed a little peek from the mountaintop.
 
-[00:12:12] Will: The the the the crowd at the Chuckle Hut down at the Holiday Inn at Exit 27 is not quite as friendly on a Tuesday night.
+[00:12:12] Will: The crowd at the Chuckle Hut down at the Holiday Inn at Exit 27 is not quite as friendly on a Tuesday night.
 
 [00:12:19] Kishore: I actually tried this. I tried doing open mics about more than a decade ago, and I remember my first one was at the Brainwash Cafe down here in Soma,
 
@@ -318,9 +318,9 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:12:33] Adam: It's always been a hipster mecca for 30 years.
 
-[00:12:36] Kishore: Yeah, totally. And so I remember my first set, and I had written, I had written political humor, so that was going to go over well. And then I get off stage, and the MC is like, " That was an incredible set. I wish he told some jokes." Oh, and I was like, " Ah, this is great."
+[00:12:36] Kishore: Yeah, totally. And so I remember my first set, and I had written political humor, so that was going to go over well. And then I get off stage, and the MC is like, " That was an incredible set. I wish he told some jokes." Oh, and I was like, " Ah, this is great."
 
-[00:12:56] Adam: I a few years ago for Sketchfest, I had, you know, Janet would will occasionally on Sketchfest just text me and be like, " Hey, there's this thing. Do you want to participate in this?" And I'll be like, " Yes." And on this particular year, I said yes, and then forgot about it until the night. Oh no! And then Janet texted me, and I was having dinner with my family, and she was like, " Hey, you're supposed to go on stage at Cobb's in 30 minutes, and yet you're not there. What is up?" And I was like, " I'll be there." And so I raced to Cobb's, parked, got out, ran up, ran on stage, and experienced for the first time a comedy club audience, which is a radically different audience than I had ever faced before, and that was totally intense. I did about 12 minutes.
+[00:12:56] Adam: I a few years ago for Sketchfest, I had Janet would will occasionally on Sketchfest just text me and be like, " Hey, there's this thing. Do you want to participate in this?" And I'll be like, " Yes." And on this particular year, I said yes, and then forgot about it until the night. Oh no! And then Janet texted me, and I was having dinner with my family, and she was like, " Hey, you're supposed to go on stage at Cobb's in 30 minutes, and yet you're not there. What is up?" And I was like, " I'll be there." And so I raced to Cobb's, parked, got out, ran up, ran on stage, and experienced for the first time a comedy club audience, which is a radically different audience than I had ever faced before, and that was totally intense. I did about 12 minutes.
 
 [00:13:40] Will: Oh God!
 
@@ -332,7 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:14:15] Will: yeah. They like they always talk. The ones that they talk about are the ones that they bombed, and that has to be like the shared. That has to be a shared thing for comedy.
 
-[00:14:24] Adam: To be sure, to be sure, to be able to get to be able to work your material again through that meat grinder. I think of it as a meat grinder against unfriendly audiences, and until you've really bombed and suffered and taken that on, and then gone through that, that to me is a is a a gauntlet of fire, and it's one of the reasons I think comedians often make the best actors.
+[00:14:24] Adam: To be sure, to be able to get to be able to work your material again through that meat grinder. I think of it as a meat grinder against unfriendly audiences, and until you've really bombed and suffered and taken that on, and then gone through that, that to me is a gauntlet of fire, and it's one of the reasons I think comedians often make the best actors.
 
 [00:14:46] Kishore: Speaking of fire. Let's talk about grapes again.
 
@@ -346,15 +346,15 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:14:57] Kishore: I saw a TV show about this.
 
-[00:15:00] Adam: someday I am doing a show about Greek fire. I've been tweeting about how many times you have to slap a chicken to to cook it.
+[00:15:00] Adam: someday I am doing a show about Greek fire. I've been tweeting about how many times you have to slap a chicken to cook it.
 
-[00:15:06] Kishore: I've been watching that thread, and I was like, I initially saw that that request come through, and I was like, oh, that's that's kind of a funny tweet for somebody to put, and then you took it seriously, and I was like, oh no, he's actually going to try this somehow.
+[00:15:06] Kishore: I've been watching that thread, and I was like, I initially saw that that request come through, and I was like, oh, that's kind of a funny tweet for somebody to put, and then you took it seriously, and I was like, oh no, he's actually going to try this somehow.
 
 [00:15:19] Adam: I was thinking about the guys who, I was thinking.
 
 [00:15:21] Kishore: We should set this up. Somebody tweeted at you.
 
-[00:15:23] Adam: Somebody okay, and I'm not sure it's a. Okay, somebody tweeted at me. Hey, my daughter wanted to know if if if you know you can add energy by hitting something. Can you cook a chicken by smacking it hard enough?
+[00:15:23] Adam: Somebody okay, and I'm not sure it's a. Okay, somebody tweeted at me. Hey, my daughter wanted to know if you know you can add energy by hitting something. Can you cook a chicken by smacking it hard enough?
 
 [00:15:37] Will: I mean, you could. So,
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:15:46] Adam: hold on to the energy.
 
-[00:15:47] Will: You you allow more energy transfer because it's a higher pressure,
+[00:15:47] Will: You allow more energy transfer because it's a higher pressure,
 
 [00:15:51] Adam: right?
 
@@ -380,17 +380,17 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:16:38] Adam: . You wanted to talk about grape fire, though.
 
-[00:16:40] Kishore: Oh, grapes. Yeah, so for the longest time, we thought the reason that. That arc happens is because the microwaves are essentially getting caught inside the grape, and they're they're sort of bouncing back and forth and like hitting the electrolytes, and that's actually causing superheating, which causes plasma to form, and then you get the arc to happen.
+[00:16:40] Kishore: Oh, grapes. Yeah, so for the longest time, we thought the reason that. That arc happens is because the microwaves are essentially getting caught inside the grape, and they're sort of bouncing back and forth and like hitting the electrolytes, and that's actually causing superheating, which causes plasma to form, and then you get the arc to happen.
 
-[00:16:59] Will: So the microwave trap the the grape
+[00:16:59] Will: So the microwave trap the grape
 
-[00:17:01] Kishore: exactly. And then there was a new paper that came out, and then Derek Muller of Veritasium put out a video, you know, in association to like this this paper coming out that explained that like part of what is happening or what we think is happening now is that the microwave is actually getting trapped in in the spaces between the grapes, and is sort of amplifying back and forth and sort of heating up the grape as a whole to this superheated level. And then the arc happens.
+[00:17:01] Kishore: exactly. And then there was a new paper that came out, and then Derek Muller of Veritasium put out a video in association to like this paper coming out that explained that like part of what is happening or what we think is happening now is that the microwave is actually getting trapped in the spaces between the grapes, and is sort of amplifying back and forth and sort of heating up the grape as a whole to this superheated level. And then the arc happens.
 
 [00:17:27] Adam: So when we use this to get to Mars, do we call it a Napa engine?
 
-[00:17:32] Kishore: And then you you probably went on a deep dive on this.
+[00:17:32] Kishore: And then you probably went on a deep dive on this.
 
-[00:17:35] Will: I went in. This is this is about as far as I got to be honest. So my question is, does the fact that they're half grapes matter? Could you just put two grapes side by side?
+[00:17:35] Will: I went in. This is about as far as I got to be honest. So my question is, does the fact that they're half grapes matter? Could you just put two grapes side by side?
 
 [00:17:44] Kishore: You could like totally put two grapes side by side and make it work.
 
@@ -408,13 +408,13 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:18:11] Will: There is a microwave oven over in the tested office, isn't there?
 
-[00:18:14] Kishore: I, I, there sure is.
+[00:18:14] Kishore: I, there sure is.
 
-[00:18:15] Will: After this. We should truck over there and see. The the other question I have is: Will any similarly sized object that is a liquid interior? So, could you get like raw quail eggs and put them in there?
+[00:18:15] Will: After this. We should truck over there and see. The other question I have is: Will any similarly sized object that is a liquid interior? So, could you get like raw quail eggs and put them in there?
 
 [00:18:28] Adam: Oh, or like just poke through a little bit of the shell of two quail eggs, or even better, use vinegar to dissolve the calcium, the outer part of two quail eggs, so they're much more like grapes.
 
-[00:18:40] Kishore: Yeah, I've tried a lot of other fruit. Like I thought, oranges would work as a child, and so I put like orange, you know, quarters in there next to each other. Nothing really happened.
+[00:18:40] Kishore: Yeah, I've tried a lot of other fruit. Like I thought, oranges would work as a child, and so I put like orange quarters in there next to each other. Nothing really happened.
 
 [00:18:49] Will: It has to be round, probably.
 
@@ -436,15 +436,15 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:19:11] Adam: no, no, we got to talk about it with Norm. We got to do a spoiler cast about it because it's a phenomenally great show, and I love how much deeper you're about to see that it's going to go deeper than you. It's going to go deeper and different than you think. I
 
-[00:19:23] Kishore: wonder. Part of the reason I think I enjoyed it so much is that it just showed up on Netflix, and I didn't get any of the like hype or any of the train. It was like, hey, maybe you'll like this, and I was like, okay, and I was like, hey, Natasha Lyonne, I like her,
+[00:19:23] Kishore: wonder. Part of the reason I think I enjoyed it so much is that it just showed up on Netflix, and I didn't get any of the like hype or any of the train. It was like, hey, maybe you'll like this, and I was like, okay, and I was like, hey, Natasha Lyonne, I her,
 
 [00:19:36] Adam: right, right, right.
 
-[00:19:36] Kishore: And then I just went into it, and then I'm hooked. You know, 20 minutes in, and it's it's that sort of Netflix model pushing stuff out. Where I just have none of this pre hype knowledge, anything else.
+[00:19:36] Kishore: And then I just went into it, and then I'm hooked. 20 Minutes in, and it's that sort of Netflix model pushing stuff out. Where I just have none of this pre hype knowledge, anything else.
 
-[00:19:48] Adam: I, I I love this show. It makes me so excited about science fiction and narrative. And I I love how, like I was saying to this last week on the podcast, the rules are weird and inscrutable, but they feel consistent.
+[00:19:48] Adam: I love this show. It makes me so excited about science fiction and narrative. And I I love how, like I was saying to this last week on the podcast, the rules are weird and inscrutable, but they feel consistent.
 
-[00:20:01] Will: Well, that's the important thing. Like, like if you like, imagine not to be reductive, but look at Groundhog Day. If the if the rules in Groundhog Day aren't really really straightforward and and relatively easy to understand, I mean, really consistent rather and and and easy to understand, even if they're not necessarily straightforward, it the whole thing falls apart. Yeah, like you have to be consistent with science fiction.
+[00:20:01] Will: Well, that's the important thing. Like if you like, imagine not to be reductive, but look at Groundhog Day. If the rules in Groundhog Day aren't really really straightforward and relatively easy to understand, I mean, really consistent rather and easy to understand, even if they're not necessarily straightforward, it the whole thing falls apart. Yeah, like you have to be consistent with science fiction.
 
 [00:20:22] Adam: Commensurate with this, as a slight tangent. Have you seen the College Humor Groundhog Day sketch?
 
@@ -454,7 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:20:29] Kishore, possibly Will: Does it have Stephen Tobolowsky in it? Because I am in.
 
-[00:20:31] Adam: No, it doesn't, but it's got this very funny bit. One guy walks into his office, and he's like. Don't drop your phone, Cal. Hey, how's it going? Right, he's doing that whole Groundhog Day thing, and he gets into the back, and this other coworker confronts him and goes, " Dude, are you having a Groundhog Day?" And then they talk about it from this meta perspective, and the degree to which he's like the guy, the the unknown, unknowing guy is asking questions about it, and the depths that they get into are really, really funny.
+[00:20:31] Adam: No, it doesn't, but it's got this very funny bit. One guy walks into his office, and he's like. Don't drop your phone, Cal. Hey, how's it going? Right, he's doing that whole Groundhog Day thing, and he gets into the back, and this other coworker confronts him and goes, " Dude, are you having a Groundhog Day?" And then they talk about it from this meta perspective, and the degree to which he's like the guy, the unknown, unknowing guy is asking questions about it, and the depths that they get into are really, really funny.
 
 [00:21:00] Will: This is like the Stephen Hawking time traveler party that he had, where he published the existence of the party after the actual event happened.
 
@@ -464,13 +464,13 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:21:09] Adam: yeah,
 
-[00:21:10] Will: yeah. It's a it's a good it's a good bit.
+[00:21:10] Will: yeah. It's a good bit.
 
 [00:21:13] Adam: I really dig that.
 
 [00:21:14] Will: Yeah.
 
-[00:22:38] Kishore: The Groundhog Day thing we did—we screened that last month for my my science series at the Alamo Drafthouse,
+[00:22:38] Kishore: The Groundhog Day thing we did—we screened that last month for my science series at the Alamo Drafthouse,
 
 [00:22:43] Adam: Oh, wow.
 
@@ -482,7 +482,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:23:12] Adam: What?
 
-[00:23:12] Kishore: over times. And it's just like some some guy was like, I'm going to start studying this this yellow bellied marmot in Colorado and just doing a continuous study on it, and it has been running since like 1962.
+[00:23:12] Kishore: over times. And it's just like some some guy was like, I'm going to start studying this yellow bellied marmot in Colorado and just doing a continuous study on it, and it has been running since like 1962.
 
 [00:23:26] Adam: Holy cow!
 
@@ -496,9 +496,9 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:23:44] Adam: Kishore you are blowing my mind.
 
-[00:23:46] Kishore: This is like I was initially thinking. Like I'm going to watch some interviews with Harold Ramis. He's going to talk about his Buddhist philosophy that he put in that movie. And like I'm going to calculate how much how much time Bill Murray was stuck in a loop. Nope, so much more in that movie.
+[00:23:46] Kishore: This is like I was initially thinking. Like I'm going to watch some interviews with Harold Ramis. He's going to talk about his Buddhist philosophy that he put in that movie. And like I'm going to calculate how much time Bill Murray was stuck in a loop. Nope, so much more in that movie.
 
-[00:24:00] Will: I always I always assumed that a marmot was like a small weasel because of the big Lebowski, without ever knowing what a marmot actually is. ,
+[00:24:00] Will: I always assumed that a marmot was like a small weasel because of the big Lebowski, without ever knowing what a marmot actually is. ,
 
 [00:24:12] Adam: Wow that's awesome! And you're doing Jurassic Park next month.
 
@@ -510,7 +510,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:24:33] Will: I didn't know that either.
 
-[00:24:34] Kishore: It's It's footage that was originally shot, and now they're showing it in 70 mil
+[00:24:34] Kishore: It's footage that was originally shot, and now they're showing it in 70 mil
 
 [00:24:41] Adam: Wow.
 
@@ -526,7 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:25:07] Will: That's pretty cool. Do you know what the name of the documentary is?
 
-[00:25:09] Kishore: It's called Apollo 11. It's like it's like
+[00:25:09] Kishore: It's called Apollo 11. It's like
 
 [00:25:11] Adam: How did it come up with that?
 
@@ -548,11 +548,11 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:25:34] Kishore: Make up an out. Have them call you
 
-[00:25:36] Adam: . Yeah. This is this is Matt Parker from Numberphile.
+[00:25:36] Adam: Yeah. This is Matt Parker from Numberphile.
 
 [00:25:40] Kishore: He's the best.
 
-[00:25:41] Adam: I love him. And yeah, so my my wife was like, " You get to see one of your math friends tonight," because she she's been making fun of me. I'll sit there with headphones on, watching Numberphile, and then deep dives into mathematics. And literally, about every 10 minutes, I'll go, " Oh, oh!" As some geometric thing is revealed of its symmetry to the pi and Fibonacci, and she's like, " You guys can get all emotional about math together."
+[00:25:41] Adam: I love him. And yeah, so my wife was like, " You get to see one of your math friends tonight," because she she's been making fun of me. I'll sit there with headphones on, watching Numberphile, and then deep dives into mathematics. And literally, about every 10 minutes, I'll go, " Oh, oh!" As some geometric thing is revealed of its symmetry to the pi and Fibonacci, and she's like, " You guys can get all emotional about math together."
 
 [00:26:10] Kishore: He's he's incredible. the The video he did where he basically used a massive set of dominoes and set them up to perform calculations
 
@@ -560,9 +560,9 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:26:19] Kishore: make a computer.
 
-[00:26:21] Will: The well, I don't want to spoil it, but the thing from that book that we were talking about, you know, in the past at some point.
+[00:26:21] Will: The well, I don't want to spoil it, but the thing from that book that we were talking about in the past at some point.
 
-[00:26:26] Adam: Ah, yes, absolutely. Um.
+[00:26:26] Adam: Ah, yes, absolutely.
 
 [00:26:29] Will: You guys know what I'm talking about.
 
@@ -584,7 +584,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:27:22] Adam: And it seems to have been released as like an afterthought, right? Without a lot of fanfare.
 
-[00:27:26] Will: Nintendo, like it looks like it. It plays almost like a prototype, right? Like it's like it's like a really clean, nice prototype. There is not any tutorial that explains how the mechanics work, and the way it works is you kind of want to like manage aggro with all the other players because when you
+[00:27:26] Will: Nintendo it looks like it. It plays almost like a prototype, right? Like it's like a really clean, nice prototype. There is not any tutorial that explains how the mechanics work, and the way it works is you kind of want to like manage aggro with all the other players because when you
 
 [00:27:43] Adam: you can see all of your other opponents on your central screen.
 
@@ -596,7 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:27:58] Adam: No, no no. This is the thing: is as you complete rows, you can take that row and send it to a specific player
 
-[00:28:03] Will: , and you can send it to a specific player, or you can send it to people in general. And the interesting thing is, like, if you can get a bunch of people to be attacking you, then you can send each of your rows out to all of the other people that are attacking you. So you can turn like one finished row into 10 or 12 if you have 6, 10 or 12 people attacking you.
+[00:28:03] Will: and you can send it to a specific player, or you can send it to people in general. And the interesting thing is if you can get a bunch of people to be attacking you, then you can send each of your rows out to all of the other people that are attacking you. So you can turn like one finished row into 10 or 12 if you have 6, 10 or 12 people attacking you.
 
 [00:28:22] Adam: Oh,
 
@@ -604,11 +604,11 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:28:28] Adam: It's like a mental frame that's really hard to hold.
 
-[00:28:31] Will: Well, but the thing that's interesting about it is the the thing about Tetris that's always been interesting is that that ability that once you get in the rhythm of Tetris, you kind of don't have to think about the playing Tetris, and you can think about what the next pieces in the line are, what you have in your hold slot, and all that.
+[00:28:31] Will: Well, but the thing that's interesting about it is the thing about Tetris that's always been interesting is that that ability that once you get in the rhythm of Tetris, you kind of don't have to think about the playing Tetris, and you can think about what the next pieces in the line are, what you have in your hold slot, and all that.
 
 [00:28:44] Adam: Right.
 
-[00:28:44] Will: And the thing is, it it turns out that can expand even further. So if when you get in the groove, you can kind of pay attention to what's going on in the overall. Amazing. You're not going to look at what's going on. Like, just let me take a step back.
+[00:28:44] Will: And the thing is, it turns out that can expand even further. So if when you get in the groove, you can kind of pay attention to what's going on in the overall. Amazing. You're not going to look at what's going on. Like, just let me take a step back.
 
 [00:28:55] Adam: You're getting excited, Will.
 
@@ -618,15 +618,15 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:29:34] Adam: Apparently there are some games you join where you die almost immediately.
 
-[00:29:36] Will: It's just normal Tetris in the beginning. Like you're just playing normal kind of slow Tetris, making lines. The overall strategy is the the meta for the overall strategy is a little bit different because it seems like instead of trying to build Tetrises and getting points, you're just trying to knock other people out, which generates more kind of a bigger multiplier for you for the number of lines.
+[00:29:36] Will: It's just normal Tetris in the beginning. Like you're just playing normal kind of slow Tetris, making lines. The overall strategy is the meta for the overall strategy is a little bit different because it seems like instead of trying to build Tetrises and getting points, you're just trying to knock other people out, which generates more kind of a bigger multiplier for you for the number of lines.
 
-[00:29:54] Kishore: But then when you get down to like that final 10, final five, you're you're playing like 3D chess.
+[00:29:54] Kishore: But then when you get down to like that final 10, final five, you're playing like 3D chess.
 
 [00:29:59] Will: It's frenetic at a level that I've never experienced with Tetris before.
 
 [00:30:02] Adam: I have. that's, it sounds really fun.
 
-[00:30:04] Will: It's only out on the Switch. I'll bring the Switch in next time I come over. I it is like it's intoxicating in in the way that it stimulates your brain to do like six different things at one time.
+[00:30:04] Will: It's only out on the Switch. I'll bring the Switch in next time I come over. I it is like it's intoxicating in the way that it stimulates your brain to do like six different things at one time.
 
 [00:30:15] Adam: Amazing.
 
@@ -654,7 +654,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:31:16] Will: . Yeah. Versus taking multiple vials. Yes.
 
-[00:31:19] Kishore: Which has been like a a sort of holy grail for a lot of research groups for a long time. The sort of like single chip that was going to do a bunch of tests.
+[00:31:19] Kishore: Which has been like a sort of holy grail for a lot of research groups for a long time. The sort of like single chip that was going to do a bunch of tests.
 
 [00:31:27] Adam: And Elizabeth Holmes was the world's youngest self-made. Billionaire, female billionaire, and she put all these amazing people on the board. All these actually weird people, like Henry Kissinger and George Shultz and other Silicon Valley executives.
 
@@ -714,17 +714,17 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:33:43] Will, possibly Kishore: The Dropout.
 
-[00:33:44] Adam: Um, and so it has this one. Tell me if this is something you experience about podcasts because they all use um inexpensive music.
+[00:33:44] Adam: And so it has this one. Tell me if this is something you experience about podcasts because they all use inexpensive music.
 
 [00:33:55] Will: Jingle punks. Jingle punks. SoundCloud. Right. There's a bunch of places you get. royalty free music.
 
-[00:33:58] Adam: And we use it on Tested videos too. Um, but one thing about the the the music that they choose for this podcast is that it'll end up being I'm listening in my car and I drive my Land Cruiser. It's a noisy car, but like the music's going on in the background and the music is just some little thrum of a kind of a rhythmic beat going on. But in a noisy car, it's a nightmare because what it sounds like is every now and then it'll sound like something on my car is rattling because I hear a tink tink tink or I'll hear a mm, mm. And I'll be like, " Is my phone ringing? Is my phone ringing?
+[00:33:58] Adam: And we use it on Tested videos too. But one thing about the music that they choose for this podcast is that it'll end up being I'm listening in my car and I drive my Land Cruiser. It's a noisy car, but like the music's going on in the background and the music is just some little thrum of a kind of a rhythmic beat going on. But in a noisy car, it's a nightmare because what it sounds like is every now and then it'll sound like something on my car is rattling because I hear a tink tink tink or I'll hear a mm, mm. And I'll be like, " Is my phone ringing? Is my phone ringing?
 
 [00:34:31] Will: There's gotta be a name for that.
 
-[00:34:31] Adam: No, it's the it's the sound creep of this dumb open source music.
+[00:34:31] Adam: No, it's the sound creep of this dumb open source music.
 
-[00:34:37] Kishore: I blame Jad from Radio Lab because, like, I I feel like the he's the one that invented like the random sounds just emerging during podcasts.
+[00:34:37] Kishore: I blame Jad from Radio Lab because I I feel like the he's the one that invented like the random sounds just emerging during podcasts.
 
 [00:34:45] Adam: It's driving me crazy.
 
@@ -732,7 +732,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:35:09] Adam: Yeah,
 
-[00:35:09] Will: be like, and that's that's our song. Come on. Buy exclusive rights, guys. Anyway, yeah, the that music that that music thing popping up happens to me all the time because I sit with headphones on my office,
+[00:35:09] Will: be like, and that's our song. Come on. Buy exclusive rights, guys. Anyway, yeah, the that music that that music thing popping up happens to me all the time because I sit with headphones on my office,
 
 [00:35:22] Adam: right?
 
@@ -740,7 +740,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:35:26] Adam: yeah,
 
-[00:35:26] Will: it makes it it
+[00:35:26] Will: it makes it
 
 [00:35:28] Adam: it makes me crazy.
 
@@ -750,9 +750,9 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:35:36] Kishore, possibly Will: Ooh, Wow!
 
-[00:35:37] Adam: Yeah, I'm. Uh, I've done a quarter of them now.
+[00:35:37] Adam: Yeah, I'm. I've done a quarter of them now.
 
-[00:35:40] Will: What's your What's your rate? Yeah, I we've talked about
+[00:35:40] Will: What's your rate? Yeah, I we've talked about
 
 [00:35:42] Adam: . Sorry, I have my cheat sheet around here somewhere. I'm able to sign 100 in less than four minutes.
 
@@ -766,7 +766,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:36:08] Kishore: I'm totally calculating the amount of ink in a sharpie now, based off of this
 
-[00:36:11] Will: . It's good to know. Um, I think that'll do it for us today.
+[00:36:11] Will: It's good to know. I think that'll do it for us today.
 
 [00:36:15] Adam: I think so.
 
@@ -776,9 +776,9 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:36:17] Kishore: Yeah, Absolutely.
 
-[00:36:17] Will: Um, we'll be back next week. I'm sure there's great stuff on tested this week. You should probably go to the site and look at it. Norm’ll yell at me if I don't say that. Probably.
+[00:36:17] Will: We'll be back next week. I'm sure there's great stuff on tested this week. You should probably go to the site and look at it. Norm’ll yell at me if I don't say that. Probably.
 
-[00:36:25] Kishore: There's a really good video on um the prop store doing their first toy auction on like old Star Wars collectibles. ,
+[00:36:25] Kishore: There's a really good video on the prop store doing their first toy auction on like old Star Wars collectibles. ,
 
 [00:36:33] Adam: Oh, awesome! Oh oh, oh! Wait, before we go, I just just for the podcast. ,
 
@@ -786,11 +786,11 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:36:44] Kishore: Sorry.
 
-[00:36:44] Adam: So, um, we get we get weird stuff on Tested.
+[00:36:44] Adam: So we get weird stuff on Tested.
 
 [00:36:47] Will: Yeah.
 
-[00:36:47] Adam: And this came in the mail the other day. Um, we're not going to show this to camera, but I want each of you to just take a look at Wookieerotica. I posted a picture of this on Tested.
+[00:36:47] Adam: And this came in the mail the other day. We're not going to show this to camera, but I want each of you to just take a look at Wookieerotica. I posted a picture of this on Tested.
 
 [00:37:00] Will: You were going to show it to camera.
 
@@ -800,23 +800,23 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:37:02] Adam: No, no, no! Open it up. Just look inside. Just flip through and enjoy the total bizarro world of parody Star Wars soft core pornography.
 
-[00:37:16] Will: This is this is like National Geographic from from a galaxy far far away.
+[00:37:16] Will: This is like National Geographic from a galaxy far far away.
 
 [00:37:20] Kishore: They even have like a New Yorker type cartoon in here. This is weird.
 
-[00:37:23] Adam: It's ab it's it's abidingly weird.
+[00:37:23] Adam: It's ab it's abidingly weird.
 
 [00:37:26] Will: Wookieerotica.
 
 [00:37:26] Adam: I just thought you guys. I wanted. I wanted you guys to see that before we wrap up.
 
-[00:37:31] Will: . This ad on the back is pretty good. Some things are worth holding onto, and it's it's a wampa arm holding onto a bottle of vodka. Smurth. This is this is this is shockingly well thought out. .
+[00:37:31] Will: This ad on the back is pretty good. Some things are worth holding onto, and it's a wampa arm holding onto a bottle of vodka. Smurth. This is shockingly well thought out.
 
 [00:37:46] Adam: Yeah, I know. It's really well made I don't. I don't. I haven't done any research into who put together this amazing thing. It's a Star Wars parody magazine
 
 [00:37:53] Will: of like '70s soft core porn.
 
-[00:37:55] Adam: It's um. It's really kind of bizarre.
+[00:37:55] Adam: It's. It's really kind of bizarre.
 
 [00:37:57] Will: Kind of porn you'd find in the woods of Endor. See you guys next week.
 

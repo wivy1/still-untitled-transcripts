@@ -82,11 +82,11 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:01:39] Will: I like to give enough of a pause there that people are expecting. They're excited about it when we come in.
 
-[00:01:44] Adam: Honestly, the the the length of that pause made your speaking feel like a pebble dropped in a quiet lake.
+[00:01:44] Adam: Honestly, the length of that pause made your speaking feel like a pebble dropped in a quiet lake.
 
-[00:01:49] Will: I was hoping for a sense of of quiet release from the tension that was building in the otherwise quiet room.
+[00:01:49] Will: I was hoping for a sense of quiet release from the tension that was building in the otherwise quiet room.
 
-[00:01:56] Adam: You you absolutely, I'd say both could be descriptions of the same thing, Maggie. My little wire terrier rescue dog is begging for some attention here. I'm actually going to be speaking at the ASPCA's donor dinner.
+[00:01:56] Adam: You absolutely, I'd say both could be descriptions of the same thing, Maggie. My little wire terrier rescue dog is begging for some attention here. I'm actually going to be speaking at the ASPCA's donor dinner.
 
 [00:01:56] Will: Oh, awesome!
 
@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:02:23] Will: this will be in the past.
 
-[00:02:24] Adam: But I'm so I'm still not quite positive what I'm going to say, and this is frequent with me and talks. Right, I I so I tend to leave these things until late, and I gestate, I think about them for a long time, and then I write them down a few hours before the talk. Many times I do that, and with this one, I'm not really sure what to do because if these are people that have given between $1,000 and $10,000 to the ASPCA, they agree with me wholeheartedly that everyone should go get rescue dogs and please have your dog neutered or spayed, and that there's way too many there's way more dogs out there who need homes and love. than there are homes and love, and so please stop adding to it by getting, you know, pure breed dogs, and go get a rescue dog.
+[00:02:24] Adam: But I'm so I'm still not quite positive what I'm going to say, and this is frequent with me and talks. Right, I I so I tend to leave these things until late, and I gestate, I think about them for a long time, and then I write them down a few hours before the talk. Many times I do that, and with this one, I'm not really sure what to do because if these are people that have given between $1,000 and $10,000 to the ASPCA, they agree with me wholeheartedly that everyone should go get rescue dogs and please have your dog neutered or spayed, and that there's way too many there's way more dogs out there who need homes and love. than there are homes and love, and so please stop adding to it by getting pure breed dogs, and go get a rescue dog.
 
 [00:03:10] Will: Or if you want a pure breed dog, there's pure breed rescues for all breeds.
 
@@ -114,7 +114,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:03:28] Will: And greyhounds are awesome because to exercise them, you just take a ball out to the park, throw it three times. They're like, " Well, I'm done. I'll see you at 10 o'clock tonight.
 
-[00:03:35] Adam: That's that's all I can do. Run at 80 miles an hour for a minute.
+[00:03:35] Adam: That's all I can do. Run at 80 miles an hour for a minute.
 
 [00:03:38] Norm: So you’ll be preaching to the choir, and you want to give  something.
 
@@ -126,7 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:03:43] Norm: expectation?
 
-[00:03:44] Adam: Right, so I'm not exactly sure what to what to say. I mean, obviously, I feel like I feel like I should tell the story of of our rescue dogs, right? Because I never had a dog growing up. Huxley, our bigger dog, is the first dog I've ever had, and
+[00:03:44] Adam: Right, so I'm not exactly sure what to say. I mean, obviously, I feel like I should tell the story of our rescue dogs, right? Because I never had a dog growing up. Huxley, our bigger dog, is the first dog I've ever had, and
 
 [00:04:00] Will: Well, you guys did good.
 
@@ -134,7 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:04:02] Will: Yeah,
 
-[00:04:03] Adam: that and that's from Berkeley Humane, and it really was instant love, love at first sight upon seeing him, and ever since. I mean, we're now. I mean, the the worst part about a dog is it is a lesson in impermanence, right? We're going to outlive him by a long way, and that is the saddest thing in the world because he has brought so much amazing affection into our lives. And and then Maggie, a couple of years later. So I think I'll tell the story about wanting to get a dog. They only want me to speak for about 10 minutes. That'll take like six minutes to do that, and maybe I, you know, maybe I'll find some more to discuss within that about my father's allergies to animals and the fact that we never only had cats and cats are dicks.
+[00:04:03] Adam: that and that's from Berkeley Humane, and it really was instant love, love at first sight upon seeing him, and ever since. I mean, we're now. I mean, the worst part about a dog is it is a lesson in impermanence, right? We're going to outlive him by a long way, and that is the saddest thing in the world because he has brought so much amazing affection into our lives. And then Maggie, a couple of years later. So I think I'll tell the story about wanting to get a dog. They only want me to speak for about 10 minutes. That'll take like six minutes to do that, and maybe I maybe I'll find some more to discuss within that about my father's allergies to animals and the fact that we never only had cats and cats are dicks.
 
 [00:04:51] Will: They're bad.
 
@@ -180,17 +180,17 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:06:13] Will: conducts better.
 
-[00:06:13] Adam: Yeah, conducts better, I guess. So I heat it up, I I plug it in, I wet it, not necessarily in this order, and then I put it under his neck, and it's awesome. Oh, he's feeling really good. Okay, cool, he's calming down, he's calming down. But now the cat, oh, he gets up to have a glass of water, and when he turns back around, the cat has got its paws. The cat has got the heat and hot and wet moist pad, and it's like literally hugging it with all four of its limbs and licking it. Like it must feel like mom's belly or something. This cat is like, this is the greatest thing I've ever experienced. Right? So we're like, what do we do? We try and push the cat. The cat's like, nope, nope, I'm not moving. So finally, the two of us and he's remember he's on psychedelic, so he's somewhat diminished capacity.
+[00:06:13] Adam: Yeah, conducts better, I guess. So I heat it up, I I plug it in, I wet it, not necessarily in this order, and then I put it under his neck, and it's awesome. Oh, he's feeling really good. Okay, cool, he's calming down. But now the cat, oh, he gets up to have a glass of water, and when he turns back around, the cat has got its paws. The cat has got the heat and hot and wet moist pad, and it's like literally hugging it with all four of its limbs and licking it. It must feel like mom's belly or something. This cat is like, this is the greatest thing I've ever experienced. Right? So we're like, what do we do? We try and push the cat. The cat's like, nope, nope, I'm not moving. So finally, the two of us and he's remember he's on psychedelic, so he's somewhat diminished capacity.
 
 [00:06:13] Will: A good time.
 
-[00:06:13] Adam: We managed to pry the cat off the hot and moist pad. And my friend lies down. My roommate lies back down on the on the on the hot and moist pad. Now he's he's getting, but the cat wants it back in. So the cat kind of nuzzles his face, and when that doesn't work, the cat turns around and puts its butthole right up to my roommate's eye, and he he basically like opens his eyes and looks and goes oh! And as he moves his head away, the cat, dunk, clamps back on the hot and moist pad. It was like it knew. So if you ever wonder whether cats know that they're showing you their butt, they totally know. Oh yeah, it's a complete total dis. The cat did that three more times because he was tripping and didn't realize that this was a problem, and I just thought it was hilarious, so I'm laughing my ass off. Cat did that three more times before it was clear we had to lock the cat out of the room because it was just going to keep doing that.
+[00:06:13] Adam: We managed to pry the cat off the hot and moist pad. And my friend lies down. My roommate lies back down on the hot and moist pad. Now he's getting, but the cat wants it back in. So the cat kind of nuzzles his face, and when that doesn't work, the cat turns around and puts its butthole right up to my roommate's eye, and he basically like opens his eyes and looks and goes oh! And as he moves his head away, the cat, dunk, clamps back on the hot and moist pad. It was like it knew. So if you ever wonder whether cats know that they're showing you their butt, they totally know. Oh yeah, it's a complete total dis. The cat did that three more times because he was tripping and didn't realize that this was a problem, and I just thought it was hilarious, so I'm laughing my ass off. Cat did that three more times before it was clear we had to lock the cat out of the room because it was just going to keep doing that.
 
 [00:07:57] Will: Oh my god!
 
 [00:07:58] Adam: So so monkeys aren't the only ones that use tools.
 
-[00:08:02] Will: The thing is, when the dog when the dog when you get an eyeball of the dog's ass. It's just because the dog is trying to get in a more comfortable position and is unaware of the social aspects of, you know, baring its its nethers.
+[00:08:02] Will: The thing is, when the dog when you get an eyeball of the dog's ass. It's just because the dog is trying to get in a more comfortable position and is unaware of the social aspects of baring its its nethers.
 
 [00:08:02] Adam: Its starfish.
 
@@ -214,7 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:08:48] Norm: behind here? Oh, this is awesome.
 
-[00:08:50] Will: You can see it from the other side. Um, I don't remember what we were going to talk about at this point.
+[00:08:50] Will: You can see it from the other side. I don't remember what we were going to talk about at this point.
 
 [00:08:55] Norm: You were talking about the ASPCA.
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:09:57] Norm: I gave you the easy in.
 
-[00:09:58] Adam: Norm is, Norm is.
+[00:09:58] Adam: Norm is.
 
 [00:10:00] Will: That's it. We're going to talk about Guardians of the Galaxy. How about that, Vin Diesel? You guys seen Fast and the Furious six? We've all seen Guardians of the Galaxy.
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:10:00] Will: it was contrary to what I said right before you left for Australia. They did actually open worldwide, and you were able to see it while you were gone.
 
-[00:10:16] Adam: I was. We saw it. We had kind of an experience going to see it because what I did was I handed I handed the task of booking us tickets to Thing Two. I said, " Hey, we want to see go go see Guardians of the Galaxy. We're in
+[00:10:16] Adam: I was. We saw it. We had kind of an experience going to see it because what I did was I handed the task of booking us tickets to Thing Two. I said, " Hey, we want to see go go see Guardians of the Galaxy. We're in
 
 [00:10:35] Will: Australia,
 
@@ -282,11 +282,11 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:11:05] Will: Yeah,
 
-[00:11:07] Adam: so then I say. Uh wait how does this work oh
+[00:11:07] Adam: so then I say. Wait how does this work oh
 
 [00:11:12] Will: well it's because you took his phone away so he didn't have Fandango
 
-[00:11:15] Adam: no he had his phone he had a laptop I said look it's called this this is the theater go I sent him the link here's the theater it's got an eight o'clock showing there's seats available book it so he comes back and he says I booked it for the eight o'clock show we're good so 7:30 no the theater's like two blocks away 7:30 rolls around I'm like um so do we need to print those tickets out or we can just go to will call he goes let me check oh um dad I've messed up I didn't buy the tickets to that theater I bought it to a theater that's 45 minutes away
+[00:11:15] Adam: no he had his phone he had a laptop I said look it's called this is the theater go I sent him the link here's the theater it's got an eight o'clock showing there's seats available book it so he comes back and he says I booked it for the eight o'clock show we're good so 7:30 no the theater's like two blocks away 7:30 rolls around I'm like so do we need to print those tickets out or we can just go to will call he goes let me check oh dad I've messed up I didn't buy the tickets to that theater I bought it to a theater that's 45 minutes away
 
 [00:11:46] Will: Oh no. So hold on so now we're two sets of tickets in and those I'm sure you are refundable as well
 
@@ -294,7 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:11:55] Norm: This is why you don’t get [unclear: a refund / a 3D / an agency].
 
-[00:11:57] Will: Hold on how much how much is a movie ticket in Australia
+[00:11:57] Will: Hold on how much is a movie ticket in Australia
 
 [00:12:00] Adam: let's see
 
@@ -330,7 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:13:01] Adam: I'm not so sure about that. I'll have to ask him. Anyway, Guardians was fantastic.
 
-[00:13:05] Will: I. I didn't have any familiarity with the with the with the franchise other than it's the one with the tree and the raccoon. I'm not. That's got to be dumb as hell,
+[00:13:05] Will: I. I didn't have any familiarity with the franchise other than it's the one with the tree and the raccoon. I'm not. That's got to be dumb as hell,
 
 [00:13:16] Adam: Right. And I thought that when I saw the trailer, tree and raccoon, mostly raccoon.
 
@@ -346,9 +346,9 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:13:43] Will: Never would have known it was Bradley Cooper if I didn't know it was Bradley Cooper.
 
-[00:13:45] Adam: And it was I just I loved and the the the the connection between him and Groot. The all of everything about his characterization was subtle and lovely, and also bold and you know hit you over the head, but really, in I was very involved.
+[00:13:45] Adam: And it was I just I loved and the connection between him and Groot. The all of everything about his characterization was subtle and lovely, and also bold and you know hit you over the head, but really, in I was very involved.
 
-[00:14:01] Will: And he was he was animated so well. That within two seconds of his first appearance on screen, probably I had forgotten that he was animated.
+[00:14:01] Will: And he was animated so well. That within two seconds of his first appearance on screen, probably I had forgotten that he was animated.
 
 [00:14:01] Adam: Yeah.
 
@@ -404,7 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:15:27] Will: And B, from this point on, all bets are off.
 
-[00:15:37] Adam: All bets are off. Um, I was really surprised. I'm not surprised how much I liked it, but so pleasantly surprised. Everything that's happening in the Marvel universe is awesome.
+[00:15:37] Adam: All bets are off. I was really surprised. I'm not surprised how much I liked it, but so pleasantly surprised. Everything that's happening in the Marvel universe is awesome.
 
 [00:15:49] Norm: I really. What sucks about the DC? The Warner Brothers are struggling. They're scrambling.
 
@@ -418,7 +418,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:15:57] Adam: they're doing Zack Snyder's Batman vs Superman.
 
-[00:15:58] Norm: Yes, and it's all built. They want to have their big tentpole lead up to their Justice League. And now they're saying that their strategy to be anti Marvel to, or their strategy to counter the Marvel big Marvel Studios, uh, is to make serious movies. Is to make sure their superhero movies are gritty and serious.
+[00:15:58] Norm: Yes, and it's all built. They want to have their big tentpole lead up to their Justice League. And now they're saying that their strategy to be anti Marvel to, or their strategy to counter the Marvel big Marvel Studios is to make serious movies. Is to make sure their superhero movies are gritty and serious.
 
 [00:16:19] Will: I mean, that's worked for them. That worked for them with Batman.
 
@@ -430,7 +430,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:16:33] Will: It's okay.
 
-[00:16:33] Adam: Sorry, Maggie, I love you, but I'll love you more later. Um, there’s space for both. I love the grittiness of Batman. Um, I'll tell you what, I'd love Marvel to take, sorry, DC to take on, uh, would be Batman Year One, which I was just reading was, uh, I was reading who the directors were that were developing Batman Year One years ago, and it made me really sad because that's one of my favorite comic books of all time.
+[00:16:33] Adam: Sorry, Maggie, I love you, but I'll love you more later. There’s space for both. I love the grittiness of Batman. I'll tell you what, I'd love Marvel to take, sorry, DC to take on would be Batman Year One, which I was just reading was I was reading who the directors were that were developing Batman Year One years ago, and it made me really sad because that's one of my favorite comic books of all time.
 
 [00:16:59] Norm: [unclear: Kurnowski/Kalinowski] and then
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:17:10] Will: Clearly lifted all the Carmine Falcone and all that stuff.
 
-[00:17:18] Adam: Absolutely, absolutely, they totally did. I mean, it's all part of the canon, but I just think the way the pacing of of learning what a badass Commissioner Gordon is,
+[00:17:18] Adam: Absolutely, absolutely, they totally did. I mean, it's all part of the canon, but I just think the way the pacing of learning what a badass Commissioner Gordon is,
 
 [00:17:29] Norm: or so learning how cynical a city is, and how you have to live, how you have to
 
@@ -462,7 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:17:40] Will: He's just a good boxer, good fighter.
 
-[00:17:43] Adam: There is a great bit where in in year one, where he's about to fight Flass, the bad cop. He says, " It's been a long time since I've fought a green beret. I throw him a bat to even the odds."
+[00:17:43] Adam: There is a great bit where in year one, where he's about to fight Flass, the bad cop. He says, " It's been a long time since I've fought a green beret. I throw him a bat to even the odds."
 
 [00:17:52] Norm: Commissioner Gordon says.
 
@@ -472,19 +472,19 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:17:55] Adam: Anyway, back to Guardians.
 
-[00:17:57] Will: So, the A movie was much funnier than I expected. Like it was a It was it was less of a superhero movie and more. It's kind of what I would want a Han Solo movie to be, right? Like less kind of cynical and gritty than than you'd expect a you know pre-episode four Han Solo movie to be.
+[00:17:57] Will: So, the A movie was much funnier than I expected. Like it was a It was less of a superhero movie and more. It's kind of what I would want a Han Solo movie to be, right? Like less kind of cynical and gritty than than you'd expect a you know pre-episode four Han Solo movie to be.
 
 [00:18:17] Adam: But it wasn't. But it was also clear, like when you had comic relief, like Michael Rooker's character.
 
 [00:18:23] Will: Michael Rooker's character.
 
-[00:18:24] Adam: Michael Rooker is the the blue guy. Drav.
+[00:18:24] Adam: Michael Rooker is the blue guy. Drav.
 
 [00:18:26] Will: What's his name? Drax.
 
 [00:18:27] Norm: No, Michael Rooker is the guy who takes in. He's the Ravager who takes in Chris Pratt.
 
-[00:18:31] Will: Oh, oh, he's the the surrogate father.
+[00:18:31] Will: Oh, oh, he's the surrogate father.
 
 [00:18:34] Adam: Yes,
 
@@ -496,7 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:18:40] Adam: All at the same time.
 
-[00:18:41] Will: And you realize you realize that he has a lot of threat, and then they pay off that threat in such a delightful way
+[00:18:41] Will: And you realize that he has a lot of threat, and then they pay off that threat in such a delightful way
 
 [00:18:47] Adam: Yeah.
 
@@ -528,7 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:19:32] Norm: out of that universe, so that all builds up to their every once every four years tentpole that makes $1 billion or you know a hundred million opening weekend.
 
-[00:19:45] Adam: So I, you know, obviously the thing I'm always most interested in talking about on the talking room is how do you run a giant creative endeavor with integrity?
+[00:19:45] Adam: So I obviously the thing I'm always most interested in talking about on the talking room is how do you run a giant creative endeavor with integrity?
 
 [00:19:54] Norm: So that's Kevin Feige who does who who I mean when you look about you talk about superhero movies and Marvel before Marvel Studios existed the first big superhero movie that brought in the early thousands Spider-Man
 
@@ -552,15 +552,15 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:20:22] Norm: The consciousness.
 
-[00:20:22] Will: This is this is what Norm’s here for.
+[00:20:22] Will: This is what Norm’s here for.
 
-[00:20:23] Norm: and and
+[00:20:23] Norm: and
 
 [00:20:25] Adam: I’m impressed.
 
 [00:20:27] Norm: for studios back then. I mean, there was no one unified structure. You had producers who championed their projects, directors who had their vision, and but Kevin Feige of Marvel is the guy who's who has had the vision since Iron Man, the first Iron Man with with Jon Favreau, and you credit both those guys for being fans who had the foresight to seed in the things then then to explore and tap into you know rich tapestry of characters.
 
-[00:20:54] Will: But I thought that all the I thought that the great Avengers initiative, not the one in the movie, but the but the thing that resulted in Thor and Captain America and then Avengers, and then you know, I thought that was all a result of the massive success of Iron Man. I thought that I thought the massive success of Iron Man made this what seemed like at the time an insane. Multi-year. Plan.
+[00:20:54] Will: But I thought that all the I thought that the great Avengers initiative, not the one in the movie, but the thing that resulted in Thor and Captain America and then Avengers, and then I thought that was all a result of the massive success of Iron Man. I thought that I thought the massive success of Iron Man made this what seemed like at the time an insane. Multi-year. Plan.
 
 [00:21:12] Adam: Well, Iron Man was a slow burner. The studio didn't think it was a low,
 
@@ -568,7 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:21:18] Adam: standards.
 
-[00:21:18] Norm: Low run, a Batman, right? When you when they first pitch Iron Man before Jon Favreau got was involved, the studio pitch was a billionaire who at night fights crime in a suit of armor, which is which is Batman,
+[00:21:18] Norm: Low run, a Batman, right? When you when they first pitch Iron Man before Jon Favreau got was involved, the studio pitch was a billionaire who at night fights crime in a suit of armor, which is Batman,
 
 [00:21:18] Will: Right? Yeah.
 
@@ -584,25 +584,25 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:21:18] Will: Yeah.
 
-[00:21:18] Norm: and and then
+[00:21:18] Norm: and then
 
 [00:21:46] Adam: Iron Man is so good. The first Iron Man is such a masterpiece.
 
 [00:21:48] Will: Yeah,
 
-[00:21:49] Norm: but it's also respects the the the writers,
+[00:21:49] Norm: but it's also respects the writers,
 
 [00:21:49] Will: Right?
 
-[00:21:49] Norm: Because there is a cabal of these Marvel comics writers. If the the stinger scene at the end of the first Iron Man, the stinger that we all expect at the end of these Marvel superhero movies, that wasn't written by the screenwriter of Iron Man.
+[00:21:49] Norm: Because there is a cabal of these Marvel comics writers. If the stinger scene at the end of the first Iron Man, the stinger that we all expect at the end of these Marvel superhero movies, that wasn't written by the screenwriter of Iron Man.
 
 [00:22:04] Will: What was that stinger?
 
-[00:22:05] Norm: The stinger was Nick Fury, Sam Jackson walking up and saying, " It says literally, 'Who are you?' I'm I'm Nick Fury." And um, you're you know, you're now entering a world. He says, " Literally, you're entering a like a new world of possibility, or something, something like that." And he goes, " And I want to talk to you about the Avengers Initiative."
+[00:22:05] Norm: The stinger was Nick Fury, Sam Jackson walking up and saying, " It says literally, 'Who are you?' I'm I'm Nick Fury." And you're now entering a world. He says, " Literally, you're entering a like a new world of possibility, or something, something like that." And he goes, " And I want to talk to you about the Avengers Initiative."
 
 [00:22:27] Will: And that—cold chills.
 
-[00:22:28] Norm: And it was, yeah, yeah, and and those four lines and that light exchange, you know, which no one knew, even the press didn't know anything about until the release.
+[00:22:28] Norm: And it was, yeah, yeah, and those four lines and that light exchange which no one knew, even the press didn't know anything about until the release.
 
 [00:22:37] Adam: An incredible vision for doing that.
 
@@ -616,7 +616,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:22:53] Norm: Yeah.
 
-[00:22:53] Adam: I mean, um, it's hard for me to reconstruct the plot in my head because the movie goes so far and wide, but it's basically a prison break. Plus a couple of rescues.
+[00:22:53] Adam: I mean it's hard for me to reconstruct the plot in my head because the movie goes so far and wide, but it's basically a prison break. Plus a couple of rescues.
 
 [00:23:13] Will: Well, there's a cold open where you find out that he's an orphan.
 
@@ -642,13 +642,13 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:23:28] Will: You're going to expect, and that title opening title sequence where he's singing and with the headphones on and dancing and picks up the creatures, and then bam, Guardians of the Galaxy. That sets the tone right there.
 
-[00:23:46] Adam: Oh yeah, it does I mean, and it's it's the perfect mix of camp and
+[00:23:46] Adam: Oh yeah, it does I mean, and it's the perfect mix of camp and
 
-[00:23:50] Will: it's it's really well balanced because you could have gone a tiny bit in either direction, it would have been a disaster.
+[00:23:50] Will: it's really well balanced because you could have gone a tiny bit in either direction, it would have been a disaster.
 
 [00:23:55] Adam: Lose that, yeah.
 
-[00:23:56] Will: Um the the prison break scene was a moment where where I was in a theater full of people two weeks after it came out, maybe.
+[00:23:56] Will: The prison break scene was a moment where I was in a theater full of people two weeks after it came out, maybe.
 
 [00:23:56] Adam: Yeah.
 
@@ -656,9 +656,9 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:24:08] Adam: Yeah.
 
-[00:24:09] Will: Like it has such delightful pacing all the way through the checking into you like. the the the contrast between the normal hey you're going into prison and you're a human on an earth ass earth prison and then all the the bits about the the callback to the Walkman the guy stealing the Walkman yeah the the leg joke the Rocket Raccoon leg joke is the moment that you realize what a monstrous asshole Rocket Raccoon is.
+[00:24:09] Will: Like it has such delightful pacing all the way through the checking into you like. the contrast between the normal hey you're going into prison and you're a human on an earth ass earth prison and then all the bits about the callback to the Walkman the guy stealing the Walkman yeah the leg joke the Rocket Raccoon leg joke is the moment that you realize what a monstrous asshole Rocket Raccoon is.
 
-[00:24:34] Norm: And then Drax his literal taking you know what is it what is this what is this line why would you cut your finger across?
+[00:24:34] Norm: And then Drax his literal taking you know what is it what is this line why would you cut your finger across?
 
 [00:24:40] Adam: actually so frankly Drax's line
 
@@ -686,13 +686,13 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:25:16] Will: he's been in other stuff.
 
-[00:25:18] Adam: He's fantastic. He's really, really lovely, and it's a, it's it's terrific, terrific characterization. And you really liked how wooden he is, and how inaccessible, except when he talks. You know, it's true. Oh, I wasn't paying attention.
+[00:25:18] Adam: He's fantastic. He's really, really lovely, and it's a, it's terrific, terrific characterization. And you really liked how wooden he is, and how inaccessible, except when he talks. It's true. Oh, I wasn't paying attention.
 
-[00:25:35] Will: Oh yeah, yeah, like like well that stuff. One of the things I've loved about these movies too is that they don't because the video game tie-ins for these movies have been terrible. Like if you look at some of the stuff from the early 2000s, mid 2000s, people were putting scenes in movies. I think exclusively so that they'd have a bit in the video game that they could then say, " Oh, just like look, we're playing the movie."
+[00:25:35] Will: Oh yeah, yeah, like well that stuff. One of the things I've loved about these movies too is that they don't because the video game tie-ins for these movies have been terrible. Like if you look at some of the stuff from the early 2000s, mid 2000s, people were putting scenes in movies. I think exclusively so that they'd have a bit in the video game that they could then say, " Oh, just like look, we're playing the movie."
 
 [00:25:58] Adam: Yeah.
 
-[00:25:58] Will: And and some of those like it doesn't really have that. Like it doesn't have. There's nothing there that doesn't need to be there to move the story forward, move the plot forward, move the characters forward. And like at every, they did a really lovely job making smart, well, multiple levels of jokes. There's there's plenty of real dumb jokes in that movie.
+[00:25:58] Will: And some of those like it doesn't really have that. Like it doesn't have. There's nothing there that doesn't need to be there to move the story forward, move the plot forward, move the characters forward. And like at every, they did a really lovely job making smart, well, multiple levels of jokes. There's there's plenty of real dumb jokes in that movie.
 
 [00:26:17] Adam: Totally, and but a lot of them are on a Bugs Bunny level. Depending on how old you are, it'll mean a different thing to you.
 
@@ -702,7 +702,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:26:35] Norm: Gamora.
 
-[00:26:35] Adam: Gamora says that, and I was like, I was actually like, I'm a little mad. I haven't heard that line before. It's a great line. Of course, it's a it's a beautiful. This is where the movie kicks into Act Three,
+[00:26:35] Adam: Gamora says that, and I was like, I was actually like, I'm a little mad. I haven't heard that line before. It's a great line. Of course, it's a beautiful. This is where the movie kicks into Act Three,
 
 [00:26:47] Norm: and then Nebula from Doctor Who. Karen
 
@@ -720,7 +720,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:26:57] Adam: She's that's terrifying. Yeah,
 
-[00:26:59] Norm: and she's from Doctor Who, the the redhead.
+[00:26:59] Norm: and she's from Doctor Who, the redhead.
 
 [00:27:01] Adam: Oh wow!
 
@@ -750,7 +750,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:27:28] Adam: Wow, again. I am so glad we have you here.
 
-[00:27:33] Norm: Lee Pace as as a villain as the the Ronan. I mean, a little bit of a of a black and white villain.
+[00:27:33] Norm: Lee Pace as a villain as the Ronan. I mean, a little bit of a black and white villain.
 
 [00:27:40] Will: Who's Lee Pace?
 
@@ -774,11 +774,11 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:28:02] Adam: Yeah, really good. Really, I also liked John C. Reilly and Peter Serafinowicz.
 
-[00:28:08] Will: I hope I hope we see more John C. Reilly in the now inevitable sequel
+[00:28:08] Will: I hope we see more John C. Reilly in the now inevitable sequel
 
 [00:28:13] Adam: When they're asking. But what if I really want the thing that the guy's got? Can I just take it? No, that's
 
-[00:28:19] Will: Still a crime. Still stealing. The the the that the sky space fight at the end was something like they they did something really well with that that you haven't really seen since like Return of the Jedi. You, I mean, like I think about
+[00:28:19] Will: Still a crime. Still stealing. The that the sky space fight at the end was something like they did something really well with that that you haven't really seen since like Return of the Jedi. You, I mean, like I think about
 
 [00:28:36] Adam: an epic battle, an epic. Really, still feel like you understand what’s going on.
 
@@ -786,33 +786,33 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:28:40] Adam: Yeah.
 
-[00:28:40] Will: Luke and I mean not Luke Darwin, Anakin and and and Obi-Wan are flying in toward Grievous's ship that is totally comprehensible. Super simple.
+[00:28:40] Will: Luke and I mean not Luke Darwin, Anakin and Obi-Wan are flying in toward Grievous's ship that is totally comprehensible. Super simple.
 
 [00:28:40] Adam: Right.
 
-[00:28:40] Will: This is this is a
+[00:28:40] Will: This is a
 
 [00:28:59] Adam: beautifully done.
 
-[00:29:00] Will: Yeah, and there's multiple things going on at the same time. You're cutting back and forth between two or three different different activities at the same time. You feel like all of the the the throwaway characters are actually real characters. You know, the ones that are exploding constantly. And and the big net thing is the dumbest thing I've ever seen,
+[00:29:00] Will: Yeah, and there's multiple things going on at the same time. You're cutting back and forth between two or three different different activities at the same time. You feel like all of the throwaway characters are actually real characters. You know, the ones that are exploding constantly. And the big net thing is the dumbest thing I've ever seen,
 
 [00:29:00] Adam: But it was really pretty. The big which,
 
-[00:29:19] Will: the big net that the that the defending ships make.
+[00:29:19] Will: the big net that the defending ships make.
 
 [00:29:19] Adam: Yeah.
 
-[00:29:19] Will: like push it up. You're like, this is so dumb, so dumb.
+[00:29:19] Will: like push it up. You're like, this is so dumb.
 
 [00:29:27] Adam: Really, that's your plan?
 
-[00:29:28] Will: Yeah, yeah, yeah. We all joined together. It's like the last Starfighter. Oh, okay, that worked for them, right? Yeah, I really I liked it so much that I I went I snuck out one night after the baby had gone to bed, and I was like, Hey, I'm gonna go see a movie. I'll see you in two hours. She's like, I'm gonna be asleep, and sent her the, I was like, Gina, you got to go on Saturday morning. I'll I'll you know, baby, and I'll go noodle around.
+[00:29:28] Will: Yeah, yeah, yeah. We all joined together. It's like the last Starfighter. Oh, okay, that worked for them, right? Yeah, I really I liked it so much that I I went I snuck out one night after the baby had gone to bed, and I was like, Hey, I'm gonna go see a movie. I'll see you in two hours. She's like, I'm gonna be asleep, and sent her the, I was like, Gina, you got to go on Saturday morning. I'll I'll baby, and I'll go noodle around.
 
 [00:29:28] Adam: Yeah.
 
 [00:29:28] Will: And you go watch this movie. You'll you'll enjoy it.
 
-[00:29:54] Adam: Yeah, the the ensemble. You know, you find yourself wondering after seeing the trailer when you're in the film. How are these guys going to start to work together? It's they're setting it up as very very opposed to each other all over the place, and yet it ends up being a very natural progression.
+[00:29:54] Adam: Yeah, the ensemble. You find yourself wondering after seeing the trailer when you're in the film. How are these guys going to start to work together? It's they're setting it up as very very opposed to each other all over the place, and yet it ends up being a very natural progression.
 
 [00:30:10] Will: I mean, that that's a wonderful point because the first time they meet each other on the planet of Glenn Close. They're literally all trying to kill each other,
 
@@ -838,13 +838,13 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:31:39] Adam: According to John Knoll, one of the hardest shots to film in Avengers
 
-[00:31:43] Will: the the Loki
+[00:31:43] Will: the Loki
 
 [00:31:44] Adam: smashing Loki around.
 
 [00:31:44] Will: I can imagine because if you do it the wrong way, it looks like a goofy rag doll in bad 2000s animation.
 
-[00:31:48] Adam: Really hard. The two hardest shots apparently were that one and Hulk smashing. Punch, punching, turning into the Hulk and punching the the thing, the big dragon thing.
+[00:31:48] Adam: Really hard. The two hardest shots apparently were that one and Hulk smashing. Punch, punching, turning into the Hulk and punching the thing, the big dragon thing.
 
 [00:31:59] Will: Oh, like jumping!
 
@@ -856,7 +856,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:32:03] Adam: and it's so perfectly done. It's easy to not realize how you how all the choices, hundreds and hundreds of choices of how you're going to make that moment clear visually. So that the audience is just totally on board because you're in a climax. You don't have time to lay groundwork. That just has to be done. It's beautiful.
 
-[00:32:21] Will: It's what like a three, three or four frame. I mean, I mean three or four second transition. It's long, so it's 60 frames.
+[00:32:21] Will: It's what like a three, three or four frame. I mean three or four second transition. It's long, so it's 60 frames.
 
 [00:32:21] Adam: Yeah.
 
@@ -864,7 +864,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:32:27] Adam: There's a lot of storytelling to do in a very short period of time.
 
-[00:32:30] Norm: One of the things that Guardians of the Galaxy in the comic books. I mean, it's it's it's not a very well known comic book. Yeah, it's tough to bring that to screen, but they could take some liberties. And from a filmmaking perspective, James Gunn directed, brought the music to the screen that's not in the comics and used the soundtrack in a way that's tied to the story, while also then being a soundtrack, not a score, but a soundtrack. Um,
+[00:32:30] Norm: One of the things that Guardians of the Galaxy in the comic books. I mean, it's not a very well known comic book. Yeah, it's tough to bring that to screen, but they could take some liberties. And from a filmmaking perspective, James Gunn directed, brought the music to the screen that's not in the comics and used the soundtrack in a way that's tied to the story, while also then being a soundtrack, not a score, but a soundtrack.
 
 [00:32:55] Will: I mean, the music's all diegetic, so it comes from within the scene.
 
@@ -876,9 +876,9 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:33:02] Will: I listen to film podcasts.
 
-[00:33:04] Norm: Um, and it's not artificial. Yeah, it's it's integral to plot.
+[00:33:04] Norm: And it's not artificial. Yeah, it's integral to plot.
 
-[00:33:08] Adam: And so, what is the name of the thing that? The the the stone.
+[00:33:08] Adam: And so, what is the name of the thing that? The stone.
 
 [00:33:12] Will: It’s another Infinity Stone. It's the same as the thing from Loki.
 
@@ -938,7 +938,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:34:11] Norm: It's Vin Diesel's voice.
 
-[00:34:13] Adam: Oh, meister Groot, that's good. You know, I remember seeing this thing where Eddie Izzard complained that he spent all this. He was going to do a bunch of shows in France, and so he worked very hard on his Sean Connery impression, speaking French. Only to realize that French people have never heard Sean Connery speak. So, speaking French as Sean Connery just no fun at all.
+[00:34:13] Adam: Oh, meister Groot, that's good. I remember seeing this thing where Eddie Izzard complained that he spent all this. He was going to do a bunch of shows in France, and so he worked very hard on his Sean Connery impression, speaking French. Only to realize that French people have never heard Sean Connery speak. So, speaking French as Sean Connery just no fun at all.
 
 [00:34:33] Will: Well, it's hard. Like that's a tough character. He has one line, right? And and this was like you. They delivered the line both with comedic. It was used for comedic and dramatic, and and a
 
@@ -952,9 +952,9 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:34:53] Adam: Yeah. He's like the go-to guy for that thing. Apparently,
 
-[00:34:56] Will: he's the one-line, one-line specialist.
+[00:34:56] Will: he's the one-line specialist.
 
-[00:34:58] Adam: So, what I want there's already two runs of the of a of a dancing Groot, not dancing, but a static baby Groot from the RPF. In addition to a animated. GIF, which is very sweet, and there's a toy of a dancing Groot, but it's fat and it doesn't look that great. I want a I want a good one.
+[00:34:58] Adam: So, what I want there's already two runs of the of a dancing Groot, not dancing, but a static baby Groot from the RPF. In addition to a animated. GIF, which is very sweet, and there's a toy of a dancing Groot, but it's fat and it doesn't look that great. I want a good one.
 
 [00:35:18] Will: You want a Groot?
 
@@ -962,25 +962,25 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:35:20] Will: It's almost like we need that. What was that? Well, I was dancing robot, the yellow one.
 
-[00:35:23] Adam: Yeah. So I was thinking that you could do it where it was flexible material, and you put um you put a just a sort of a bent rod on a on a on a motor, a slow motor, so that as the rod moved, he'd kind of do his he'd kind of do his thing.
+[00:35:23] Adam: Yeah. So I was thinking that you could do it where it was flexible material, and you put a just a sort of a bent rod on a motor, a slow motor, so that as the rod moved, he'd kind of do his he'd kind of do his thing.
 
-[00:35:38] Will: We saw we saw somebody who had done a 3D printed um mechanism to curl, and you could put those in different and like just a
+[00:35:38] Will: We saw somebody who had done a 3D printed mechanism to curl, and you could put those in different and like just a
 
 [00:35:46] Adam: little tentacle
 
-[00:35:48] Will: tentacle, and you yank you you pull tension on a cord that runs through the edges, and you could do multiples of those to weave it back and forth.
+[00:35:48] Will: tentacle, and you yank you pull tension on a cord that runs through the edges, and you could do multiples of those to weave it back and forth.
 
 [00:35:53] Norm: I assure you, toy companies are working on it right now.
 
 [00:35:56] Adam: I hope so. I want a good one.
 
-[00:35:58] Norm: Yeah, the good one might be up in the air, but that's yeah, coming out of that, the merchandising opportunities are endless, endless. I don't know how many Star Lord helmets we'll see this this Halloween.
+[00:35:58] Norm: Yeah, the good one might be up in the air, but that's yeah, coming out of that, the merchandising opportunities are endless, endless. I don't know how many Star Lord helmets we'll see this Halloween.
 
-[00:36:09] Adam: That’s funny. That was the one. The Star Lord costume is the one thing I found less interesting. I I his costume was like. Of course, there's a lot of people in the RPF making Star Lord costumes. That long leather jacket, the short leather jacket, the rocket boots, the mask, his man purse thing.
+[00:36:09] Adam: That’s funny. That was the one. The Star Lord costume is the one thing I found less interesting. I his costume was like. Of course, there's a lot of people in the RPF making Star Lord costumes. That long leather jacket, the short leather jacket, the rocket boots, the mask, his man purse thing.
 
 [00:36:09] Will: Murse, I think is a technical word.
 
-[00:36:30] Adam: It's. I I just didn't think it just didn't capture me like you know like a classic piece of costume like Han Solo's uniform did.
+[00:36:30] Adam: It's. I just didn't think it just didn't capture me like you know like a classic piece of costume like Han Solo's uniform did.
 
 [00:36:38] Will: It well, I mean, I think it was designed to.
 
@@ -1012,7 +1012,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:37:07] Norm: It doesn’t matter.
 
-[00:37:07] Will: Because it's gonna be in the in the cheapest theaters right now.
+[00:37:07] Will: Because it's gonna be in the cheapest theaters right now.
 
 [00:37:13] Adam: I saw it in 2D and I, in 3D and it. I was like, yeah, it doesn't matter.
 
@@ -1022,19 +1022,19 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:37:21] Will: Well, as long as they can sell the movie tickets for $18 instead of ten, then you know it'll continue to be around. I think that'll do it for us.
 
-[00:37:30] Adam: I think that's a reasonable place to leave this. Chris Pratt, by the way, full marks for moving from from comedy television guy to movie hero. He really he's a fantastic star.
+[00:37:30] Adam: I think that's a reasonable place to leave this. Chris Pratt, by the way, full marks for moving from comedy television guy to movie hero. He really he's a fantastic star.
 
-[00:37:42] Will: I never would have expected that, but he plays it. He plays it. I mean, it's it's right up there with Robert Downey Jr. And as Iron Man, as an unexpected character,
+[00:37:42] Will: I never would have expected that, but he plays it. He plays it. I mean, it's right up there with Robert Downey Jr. And as Iron Man, as an unexpected character,
 
 [00:37:49] Norm: Likable.
 
-[00:37:49] Adam: The cat, the the whole cast, just absolutely stunning. But he is a terrific one to lead it, and really unexpected choice, I think.
+[00:37:49] Adam: The cat, the whole cast, just absolutely stunning. But he is a terrific one to lead it, and really unexpected choice, I think.
 
-[00:37:56] Will: It's at the end of that movie. I told I told you, and it's the same thing that happened at the end of the first of the Star Wars reboot, J J Abrams' first Star Wars Star Trek movie. Sorry, where I I saw it, and I just wanted I wanted to see what the adventures. I want to see those adventures.
+[00:37:56] Will: It's at the end of that movie. I told you, and it's the same thing that happened at the end of the first of the Star Wars reboot, J J Abrams' first Star Wars Star Trek movie. Sorry, where I I saw it, and I just wanted I wanted to see what the adventures. I want to see those adventures.
 
 [00:37:56] Adam: Yes.
 
-[00:37:56] Will: I want to see them every week on television. I want to be entertained on a on a. More regular basis than every other year.
+[00:37:56] Will: I want to see them every week on television. I want to be entertained on a. More regular basis than every other year.
 
 [00:38:16] Adam: Chris Pine really owned Kirk, didn't he?
 

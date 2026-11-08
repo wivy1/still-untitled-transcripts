@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:00:40] Adam: for,
 
-[00:00:41] Norm: More specific maybe for intros? Yeah, for when you have the the very definitive thing.
+[00:00:41] Norm: More specific maybe for intros? Yeah, for when you have the very definitive thing.
 
 [00:00:46] Jeremy Williams: My wife makes fun of me for having a phone voice. She says, " Hey kids, that's his phone voice."
 
@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:01:06] Norm: When when you turn on your your radio voice or whatever we'll call it, do you know what that sounds like?
 
-[00:01:12] Adam: Yes. No. I totally. I I can tell what it feels like coming out of me.
+[00:01:12] Adam: Yes. No. I totally. I can tell what it feels like coming out of me.
 
 [00:01:16] Norm: Oh, a little more reverb, a little more in the throat?
 
@@ -52,7 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:01:38] Norm: Or the EEG that tells you you're picking that part of your brain that actually isn't recalling memory; it's just making it up as you go along.
 
-[00:01:45] Adam: Yes. No, I mean, look, it, uh, I'm a I'm a veteran mansplainer. I'm working on it. It often eclipses the very thing I'm trying to say.
+[00:01:45] Adam: Yes. No, I mean, look, it I'm a veteran mansplainer. I'm working on it. It often eclipses the very thing I'm trying to say.
 
 [00:01:56] Norm: Very nice.
 
@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:02:25] Norm: Nice.
 
-[00:02:25] Adam: And we Tweeted it wearing the welding masks, and then I rode back to the shop with all the welding helmets. And lo, as I pull up on the Onewheel, the whole tested crew is out front looking at the thing. So I handed out I handed out welding helmets, and Danica said that is maybe the most Adam Savage moment I've ever experienced.
+[00:02:25] Adam: And we Tweeted it wearing the welding masks, and then I rode back to the shop with all the welding helmets. And lo, as I pull up on the Onewheel, the whole tested crew is out front looking at the thing. So I handed out welding helmets, and Danica said that is maybe the most Adam Savage moment I've ever experienced.
 
 [00:02:50] Jeremy Williams: Yeah, sounds about right. So, does a welding helmet look the same as the glasses that you got?
 
@@ -84,15 +84,15 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:02:55] Jeremy Williams: right?
 
-[00:02:58] Adam: You had a much better field of view. So the the welding helmets I have are all auto darkening, and it's I if we had done this before the the the podcast before the eclipse, I would have. Explain this. It's really important to set them to the highest possible setting, which is 13 or 14.
+[00:02:58] Adam: You had a much better field of view. So the welding helmets I have are all auto darkening, and it's I if we had done this before the podcast before the eclipse, I would have. Explain this. It's really important to set them to the highest possible setting, which is 13 or 14.
 
 [00:02:58] Norm: Yes, and 12 plus is what you need.
 
 [00:03:16] Adam: 12 plus, and that's sufficient. In fact, a 13, which one of my helmets goes to, is a little bit, just a little bit, not quite enough when there's no cloud in front. But luckily, in San Francisco, classically, we had clouds in front of our eclipse.
 
-[00:03:30] Norm: I love that all the stories were on, Don't look at the sun, and it. You should never look at the sun on a normal day. It's not just on a. The sun isn’t extra bright on on the eclipse day. It's just when everyone ends up wanting to look at it.
+[00:03:30] Norm: I love that all the stories were on, Don't look at the sun, and it. You should never look at the sun on a normal day. It's not just on a. The sun isn’t extra bright on the eclipse day. It's just when everyone ends up wanting to look at it.
 
-[00:03:43] Adam: No, it’s the problem is is that everyone thinks. The problem is, I feel like, is that it's always trying to do this end run around the but but but and the but but but is but the sun is covered by the moon, so isn't that safe? Yes, for the like 10 seconds.
+[00:03:43] Adam: No, it’s the problem is is that everyone thinks. The problem is, I feel like, is that it's always trying to do this end run around the but and the but is but the sun is covered by the moon, so isn't that safe? Yes, for the like 10 seconds.
 
 [00:03:43] Unknown speaker (Adam or Norm): Yeah.
 
@@ -128,15 +128,15 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:05:20] Norm: It was amazing. I think NASA at some point had six different live streams all about the eclipse. They had activated all their social media and all their YouTube channels. It was really cool.
 
-[00:05:30] Adam: It was thrilling to have something that was not politics that involved everyone that was just about shit that was happening. That was delight a delightful a delightful news cycle.
+[00:05:30] Adam: It was thrilling to have something that was not politics that involved everyone that was just about shit that was happening. That was delight a delightful news cycle.
 
-[00:05:41] Norm: No, and a great, great, like, everyone a shared experience for everyone in North America. Did you know? Do you know people who went up to path of totality?
+[00:05:41] Norm: No, and a great, great everyone a shared experience for everyone in North America. Did you know? Do you know people who went up to path of totality?
 
 [00:05:48] Adam: I do. I have actually good friends that that months ago planned a long weekend to Nashville, which was in the path of the totality, and enjoyed it immensely. My relatives up in Oregon were were inviting me. I I just I couldn't take the time, unfortunately.
 
 [00:06:08] Norm: Yeah, lots of I think yeah people made up their made the way up to the Oregon coast.
 
-[00:06:12] Adam: Did you see the the traffic
+[00:06:12] Adam: Did you see the traffic
 
 [00:06:15] Norm: map? That’s the thing.
 
@@ -156,7 +156,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:06:37] Norm: I didn't realize the culture of eclipse chasing was so obsessive.
 
-[00:06:41] Adam: Well, so when you read, I was telling my wife about this on the phone last night. There's a great book called Longitude about the attempt to solve the problem of longitude that finishes with the invention of one of the most accurate clocks up until that point ever designed, using bimetallic springs and all these ways to to offset the movement of a ship. But longitude includes all these astronomical observational stories. As people were trying to figure out, is there a way to sight my longitude just from looking at the sky? And so, astronomers would venture out. From England was one of the primary exporters of astronomers to go take astronomical readings of occlusions of different planets at different times from different parts of the world to see what they could learn. And all of these stories are rife with people who spent their entire lives taking boats for years and decades to locations only to have a cloudy day.
+[00:06:41] Adam: Well, so when you read, I was telling my wife about this on the phone last night. There's a great book called Longitude about the attempt to solve the problem of longitude that finishes with the invention of one of the most accurate clocks up until that point ever designed, using bimetallic springs and all these ways to offset the movement of a ship. But longitude includes all these astronomical observational stories. As people were trying to figure out, is there a way to sight my longitude just from looking at the sky? And so, astronomers would venture out. From England was one of the primary exporters of astronomers to go take astronomical readings of occlusions of different planets at different times from different parts of the world to see what they could learn. And all of these stories are rife with people who spent their entire lives taking boats for years and decades to locations only to have a cloudy day.
 
 [00:06:41] Jeremy Williams: Right.
 
@@ -212,15 +212,15 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:08:45] Jeremy Williams: like take off and land from the same airport.
 
-[00:08:46] Norm: I don't know exactly what it was, but I mean, it's it's a regulation wise, it's complicated.
+[00:08:46] Norm: I don't know exactly what it was, but I mean, it's a regulation wise, it's complicated.
 
 [00:08:52] Jeremy Williams: Yeah. Good point.
 
 [00:08:53] Adam: So, in addition to this, totally separate, I have been I've been doing some fairly involved machining in my shop.
 
-[00:09:02] Jeremy Williams: Yeah. I mean, I almost don't believe you. That looks that looks so store bought. It's unbelievable.
+[00:09:02] Jeremy Williams: Yeah. I mean, I almost don't believe you. That looks so store bought. It's unbelievable.
 
-[00:09:07] Adam: I I. A couple weeks ago, I tweeted some photos of a handmade compass I made because I've been sort of obsessed with these NASA parts. These are for my A7L suit that Ryan Nagata built. I wanted to make all aluminum hardware for it, and I decided to dive in. And I I used that compass and did a bunch of drawings at home. And this is all part of sort of getting rid of my fear of the mill because a few about a year and a half ago, I did some machining on there for some spacesuit parts that I kept on screwing up.
+[00:09:07] Adam: I. A couple weeks ago, I tweeted some photos of a handmade compass I made because I've been sort of obsessed with these NASA parts. These are for my A7L suit that Ryan Nagata built. I wanted to make all aluminum hardware for it, and I decided to dive in. And I I used that compass and did a bunch of drawings at home. And this is all part of sort of getting rid of my fear of the mill because a few about a year and a half ago, I did some machining on there for some spacesuit parts that I kept on screwing up.
 
 [00:09:07] Norm: Yep.
 
@@ -230,9 +230,9 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:10:11] Adam: These are two solid pieces. Here you go.
 
-[00:10:14] Norm: So you find more satisfaction in the problem-solving process to figure out that order of operations, or would you, if if you were able to cam that up and then have that cam the CAD that up and have the CAD CAM pipeline automate that for machine, would that be your path of least resistance? Or
+[00:10:14] Norm: So you find more satisfaction in the problem-solving process to figure out that order of operations, or would you, if you were able to cam that up and then have that cam the CAD that up and have the CAD CAM pipeline automate that for machine, would that be your path of least resistance? Or
 
-[00:10:35] Adam: look, I certainly I certainly have enough people with CNC machines where it would not be very difficult for me to take a detailed drawing and and have this done. That is totally something I can do, but I'm not that interested in doing it. I do find the process of machining machining. I made six of these. It was exhausting. It was about 15 hours of work. It's super tedious, super precise work where every step of the way you have to double check all your shit, and it's tiring. It's literally like a workout. And when I'm done and I look at them, I'm like, " Damn, that was cool." The but being in the middle of it, it's not fun. It's just deeply satisfying. There's a way in which the lack of fun, you know,
+[00:10:35] Adam: look, I certainly have enough people with CNC machines where it would not be very difficult for me to take a detailed drawing and have this done. That is totally something I can do, but I'm not that interested in doing it. I do find the process of machining machining. I made six of these. It was exhausting. It was about 15 hours of work. It's super tedious, super precise work where every step of the way you have to double check all your shit, and it's tiring. It's literally like a workout. And when I'm done and I look at them, I'm like, " Damn, that was cool." The but being in the middle of it, it's not fun. It's just deeply satisfying. There's a way in which the lack of fun
 
 [00:11:21] Jeremy Williams: like any workout,
 
@@ -244,7 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:11:59] Jeremy Williams: Given your excellent point about automation, I'm wondering: is doing this by hand a dying art? Given as prevalent as you know, CNC mills and computer-controlled machines are becoming.
 
-[00:12:11] Adam: That's a good question. It it could be. Here's the reason I don't think it will be a dying art. Look, it certainly could be, but I don't think so. And one of the reasons is because Bridgeport milling machines are so freaking durable. Like the Bridgeport and the import type machines that are based off the Bridgeport model, there's hundreds of thousands of them, if not millions, in the U.S. The ones that I have were made in 1968. They're still fantastic and in great working order. They're like, I don't know if you've ever had an old Singer sewing machine, like a treadle-based sewing machine. But my grandmother had one, and when my mom went to sell it, they were like, " Yeah, it's worth like $200." She's like, " Really? It's original 1899." And they're like, " Yeah, they're all still around." Like these were so solidly built. There's no market for them because they're all still working.
+[00:12:11] Adam: That's a good question. It could be. Here's the reason I don't think it will be a dying art. Look, it certainly could be, but I don't think so. And one of the reasons is because Bridgeport milling machines are so freaking durable. Like the Bridgeport and the import type machines that are based off the Bridgeport model, there's hundreds of thousands of them, if not millions, in the U.S. The ones that I have were made in 1968. They're still fantastic and in great working order. They're like, I don't know if you've ever had an old Singer sewing machine a treadle-based sewing machine. But my grandmother had one, and when my mom went to sell it, they were like, " Yeah, it's worth like $200." She's like, " Really? It's original 1899." And they're like, " Yeah, they're all still around." Like these were so solidly built. There's no market for them because they're all still working.
 
 [00:13:03] Jeremy Williams: Yeah,
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:14:36] Adam: There's water connector, and that has a certain topography. Then there is the gas connectors, and the gas connectors are actually chiral. There's left hand ones and right hand ones, and so I had to keep track of all of. Ah, yeah, I'm getting chills just as. But it was deeply satisfying, and I'm about to send these out to have them anodized.
 
-[00:14:55] Norm: I mean, the drawings that you made it makes me think of like programming almost. Like you remember, like those drawing programs, like drawing the what was that? The one that kids used back in back in the '90s, where you like you use a turtle and you. You program all your steps in, and draws a house or something. Okay, it's like that. Like you write out all your steps, and then you press execute.
+[00:14:55] Norm: I mean, the drawings that you made it makes me think of like programming almost. Like you remember, like those drawing programs, like drawing the what was that? The one that kids used back in the '90s, where you use a turtle and you. You program all your steps in, and draws a house or something. Okay, it's like that. Like you write out all your steps, and then you press execute.
 
 [00:15:14] Adam: Do you do planning in longhand on big projects? Do you sit down and sketch, or do you what's your methodology?
 
@@ -282,13 +282,13 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:15:25] Adam: And do you do an outline in longhand or in the computer?
 
-[00:15:26] Jeremy Williams: no no never never no I haven't. That's a good question. No, I use my notes app now. Yeah, that's about it. And when programming, it's all done on the keyboard as well. I, I, I know you are almost an artist with your writing.
+[00:15:26] Jeremy Williams: no no never never no I haven't. That's a good question. No, I use my notes app now. Yeah, that's about it. And when programming, it's all done on the keyboard as well. I know you are almost an artist with your writing.
 
 [00:15:38] Adam: I well, I, I to me, it's I, I plotted all the Mythbusters episodes on a whiteboard, and I have to plot as I am EPing a show for a friend of ours. I had to write the plot out in longhand on paper just because that's how I am paced to think about a script
 
 [00:15:53] Jeremy Williams: like Eminem.
 
-[00:15:56] Adam: That is the only time I will ever be compared to a genius of the level of. Um. Did by the way, sorry. There is that Apple. There's the Apple documentary about Jimmy Iovine and
+[00:15:56] Adam: That is the only time I will ever be compared to a genius of the level of. Did by the way, sorry. There is that Apple. There's the Apple documentary about Jimmy Iovine and
 
 [00:15:56] Norm: oh yes,
 
@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:16:14] Jeremy Williams: that's excellent
 
-[00:16:15] Adam: and there's there's a sequence in there that they released early of of Eminem and Dre and Iovine talking about their first meeting and they have footage of Eminem freestyling in Dre's studio
+[00:16:15] Adam: and there's there's a sequence in there that they released early of Eminem and Dre and Iovine talking about their first meeting and they have footage of Eminem freestyling in Dre's studio
 
 [00:16:29] Jeremy Williams: yeah
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:17:35] Jeremy Williams: That’s our word.
 
-[00:17:35] Adam: Yeah. So and they sell vaporware, and they sell like, oh, it's gold, you know, whatever, plated stereo cables, and all that bullshit. And yet, if you read the story about how Beats got taken to school by Iovine, you are like, Iovine’s negotiating tactics makes Beats the underdog. Sorry, makes makes Monster Cable the underdog in the story. You feel sorry for them.
+[00:17:35] Adam: Yeah. So and they sell vaporware, and they sell like, oh, it's gold whatever, plated stereo cables, and all that bullshit. And yet, if you read the story about how Beats got taken to school by Iovine, you are like, Iovine’s negotiating tactics makes Beats the underdog. Sorry, makes makes Monster Cable the underdog in the story. You feel sorry for them.
 
 [00:17:35] Norm: Yeah, Having gone to CES
 
@@ -370,7 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:19:00] Norm: Hmm, yeah.
 
-[00:19:00] Adam: I I watched. Ozark, the first episode of Ozark.
+[00:19:00] Adam: I watched. Ozark, the first episode of Ozark.
 
 [00:19:00] Norm: Ah, I've heard good things about this.
 
@@ -394,9 +394,9 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:19:30] Norm: so he's invested in this.
 
-[00:19:31] Adam: Well, it's wonderfully directed. The script is a little all over the place. The the like I I ended the first episode not being sure who to care about, but we're going to give it another few episodes because I tend to stop on the first episode if I'm not immediately drawn in, and I'm missing apparently some good stuff.
+[00:19:31] Adam: Well, it's wonderfully directed. The script is a little all over the place. The like I I ended the first episode not being sure who to care about, but we're going to give it another few episodes because I tend to stop on the first episode if I'm not immediately drawn in, and I'm missing apparently some good stuff.
 
-[00:19:49] Norm: I hear it's very good. It’s, yeah, there's so much on on Netflix right now that it's just on the list.
+[00:19:49] Norm: I hear it's very good. It’s, yeah, there's so much on Netflix right now that it's just on the list.
 
 [00:19:54] Adam: Yeah,
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:20:14] Norm: It looks good, and I, I think this resurgence. I mean, there's there's Black Mirror, which is fantastic, but this resurgence of anthology series, anthology sci-fi,
 
-[00:20:24] Adam: which is super exciting because we, I grew up on the Twilight Zone and Tales of Ordinary Madness, Outer Limits, Outer Limits, and it's really exciting that this is happening. If you want to feel better about the world, if you need that as a pill just to take, you should watch a trailer for a film called Patti Cake$.
+[00:20:24] Adam: which is super exciting because we, I grew up on the Twilight Zone and Tales of Ordinary Madness, Outer Limits, and it's really exciting that this is happening. If you want to feel better about the world, if you need that as a pill just to take, you should watch a trailer for a film called Patti Cake$.
 
 [00:20:42] Jeremy Williams: Okay.
 
@@ -438,7 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:21:13] Norm: Wow.
 
-[00:21:13] Adam: And yeah, you know, probably the 10th time for me.
+[00:21:13] Adam: And yeah probably the 10th time for me.
 
 [00:21:13] Norm: Yeah.
 
@@ -448,29 +448,29 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:21:33] Adam: Two Coreys.
 
-[00:21:34] Jeremy Williams: You know, it's whatever you watch at that age.
+[00:21:34] Jeremy Williams: It's whatever you watch at that age.
 
 [00:21:34] Adam: Wow.
 
 [00:21:34] Jeremy Williams: Yeah, they just had artsy artsy scenes in that film. You know, when they did the Redux of Apocalypse Now, I I thought, how in the world can they make an old film look this good? But the smoke that they, the color of the smoke that they made from—I don't know how they could recreate that from the negatives. But wow, does that film look good now?
 
-[00:21:55] Adam: The the new master is we watched we watched not the Redux but the color of what we were watching was incredible.
+[00:21:55] Adam: The new master is we watched not the Redux but the color of what we were watching was incredible.
 
 [00:21:55] Norm: Okay.
 
-[00:21:55] Adam: And you know, it's funny. I was thinking about Zack Snyder watching this because there was a terrific article. We talked about it on the podcast about how Zack Snyder. Seems to be moving as a director always towards building a moment like Superman with his cape flowing while the people are below with a dramatic sky behind him.
+[00:21:55] Adam: And it's funny. I was thinking about Zack Snyder watching this because there was a terrific article. We talked about it on the podcast about how Zack Snyder. Seems to be moving as a director always towards building a moment like Superman with his cape flowing while the people are below with a dramatic sky behind him.
 
 [00:21:55] Norm: Yeah
 
 [00:21:55] Adam: he doesn't actually do a lot of the dramatic work to get you to those moments. He just builds them. Apocalypse now is this object lesson in both the drama being worthy of the imagery and the imagery being worthy of the genre of the drama, because every single shot in that movie is a painting.
 
-[00:22:41] Norm: You know, I'm trying to think of films that do the other thing where they they they earn so much of it and the payoff is just missing the flourish.
+[00:22:41] Norm: I'm trying to think of films that do the other thing where they earn so much of it and the payoff is just missing the flourish.
 
-[00:22:49] Adam: See, because there's another. I I thought you were going to bring up that earn it and pay it off with very little fanfare, which is actually I think almost Mike Leigh's entire career. Mike Leigh, the filmmaker who did Topsy Turvy and Naked and Abigail's Wedding, Grown Ups. Oh, it's a working-class British filmmaker who specialized for the longest time in just like working-class Brits living their little lives, but every single one of these films is this tiny, amazing, polished gem of dramatic storytelling and a little bit of a triumph towards the end, where it's just like someone's like, " Oh, this is nice," and like that's the crescendo dramatically, and you're moved by it.
+[00:22:49] Adam: See, because there's another. I thought you were going to bring up that earn it and pay it off with very little fanfare, which is actually I think almost Mike Leigh's entire career. Mike Leigh, the filmmaker who did Topsy Turvy and Naked and Abigail's Wedding, Grown Ups. Oh, it's a working-class British filmmaker who specialized for the longest time in just like working-class Brits living their little lives, but every single one of these films is this tiny, amazing, polished gem of dramatic storytelling and a little bit of a triumph towards the end, where it's just like someone's like, " Oh, this is nice," and like that's the crescendo dramatically, and you're moved by it.
 
 [00:23:28] Norm: That feels like Woody Allen to me, like the end of Manhattan or something. You know?
 
-[00:23:34] Adam: Yeah, yeah. You're right. In those in those days, yeah, there was those like really beautiful, subtle payoffs, like the beautiful payoff of Woody Allen and Dianne Wiest being together at the end of Hannah and Her Sisters. You know, you don't expect.
+[00:23:34] Adam: Yeah, yeah. You're right. In those days, yeah, there was those like really beautiful, subtle payoffs, like the beautiful payoff of Woody Allen and Dianne Wiest being together at the end of Hannah and Her Sisters. You don't expect.
 
 [00:23:34] Norm: Yeah,
 
@@ -504,7 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:24:22] Jeremy Williams: Yeah,
 
-[00:24:22] Adam: yeah. Especially watching it. So I've seen it. I've actually seen of the various cuts. I've seen one, two, three. I've seen four of the original cuts as they were released in the theater. Those famous compromise cut in the early '90s that was released here in the city in in LA. I saw that. The first director's cut and then the final director's cut.
+[00:24:22] Adam: yeah. Especially watching it. So I've seen it. I've actually seen of the various cuts. I've seen one, two, three. I've seen four of the original cuts as they were released in the theater. Those famous compromise cut in the early '90s that was released here in the city in LA. I saw that. The first director's cut and then the final director's cut.
 
 [00:24:45] Norm: There was back in that it's over 10 years ago. They had that briefcase five disc set.
 
@@ -552,7 +552,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:25:37] Jeremy Williams: Hmm.
 
-[00:25:37] Adam: Like I'd seen this movie so many times, and yet without the narration, while he's flying to the police station with Gaff, I am like seeing things I have never seen before because, and there is been some neurological studies to show that when we're hearing words, our our visual centers are diminishing in order to concentrate on the other information.
+[00:25:37] Adam: Like I'd seen this movie so many times, and yet without the narration, while he's flying to the police station with Gaff, I am like seeing things I have never seen before because, and there is been some neurological studies to show that when we're hearing words, our visual centers are diminishing in order to concentrate on the other information.
 
 [00:25:56] Jeremy Williams: That's counterintuitive because it's more information you should be seeing everything and hearing more.
 
@@ -560,7 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:26:08] Adam: He says in a movie that is narrated,
 
-[00:26:10] Norm: and then and then it jumps him, cut immediately. Charlie Kaufman slash Nicolas Cage's voice.
+[00:26:10] Norm: and then it jumps him, cut immediately. Charlie Kaufman slash Nicolas Cage's voice.
 
 [00:26:14] Adam: And God help you if you now put narration in your film.
 
@@ -568,7 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:26:17] Unknown speaker (Norm or Adam): Yes.
 
-[00:26:17] Adam: he's playing screenplay. The famous Robert McKee, Robert McKee. Oh, so Robert McKee is the father of the modern screenplay. He holds these classes and has written these seminal books on screenplay structure and writing. I have several friends have taken his course and swear by it as a how to write a screenplay. But adaptation is a is a wonderful meta analysis of that, while it breaks all the rules that he says are steadfast and should be followed.
+[00:26:17] Adam: he's playing screenplay. The famous Robert McKee. Oh, so Robert McKee is the father of the modern screenplay. He holds these classes and has written these seminal books on screenplay structure and writing. I have several friends have taken his course and swear by it as a how to write a screenplay. But adaptation is a wonderful meta analysis of that, while it breaks all the rules that he says are steadfast and should be followed.
 
 [00:26:47] Norm: Yeah. Speaking of Blade Runner, one quick shout out also. There's a Kickstarter going on right now for a short film inspired by the Blade Runner universe.
 
@@ -580,7 +580,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:27:10] Norm: Yeah, they totally get the vibe right, and it really looks feels like a love letter to the film. The their short film is called " Slice of Life," and they have a trailer out. If you just want to watch that or back their Kickstarter.
 
-[00:27:22] Adam: Absolutely, we are we are we are avid fans of their work. We should cover them on Tested at some point.
+[00:27:22] Adam: Absolutely, we are avid fans of their work. We should cover them on Tested at some point.
 
 [00:27:27] Norm: They've reached out.
 
@@ -592,11 +592,11 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:27:35] Adam: These are the days of controlling your brand without any holds barred.
 
-[00:27:43] Norm: I think that's it. On, on the site.
+[00:27:43] Norm: I think that's it. On the site.
 
 [00:27:46] Adam: what's on the site? Yes
 
-[00:27:46] Norm: on the site this week. There's a couple things unboxings and things that we're going to be showing from from the cave that we're shooting actually today. We have pending an approval for an edit. A video from our visit to CERN is going to go up this week.
+[00:27:46] Norm: on the site this week. There's a couple things unboxings and things that we're going to be showing from the cave that we're shooting actually today. We have pending an approval for an edit. A video from our visit to CERN is going to go up this week.
 
 [00:28:03] Adam: Very exciting,
 
@@ -620,7 +620,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:28:29] Jeremy Williams: That's a rare opportunity to see The Incredibles in the theater again.
 
-[00:28:31] Adam: And you know, as John Landis once said to me, it has the best James Bond soundtrack of any James Bond movie. Yeah. It's a Michael Giacchino, friend of tested. Michael Giacchino direct, did did the score for The Incredibles, and it's incredible.
+[00:28:31] Adam: And as John Landis once said to me, it has the best James Bond soundtrack of any James Bond movie. Yeah. It's a Michael Giacchino, friend of tested. Michael Giacchino direct, did did the score for The Incredibles, and it's incredible.
 
 [00:28:45] Norm: Yeah, yeah. It was right after he did Alias, yeah, which is like you know spy show. But I think that's the one that people took notice and their ears perked up and said, " Who is this composer?"
 

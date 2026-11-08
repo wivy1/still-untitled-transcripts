@@ -16,7 +16,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:00:13] Adam: There was nothing, no shenanigans during that intro.
 
-[00:00:15] Will: I'm Glad I'm glad that that the madness has stopped.
+[00:00:15] Will: I'm Glad that that the madness has stopped.
 
 [00:00:20] Adam: It hasn't stopped. It's paused.
 
@@ -60,21 +60,21 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:01:18] Adam: No, no, no. Yeah.
 
-[00:01:19] Will: Um. But yeah, so unresolved sexual tension ruins everything.
+[00:01:19] Will: But yeah, so unresolved sexual tension ruins everything.
 
 [00:01:24] Adam: Well, it ruined everything for me in high school.
 
-[00:01:26] Will: Yeah, it ruins everything. Don't even, don't even.
+[00:01:26] Will: Yeah, it ruins everything. Don't even.
 
 [00:01:31] Norm: It's a lot of projecting.
 
-[00:01:32] Adam: Did you ever? Did you ever see? Um. There's a terrific film called Searching for Debra Winger.
+[00:01:32] Adam: Did you ever? Did you ever see? There's a terrific film called Searching for Debra Winger.
 
 [00:01:37] Norm: No,
 
 [00:01:38] Will: I've seen the title.
 
-[00:01:39] Adam: It's a documentary by Rosanna Arquette. Okay. No, stay with me. Um. Uh. It's.
+[00:01:39] Adam: It's a documentary by Rosanna Arquette. Okay. No, stay with me. It's.
 
 [00:01:46] Will: I like Rosanna Arquette.
 
@@ -82,7 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:01:46] Unknown speaker: I got no beef with her.
 
-[00:01:46] Adam: No, I love Rosanna Arquette. Um. It's just a strange juxtaposition. You think documentary Rosanna Arquette? Anyway, it's about being a woman in Hollywood. And specifically, it's about the fact that Debra Winger hasn't done a movie in a long time, and it's very specifically because she didn't like the tenor of the way Hollywood treats women—not even simply a subject matter. And it goes through and interviews all these different actresses who talk openly about how fucked up the whole machine is, and like it's at one point, Martha Plimpton says, " I feel like we are all being lined up and walked past and judged by dudes who we wouldn't fuck in high school."
+[00:01:46] Adam: No, I love Rosanna Arquette. It's just a strange juxtaposition. You think documentary Rosanna Arquette? Anyway, it's about being a woman in Hollywood. And specifically, it's about the fact that Debra Winger hasn't done a movie in a long time, and it's very specifically because she didn't like the tenor of the way Hollywood treats women—not even simply a subject matter. And it goes through and interviews all these different actresses who talk openly about how fucked up the whole machine is, and like it's at one point, Martha Plimpton says, " I feel like we are all being lined up and walked past and judged by dudes who we wouldn't fuck in high school."
 
 [00:02:29] Norm: Wow.
 
@@ -112,7 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:03:32] Adam: yeah,
 
-[00:03:32] Will: we we can't the terrible jobs. Like, I had jobs that I didn't stay in because I didn't like the people, or didn't want to be become that person,
+[00:03:32] Will: we can't the terrible jobs. Like, I had jobs that I didn't stay in because I didn't like the people, or didn't want to be become that person,
 
 [00:03:32] Adam: right?
 
@@ -120,7 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:03:32] Adam: right, right,
 
-[00:03:32] Will: you know, like clean up vomit three. Well, okay, I did work in a bar for a while, but. Yeah, yeah, no.
+[00:03:32] Will: Like clean up vomit three. Well, okay, I did work in a bar for a while, but. Yeah, yeah, no.
 
 [00:04:00] Adam: I mean,
 
@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:04:10] Will: The hard work is good.
 
-[00:04:11] Adam: You know, it's funny because I saw these two UPS drivers the other day, where one was clearly an old timer and the other was new, and the old timer was being just the worst kind of jerk to the new guy in a way that wasn't just like " come on, come on, come on." It was like he was loading the new guy's hand truck. He's loading his hand truck really high with packages, and he was like, " You should ask for more." It was like, " This is you want more." That's how this relationship works.
+[00:04:11] Adam: It's funny because I saw these two UPS drivers the other day, where one was clearly an old timer and the other was new, and the old timer was being just the worst kind of jerk to the new guy in a way that wasn't just like " come on, come on, come on." It was like he was loading the new guy's hand truck. He's loading his hand truck really high with packages, and he was like, " You should ask for more." It was like, " This is you want more." That's how this relationship works.
 
 [00:04:43] Will: You know, those guys get get paid based on the route that they bid and all that.
 
@@ -146,7 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:04:53] Adam: That that whole piecemeal payment. Thing where everyone's responsible to screw everyone else to make their money.
 
-[00:05:00] Norm: I I can't believe we went through. I I know I know I was drifting off topic, and I can't believe we went through all the last podcast, all the the terrible jobs talk without talking about that Comcast call.
+[00:05:00] Norm: I can't believe we went through. I know I was drifting off topic, and I can't believe we went through all the last podcast, all the terrible jobs talk without talking about that Comcast call.
 
 [00:05:11] Adam: That Comcast call,
 
@@ -166,7 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:05:50] Will: good jobs.
 
-[00:05:50] Adam: Good jobs. So one of the things about bad jobs, how they define you, is in Is not only what they teach you about hard work and about dealing with people you don't like, which is all really valuable, but they also inform you in terms of how you respond to them. Your response shapes you, you know. So when you have a job in high school, boy, it's like you know, I'm watching my kids. How you do that job shapes how you do all jobs after that because it's the first one and it's the one you'll refer back to. And so I wanted to call out a couple of amazing employers I had early on that showed me a different way of thinking about things. Now, my dad was a filmmaker in New York in the '60s and a commercial director, and he was big in advertising. He was a madman, He was a Madman, and he was one of the creatives, like the big bearded Irish creative.
+[00:05:50] Adam: Good jobs. So one of the things about bad jobs, how they define you, is in Is not only what they teach you about hard work and about dealing with people you don't like, which is all really valuable, but they also inform you in terms of how you respond to them. Your response shapes. So when you have a job in high school, boy, it's like I'm watching my kids. How you do that job shapes how you do all jobs after that because it's the first one and it's the one you'll refer back to. And so I wanted to call out a couple of amazing employers I had early on that showed me a different way of thinking about things. Now, my dad was a filmmaker in New York in the '60s and a commercial director, and he was big in advertising. He was a madman, and he was one of the creatives, like the big bearded Irish creative.
 
 [00:06:41] Will: When you went to his office, did he have the drinks cart in the corner?
 
@@ -204,7 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:07:43] Norm: Oh,
 
-[00:07:43] Adam: he he wanted
+[00:07:43] Adam: he wanted
 
 [00:09:22] Norm: timeless,
 
@@ -240,7 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:11:20] Adam: She's on a different cel, which means that she's either over or under Fred. And every cel you put over another cel, the colors on the cel that's under have to be mixed one shade brighter because the acetate kills the color one one half shade. Wow. So you might have as many as six elements sometimes.
 
-[00:11:38] Will: So you were you were filling you were color you were. This is this is very much like a chasing Amy discussion, but but so you were you were painting in the lines.
+[00:11:38] Will: So you were filling you were color you were. This is very much like a chasing Amy discussion, but so you were painting in the lines.
 
 [00:11:46] Adam: Oh yeah,
 
@@ -266,13 +266,13 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:12:17] Will: Okay,
 
-[00:12:17] Adam: and then the animator follows that. The the the shooter follows that. Okay, this goes on top. This goes underneath. And every frame has a set of assembly instructions.
+[00:12:17] Adam: and then the animator follows that. The shooter follows that. Okay, this goes on top. This goes underneath. And every frame has a set of assembly instructions.
 
 [00:12:29] Will: Wow,
 
 [00:12:29] Unknown speaker: Background.
 
-[00:12:30] Norm: can you watch old cartoons and see any mistakes where like the layering is wrong? And so like Fred is brighter and and
+[00:12:30] Norm: can you watch old cartoons and see any mistakes where like the layering is wrong? And so like Fred is brighter and
 
 [00:12:36] Adam: no, that would usually that would end up being reshot or cut in.
 
@@ -326,15 +326,15 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:14:26] Adam: I totally am. Oh. That's a missed opportunity.
 
-[00:14:28] Norm: So, yeah, so when you have a great job like that, do people like people must you you must have known at the time you had an amazing job, or is that only in retrospect?
+[00:14:28] Norm: So, yeah, so when you have a great job like that, do people like people must you must have known at the time you had an amazing job, or is that only in retrospect?
 
-[00:14:37] Adam: I think it's really only in retrospect. You know, I mean, I knew I worked with people that I liked. I knew I got to try different things, and I got to see examples. I mean, I was working with these young illustrators who'd be like, one of them got a village voice. One of them got their illustration in the village voice. Right. We all had a party about it, and it was like everyone was at the beginning of their careers.
+[00:14:37] Adam: I think it's really only in retrospect. I mean, I knew I worked with people that I liked. I knew I got to try different things, and I got to see examples. I mean, I was working with these young illustrators who'd be like, one of them got a village voice. One of them got their illustration in the village voice. Right. We all had a party about it, and it was like everyone was at the beginning of their careers.
 
-[00:14:58] Will: And and I mean, when you are 19 years old, or at least when I was 19 years old. I didn't have any sense of perspective.
+[00:14:58] Will: And I mean, when you are 19 years old, or at least when I was 19 years old. I didn't have any sense of perspective.
 
 [00:14:58] Adam: No,
 
-[00:14:58] Will: I didn't realize both how much more complex I thought everything everything was than I actually than than I actually thought it was, and I didn't know like the odds of getting crap jobs versus good jobs. And and like I had a I had a job right out of college that was a kind of bad job, but the guy that I worked for was amazing, and that that made the whole thing great. I worked I worked with this guy named Rod Bun, who was a like he was a microscope tech is what is what his initial like that's what he trained to do.
+[00:14:58] Will: I didn't realize both how much more complex I thought everything everything was than I actually than than I actually thought it was, and I didn't know like the odds of getting crap jobs versus good jobs. And like I had a job right out of college that was a kind of bad job, but the guy that I worked for was amazing, and that that made the whole thing great. I worked with this guy named Rod Bun, who was a like he was a microscope tech is what his initial like that's what he trained to do.
 
 [00:14:58] Adam: Yeah,
 
@@ -342,11 +342,11 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:15:46] Adam: Oh, so you did some of that.
 
-[00:15:47] Will: All The electronic stuff, all the all the mechanical stuff, all the woodworking stuff.
+[00:15:47] Will: All The electronic stuff, all the mechanical stuff, all the woodworking stuff.
 
 [00:15:53] Adam: Being a lab maintenance guy is one of my secret favorite jobs.
 
-[00:15:56] Will: So, so I didn't get to do the carpentry stuff. Yeah, we just had one guy who right all year round. Making cabinets. It was and and
+[00:15:56] Will: So, so I didn't get to do the carpentry stuff. Yeah, we just had one guy who right all year round. Making cabinets. It was and
 
 [00:16:05] Adam: can I say that sometimes that sounds blissful to me.
 
@@ -358,31 +358,31 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:16:14] Adam: right?
 
-[00:16:14] Will: Right. He um he had a really nice shop.
+[00:16:14] Will: Right. He had a really nice shop.
 
 [00:16:18] Adam: Cut shit up and make it look nice.
 
 [00:16:19] Will: Yeah, and he made gorgeous, gorgeous cabinets.
 
-[00:16:21] Adam: I don't mean to I don't mean to make it sound like that would be an easy job. No, doing that right is hard work, and you've got to be good and tight on your feet, not mix a dimension or anything. But boy, that sounds heavenly.
+[00:16:21] Adam: I don't mean to make it sound like that would be an easy job. No, doing that right is hard work, and you've got to be good and tight on your feet, not mix a dimension or anything. But boy, that sounds heavenly.
 
 [00:16:31] Norm: Yeah, but very Jesse Pinkman.
 
-[00:16:32] Will: He he worked. yeah exactly.
+[00:16:32] Will: He worked. yeah exactly.
 
 [00:16:35] Adam: Oh, you break my heart.
 
-[00:16:36] Will: Um, and then the mechanical guys, electronic shop guys, and then I worked in the IT side. But Rod basically was like, " Look, here's the list of stuff that you have to get done every day. We had we had we had IT calls, we had maintenance stuff, and then we had like helping just random walk-ins. And once you did all that stuff, if you wanted to go noodle around and learn something new, it was totally fair game,
+[00:16:36] Will: And then the mechanical guys, electronic shop guys, and then I worked in the IT side. But Rod basically was like, " Look, here's the list of stuff that you have to get done every day. We had we had we had IT calls, we had maintenance stuff, and then we had like helping just random walk-ins. And once you did all that stuff, if you wanted to go noodle around and learn something new, it was totally fair game,
 
 [00:16:36] Adam: right?
 
-[00:16:36] Will: So you know, when I wanted to learn how you know the first kind of computer microscopes worked, he was totally into that, and he sat down, we walked through it, and And and gave me a lot of opportunity for growth on stuff that I never use, but is endlessly fascinating.
+[00:16:36] Will: So you know, when I wanted to learn how you know the first kind of computer microscopes worked, he was totally into that, and he sat down, we walked through it, and gave me a lot of opportunity for growth on stuff that I never use, but is endlessly fascinating.
 
-[00:17:12] Adam: But you end up you do end up using it somewhere. I mean, it goes into your brain. I mean, both of you guys have incredible resources that you draw on to be able to converse about something or extrapolate from something. And I mean, that's you know, when I read about things like the Amazon fulfillment centers or Walmart, where everyone is timed to the second to do what they do, I get that what you're doing is maximizing in every possible way the profits. But you are you are losing something really vital there by treating people like they're machines,
+[00:17:12] Adam: But you end up you do end up using it somewhere. I mean, it goes into your brain. I mean, both of you guys have incredible resources that you draw on to be able to converse about something or extrapolate from something. And I mean, that's you know, when I read about things like the Amazon fulfillment centers or Walmart, where everyone is timed to the second to do what they do, I get that what you're doing is maximizing in every possible way the profits. But you are losing something really vital there by treating people like they're machines,
 
-[00:17:48] Norm: intangibles, externalities, all the the human aspect.
+[00:17:48] Norm: intangibles, externalities, all the human aspect.
 
-[00:17:51] Adam: Yes, and and the the amount the amount that I brought to jobs where I when I was allowed to breathe a little bit and go out and learn stuff, what I brought back to those jobs was a hundredfold. And actually, this is I didn't think we were going to go here, but I I didn't think I I didn't think forward about going here, but I realized that one of the best jobs I had for the for a while was working for Jamie Hyneman.
+[00:17:51] Adam: Yes, and the amount that I brought to jobs where I when I was allowed to breathe a little bit and go out and learn stuff, what I brought back to those jobs was a hundredfold. And actually, this is I didn't think we were going to go here, but I I didn't think forward about going here, but I realized that one of the best jobs I had for the for a while was working for Jamie Hyneman.
 
 [00:18:16] Will: This is pre MythBusters.
 
@@ -398,13 +398,13 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:18:53] Will: That sounds great. I want one of those.
 
-[00:18:54] Adam: So I got to say to Jamie, actually, Mr. Hyneman, I'm sorry I can't come in this week because I'm building a remote control lazy boy chair, but I can come in in two weeks. And I came in and showed him some stuff, and he hired me on the spot to work on this Nike commercial.
+[00:18:54] Adam: So I got to say to Jamie, actually, Mr. Hyneman, I'm sorry I can't come in this week because I'm building a remote control lazy boy chair, but I can come in two weeks. And I came in and showed him some stuff, and he hired me on the spot to work on this Nike commercial.
 
-[00:19:08] Will: And hold on, is this the animated one? The the
+[00:19:08] Will: And hold on, is this the animated one? The
 
-[00:19:11] Adam: No, this was just all condition gear. You just see water on a in a stream and stuff like that. But and eventually, I left after five years. I couldn't stand Jamie and his partners as bosses. I didn't. I I remained professionally cordial. I just didn't like working for them,
+[00:19:11] Adam: No, this was just all condition gear. You just see water on a in a stream and stuff like that. But and eventually, I left after five years. I couldn't stand Jamie and his partners as bosses. I didn't. I remained professionally cordial. I just didn't like working for them,
 
-[00:19:26] Will: which is which is a thing that it happens and is fine.
+[00:19:26] Will: which is a thing that it happens and is fine.
 
 [00:19:28] Adam: Absolutely. But in the early days, I just kept on looking around Jamie's shop and being like, " I want to learn that," and he'd be like, " All right, go ahead and make this." And eventually, he found out that it was usually cheaper to let me learn a machine than to go through the rigmarole of calling someone who knew how to use it and bring them in to do the thing. So that was like going to college for me.
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:19:49] Adam: yeah.
 
-[00:19:51] Will: And there's also a wonderful time when you're in your early 20s, you don't have a family, you're probably not married yet, where if if you if it's Tuesday night and you don't have something better to do and you're enjoying what you're doing at work, then you'll just sit there and keep working at it until you get it done.
+[00:19:51] Will: And there's also a wonderful time when you're in your early 20s, you don't have a family, you're probably not married yet, where if you if it's Tuesday night and you don't have something better to do and you're enjoying what you're doing at work, then you'll just sit there and keep working at it until you get it done.
 
 [00:20:04] Adam: I did. I would stay late all the time.
 
@@ -428,15 +428,15 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:20:30] Will: it's both.
 
-[00:20:31] Adam: It's both sides, man. I think that you know, I I don't know if I can possibly generalize. I will say that the that a bunch of my crew on MythBusters stays late. They work on their own stuff. They they they learn. They absorb. And we've got people on our crew everywhere from 22 all the way up to you know Jamie was like 90. Um
+[00:20:31] Adam: It's both sides, man. I think that I I don't know if I can possibly generalize. I will say that the that a bunch of my crew on MythBusters stays late. They work on their own stuff. They learn. They absorb. And we've got people on our crew everywhere from 22 all the way up to you know Jamie was like 90.
 
 [00:20:51] Norm: and they stay there for a while.
 
-[00:20:53] Adam: Yeah yeah we have very low turnover. Yeah okay. Very very low. Um I so I couldn't possibly generalize on that front. I would say that you know when kids ask me, do you have advice about going to work? I mean one of my pieces of advice is point and ask and tell everyone. So one is look around. At the thing you're doing, if there's something that interests you, you should just tell your boss, " I'm interested in doing that."
+[00:20:53] Adam: Yeah yeah we have very low turnover. Yeah okay. Very very low. I so I couldn't possibly generalize on that front. I would say that you know when kids ask me, do you have advice about going to work? I mean one of my pieces of advice is point and ask and tell everyone. So one is look around. At the thing you're doing, if there's something that interests you should just tell your boss, " I'm interested in doing that."
 
 [00:21:17] Will: More often than not, they're going to say, " That's great. Here's what what what are you what are you interested in? What can we do to make?" Because they want to keep you happy
 
-[00:21:24] Adam: as an employer. Yeah, as an employer, when I have an employee who's interested, I know they're going to do really well. They're going they're going to be have a leg up, right? The other one is you got to tell people what you're doing. Like you got to you got to crow a little bit about what you're doing, and I don't mean brag about it, but I just mean when you're doing something cool, you got to talk about it so that people understand you're the only one out there selling your value.
+[00:21:24] Adam: as an employer. Yeah, as an employer, when I have an employee who's interested, I know they're going to do really well. They're going to be have a leg up, right? The other one is you got to tell people what you're doing. Like you got to crow a little bit about what you're doing, and I don't mean brag about it, but I just mean when you're doing something cool, you got to talk about it so that people understand you're the only one out there selling your value.
 
 [00:21:50] Will: But the other benefit of talking about stuff with people, especially when you're in a great work environment,
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:21:50] Will: almost always is a positive. Even if you'd end up not agreeing with them, it means you think about it more and think about it in a different way. So that communication is is at least for me. Unbelievably valuable.
 
-[00:22:12] Adam: Absolutely. Um. When I first got so after I worked for Jamie, I worked for Zoob, the toy company, ball and socket jointed building toy, for about a year, a year plus
+[00:22:12] Adam: Absolutely. When I first got so after I worked for Jamie, I worked for Zoob, the toy company, ball and socket jointed building toy, for about a year plus
 
 [00:22:12] Will: out here.
 
@@ -456,21 +456,21 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:22:12] Will: Okay.
 
-[00:22:12] Adam: Um. We were right across the street from ACT in the building above Pizza Kitchen.
+[00:22:12] Adam: We were right across the street from ACT in the building above Pizza Kitchen.
 
 [00:22:12] Will: Oh wow.
 
-[00:22:12] Adam: Um. We had like three floors of that building. Uh. I worked for them as head of R and D for a while and merchandising, and that was really invaluable.
+[00:22:12] Adam: We had like three floors of that building. I worked for them as head of R and D for a while and merchandising, and that was really invaluable.
 
 [00:22:39] Will: But a startup or is it?
 
-[00:22:39] Adam: Yeah, effectively. Um. And then I I quit that job and I hounded ILM until they hired me and when I finally got up to Industrial Light and Magic, I wanted to make a splash, so I brought in my toolboxes, which were these insanely elaborate doctor's kits, and I that was about two months, and then the doctor's kits started to fail because there's just too many tools in them, so I remade them in aluminum, and I did that in one night, like one crazy night.
+[00:22:39] Adam: Yeah, effectively. And then I I quit that job and I hounded ILM until they hired me and when I finally got up to Industrial Light and Magic, I wanted to make a splash, so I brought in my toolboxes, which were these insanely elaborate doctor's kits, and I that was about two months, and then the doctor's kits started to fail because there's just too many tools in them, so I remade them in aluminum, and I did that in one night, like one crazy night.
 
 [00:23:06] Will: Those one night. Like a good one night is is a wonderful thing.
 
-[00:23:10] Adam: This is in pre this is pre children, right? So I was up until like three in the morning. I riveted so many rivets in my toolboxes I couldn't write with a pencil the next morning, and I didn't even know about it. I just picked up a pencil and it just didn't work. But then, so the toolboxes that was absolutely getting me. You know, people were talking about it and all the Adam in those toolboxes. And then a really good friend of mine now, Michael Lynch, is one of the great supervisors I've I'll ever have. He's just a wonderful guy. He comes over and he goes, you know, you should probably put those up on scissor lifts so they're higher so you can reach them. And I was like, challenge accepted. So Friday night I went home and I built them, and Monday morning I came in with rolling dollies with scissor lifts under my aluminum toolkits. And the thing is, is that ever after, Mike tells the story, and the next morning he came in.
+[00:23:10] Adam: This is in pre this is pre children, right? So I was up until like three in the morning. I riveted so many rivets in my toolboxes I couldn't write with a pencil the next morning, and I didn't even know about it. I just picked up a pencil and it just didn't work. But then, so the toolboxes that was absolutely getting me. People were talking about it and all the Adam in those toolboxes. And then a really good friend of mine now, Michael Lynch, is one of the great supervisors I've I'll ever have. He's just a wonderful guy. He comes over and he goes you should probably put those up on scissor lifts so they're higher so you can reach them. And I was like, challenge accepted. So Friday night I went home and I built them, and Monday morning I came in with rolling dollies with scissor lifts under my aluminum toolkits. And the thing is, is that ever after, Mike tells the story, and the next morning he came in.
 
-[00:24:01] Will: So you you were building reputation though,
+[00:24:01] Will: So you were building reputation though,
 
 [00:24:03] Adam: absolutely, totally.
 
@@ -478,23 +478,23 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:24:09] Adam: absolutely, and that was invaluable.
 
-[00:24:11] Will: Um. What the other thing I would say is that when you're in your 20s, the mistake I made was that I didn't take enough risks in my 20s. You did, I think. Um. But but you when you before you have kids before you have a family.
+[00:24:11] Will: What the other thing I would say is that when you're in your 20s, the mistake I made was that I didn't take enough risks in my 20s. You did, I think. But you when you before you have kids before you have a family.
 
 [00:24:27] Adam: I had the luxury. As I said last week, I had the luxury of being able to take a risk. I had a little bit of a cushion in my parents.
 
-[00:24:33] Will: But but even that even so, before you have massive expenses of family in the home,
+[00:24:33] Will: But even that even so, before you have massive expenses of family in the home,
 
 [00:24:37] Adam: that's absolutely true.
 
-[00:24:39] Will: Then then you should a this is a lesson that our friend Brian taught me much too late to do me any good. But you should keep your expenses as low as possible.
+[00:24:39] Will: Then you should a this is a lesson that our friend Brian taught me much too late to do me any good. But you should keep your expenses as low as possible.
 
 [00:24:39] Adam: Yeah.
 
-[00:24:39] Will: Um. As long as you can, I know that's that's with people coming out of school with $200,000 worth of debt.
+[00:24:39] Will: As long as you can, I know that's with people coming out of school with $200,000 worth of debt.
 
 [00:24:39] Adam: Yeah.
 
-[00:24:39] Will: That is a that is a
+[00:24:39] Will: That is a
 
 [00:24:55] Adam: That's a tough ask.
 
@@ -502,7 +502,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:25:00] Adam: Yeah.
 
-[00:25:01] Will: And and that by keeping your expenses low, it gives you the freedom to kind of do whatever you want and take those big risks before it's too late.
+[00:25:01] Will: And that by keeping your expenses low, it gives you the freedom to kind of do whatever you want and take those big risks before it's too late.
 
 [00:25:10] Adam: Absolutely.
 
@@ -520,7 +520,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:25:26] Will: You got to tell the you
 
-[00:25:27] Norm: you. No, I I, I don't know. I work for myself a lot. I started started little things with friends in in school, in college, and I sold t-shirts in college
+[00:25:27] Norm: you. No, I I, I don't know. I work for myself a lot. I started started little things with friends in school, in college, and I sold t-shirts in college
 
 [00:25:39] Adam: that you designed.
 
@@ -540,13 +540,13 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:25:43] Adam: But you had a good bank account.
 
-[00:25:43] Norm: but but it was a great great learning experience. But yeah,
+[00:25:43] Norm: but it was a great great learning experience. But yeah,
 
-[00:26:00] Will: but you all, and then your first your first 20,000.
+[00:26:00] Will: but you all, and then your first 20,000.
 
-[00:26:04] Norm: Yep, and it was yeah, it was yeah, yeah, a tower of UPS boxes. We can get free boxes and packages from USPS. Oh yeah!
+[00:26:04] Norm: Yep, and it was yeah, yeah, a tower of UPS boxes. We can get free boxes and packages from USPS. Oh yeah!
 
-[00:26:12] Will: Wow! I'm totally amazed when when you applied for the internship at PC Gamer.
+[00:26:12] Will: Wow! I'm totally amazed when you applied for the internship at PC Gamer.
 
 [00:26:17] Norm: Yeah, 15 years old when I forgot my first internship, and back then, I mean, labor laws. Back then, we really
 
@@ -556,11 +556,11 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:26:25] Will: Yeah,
 
-[00:26:25] Norm: um, and it was just it
+[00:26:25] Norm: And it was just it
 
 [00:26:32] Will: like did you just show up at the office?
 
-[00:26:33] Norm: just yeah no call people call people and mail letters and back then people answered actual letters written letters
+[00:26:33] Norm: just yeah no call people and mail letters and back then people answered actual letters written letters
 
 [00:26:33] Will: wow
 
@@ -592,19 +592,19 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:27:38] Will: You mean CEO of T-shirt and T-shirt magazine.
 
-[00:27:40] Norm: running your own t shirt small t shirt company, being an intern somewhere, you know, being an assistant somewhere else, and then being a manager in a school thing, right? Things that you learn about managing skills in one job,
+[00:27:40] Norm: running your own t shirt small t shirt company, being an intern somewhere being an assistant somewhere else, and then being a manager in a school thing, right? Things that you learn about managing skills in one job,
 
 [00:27:40] Adam: yeah,
 
 [00:27:40] Norm: applied to other jobs, and they all feed each other.
 
-[00:27:55] Adam: Absolutely for for a while in the early '90s, actually for a long time, for two and a half years, I worked as a backstage tech for Beach Blanket Babylon in North Beach. Now I was an understudy tech, which is an exhausting job because. Every position in Beach Blanket Babylon, which is this San Francisco institution that's been going for like 35 years or more, 40 years maybe,
+[00:27:55] Adam: Absolutely for a while in the early '90s, actually for a long time, for two and a half years, I worked as a backstage tech for Beach Blanket Babylon in North Beach. Now I was an understudy tech, which is an exhausting job because. Every position in Beach Blanket Babylon, which is this San Francisco institution that's been going for like 35 years or more, 40 years maybe,
 
 [00:28:16] Norm: Had such a big anniversary?
 
 [00:28:17] Will: Yeah,
 
-[00:28:17] Adam: yeah, and it's it's a frenetic show with tons of like drag and comedy and performance, and each position backstage has 200 plus cues in an 80-minute show.
+[00:28:17] Adam: yeah, and it's a frenetic show with tons of like drag and comedy and performance, and each position backstage has 200 plus cues in an 80-minute show.
 
 [00:28:31] Will: Good God!
 
@@ -624,9 +624,9 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:29:19] Norm: yes.
 
-[00:29:19] Will: Did you, um, did you have health insurance during that stuff?
+[00:29:19] Will: Did you have health insurance during that stuff?
 
-[00:29:23] Adam: Beach blanket had had good health insurance. They actually they had real health insurance, and I I utilized some of it because this job was really hard on your body. Um, but no, after that, I didn't really.
+[00:29:23] Adam: Beach blanket had had good health insurance. They actually they had real health insurance, and I I utilized some of it because this job was really hard on your body. But no, after that, I didn't really.
 
 [00:29:40] Will: I assumed for most of the time you were doing effects work, you probably were.
 
@@ -634,15 +634,15 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:29:43] Will: Yeah.
 
-[00:29:43] Adam: After I left ILM, when after I stopped working in IATSE, there's a certain period of time after which your health insurance lapses. There was a lag, and actually, we we it was just about the time I met my wife, my current wife. And we just got a little bit of float insurance to carry us through that, and now I've been with the same carrier ever since. But boy, yeah, I was fast and fancy free back then. Yeah, health insurance was ridiculous.
+[00:29:43] Adam: After I left ILM, when after I stopped working in IATSE, there's a certain period of time after which your health insurance lapses. There was a lag, and actually, we it was just about the time I met my wife, my current wife. And we just got a little bit of float insurance to carry us through that, and now I've been with the same carrier ever since. But boy, yeah, I was fast and fancy free back then. Yeah, health insurance was ridiculous.
 
 [00:30:16] Will: It was, yeah, I did things that were scary.
 
 [00:30:22] Norm: When you are immortal, you can do anything,
 
-[00:30:22] Adam: right? God, don't you? It's, I mean, it's particularly the thing with me and my my kids being 15. It's like I know you feel like you are immortal. I know you feel like there's just like endless things.
+[00:30:22] Adam: right? God, don't you? It's, I mean, it's particularly the thing with me and my kids being 15. It's like I know you feel like you are immortal. I know you feel like there's just like endless things.
 
-[00:30:35] Will: You need to teach them what real pain is. It's the only way to be make them safe. So it's it's the the Paul Muad'Dib thing where you put the hand in the pain box. This is this is what.
+[00:30:35] Will: You need to teach them what real pain is. It's the only way to be make them safe. So it's the Paul Muad'Dib thing where you put the hand in the pain box. This is what.
 
 [00:30:46] Adam: Fear is the mind killer.
 
@@ -656,11 +656,11 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:31:06] Will: We're flying blind here.
 
-[00:31:07] Adam: But you know, I, I, one of the particular things I like is crazy bosses who who you realize later were awesome.
+[00:31:07] Adam: But I, I, one of the particular things I like is crazy bosses who who you realize later were awesome.
 
-[00:31:15] Will: Oh, that's all. That's a good. That's a. It sounds like a like a TV cliche, but it's actually a good thing.
+[00:31:15] Will: Oh, that's all. That's a good. That's a. It sounds like a TV cliche, but it's actually a good thing.
 
-[00:31:19] Adam: it's it's really true. You work. You'll work for some absolute nut jobs, but later on, you'll be like, " Wow, that was great."
+[00:31:19] Adam: it's really true. You work. You'll work for some absolute nut jobs, but later on, you'll be like, " Wow, that was great."
 
 [00:31:26] Will: Yeah, good
 
@@ -674,13 +674,13 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:31:51] Will: give me a PG-13 example of crazy.
 
-[00:31:53] Adam: No, no, no, no. We had this the show the show we did the show I worked on was called " The Architecture of Catastrophic Change" and involved. Sort of loosely based around the Loma Prieta earthquake, and the stage was this huge ramp that lifted up and down, and actors flew across the stage on ropes and wire ropes and harnesses and stuff. And during one portion of the show, an actor supposed to has gets clicked into a harness, and he gets sort of supported on a block and fall while other actors support like a 15 foot ladder, and he climbs to the top. But he's supported by a block and fall. One night, the block and fall failed, and George ran to the front and made them actually climb the ladder anyway, while actors below supported the ladder.
+[00:31:53] Adam: No, no, no, no. We had this the show we did the show I worked on was called " The Architecture of Catastrophic Change" and involved. Sort of loosely based around the Loma Prieta earthquake, and the stage was this huge ramp that lifted up and down, and actors flew across the stage on ropes and wire ropes and harnesses and stuff. And during one portion of the show, an actor supposed to has gets clicked into a harness, and he gets sort of supported on a block and fall while other actors support like a 15 foot ladder, and he climbs to the top. But he's supported by a block and fall. One night, the block and fall failed, and George ran to the front and made them actually climb the ladder anyway, while actors below supported the ladder.
 
 [00:32:36] Will: Oh my god!
 
 [00:32:36] Adam: During a performance,
 
-[00:32:36] Will: that's that's amazing.
+[00:32:36] Will: that's amazing.
 
 [00:32:40] Adam: It was insane. Anyway, stories like that—that's what we're looking for in the comments section.
 

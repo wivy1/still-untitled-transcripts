@@ -18,7 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:00:40] Will: We're running at 0.25% speed this week, so people get through the podcast 25% faster.
 
-[00:00:44] Adam: Actually, one of the high compliments I got for the audio book version of Every Tool's a Hammer is someone said I liked it so much I went back down to one to one to one speed.
+[00:00:44] Adam: Actually, one of the high compliments I got for the audio book version of Every Tool's a Hammer is someone said I liked it so much I went back down to one speed.
 
 [00:00:54] Will: What? Wow.
 
@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:01:07] Norm: Because they're so slow.
 
-[00:01:08] Will: Lectures are a different thing. I, I mean, I just didn't listen to the lectures. I just read the notes.
+[00:01:08] Will: Lectures are a different thing. I mean, I just didn't listen to the lectures. I just read the notes.
 
 [00:01:12] Norm: Yeah, but welcome back, Adam. I know we said that last week because you are also traveling every week.
 
@@ -52,7 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:01:27] Norm: Ooh.
 
-[00:01:27] Adam: at the Marvel building. It's a it's a podcast they have. It was really fun. We'll put a link under the, in the comments here
+[00:01:27] Adam: at the Marvel building. It's a podcast they have. It was really fun. We'll put a link under the, in the comments here
 
 [00:01:33] Will: Oh, yeah. Did they kill somebody at the end of the show?
 
@@ -82,17 +82,17 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:02:26] Will: Yeah,
 
-[00:02:27] Norm: and and of course you were there for BookCon, and the one thing I want to ask you about because I saw this on Twitter was that your mom was there.
+[00:02:27] Norm: and of course you were there for BookCon, and the one thing I want to ask you about because I saw this on Twitter was that your mom was there.
 
 [00:02:33] Adam: My mom was there.
 
 [00:02:33] Norm: was she signing?
 
-[00:02:34] Adam: Well, so first of all, get to the Javits at BookCon, and the the the whole arrangements being run by my friend Alicia, who is our wonderful contact at New York Comic Con. That incredible team that makes New York Comic Con run like a watch is also they also run BookCon. So that was great in the in the lap of some good friends, and my mom spent the day with me that day, and yeah, she sat next to me while I was signing autographs, and several fans started asking her for an autograph in their book because that would be really great to get Adam’s mom
+[00:02:34] Adam: Well, so first of all, get to the Javits at BookCon, and the whole arrangements being run by my friend Alicia, who is our wonderful contact at New York Comic Con. That incredible team that makes New York Comic Con run like a watch is also they also run BookCon. So that was great in the lap of some good friends, and my mom spent the day with me that day, and yeah, she sat next to me while I was signing autographs, and several fans started asking her for an autograph in their book because that would be really great to get Adam’s mom
 
 [00:03:06] Unknown speaker: She’s been on the podcast.
 
-[00:03:06] Will: Yeah, she's on the podcast. We did a we did a talking room with her.
+[00:03:06] Will: Yeah, she's on the podcast. We did a talking room with her.
 
 [00:03:09] Adam: She Was so delighted. She just had hearts. Coming out of her eyes, and so did the fans that were asking for the autographs. It was delightful.
 
@@ -132,11 +132,11 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:04:03] Will: yeah, yeah, exactly.
 
-[00:04:05] Adam: And he's got a new book coming out in a couple of months that is the most outlandish ways to do things. I wish I could remember the title. We will look it up and put it in the in the notes.
+[00:04:05] Adam: And he's got a new book coming out in a couple of months that is the most outlandish ways to do things. I wish I could remember the title. We will look it up and put it in the notes.
 
 [00:04:15] Norm: Yes.
 
-[00:04:15] Adam: And book con was great. After book con, we repaired to a a hotel bar in Midtown, where I met up with my friend Derek Delgaudio, the magician who does in and of itself. Who did in and of itself, and Molly Jong Fast. Actually, she's an internet friend. I hadn't met her in real life, but we've been rage tweeting alongside each other, and so you know, we'll send each other things that we've written or talked about. And so she came out and had a lovely dinner with Derek and my mom. It was a fine and weird, delightful triumvirate. Oh,
+[00:04:15] Adam: And book con was great. After book con, we repaired to a hotel bar in Midtown, where I met up with my friend Derek Delgaudio, the magician who does in and of itself. Who did in and of itself, and Molly Jong Fast. Actually, she's an internet friend. I hadn't met her in real life, but we've been rage tweeting alongside each other, and so we'll send each other things that we've written or talked about. And so she came out and had a lovely dinner with Derek and my mom. It was a fine and weird, delightful triumvirate. Oh,
 
 [00:04:52] Will: and then Derek, you had Derek and your mom at dinner together.
 
@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:06:21] Unknown speaker: We never did.
 
-[00:06:22] Adam: But then I told the story about Jamie Hyneman rode horses as a kid and as a teenager because he would patrol the pick-your-own apple farm that his family owned and grew up on on horseback.
+[00:06:22] Adam: But then I told the story about Jamie Hyneman rode horses as a kid and as a teenager because he would patrol the pick-your-own apple farm that his family owned and grew up on horseback.
 
 [00:06:36] Will: Oh yeah.
 
@@ -196,7 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:07:10] Will: Yeah, no, it's a good move.
 
-[00:07:11] Adam: And as because I said, you know, no child, no young boy should have that much access to porn.
+[00:07:11] Adam: And as because I said no child, no young boy should have that much access to porn.
 
 [00:07:16] Will: Yeah.
 
@@ -214,7 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:07:45] Will: Oh shit.
 
-[00:07:45] Adam: I, I, I still regret saying this. I still regret it. But we said that, and he, he got super tense, and then he said, " He's tricking you. He's giving you a dummy phone," and you could see what it was taking out of him to drop dime on his brother.
+[00:07:45] Adam: I still regret saying this. I still regret it. But we said that, and he got super tense, and then he said, " He's tricking you. He's giving you a dummy phone," and you could see what it was taking out of him to drop dime on his brother.
 
 [00:08:04] Will: Oh yeah.
 
@@ -234,7 +234,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:08:45] Adam: I’m not. So it could be. It could be.
 
-[00:08:48] Will: How did you approach that situation? Sorry, we're going to go parenting here for a minute. How did you? Did you let him continue to hang himself when you went and confronted him about the the fake phone?
+[00:08:48] Will: How did you approach that situation? Sorry, we're going to go parenting here for a minute. How did you? Did you let him continue to hang himself when you went and confronted him about the fake phone?
 
 [00:08:57] Adam: No, I probably should have.
 
@@ -248,17 +248,17 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:09:06] Will: Here’s a punishment phone.
 
-[00:09:08] Adam: To his credit, to his credit, we. So when I tell this story to an audience, and I tell them he was giving me a dummy phone for six months, there's a sound the audience makes. And I always go. I know. I can hear the admiration in your voice. Imagine I had to hide it in mine.
+[00:09:08] Adam: To his credit, we. So when I tell this story to an audience, and I tell them he was giving me a dummy phone for six months, there's a sound the audience makes. And I always go. I know. I can hear the admiration in your voice. Imagine I had to hide it in mine.
 
 [00:09:25] Will: Yeah.
 
-[00:09:26] Adam: Because I'm kind of impressed. And yet, there's no room for being impressed when you're a parent. It's time for punishment. Like you gotta, you gotta nip that in the bud. You can't, you can't let them think that they can manipulate you like that. You have to maintain your omnipotence until it's absurd.
+[00:09:26] Adam: Because I'm kind of impressed. And yet, there's no room for being impressed when you're a parent. It's time for punishment. Like you gotta nip that in the bud. You can't let them think that they can manipulate you like that. You have to maintain your omnipotence until it's absurd.
 
-[00:09:39] Will: And until there's no change. Yeah. So I got in trouble when I was in high school because we we didn't have cell phones then. Because you know, you and I are old.
+[00:09:39] Will: And until there's no change. Yeah. So I got in trouble when I was in high school because we didn't have cell phones then. Because you and I are old.
 
 [00:09:48] Adam: Yeah.
 
-[00:09:49] Will: And I would call. I set up a deal with my girlfriend where she could call me at exactly 10 o'clock, and I would call time. And then it would it would call waiting in and beep over, but I would I would have to call at like 9:59 and 30, so we'd have to synchronize watches the whole thing. Wait,
+[00:09:49] Will: And I would call. I set up a deal with my girlfriend where she could call me at exactly 10 o'clock, and I would call time. And then it would call waiting in and beep over, but I would have to call at like 9:59 and 30, so we'd have to synchronize watches the whole thing. Wait,
 
 [00:10:05] Norm: I don't get this.
 
@@ -284,7 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:10:37] Norm: Oh, so okay, so you had call waiting at least.
 
-[00:10:39] Will: We had call waiting. Yeah, it wasn't, it wasn't the dark ages. We weren't, we didn't have to talk to [unclear: the baby / Mayan / me].
+[00:10:39] Will: We had call waiting. Yeah, it wasn't the dark ages. We weren't, we didn't have to talk to [unclear: the baby / Mayan / me]
 
 [00:10:43] Adam: When I was that age, we did not have call waiting.
 
@@ -292,7 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:10:45] Adam: we did not have Star 70 or Star 69.
 
-[00:10:47] Will: So anyway, when my dad got a caller ID box that did call waiting plus caller ID, he was like, " Hey, wait a second." He was flipping through the numbers one day. He's like, " The hell is this at 10 o'clock on Tuesday night?" And then he went back. 10 o'clock on Monday night. 10 o'clock on Sunday. Yeah, yeah. What? Why? Why are you getting a? How are you getting a call? And I had to explain it, and he like, and I lost. They they pulled the phone out of my room.
+[00:10:47] Will: So anyway, when my dad got a caller ID box that did call waiting plus caller ID, he was like, " Hey, wait a second." He was flipping through the numbers one day. He's like, " The hell is this at 10 o'clock on Tuesday night?" And then he went back. 10 o'clock on Monday night. 10 o'clock on Sunday. Yeah, yeah. What? Why? Why are you getting a? How are you getting a call? And I had to explain it, and he like, and I lost. They pulled the phone out of my room.
 
 [00:11:11] Adam: Of course they did.
 
@@ -312,7 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:11:40] Adam: They immediately pull out two chairs and two people sit down, and the third one comes out, and it's a woman, and she goes, " All right, kids, only 30 more minutes of porn, and then it's bedtime."
 
-[00:11:53] Will: I, I mean, I think giving him the flip phone is worse than just taking the phone away. Hmm. I mean, because you can have it there.
+[00:11:53] Will: I mean, I think giving him the flip phone is worse than just taking the phone away. Hmm. I mean, because you can have it there.
 
 [00:12:00] Adam: Well, I needed to be able to get a hold of him.
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:12:37] Will: That's good.
 
-[00:12:38] Adam: And on a couple, I've done expert, not expert plus, and I'm not saying I'm getting 100% of these bricks. I'm, you know, it's not competition grade. Survival. But I find it, I find it really fun, and it's it's a little bit. It makes me a little sweaty. It feels good to move my body around. What hundred dollar bills?
+[00:12:38] Adam: And on a couple, I've done expert, not expert plus, and I'm not saying I'm getting 100% of these bricks. I'm it's not competition grade. Survival. But I find it really fun, and it's a little bit. It makes me a little sweaty. It feels good to move my body around. What hundred dollar bills?
 
 [00:12:56] Will: Yeah.
 
@@ -366,17 +366,17 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:13:20] Will: I'm just saying, it's an arcade game.
 
-[00:13:21] Adam: Um, it is, and it is also. It's a movement I've been thinking about for my whole life: swinging lightsabers
+[00:13:21] Adam: It is, and it is also. It's a movement I've been thinking about for my whole life: swinging lightsabers
 
 [00:13:27] Will: Yeah.
 
-[00:13:27] Adam: and Beat Saber. I mean, the way the way they look, it's it's just really well done. I'm I'm super psyched about it, and soon they're going to release a pack.
+[00:13:27] Adam: and Beat Saber. I mean, the way they look, it's just really well done. I'm super psyched about it, and soon they're going to release a pack.
 
 [00:13:34] Norm: Yeah, to let you
 
 [00:13:35] Adam: make your own
 
-[00:13:36] Norm: make your own songs and then import them. But it's it's, you know, we sometimes walk in here and you are wearing the headset and you are engaged in it.
+[00:13:36] Norm: make your own songs and then import them. But it's we sometimes walk in here and you are wearing the headset and you are engaged in it.
 
 [00:13:44] Will: Where do you have room in here.
 
@@ -398,7 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:14:06] Will: last year? The year before? It's very good.
 
-[00:14:09] Adam: And it's it's so I went and looked up tips and tricks of professional Beat Saber competitors, and to be honest, here's where I'm not interested. So I watched a bunch of YouTube videos of people playing exceedingly hard levels on Expert Plus, and I found it just as Distancing, and as uninteresting to me as watching the other game that was just like this, which is Rock Band,
+[00:14:09] Adam: And it's so I went and looked up tips and tricks of professional Beat Saber competitors, and to be honest, here's where I'm not interested. So I watched a bunch of YouTube videos of people playing exceedingly hard levels on Expert Plus, and I found it just as Distancing, and as uninteresting to me as watching the other game that was just like this, which is Rock Band,
 
 [00:14:33] Will: yeah,
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:14:36] Will: rhythm game,
 
-[00:14:37] Adam: rhythm game with stuff coming down. At the point at which you are playing expert plus at the hardest possible levels, it's not like you are responding to stimuli; you it's muscle memory and deep, deep, deep amounts of practice. I like the not knowing and the the being able to hit it without because I mean these guys who train they train so much that they remove the arrows from the bricks and do it from memory, Well, so, which is amazing. But it's not that's not the level that I’m interested in.
+[00:14:37] Adam: rhythm game with stuff coming down. At the point at which you are playing expert plus at the hardest possible levels, it's not like you are responding to stimuli; you it's muscle memory and deep, deep, deep amounts of practice. I like the not knowing and the being able to hit it without because I mean these guys who train they train so much that they remove the arrows from the bricks and do it from memory, Well, so, which is amazing. But it's not that's not the level that I’m interested in.
 
 [00:15:02] Norm: It's like in the old arcade days when people played Dance Dance Revolution, like in the movie Scott Pilgrim, they would like you would like people basically just memorize the moves
 
@@ -422,13 +422,13 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:15:25] Norm: and that's which is the same as the difference between like playing Tetris where the Bricks are random, and playing a perfect game of like Pac Man or Donkey Kong.
 
-[00:15:33] Adam: Yeah, and I appreciate the perfect game runs that people try. You know, I read about that stuff in the course of the things that I'm interested in. But Beat Saber feels really good, and I like trying new songs. I like making them a little harder,
+[00:15:33] Adam: Yeah, and I appreciate the perfect game runs that people try. I read about that stuff in the course of the things that I'm interested in. But Beat Saber feels really good, and I like trying new songs. I like making them a little harder,
 
-[00:15:46] Will: and and it it it is it is in the same way that Tetris Effect, which came out on PSVR, and assuming Sony doesn't have an eternal license to that, will be on Quest. Sure, I'm sure this holiday. It’s like that game was designed to induce that flow state. Like it, the Tetsuo Miz, uh, Miz, Miz, Miz I can't remember his last. I just he’s just Miz. Anyway, designed that Tetris Effect game to induce that flow state.
+[00:15:46] Will: and it is in the same way that Tetris Effect, which came out on PSVR, and assuming Sony doesn't have an eternal license to that, will be on Quest. Sure, I'm sure this holiday. It’s like that game was designed to induce that flow state. Like it, the Tetsuo Miz Miz I can't remember his last. I just he’s just Miz. Anyway, designed that Tetris Effect game to induce that flow state.
 
 [00:16:11] Adam: Ah, oh, awesome!
 
-[00:16:11] Will: And and Beat Saber has the same effect, I think.
+[00:16:11] Will: And Beat Saber has the same effect, I think.
 
 [00:16:15] Adam: Like so, I'm really enjoying the Oculus Quest.
 
@@ -440,7 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:16:35] Will: or
 
-[00:16:35] Adam: that's fine. I I just like the option. Yeah. I think I should have the option.
+[00:16:35] Adam: that's fine. I just like the option. Yeah. I think I should have the option.
 
 [00:16:38] Norm: Right.
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:16:45] Norm: Put in your pocket. Yep.
 
-[00:16:46] Adam: Extra power, which I think is nifty. Um, I think the handsets are every bit as responsible. Sorry, every bit as responsive as I would want them to be, and I really like that.
+[00:16:46] Adam: Extra power, which I think is nifty. I think the handsets are every bit as responsible. Sorry, every bit as responsive as I would want them to be, and I really like that.
 
 [00:16:57] Will: They're really good. Have you? Are you finding the edges of the visible limit playing Beat Saber? or not really.
 
@@ -496,7 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:18:22] Norm: For your way, first order retrievability.
 
-[00:18:25] Will: Exactly. The the you know about the multiple port USB chargers, right? That you can go to Amazon and buy from Anker or any number of other places.
+[00:18:25] Will: Exactly. The you know about the multiple port USB chargers, right? That you can go to Amazon and buy from Anker or any number of other places.
 
 [00:18:33] Adam: Yeah,
 
@@ -514,7 +514,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:18:58] Will: And they are set up to do both of the phone standards: so the Apple standard, the Android standard, the Samsung standard, and then also whatever the USB-C fast charge up to like five amps or something is. So yeah, yeah. So you can charge your like if you have a MacBook that charges up to like five amps and charges with USB-C, you can plug that thing into it too.
 
-[00:19:17] Adam: Awesome. Yeah. Oh, nice. Because I've actually had to use I once I once went on a business trip with my laptop without its charger. Oh. And I think I was in New Zealand, so getting another one was non-trivial. And I ended up using one of my USB C charger bricks,
+[00:19:17] Adam: Awesome. Yeah. Oh, nice. Because I've actually had to use I once went on a business trip with my laptop without its charger. Oh. And I think I was in New Zealand, so getting another one was non-trivial. And I ended up using one of my USB C charger bricks,
 
 [00:19:38] Norm: Oh, my God.
 
@@ -530,7 +530,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:19:46] Will: Yeah, so so they make travel ones that have the fast fast USB C charge, and then also like four USB A ports for your other. It's very good. Highly recommended.
 
-[00:19:55] Norm: I know that this week, since we all have that device and you're into it, I know we talked about potentially doing a a rec room quest,
+[00:19:55] Norm: I know that this week, since we all have that device and you're into it, I know we talked about potentially doing a rec room quest,
 
 [00:20:03] Adam: yeah,
 
@@ -578,7 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:20:46] Adam: and I I may end up porting myself over. I don't know.
 
-[00:20:50] Will: So I don't know the Apple stuff, the Apple software, like I like the music, the music stuff, and the photos, and all the all the infrastructure for Apple as a primarily PC user. Now is so spectacularly. It's not even. It's not just. It's not bad. It's just untended. Like clearly, nobody gives a shit about it, and I mean, I'm sure somebody gives a shit about it. That's not fair. The people who work on it clearly care, but nobody's paying attention to it at a level that they can give them more resources or whatever. And it it is. It's just. It's like it's disappointing. The thing that worries me is that if they're taking away iTunes, how do you back up the phone locally? Are you going to have to only back up to the cloud?
+[00:20:50] Will: So I don't know the Apple stuff, the Apple software, like I like the music stuff, and the photos, and all the infrastructure for Apple as a primarily PC user. Now is so spectacularly. It's not even. It's not just. It's not bad. It's just untended. Like clearly, nobody gives a shit about it, and I mean, I'm sure somebody gives a shit about it. That's not fair. The people who work on it clearly care, but nobody's paying attention to it at a level that they can give them more resources or whatever. And it is. It's just. It's like it's disappointing. The thing that worries me is that if they're taking away iTunes, how do you back up the phone locally? Are you going to have to only back up to the cloud?
 
 [00:21:24] Norm: No, no, no. It just we will be built into their OS. So I don't know. the Windows side,
 
@@ -600,13 +600,13 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:21:37] Will: I did. I didn't either. But like, there they launched a Mac Pro workstation desktop that starts at $6,000
 
-[00:21:44] Adam: with a with a $1,000 monitor stand.
+[00:21:44] Adam: with a $1,000 monitor stand.
 
-[00:21:47] Will: Well, yeah, and a $6,000 monitor, $1,000 stand, and and the $6,000 computer with a 256 gigabyte SSD in it.
+[00:21:47] Will: Well, yeah, and a $6,000 monitor, $1,000 stand, and the $6,000 computer with a 256 gigabyte SSD in it.
 
 [00:21:55] Norm: Starting price, base price.
 
-[00:21:56] Will: That's the for the for the cheap one, the $6,000 one.
+[00:21:56] Will: That's the for the cheap one, the $6,000 one.
 
 [00:21:59] Norm: Yeah,
 
@@ -614,7 +614,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:22:01] Adam: That's it.
 
-[00:22:01] Will: Is it is like like I mean, what what they're doing is making machine learning and like rendering workstations, which is fine. That's that's a great business to be in. But
+[00:22:01] Will: Is it is like I mean, what they're doing is making machine learning and like rendering workstations, which is fine. That's a great business to be in. But
 
 [00:22:12] Adam: why sell your base model as an unusable brick?
 
@@ -646,7 +646,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:24:09] Adam: Lando Calrissian's robot from Solo
 
-[00:24:12] Norm: L three L three L three
+[00:24:12] Norm: L three
 
 [00:24:13] Adam: but also the showrunner and creator of Killing Eve.
 
@@ -662,7 +662,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:24:29] Will: Yeah.
 
-[00:24:29] Adam: and what she said was, the women in Bond's universe need to be treated better. But what she said was, James Bond doesn't need to treat them better, but the James Bond universe needs to treat them better, which is a lovely distinction, by the way. I think that distinction betrays a deep understanding of the Bond oeuvre and Fleabag. So Fleabag is about a venal, uh, uh, uh, a venal, narcissistic, uh, kind of terrible person played by Phoebe Waller-Bridge.
+[00:24:29] Adam: and what she said was, the women in Bond's universe need to be treated better. But what she said was, James Bond doesn't need to treat them better, but the James Bond universe needs to treat them better, which is a lovely distinction, by the way. I think that distinction betrays a deep understanding of the Bond oeuvre and Fleabag. So Fleabag is about a venal, narcissistic kind of terrible person played by Phoebe Waller-Bridge.
 
 [00:25:06] Will: Um, not the robot this time.
 
@@ -682,7 +682,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:26:13] Norm: Yeah.
 
-[00:26:14] Will: Um. I. I. Is it? Is it available?
+[00:26:14] Will: I. I. Is it? Is it available?
 
 [00:26:17] Adam: I think I got it on Amazon.
 
@@ -694,7 +694,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:26:31] Norm: and he wrote the script.
 
-[00:26:33] Adam: He wrote the script, and I know I know Neil quite well. He is so chuffed to have this out in the world. He's so ecstatic.
+[00:26:33] Adam: He wrote the script, and I know Neil quite well. He is so chuffed to have this out in the world. He's so ecstatic.
 
 [00:26:40] Norm: So good.
 
@@ -710,17 +710,17 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:26:52] Adam: No.
 
-[00:26:52] Will: Yes, that's how old the book is. He would write his chapter, send it to Terry Pratchett. Terry Pratchett would read the chapter, write his new chapter. Terry Pratchett would send it back and back and forth, back and forth.
+[00:26:52] Will: Yes, that's how old the book is. He would write his chapter, send it to Terry Pratchett. Terry Pratchett would read the chapter, write his new chapter. Terry Pratchett would send it back and forth.
 
 [00:27:02] Adam: Amazing.
 
-[00:27:02] Will: Like it was, it was like a you know, there's a Reddit thing where they do that. The the
+[00:27:02] Will: Like it was like a there's a Reddit thing where they do that. The
 
 [00:27:09] Adam: exquisite corpse,
 
 [00:27:10] Will: exquisite corpse, yeah.
 
-[00:27:12] Norm: He's done interviews now. He's in like this promo tour for for the series and talking about how writing the book, writing the series today, and how that differs in writing the book and what he wanted to keep because you know they have to make these 90 or 60 minutes because it's a partnership with the BBC. But there are scenes.
+[00:27:12] Norm: He's done interviews now. He's in like this promo tour for the series and talking about how writing the book, writing the series today, and how that differs in writing the book and what he wanted to keep because you know they have to make these 90 or 60 minutes because it's a partnership with the BBC. But there are scenes.
 
 [00:27:29] Adam: six episodes total.
 
@@ -740,7 +740,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:27:48] Norm: okay. Yes,
 
-[00:27:48] Adam: Tennant plays the plays the demon. Probably. Yeah,
+[00:27:48] Adam: Tennant plays the demon. Probably. Yeah,
 
 [00:27:51] Will: Probably. David Tennant was the Doctor Who before the last one.
 
@@ -772,7 +772,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:28:35] Norm: It's very difficult to make. This has a lot of those elements.
 
-[00:28:39] Will: Um, Maybe, maybe this will knock the. If this does well, this will knock the knock the trees.
+[00:28:39] Will: Um, Maybe, maybe this will knock the. If this does well, this will knock the trees.
 
 [00:28:42] Norm: He has a deal with Amazon, yeah.
 
@@ -788,13 +788,13 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:28:54] Adam: I believe at noon on Thursday. I think I am still coming back from Vegas, but I am going to try and see if I can get there in time about fall, which I think comes out today. if I’m not incorrect.
 
-[00:29:04] Will: It was on my Kindle last night when I when I went to bed.
+[00:29:04] Will: It was on my Kindle last night when I went to bed.
 
 [00:29:07] Adam: Oh, I can't wait till you start to read it. It's so good.
 
 [00:29:09] Will: I have another book to finish first, so I’m, I’m, yeah, anyway.
 
-[00:29:12] Adam: I just, I just, I just, I am about two thirds of the way through.
+[00:29:12] Adam: I just, I am about two thirds of the way through.
 
 [00:29:16] Will: Okay.
 
@@ -820,21 +820,21 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:29:57] Will: Yeah,
 
-[00:29:59] Adam: those are the those are the main points going on. I'm off to the Re Mars conference tomorrow afternoon.
+[00:29:59] Adam: those are the main points going on. I'm off to the Re Mars conference tomorrow afternoon.
 
-[00:30:06] Will: So I watched Wandering Earth. I was I was paging through Netflix the other day.
+[00:30:06] Will: So I watched Wandering Earth. I was paging through Netflix the other day.
 
 [00:30:10] Adam: Oh, the Chinese science fiction movie.
 
 [00:30:10] Will: I was. paging.
 
-[00:30:11] Adam: Weta did all the spacesuits for that, you know.
+[00:30:11] Adam: Weta did all the spacesuits for that.
 
 [00:30:12] Will: I was paging through Netflix and I saw Liu Cixin.
 
 [00:30:16] Adam: Yeah.
 
-[00:30:16] Will: As the executive producer and presumably concept behind this this Chinese produced science fiction movie. And
+[00:30:16] Will: As the executive producer and presumably concept behind this Chinese produced science fiction movie. And
 
 [00:30:25] Adam: from a Cixin, yeah, you're right, yeah,
 
@@ -842,13 +842,13 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:30:28] Adam: Cixin Liu,
 
-[00:30:28] Will: Cixin Liu, yeah, um, sorry, anglicized, um, and. Like it; it's gorgeous. It's full of really neat ideas. Little rough.
+[00:30:28] Will: Cixin Liu, yeah sorry, anglicized and. Like it; it's gorgeous. It's full of really neat ideas. Little rough.
 
 [00:30:40] Adam: It's a little rough around the edges.
 
 [00:30:41] Will: Little rough around the edges.
 
-[00:30:42] Adam: I am dying to watch it. I, I, I. Now that I realize it's on Netflix, now that you told me, I will, I will go because,
+[00:30:42] Adam: I am dying to watch it. I. Now that I realize it's on Netflix, now that you told me, I will go because,
 
 [00:30:47] Will: yeah,
 
@@ -862,15 +862,15 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:30:59] Adam: and the science fiction.
 
-[00:31:00] Will: It had yeah, it's it's like it's huge scope. Like the
+[00:31:00] Will: It had yeah, it's like it's huge scope. Like the
 
-[00:31:04] Adam: I really appreciate that, even if it's rough around the edges. I, I am glad we're getting big budget, awesome from other nations than the U.S.
+[00:31:04] Adam: I really appreciate that, even if it's rough around the edges. I am glad we're getting big budget, awesome from other nations than the U.S.
 
-[00:31:11] Will: Like the title card at the beginning, where they list all the studios that worked on it, is like Avengers scale. It's like 30 studios chucked in here. It it tells a really personal story set in a really bad big, you know the the. I mean, I am not gonna. This isn't a spoiler because it happens in the first three minutes, but like the upshot is, the sun is going to explode, and they have to figure out how to solve the problem, and the solution is simultaneously ludicrous and. You know, very three body,
+[00:31:11] Will: Like the title card at the beginning, where they list all the studios that worked on it, is like Avengers scale. It's like 30 studios chucked in here. It tells a really personal story set in a really bad big, you know the. I mean, I am not gonna. This isn't a spoiler because it happens in the first three minutes, but like the upshot is, the sun is going to explode, and they have to figure out how to solve the problem, and the solution is simultaneously ludicrous and. Very three body,
 
 [00:31:39] Norm: wandering, wandering Earth.
 
-[00:31:40] Will: Yeah, wandering, wandering Earth is not a figurative statement. It is a literal, trans literal description of what happens in the thing. Wow. Um, it's uh, yeah, it's it's messy, but it's neat. I I enjoyed it. I, I would, I would if you like if you like science if you have an affinity for especially kind of maybe questionable science fiction, I would say go for it.
+[00:31:40] Will: Yeah, wandering, wandering Earth is not a figurative statement. It is a literal, trans literal description of what happens in the thing. Wow. It's uh, yeah, it's messy, but it's neat. I enjoyed it. I would if you like science if you have an affinity for especially kind of maybe questionable science fiction, I would say go for it.
 
 [00:31:58] Adam: Okay.
 

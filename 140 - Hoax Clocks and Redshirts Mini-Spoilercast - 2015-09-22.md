@@ -4,7 +4,7 @@
 **Duration:** 34m 57s  
 Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
-[00:01:09] Will: Today, sorry for the double ads. Today, we were actually doing two today because we missed an episode a few weeks ago, so we had to do some makegoods for our the the wonderful advertisers that support the show. And now on with the podcast. Welcome to Still Untitled, the Adam Savage Project. I'm Will.
+[00:01:09] Will: Today, sorry for the double ads. Today, we were actually doing two today because we missed an episode a few weeks ago, so we had to do some makegoods for our the wonderful advertisers that support the show. And now on with the podcast. Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:01:27] Adam: I'm Adam,
 
@@ -16,13 +16,13 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:01:34] Will: as one does.
 
-[00:01:34] Adam: As one does. And oh, just because I'm like kind of obsessed, and I think camping a lot these days, I was thinking, you know, one of the standard things in science fiction books is people visit other planets and they set up perimeter alarms.
+[00:01:34] Adam: As one does. And oh, just because I'm like kind of obsessed, and I think camping a lot these days, I was thinking one of the standard things in science fiction books is people visit other planets and they set up perimeter alarms.
 
 [00:01:34] Will: Yeah,
 
 [00:01:34] Adam: right. That's a standard science fiction trope.
 
-[00:01:55] Will: You put you put the stakes in the ground, and then when
+[00:01:55] Will: You put the stakes in the ground, and then when
 
 [00:01:57] Adam: they call them whalers or hailers or something,
 
@@ -34,15 +34,15 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:02:10] Will: Is it just a bunch of stakes with strings and cans hanging off them?
 
-[00:02:13] Adam: No, there are there are several different versions. There are trip wires which use little party poppers,
+[00:02:13] Adam: No, there are several different versions. There are trip wires which use little party poppers,
 
 [00:02:19] Will: okay,
 
-[00:02:19] Adam: as the trip wires, and you can buy those right. So you could basically drive eye bolts into the ground, set up monofilament with little party poppers, but then there are also electronic trip wires that will pull a pin and make a thing go, whee whee. and then there is then there is motion alarms
+[00:02:19] Adam: as the trip wires, and you can buy those right. So you could basically drive eye bolts into the ground, set up monofilament with little party poppers, but then there are also electronic trip wires that will pull a pin and make a thing go, whee whee. and then there is motion alarms
 
 [00:02:19] Will: Really?
 
-[00:02:19] Adam: that you can point outwards from your campsite that will that will let you know when beasties are approaching.
+[00:02:19] Adam: that you can point outwards from your campsite that will let you know when beasties are approaching.
 
 [00:02:42] Norm: It’s made for 12 year olds with treehouses.
 
@@ -52,7 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:02:45] Adam: Yeah, totally.
 
-[00:02:45] Will: Because, like, like if if you are in some place with leaves
+[00:02:45] Will: Because if you are in some place with leaves
 
 [00:02:45] Adam: Right.
 
@@ -64,7 +64,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:02:58] Adam: No, this reminds me, we were doing a hot water heater. I know hot water heaters redundant. We were doing water heater. Explosions through two floors of a house a few years ago up at Altamont landfill, and we brought in a ballistics expert who had ballistic tracking technology, a machine that would be able to watch something take off and track exactly its flight path, its speed, its trajectory, and where it lands.
 
-[00:03:22] Will: It's like the bullet, the bullet path.
+[00:03:22] Will: It's like the bullet path.
 
 [00:03:23] Adam: Yeah, and this could do it with a bullet, so we figured it should be easy with a water heater. And the only problem was all the spinning windmills around us made the machine not be able to read anything.
 
@@ -88,7 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:03:56] Adam: Yeah.
 
-[00:03:56] Will: You you hit a button and it inflates. No,
+[00:03:56] Will: You hit a button and it inflates. No,
 
 [00:03:58] Adam: no, no. It's a foam mattress.
 
@@ -98,7 +98,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:04:05] Will: and it just lives on the roof of your car.
 
-[00:04:06] Adam: and lives on the roof of… You. Unzipper it. You pull out the ladder. Use the ladder to extend the floor pan, and the ladder is the other stand of the other half of the floor pan, floor pan, which is like aircraft aluminum. You know the honeycomb,
+[00:04:06] Adam: and lives on the roof of… You. Unzipper it. You pull out the ladder. Use the ladder to extend the floor pan, and the ladder is the other stand of the other half of the floor pan, which is like aircraft aluminum. You know the honeycomb,
 
 [00:04:06] Unknown speaker: Yeah. Yeah.
 
@@ -116,35 +116,35 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:04:42] Adam: Yeah,
 
-[00:04:42] Norm: That's nice. made specifically for your your car model.
+[00:04:42] Norm: That's nice. made specifically for your car model.
 
-[00:04:45] Adam: No they they make these for they make there is there is probably a dozen different makers of these kind of tents. I got this one; it's one of the lightest ones made, and also one of the lowest. Like it's only seven inches tall total.
+[00:04:45] Adam: No they make these for they make there is probably a dozen different makers of these kind of tents. I got this one; it's one of the lightest ones made, and also one of the lowest. Like it's only seven inches tall total.
 
 [00:04:56] Norm: What does weight matter if you are just going to keep it on top of it?
 
 [00:04:58] Adam: Weight doesn't matter; it's just easier for me to put it up if it doesn't weigh 100 pounds.
 
-[00:05:02] Will: I am so the the tent I've been most interested in for the last, let's say, you know, year and a half, two years since I knew it existed are the tree hammock tents.
+[00:05:02] Will: I am so the tent I've been most interested in for the last, let's say year and a half, two years since I knew it existed are the tree hammock tents.
 
 [00:05:02] Adam: Oh yeah,
 
-[00:05:02] Will: the ones you put between three trees, and then you you basically have come alongs on all the ends. You cinch it up really tight, and then it's like a trampoline in there.
+[00:05:02] Will: the ones you put between three trees, and then you basically have come alongs on all the ends. You cinch it up really tight, and then it's like a trampoline in there.
 
 [00:05:02] Adam: Yeah,
 
-[00:05:02] Will: I I really really really want to try one of those, and they sell them at REI, but they're like $1,000 maybe $700. They're really expensive.
+[00:05:02] Will: I really really really want to try one of those, and they sell them at REI, but they're like $1,000 maybe $700. They're really expensive.
 
-[00:05:26] Adam: That is that is a rough price.
+[00:05:26] Adam: That is a rough price.
 
 [00:05:27] Will: It is like it's like
 
 [00:05:29] Adam: we should think about making one.
 
-[00:05:30] Will: I don't I don't know if I trust us that much.
+[00:05:30] Will: I don't know if I trust us that much.
 
 [00:05:32] Norm: Do you need to find the exact actually configuration of tree?
 
-[00:05:35] Adam: The rigging the rigging is trivial.
+[00:05:35] Adam: The rigging is trivial.
 
 [00:05:37] Will: No, I'm not worried about the rigging. I'm worried about getting the nylon seams and stuff on the bottom strong enough that it doesn't.
 
@@ -152,9 +152,9 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:05:50] Will: I guess that's true.
 
-[00:05:51] Adam: You don't have to make the nylon load bearing. It literally is just it's it's sandwiched between the. I mean, I haven't looked at their design.
+[00:05:51] Adam: You don't have to make the nylon load bearing. It literally is just it's sandwiched between the. I mean, I haven't looked at their design.
 
-[00:05:59] Will: I think that I think that what they do is have a nylon. I think they have a nylon mesh that has a crisscross, and then the floor. Is a is a probably non flexible material
+[00:05:59] Will: I think that what they do is have a nylon. I think they have a nylon mesh that has a crisscross, and then the floor. Is a probably non flexible material
 
 [00:05:59] Adam: Right.
 
@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:06:11] Adam: are there posts, poles?
 
-[00:06:13] Will: No, no. You know what? I think that yeah, I think you're right. I think that the the the structure for above are probably fiberglass or carbon fiber poles.
+[00:06:13] Will: No, no. You know what? I think that yeah, I think you're right. I think that the structure for above are probably fiberglass or carbon fiber poles.
 
 [00:06:20] Adam: I tell you the pole, the aluminum poles were the latest Marmot tent that I bought. It’s mind blowing!
 
@@ -182,9 +182,9 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:06:51] Adam: This might give you cancer, but your hair is going to look cool. We should register that as a domain.
 
-[00:06:55] Will: I can do that right now. Um,
+[00:06:55] Will: I can do that right now.
 
-[00:06:59] Adam: um, I wanted to talk about Ahmed.
+[00:06:59] Adam: I wanted to talk about Ahmed.
 
 [00:07:01] Will: Yeah, clocks.
 
@@ -196,11 +196,11 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:07:13] Will: six of one, they all look the same to me.
 
-[00:07:16] Adam: I was a little late to the Ahmed train. I didn't know that it was happening. I had seen, I had seen the headline on Metafilter the night before last. Yeah, the night before last.
+[00:07:16] Adam: I was a little late to the Ahmed train. I didn't know that it was happening. I had seen the headline on Metafilter the night before last. Yeah, the night before last.
 
 [00:07:28] Will: We're recording this on Friday morning.
 
-[00:07:30] Adam: Yeah, and then yesterday morning, yesterday morning, it all came crashing through. I started seeing it on the Twitter feed, and I got several emails. My son even emailed me, " Hey, you should tweet about that Ahmed kid if you haven't already."
+[00:07:30] Adam: Yeah, and then yesterday morning, it all came crashing through. I started seeing it on the Twitter feed, and I got several emails. My son even emailed me, " Hey, you should tweet about that Ahmed kid if you haven't already."
 
 [00:07:44] Will: I I saw it on on Wednesday night and was like, " This can't, this can't be happening. this this can't possibly be the whole story," because you know sometimes you see these things and it's like somebody's good at social media and and like there's there's another side to the story that maybe you're not getting all of. Oh, I don't think that's the case this time.
 
@@ -252,13 +252,13 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:09:19] Will: So that I mean, I I can't imagine what kind of amazing bastard you have to be to look at this scrawny 14-year-old nerd
 
-[00:09:28] Norm: wearing a NASA wearing a NASA shirt. Yes.
+[00:09:28] Norm: wearing a NASA shirt. Yes.
 
 [00:09:32] Adam: Okay, Ahmed, if you are listening, scrawny here is a marker for how harmless you totally are. We were all scrawny.
 
 [00:09:39] Unknown speaker: Scrawny, no.
 
-[00:09:39] Will: I'll post some pictures when I was when I was when I was your age. When I was 19, I weighed the better part of 122 pounds, and was six feet the same height I am right now.
+[00:09:39] Will: I'll post some pictures when I was your age. When I was 19, I weighed the better part of 122 pounds, and was six feet the same height I am right now.
 
 [00:09:39] Adam: Oh my god!
 
@@ -266,13 +266,13 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:09:54] Adam: You must have seemed like a particularly dim adult.
 
-[00:09:56] Will: I had I had the I had the like the hole underneath your ribcage because there was just nothing there.
+[00:09:56] Will: I had the like the hole underneath your ribcage because there was just nothing there.
 
 [00:10:05] Adam: Right. The nanobots hadn't finished
 
 [00:10:07] Will: building you. Basically, no body fat at all. I sank like a rock.
 
-[00:10:11] Adam: So we don't mean scrawny as any type of insult. We we we we heart Ahmed, and the story went massive.
+[00:10:11] Adam: So we don't mean scrawny as any type of insult. We heart Ahmed, and the story went massive.
 
 [00:10:20] Norm: Yeah, partly due to the photo. Anil Dash, his sister Ahmed's sister took
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:11:14] Will: I mean, is is this or is this Orwellian? Texas
 
-[00:11:19] Adam: is in a different place. You know, look, I think the thing is, is
+[00:11:19] Adam: is in a different place. Look, I think the thing is, is
 
 [00:11:22] Norm: how dare you build your own clock?
 
@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:11:40] Will: making some bombs. They're working on Apple Twos.
 
-[00:11:43] Adam: Yeah. The the most satisfying thing is the story went completely massive across the whole country, and by the middle of yesterday, Obama had tweeted, " Nice clock. Do you want to bring it by the White House?
+[00:11:43] Adam: Yeah. The most satisfying thing is the story went completely massive across the whole country, and by the middle of yesterday, Obama had tweeted, " Nice clock. Do you want to bring it by the White House?
 
 [00:11:55] Will: Cool clock, man.
 
@@ -318,17 +318,17 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:12:05] Will: Yeah.
 
-[00:12:05] Adam: And I, you know, I corresponded a little bit with Anil Dash, who's been running interference for the family, and he said the response has been tremendously positive, which is very heartening.
+[00:12:05] Adam: And I I corresponded a little bit with Anil Dash, who's been running interference for the family, and he said the response has been tremendously positive, which is very heartening.
 
 [00:12:17] Will: It's really nice,
 
 [00:12:17] Adam: really, really heartening. This is exactly the kind of story that we need to kind of remind ourselves. I think that not to give in to this idea of like brown people with clocks is bad, or some type of Islamophobia that is just ludicrous.
 
-[00:12:37] Will: Well, and and I know, I mean, one of the things that Anil posted the other day actually is is that the temptation is to think, hey, this is a Texas problem,
+[00:12:37] Will: Well, and I know, I mean, one of the things that Anil posted the other day actually is is that the temptation is to think, hey, this is a Texas problem,
 
 [00:12:45] Adam: right?
 
-[00:12:46] Will: And then he went, he said, look, here are five other instances where stuff just as ridiculous happened in places that aren't Texas, and that you would think of as as not having you know Southern, you know. Here is the thing: I am from the South. There is a perception in the country that racism is a Southern thing,
+[00:12:46] Will: And then he went, he said, look, here are five other instances where stuff just as ridiculous happened in places that aren't Texas, and that you would think of as not having you know Southern. Here is the thing: I am from the South. There is a perception in the country that racism is a Southern thing,
 
 [00:12:46] Adam: right?
 
@@ -340,15 +340,15 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:13:10] Adam: I've known many people who have—I've known many people of color who said they trust Southerners better, more because at least they're honest about the racism. when it exists
 
-[00:13:19] Will: predictable and yeah, the the rural rural poor, scary conservative. Those are the three markers,
+[00:13:19] Will: predictable and yeah, the rural rural poor, scary conservative. Those are the three markers,
 
 [00:13:28] Adam: right, right, right. The MIT student who was arrested, I think, at Logan Airport for wearing the shirt with blinky LEDs wired into it.
 
-[00:13:38] Will: Well, or the or the the Aqua what was it Aqua Aqua Teen Hunger Force thing in 2008.
+[00:13:38] Will: Well, or the Aqua what was it Aqua Aqua Teen Hunger Force thing in 2008.
 
 [00:13:44] Norm: Oh yeah,
 
-[00:13:44] Will: 2007. Where they where they put the
+[00:13:44] Will: 2007. Where they put the
 
 [00:13:46] Norm: oh right,
 
@@ -356,7 +356,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:13:47] Will: built the LED things and stuck them on in bridges in Boston, and they thought that that like that shut down the city for the day.
 
-[00:13:52] Norm: This is I mean overall a gross outside of the the racial stuff, a gross misunderstanding and underestimating of what technology is today and what makers can do today.
+[00:13:52] Norm: This is I mean overall a gross outside of the racial stuff, a gross misunderstanding and underestimating of what technology is today and what makers can do today.
 
 [00:14:01] Adam: Yeah, it really is, and again, it's movie. It's like movies have informed a lot of this.
 
@@ -366,13 +366,13 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:14:14] Will: My my favorite thing was that a bomb disposal expert from a local police department popped up on my Facebook, and and the quote was like, " Look, you have to be the worst bomb maker in the world to make a bomb that needs a circuit board to detonate. Like, why? Why would you? Why even bother? "
 
-[00:14:30] Adam: Um, and oh god, yeah. I mean, hold on, I had a point. I had a point. Um, the the one of the things I've been seeing on Twitter that that I find really shocking is all of these white people saying, " Oh yeah, a couple of years ago in high school, I actually made a thing called a fake bomb, and a little flame came out of it, and I got an A in my science class. " Yeah,
+[00:14:30] Adam: And oh god, yeah. I mean, hold on, I had a point. I had a point. The one of the things I've been seeing on Twitter that that I find really shocking is all of these white people saying, " Oh yeah, a couple of years ago in high school, I actually made a thing called a fake bomb, and a little flame came out of it, and I got an A in my science class. " Yeah,
 
-[00:14:54] Will: yeah, or or the the there was a story that went around a few years ago about a a kid that made a working fission reactor,
+[00:14:54] Will: yeah, or the there was a story that went around a few years ago about a kid that made a working fission reactor,
 
 [00:14:54] Adam: right?
 
-[00:14:54] Will: Um, and and like he was encouraged.
+[00:14:54] Will: And like he was encouraged.
 
 [00:14:54] Adam: Yeah,
 
@@ -392,9 +392,9 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:15:57] Adam: Right.
 
-[00:15:57] Will: Yeah, it's. I mean, it's it's a it's a huge it's a huge huge huge mess up.
+[00:15:57] Will: Yeah, it's. I mean, it's a huge mess up.
 
-[00:16:06] Adam: It is a huge mess up, and and one to which the response seems almost universally. Correct. Oh,
+[00:16:06] Adam: It is a huge mess up, and one to which the response seems almost universally. Correct. Oh,
 
 [00:16:11] Will: did you see the response from the school system? The note they sent out to parents.
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:16:19] Adam: Ish.
 
-[00:16:19] Will: And and and and this is a great opportunity to talk to your kids about narking on their their students who who make clocks.
+[00:16:19] Will: And this is a great opportunity to talk to your kids about narking on their students who who make clocks.
 
 [00:16:19] Adam: Right.
 
@@ -438,7 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:17:15] Norm: Let’s make clocks.
 
-[00:17:15] Adam: Yeah, we could make we could make some clocks.
+[00:17:15] Adam: Yeah, we could make some clocks.
 
 [00:17:17] Will: Making clocks with Ahmed.
 
@@ -448,13 +448,13 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:17:21] Adam: It’s making clocks with Ahmed. Yes.
 
-[00:17:23] Will: Um, I think this is a good place.
+[00:17:23] Will: I think this is a good place.
 
 [00:17:26] Adam: I wanted to talk. I wanted to talk. Let's
 
 [00:17:29] Will: talk about Redshirts. Yes.
 
-[00:17:31] Adam: Yes. We have some time. Um, we have all read the wonderful John Scalzi novel Redshirts. Is this a semi-spoiler cast?
+[00:17:31] Adam: Yes. We have some time. We have all read the wonderful John Scalzi novel Redshirts. Is this a semi-spoiler cast?
 
 [00:17:39] Norm: Set me up.
 
@@ -468,15 +468,15 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:17:48] Will: Redshirts you can't spoil.
 
-[00:17:49] Adam: It's Redshirts is hard to spoil. Although the the
+[00:17:49] Adam: It's Redshirts is hard to spoil. Although the
 
-[00:17:52] Norm: the there is a point which there is there is absolutely
+[00:17:52] Norm: the there is a point which there is absolutely
 
 [00:17:54] Adam: the primary conceit is lovely and I found quite like genuinely warmly surprising.
 
 [00:17:54] Will: Gratifying on its own. Yeah.
 
-[00:17:54] Adam: So Scalzi is a is a renowned science fiction author, New York Times bestseller. He's written books like Old Man's War and The Android's Dream.
+[00:17:54] Adam: So Scalzi is a renowned science fiction author, New York Times bestseller. He's written books like Old Man's War and The Android's Dream.
 
 [00:18:12] Will: Agent to the Stars. which is also great.
 
@@ -484,9 +484,9 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:18:13] Unknown speaker: That's good.
 
-[00:18:13] Adam: but I've been I've been plowing through. Scalzi this week, this last couple of weeks. I think I've polished off four, but Redshirts is about your classic Star Trek original series ensigns and yeomen.
+[00:18:13] Adam: but I've been plowing through. Scalzi this week, this last couple of weeks. I think I've polished off four, but Redshirts is about your classic Star Trek original series ensigns and yeomen.
 
-[00:18:29] Will: It's kind of like Below decks, Below decks, the episode of TNG.
+[00:18:29] Will: It's kind of like Below decks, the episode of TNG.
 
 [00:18:32] Norm: Yes, that's right. It is a variation of that, and also Rosencrantz and Guildenstern, like characters who realize they're not the main characters.
 
@@ -496,11 +496,11 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:18:58] Adam: And sorry, go ahead.
 
-[00:19:00] Norm: And and and it's exactly that. I mean, I the red. I mean, that's the plot description.
+[00:19:00] Norm: And it's exactly that. I mean, I the red. I mean, that's the plot description.
 
 [00:19:04] Adam: And what I love is that Scalzi goes all in. He pushes all his chips in. He doesn't do the. It turns out the shirt has some quality to it, or there's a lot of ways you could go down this. He goes full freaking meta on this.
 
-[00:19:19] Norm: It's a deconstruction of of the trope, and I'm not exactly. I mean, partly why why stories are written that way back, referring to 1960s, early '70s science fiction, and then, I mean, there is a point where we have to spoil.
+[00:19:19] Norm: It's a deconstruction of the trope, and I'm not exactly. I mean, partly why why stories are written that way back, referring to 1960s, early '70s science fiction, and then, I mean, there is a point where we have to spoil.
 
 [00:19:35] Adam: I think we're right there. We're
 
@@ -512,7 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:19:47] Adam: Totally, totally, totally.
 
-[00:19:48] Will: And and while it's essentially about Trek because you know red shirts are a Trek trope, I mean it could apply to anything. Stargate, Firefly. Well, I mean not Firefly, but
+[00:19:48] Will: And while it's essentially about Trek because you know red shirts are a Trek trope, I mean it could apply to anything. Stargate, Firefly. Well, I mean not Firefly, but
 
 [00:19:59] Adam: when Scalzi worked on
 
@@ -540,15 +540,15 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:20:38] Adam: when they go back to Earth's early history,
 
-[00:20:40] Norm: yes, yeah, they go back to through because they're they're in the future, and they can analyze their own situation through the lens of actual Star Trek.
+[00:20:40] Norm: yes, yeah, they go back to through because they're in the future, and they can analyze their own situation through the lens of actual Star Trek.
 
 [00:20:50] Will: To the point that they literally do data analyses on rates of crew death,
 
 [00:20:50] Adam: right,
 
-[00:20:50] Will: and mission, you know, all that stuff.
+[00:20:50] Will: and mission all that stuff.
 
-[00:20:56] Adam: And what's really funny is if you actually look at, let's say, the first season of the original series, it's like every time the the the the landing crew goes down, they they're minus a crew member when they come back, and the book just starts to casually go through these figures. Like, do you realize in the last like nine missions they've lost 12? People,
+[00:20:56] Adam: And what's really funny is if you actually look at, let's say, the first season of the original series, it's like every time the landing crew goes down, they they're minus a crew member when they come back, and the book just starts to casually go through these figures. Like, do you realize in the last like nine missions they've lost 12? People,
 
 [00:20:56] Will: Yeah.
 
@@ -562,9 +562,9 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:21:16] Will: Right?
 
-[00:21:16] Norm: Why the captain and and the bridge crew are on these away missions in the first place,
+[00:21:16] Norm: Why the captain and the bridge crew are on these away missions in the first place,
 
-[00:21:30] Will: or just the way science works in this universe. You you get 90% of the way to the solution of a problem, come up, spout some gibberish, and then Spock says, " Oh, well, you just need to realign the Rasmuskeeters in order to get the phase, what's McCall it in in line?
+[00:21:30] Will: or just the way science works in this universe. You get 90% of the way to the solution of a problem, come up, spout some gibberish, and then Spock says, " Oh, well, you just need to realign the Rasmuskeeters in order to get the phase, what's McCall it in in line?
 
 [00:21:44] Norm: Yeah, the magic box.
 
@@ -572,23 +572,23 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:21:45] Will: science?
 
-[00:21:45] Adam: Science. He works in science, and the the science lab eventually reveals to him that if he's approached by one of the big main characters for a solution, he is to promise it within an impossible amount of time. And at 90 minutes before that time, he go they go and get this black box, which will somehow solve the problem,
+[00:21:45] Adam: Science. He works in science, and the science lab eventually reveals to him that if he's approached by one of the big main characters for a solution, he is to promise it within an impossible amount of time. And at 90 minutes before that time, he go they go and get this black box, which will somehow solve the problem,
 
-[00:22:05] Will: and it will give them the answer in just enough time for it to be dramatically interesting. The delivery of the of the response,
+[00:22:05] Will: and it will give them the answer in just enough time for it to be dramatically interesting. The delivery of the response,
 
 [00:22:11] Adam: and at this point, when you are reading it, you are like, I am really not sure where this is going. It's very peculiar.
 
-[00:22:16] Will: And and so it's really like when you read it. So I just read it the second time because I read it when it came out in 2012 and read it again when we started talking about this. The thing that's interesting about it is he sets it all up really well in the beginning. So when he introduces the four main characters,
+[00:22:16] Will: And so it's really like when you read it. So I just read it the second time because I read it when it came out in 2012 and read it again when we started talking about this. The thing that's interesting about it is he sets it all up really well in the beginning. So when he introduces the four main characters,
 
 [00:22:16] Adam: yeah,
 
-[00:22:16] Will: you have one that's the the son of a rich kid, or one of the son of an incredibly wealthy magnate. One who is
+[00:22:16] Will: you have one that's the son of a rich kid, or one of the son of an incredibly wealthy magnate. One who is
 
 [00:22:16] Adam: the main character.
 
-[00:22:16] Will: One is the main character. One is has another kind of interesting backstory, and then one has absolutely no backstory whatsoever for no apparent reason. Like they he and he and he really he's like
+[00:22:16] Will: One is the main character. One is has another kind of interesting backstory, and then one has absolutely no backstory whatsoever for no apparent reason. Like they he and he really he's like
 
-[00:22:49] Adam: the Sam the Sam Rockwell,
+[00:22:49] Adam: the Sam Rockwell,
 
 [00:22:51] Will: and it's like oh yeah, and then this guy's over here,
 
@@ -598,15 +598,15 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:22:51] Adam: Right.
 
-[00:22:51] Will: Um, it's it's all the whole story is told, and you see you can see it coming from a mile away. But the first time you read it, you have no idea what to expect, and it is absolutely a delightful experience.
+[00:22:51] Will: It's all the whole story is told, and you see you can see it coming from a mile away. But the first time you read it, you have no idea what to expect, and it is absolutely a delightful experience.
 
-[00:23:15] Adam: And and to be clear, that sorry, you were going to say something.
+[00:23:15] Adam: And to be clear, that sorry, you were going to say something.
 
 [00:23:17] Norm: Oh no! I was gonna say, like the the characters approach their situation with logic in in possibly illogical situation.
 
 [00:23:17] Will: Impeccable logic,
 
-[00:23:17] Norm: and the way they reconcile that is then through the the lens of not just narrative fiction, but television fiction,
+[00:23:17] Norm: and the way they reconcile that is then through the lens of not just narrative fiction, but television fiction,
 
 [00:23:32] Adam: and the logic and the weird logic of television fiction, which they're able to apply to the universe. It turns out they're in. So what they realize is they are in a universe that is created by the television show that is occasionally dictated by that television show.
 
@@ -656,7 +656,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:25:07] Will: Yeah, speaking of
 
-[00:25:08] Norm: in all Star Treks, you know, you go back to the time. There was a time travel episode where you go back to the era in which that show was written, which is how they know. To go back to that era,
+[00:25:08] Norm: in all Star Treks you go back to the time. There was a time travel episode where you go back to the era in which that show was written, which is how they know. To go back to that era,
 
 [00:25:18] Will: right?
 
@@ -666,21 +666,21 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:25:18] Norm: Exactly.
 
-[00:25:22] Adam: Right. Right. Right. Yeah. Um. There. The. The. Uh. And so all of this, once they get back to Hollywood, they have to explain this. Um.
+[00:25:22] Adam: Right. Right. Right. Yeah. There. The. The. And so all of this, once they get back to Hollywood, they have to explain this.
 
 [00:25:30] Will: They have to convince them.
 
-[00:25:31] Adam: They have to convince them. But Scalzi doesn't waste a lot of your time with people being inordinately stupid. Um. One of the things I like about Scalzi is he, all his characters find their intelligence. Um. He he likes smart people, and I love that. Like I love Vince Gilligan. You know.
+[00:25:31] Adam: They have to convince them. But Scalzi doesn't waste a lot of your time with people being inordinately stupid. One of the things I like about Scalzi is he, all his characters find their intelligence. He likes smart people, and I love that. Like I love Vince Gilligan. You know.
 
-[00:25:47] Will: You rarely have the moment where somebody makes a dumb decision, and that's what the the hinge that the plot turns.
+[00:25:47] Will: You rarely have the moment where somebody makes a dumb decision, and that's what the hinge that the plot turns.
 
-[00:25:51] Adam: Exactly. Um. But there is a lovely convention at the end that I found incredibly moving, in which one of the characters from the universe that the Star Trek is created in has lost his wife,
+[00:25:51] Adam: Exactly. But there is a lovely convention at the end that I found incredibly moving, in which one of the characters from the universe that the Star Trek is created in has lost his wife,
 
 [00:25:51] Unknown speaker: Mm-hmm.
 
 [00:25:51] Adam: and he meets the actress that played his wife back on Earth, and has and ends up with this lovely sense of closure.
 
-[00:26:13] Will: Well, he he doesn't, but somebody else does.
+[00:26:13] Will: Well, he doesn't, but somebody else does.
 
 [00:26:13] Unknown speaker: He sends.
 
@@ -702,27 +702,27 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:26:32] Norm: Always gets hurt,
 
-[00:26:33] Adam: but but healed. He gets hurt, but healed.
+[00:26:33] Adam: but healed. He gets hurt, but healed.
 
 [00:26:34] Norm: hurt and healed. And he has a bond with the actor who plays him.
 
 [00:26:34] Adam: Yes.
 
-[00:26:34] Norm: Um, in a way, and uh, both that there's a really touching moment where one of the crew members on the show and in their future universe dies, but then when they go back to the past, they find him as a bartender, and there's a nice closure, and he was an extra, and there's a nice closure moment, and that combined with this coda story you're talking about with Jenkins and his wife, um, the the extra who just happened to play the wife of the funeral, says this really cool um meta narrative of of what fans of shows and what actors imbue on the characters. Even if you're on a show for you know when we go to conventions and we meet celebrities who play you know our favorite characters, yeah, we want them to be those characters because Even if they played the character for seven seasons, or just one episode was an extra, what they bring to it, even in that five minutes of screen time, is their personality, their nuances.
+[00:26:34] Norm: In a way, and both that there's a really touching moment where one of the crew members on the show and in their future universe dies, but then when they go back to the past, they find him as a bartender, and there's a nice closure, and he was an extra, and there's a nice closure moment, and that combined with this coda story you're talking about with Jenkins and his wife the extra who just happened to play the wife of the funeral, says this really cool meta narrative of what fans of shows and what actors imbue on the characters. Even if you're on a show for you know when we go to conventions and we meet celebrities who play you know our favorite characters, yeah, we want them to be those characters because Even if they played the character for seven seasons, or just one episode was an extra, what they bring to it, even in that five minutes of screen time, is their personality, their nuances.
 
-[00:27:31] Adam: And and he really pays homage to that in terms of what that really means in this long tale of this fictional universe. And I found myself reading that coda about Jenkins.
+[00:27:31] Adam: And he really pays homage to that in terms of what that really means in this long tale of this fictional universe. And I found myself reading that coda about Jenkins.
 
 [00:27:43] Norm: Yes, Jenkins. What?
 
-[00:27:43] Adam: Yeah. Um, and being like Scalzi, you romantic you.
+[00:27:43] Adam: Yeah. And being like Scalzi, you romantic you.
 
-[00:27:47] Will: Oh, he's really sweet. For a guy who writes like military near future sci-fi, is what he's known for is yeah the the old man's war stuff, and then everything else is wonderful.
+[00:27:47] Will: Oh, he's really sweet. For a guy who writes like military near future sci-fi, is what he's known for is yeah the old man's war stuff, and then everything else is wonderful.
 
 [00:27:57] Norm: And that coda is about it's from the perspective of that woman who she's not in the story a lot, and she
 
 [00:27:57] Adam: the actress
 
-[00:27:57] Norm: actress who played the the wife who died, um, and her identity crisis of like what is her relationship to this character who had a full narrative life,
+[00:27:57] Norm: actress who played the wife who died and her identity crisis of like what is her relationship to this character who had a full narrative life,
 
 [00:27:57] Adam: right?
 
@@ -730,11 +730,11 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:27:57] Adam: Right.
 
-[00:27:57] Norm: playing you know a dead body or and and you know the wife, um, and is it reincarnation? What is that relationship? And then it nicely dovetails to her meeting the writer, and that was the sweetest thing.
+[00:27:57] Norm: playing you know a dead body or and you know the wife and is it reincarnation? What is that relationship? And then it nicely dovetails to her meeting the writer, and that was the sweetest thing.
 
-[00:28:29] Adam: I agree. I totally agree. I was I was very moved by that. I wasn't expecting to be moved so much at the end of such a fun. I mean, it's I wouldn't say silly, but there is a silly sense of humor to the book.
+[00:28:29] Adam: I agree. I totally agree. I was very moved by that. I wasn't expecting to be moved so much at the end of such a fun. I mean, it's I wouldn't say silly, but there is a silly sense of humor to the book.
 
-[00:28:39] Will: You know, it's it's light. It's light. It's light, not in in terms of narrative or dramatic sense, but it is a it's a fast, easy, fun read.
+[00:28:39] Will: It's light. It's light. It's light, not in terms of narrative or dramatic sense, but it is a it's a fast, easy, fun read.
 
 [00:28:46] Adam: It's also like you know we were saying he doesn't take an easy way out. It's rigorous. I mean, he chooses. He figures out how to grid on top of this reality, and it's he rigorously holds to it.
 
@@ -746,13 +746,13 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:29:30] Adam: It's like a different part of your brain is activated.
 
-[00:29:32] Will: Yeah, and I think that this is a really wonderful example of this because he doesn't take he doesn't take the there's a million places that he could have taken shortcuts and he literally takes the most difficult, most challenging way out of the whole thing. And I just I absolutely love this book.
+[00:29:32] Will: Yeah, and I think that this is a really wonderful example of this because he doesn't take the there's a million places that he could have taken shortcuts and he literally takes the most difficult, most challenging way out of the whole thing. And I just I absolutely love this book.
 
 [00:29:46] Adam: I totally did.
 
 [00:29:48] Norm: Yeah. Have you casted it?
 
-[00:29:49] Adam: Um, I haven't. Although I know Chris Pine belongs in there.
+[00:29:49] Adam: I haven't. Although I know Chris Pine belongs in there.
 
 [00:29:54] Will: I think so.
 
@@ -764,7 +764,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:29:57] Norm: Who actually that character has no point. They lead it off, and that's the only loose thread where he's like, " What is your story?" And then he's like, " Everything's going to be all right."
 
-[00:30:04] Adam: Now the wife, um, the wife Jenkins' wife. I in my head I saw her as the actress who plays the Bajoran on Deep Space Nine.
+[00:30:04] Adam: Now the wife Jenkins' wife. I in my head I saw her as the actress who plays the Bajoran on Deep Space Nine.
 
 [00:30:14] Norm: Oh, who
 
@@ -780,7 +780,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:30:20] Will: really.
 
-[00:30:20] Adam: Yeah, I just, I, I just watched it a couple of years ago with Julia, and it's it's not quite.
+[00:30:20] Adam: Yeah, I just, I, I just watched it a couple of years ago with Julia, and it's not quite.
 
 [00:30:20] Norm: Oh. So Jenkins, the character who ends up being the lead writer,
 
@@ -830,7 +830,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:31:19] Norm: Yes, exactly. Be funny, but then also have a nice heart to heart.
 
-[00:31:25] Will: I think, I think you, I think you could literally pull the cast of Galaxy Quest and put them on the bridge.
+[00:31:25] Will: I think you could literally pull the cast of Galaxy Quest and put them on the bridge.
 
 [00:31:30] Norm: And I got Kerensky, Alan Tudyk.
 
@@ -842,11 +842,11 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:31:34] Norm: done as a Kerensky.
 
-[00:31:35] Adam: Yeah, totally right, totally right. Yeah, and Galaxy Quest slots right in there.
+[00:31:35] Adam: Yeah, totally right. Yeah, and Galaxy Quest slots right in there.
 
 [00:31:35] Norm: Yeah,
 
-[00:31:35] Adam: I think, I think our work is done here. Yeah, get out and make Redshirts, people.
+[00:31:35] Adam: I think our work is done here. Yeah, get out and make Redshirts, people.
 
 [00:31:46] Will: What?
 
@@ -912,7 +912,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:33:04] Norm: I've never been to Alcatraz.
 
-[00:33:06] Adam: Man, you know I've escaped from Alcatraz.
+[00:33:06] Adam: Man I've escaped from Alcatraz.
 
 [00:33:08] Norm: I know. I’ve heard.
 

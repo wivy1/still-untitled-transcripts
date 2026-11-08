@@ -42,21 +42,21 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:02:54] Norm: If they put in between, yeah.
 
-[00:02:56] Adam: Absolutely. If you did Wicked, you'd miss you'd miss a lot about the development between Elphaba and Glinda. I love Wicked. This thing is—it's just I can't get enough of it. It's totally killing me. And I'm texting friends of mine, and like my friend Ben last week was like, " I remember this phase," and I was like, " What phase?" And he was like, " Oh, the phase when I had a new favorite song of Hamilton every day."
+[00:02:56] Adam: Absolutely. If you did Wicked, you'd miss a lot about the development between Elphaba and Glinda. I love Wicked. This thing is—it's just I can't get enough of it. It's totally killing me. And I'm texting friends of mine, and like my friend Ben last week was like, " I remember this phase," and I was like, " What phase?" And he was like, " Oh, the phase when I had a new favorite song of Hamilton every day."
 
 [00:03:14] Unknown speaker: Wow.
 
-[00:03:14] Adam: Oh yeah. No different things ring through my head. Maybe the most—I don't want to spend a lot more time on it, but maybe the most—the most important thing is—is when you read histories of the founding fathers, there's two things that are really surprising. One was how much they all hated each other, like really seriously did not get along. The factional factionalization of the founding fathers and how much they disagree, and still, what what an amazing document came out of that. Those disagreements.
+[00:03:14] Adam: Oh yeah. No different things ring through my head. Maybe the most—I don't want to spend a lot more time on it, but maybe the most important thing is—is when you read histories of the founding fathers, there's two things that are really surprising. One was how much they all hated each other, like really seriously did not get along. The factional factionalization of the founding fathers and how much they disagree, and still, what an amazing document came out of that. Those disagreements.
 
 [00:03:51] Will: You're talking about Madison, Washington, and Madison, Washington, Jefferson, and Franklin to a lesser extent.
 
-[00:03:55] Adam: Yeah. Um, but then the mental giants that they were. I mean, seriously, I remember this one of the first things I remember my dad telling me about American history is the thing you have to understand is the founding fathers were were all of them geniuses. Like we're not even qualifying that. Like it's astounding, and this really sort of shows that. And Miranda read the book Hamilton Chernoff's biography of Hamilton in 2009, and he said his first thought was, " I can't believe no one's written a musical about this before." But then it turns out that Hamilton grew up grew up in in Saint Croix in the in the Caribbean, and and when he was 17, a hurricane destroyed his island, and he wrote a poem about it. And the poem got him a trip to America. People people on the island were like, " Oh, this kid is such an amazing writer. He's he should go to New York." And this is what Miranda says: is there is nothing more rap than a kid from the streets moving up because of his because of the power of the word?
+[00:03:55] Adam: Yeah. But then the mental giants that they were. I mean, seriously, I remember this one of the first things I remember my dad telling me about American history is the thing you have to understand is the founding fathers were all of them geniuses. Like we're not even qualifying that. Like it's astounding, and this really sort of shows that. And Miranda read the book Hamilton Chernoff's biography of Hamilton in 2009, and he said his first thought was, " I can't believe no one's written a musical about this before." But then it turns out that Hamilton grew up in Saint Croix in the Caribbean, and when he was 17, a hurricane destroyed his island, and he wrote a poem about it. And the poem got him a trip to America. People people on the island were like, " Oh, this kid is such an amazing writer. He's he should go to New York." And this is what Miranda says: is there is nothing more rap than a kid from the streets moving up because of his because of the power of the word?
 
 [00:04:57] Will: Yeah.
 
 [00:04:58] Adam: And he's totally right. It is a remarkable and amazing document.
 
-[00:05:02] Will: It's so. You said to listen to it a few weeks ago. I went to app to my phone, downloaded it, listened to it on, started listening to it on airplane while I was trying to read a book. I was like, this isn't the right venue for this. And then as soon as I got in the car, when I got where I was going, put it on and sat in the car like to listen. And and I was sitting in the car in the hotel parking lot for an untoward length of time with the car running before I was finally like, well, I probably should get out now, check into my room. But yeah, it's it's it's incredible.
+[00:05:02] Will: It's so. You said to listen to it a few weeks ago. I went to app to my phone, downloaded it, listened to it on, started listening to it on airplane while I was trying to read a book. I was like, this isn't the right venue for this. And then as soon as I got in the car, when I got where I was going, put it on and sat in the car like to listen. And I was sitting in the car in the hotel parking lot for an untoward length of time with the car running before I was finally like, well, I probably should get out now, check into my room. But yeah, it's incredible.
 
 [00:05:27] Adam: At the Grammys this last week, they performed from the stage that Hamilton is performed on live. They performed the opening song of Hamilton, which is a song called shockingly Alexander Hamilton. It was an amazing performance.
 
@@ -86,7 +86,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:06:30] Norm: It's coming to San Francisco next year.
 
-[00:06:31] Adam: It is. It will tour. The creator will not be performing on Broadway for much longer, so I'm really hoping to get to see it before he before he hangs up the spurs.
+[00:06:31] Adam: It is. It will tour. The creator will not be performing on Broadway for much longer, so I'm really hoping to get to see it before he hangs up the spurs.
 
 [00:06:42] Will: Those tickets are going to be hard to get, Adam.
 
@@ -120,7 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:07:42] Adam: And it's pretty dense,
 
-[00:07:43] Will: epic, but it's it's dense, and it jumps back and forth in in places and times. The framework story is takes place on Earth over the last 60 years or so, starting in the Chinese Cultural Revolution, which happened in the late '50s, started in the late '50s, early '60s. We've talked about it a little bit. It's interesting to me. Because it it parallels our kind of modern American rejection of science and scientific scientific study,
+[00:07:43] Will: epic, but it's dense, and it jumps back and forth in places and times. The framework story is takes place on Earth over the last 60 years or so, starting in the Chinese Cultural Revolution, which happened in the late '50s, started in the late '50s, early '60s. We've talked about it a little bit. It's interesting to me. Because it parallels our kind of modern American rejection of science and scientific scientific study,
 
 [00:08:09] Adam: such as the cultural revolution.
 
@@ -140,7 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:08:28] Will: Oh no, I missed that.
 
-[00:08:28] Adam: Oh, it's it's up on the comments for our first podcast about it.
+[00:08:28] Adam: Oh, it's up on the comments for our first podcast about it.
 
 [00:08:32] Norm: I think it's a [unclear: Tijianlu].
 
@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:08:39] Norm: who's a science fiction author in his own right,
 
-[00:08:41] Adam: which is awesome. He's it's a terrific translation. But I found the most surprising thing about it. The first really surprising thing was, oh, science fiction from a completely different cultural standpoint, which is China. I, you know, they look at us as the Western imperialists.
+[00:08:41] Adam: which is awesome. He's it's a terrific translation. But I found the most surprising thing about it. The first really surprising thing was, oh, science fiction from a completely different cultural standpoint, which is China. I they look at us as the Western imperialists.
 
 [00:08:57] Norm: And not just told in that setting, like you can have a Western author write about the Cultural Revolution, but told from someone who grew up through it and wants to write science fiction as an expression of how he felt about it.
 
@@ -158,11 +158,11 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:09:33] Will: It's an entirely different tone because of that.
 
-[00:09:35] Norm: Sorry, and so that's that's the spoiler aspect of it. But the way I would sell this book because it is science fiction, so I'm going to go deep cuts now. There's a graphic novel called Superman Red Son that Mark Millar wrote, and it's a fantastic alternate universe story of what if Superman wasn't born in Kansas or if the spaceship didn't fall to Kansas and rescued by American parents and Imbued with our values, and what if you grew up in communist Russia and was a hero for the people?
+[00:09:35] Norm: Sorry, and so that's the spoiler aspect of it. But the way I would sell this book because it is science fiction, so I'm going to go deep cuts now. There's a graphic novel called Superman Red Son that Mark Millar wrote, and it's a fantastic alternate universe story of what if Superman wasn't born in Kansas or if the spaceship didn't fall to Kansas and rescued by American parents and Imbued with our values, and what if you grew up in communist Russia and was a hero for the people?
 
 [00:10:00] Adam: Oh wow, I didn't know about that.
 
-[00:10:01] Norm: And it's a great, like everything. Like he is the Superman, and everything. It's a great science fiction story told in the superhero context. This is that for contact, the Carl Sagan story. Contact instead of, um, instead of the first person hearing extraterrestrials and interacting with them being Jodie Foster and Little Ellie, what if it was someone, a woman who grew up in the Cultural Revolution and had a unique perspective that way, and that changes, of course, the history of man.
+[00:10:01] Norm: And it's a great, like everything. Like he is the Superman, and everything. It's a great science fiction story told in the superhero context. This is that for contact, the Carl Sagan story. Contact instead of the first person hearing extraterrestrials and interacting with them being Jodie Foster and Little Ellie, what if it was someone, a woman who grew up in the Cultural Revolution and had a unique perspective that way, and that changes, of course, the history of man.
 
 [00:10:32] Adam: Absolutely, and the the book, the book does a couple of things I really, really enjoyed. Again, I won't get too spoilery here until
 
@@ -170,7 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:10:41] Adam: Just to flip over, but I love the book. Sets up some things in the beginning that you are like, I have no idea why that's how that would be possible,
 
-[00:10:48] Will: and and you know what, the framework story I got it wrong. The framework story is in the '80s or modern current day.
+[00:10:48] Will: and you know what, the framework story I got it wrong. The framework story is in the '80s or modern current day.
 
 [00:10:53] Norm: The framework story is in for a little past. Modern day, so it's jumps between nineteen, late, late '70s and 2020 say forty more than 40 years later.
 
@@ -180,11 +180,11 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:11:21] Norm: If you aren't interested in humans' first encounter with aliens from the cultural, the Chinese Cultural Revolution perspective, you should be because it's fascinating. It is unlike any other.
 
-[00:11:30] Will: Oh, you turned around on this because when you when you talked about it last time, you were kind of down on it.
+[00:11:30] Will: Oh, you turned around on this because when you talked about it last time, you were kind of down on it.
 
 [00:11:35] Adam: Well, he's got some. His, I think.
 
-[00:11:36] Norm: I have definitely criticisms. Yeah, of it. Okay, we'll get to that. But at this point, we want to talk about plot and we want to talk about detail. Um, here we go.
+[00:11:36] Norm: I have definitely criticisms. Yeah, of it. Okay, we'll get to that. But at this point, we want to talk about plot and we want to talk about detail. Here we go.
 
 [00:11:45] Adam: The Sophons,
 
@@ -192,7 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:11:47] Adam: holy shit balls!
 
-[00:11:48] Will: So the setup, the setup. Can we, hold on, the Sophons are the aliens right? Isn’t that what they’re called?
+[00:11:48] Will: So the setup. Can we, hold on, the Sophons are the aliens right? Isn’t that what they’re called?
 
 [00:11:53] Adam: Sophons are the multi-dimensional protons.
 
@@ -210,9 +210,9 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:12:31] Norm: this magic. This the magic technology in this book that reveals a lot of things set up in the thriller aspects of the first half of the book is that the aliens have developed a technology where they can unfold a single proton into nine 11 dimensions, and if you think about an 11th-dimensional being, and so you can think about in terms like folding origami, right? A If something exists in three dimensions and you unfold it to two dimensions, it is bigger. In one dimension, a line, you know, it is even bigger. Something that's 11 dimensions, an 11-dimensional proton unfolded into two dimensions, can then be encoded to be a programming computer.
 
-[00:13:10] Adam: And this is they go to great. If that if that sounds confusing, go ahead and still read the book because they make it very palatable.
+[00:13:10] Adam: And this is they go to great. If that sounds confusing, go ahead and still read the book because they make it very palatable.
 
-[00:13:18] Will: How this is remotely possible? There's a great video that explains higher dimensional space and the idea that you know one dimension is a point, two dimensions is a line, three dimensions is a plane, four dimensions is a plane moving through time, five dimensions is a is a point that is a plane moving through time, six dimensions is a line that is a series of planes moving through time, and and that will help you understand the sophons more than anything else.
+[00:13:18] Will: How this is remotely possible? There's a great video that explains higher dimensional space and the idea that you know one dimension is a point, two dimensions is a line, three dimensions is a plane, four dimensions is a plane moving through time, five dimensions is a point that is a plane moving through time, six dimensions is a line that is a series of planes moving through time, and that will help you understand the sophons more than anything else.
 
 [00:13:42] Adam: So so they build these multi-dimensional protons, which they encode as computers and can send
 
@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:14:03] Norm: intentionally, so to stunt our growth of science.
 
-[00:14:06] Adam: And to be and to be clear, the way they break it is they start they start making sure that any result we get from testing the laws of physics gives different and
+[00:14:06] Adam: And to be clear, the way they break it is they start making sure that any result we get from testing the laws of physics gives different and
 
 [00:14:16] Will: beyond a certain point
 
@@ -268,7 +268,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:15:32] Adam: I agree too.
 
-[00:15:32] Will: The the the they were these interludes that happened as kind of a just a almost a sidebar story.
+[00:15:32] Will: The they were these interludes that happened as kind of a just a almost a sidebar story.
 
 [00:15:38] Adam: Before you continue, I just would like to call out that your segue there was, I think, Norm's greatest. segue.
 
@@ -284,7 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:15:48] Adam: for that. Yeah. Okay. So go ahead. Continue.
 
-[00:15:50] Will: Um. The uh, we should get. You know, you should get is an enormous gold YouTube. play button.
+[00:15:50] Will: The we should get. You should get is an enormous gold YouTube. play button.
 
 [00:15:55] Norm: Yeah.
 
@@ -310,11 +310,11 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:16:09] Adam: Excellent.
 
-[00:16:11] Will: All right. Anyway, so this is that was the worst segue ever. Um. The uh. The the unfolding of that story where like this was the part that grabbed me at first with this book. At first, I was going along. I was going along. Chinese Cultural Revolution is interesting. I'm learning stuff, but it's not. It's not. It's not gripped me. And then, uh, one of the main characters in the future timeline is exposed to this virtual reality game.
+[00:16:11] Will: All right. Anyway, so this is that was the worst segue ever. The. The unfolding of that story where like this was the part that grabbed me at first with this book. At first, I was going along. I was going along. Chinese Cultural Revolution is interesting. I'm learning stuff, but it's not. It's not. It's not gripped me. And then one of the main characters in the future timeline is exposed to this virtual reality game.
 
 [00:16:34] Adam: Yeah.
 
-[00:16:34] Will: That starts out as like the [unclear: Aristotle’s / Aristophanes] problem. Uh, it's it's basically setting out a physics problem. How do you chart the motion of a three-body system?
+[00:16:34] Will: That starts out as like the [unclear: Aristotle’s / Aristophanes] problem. It's basically setting out a physics problem. How do you chart the motion of a three-body system?
 
 [00:16:44] Adam: And a three-body system is three planetary objects moving around each other and having incredibly complicated math about unpredictable. Actually, potentially. Impossible to predict,
 
@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:16:57] Adam: Gravitational effects on each other—it's that's what the three-body problem is. How do you calculate these effects?
 
-[00:17:04] Will: And more importantly, though, the video game—the video game that he's interacting with has these, this, these people that
+[00:17:04] Will: And more importantly, though, the video game that he's interacting with has these, this, these people that
 
 [00:17:16] Adam: the trisolarans.
 
@@ -330,7 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:17:28] Adam: hibernation where they release all the fluid from their body and dry out, and then.
 
-[00:17:32] Norm: So, I think in terms of taking a step back and how to structure the book, the book starts off with a retelling of the cultural revolution from a very small perspective. This woman who grows up, she's a child. A child. She's her father is killed, and then it jumps back to her later,
+[00:17:32] Norm: So, I think in terms of taking a step back and how to structure the book starts off with a retelling of the cultural revolution from a very small perspective. This woman who grows up, she's a child. A child. She's her father is killed, and then it jumps back to her later,
 
 [00:17:47] Will: just to be clear.
 
@@ -338,11 +338,11 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:18:01] Adam: So it's very destabilizing,
 
-[00:18:02] Norm: It's very destabilizing, and he has this great and scientists are murdering and they're committing suicide. He has this very unsettling conversation with the husband or boyfriend of one of the scientists, where he has this he demonstrates what if, and this is I think the second big idea in the book. What if all the fundamental science that we know is only temporary and is only our understanding of this limited view? It's the what was it they called it the hunter farmer the shooter farmer S F the shooter farmer theory. Um, our our 10,000 years of humanity, all our our understanding of Newtonian physics and quantum physics, it's under this relatively small sample size in terms of the history of the universe. If that becomes unravel, then
+[00:18:02] Norm: It's very destabilizing, and he has this great and scientists are murdering and they're committing suicide. He has this very unsettling conversation with the husband or boyfriend of one of the scientists, where he has this he demonstrates what if, and this is I think the second big idea in the book. What if all the fundamental science that we know is only temporary and is only our understanding of this limited view? It's the what was it they called it the hunter farmer the shooter farmer S F the shooter farmer theory. Our 10,000 years of humanity, all our understanding of Newtonian physics and quantum physics, it's under this relatively small sample size in terms of the history of the universe. If that becomes unravel, then
 
 [00:18:45] Adam: what can we do?
 
-[00:18:46] Will: So that's a that's a that's a Vernor Vinge concept. Um, that has no he like this actually has a little bit of scientific backing behind it. The and it lines with physics in some interesting ways. The Vernor Vinge concept is that there's different different areas of space, and that things behave differently.
+[00:18:46] Will: So that's a Vernor Vinge concept. That has no he like this actually has a little bit of scientific backing behind it. The and it lines with physics in some interesting ways. The Vernor Vinge concept is that there's different different areas of space, and that things behave differently.
 
 [00:19:02] Adam: the laws of physics may be different
 
@@ -376,19 +376,19 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:20:05] Adam: Yeah,
 
-[00:20:06] Norm: that I think is the big the the next big idea of this book.
+[00:20:06] Norm: that I think is the big the next big idea of this book.
 
 [00:20:09] Adam: And it's a video game that you put on with virtual reality goggles and a suit that makes you hot or cold as it needs to, and gives you sensations. And it's
 
 [00:20:18] Norm: as a reader, like you are reading through it. In the first few times he enters the game, it feels very video game like.
 
-[00:20:22] Will: You are wondering why this is happening. Like it makes it's totally it's totally a side note for the for the main plot.
+[00:20:22] Will: You are wondering why this is happening. Like it makes it's totally a side note for the main plot.
 
 [00:20:28] Adam: It's like the third time you go to the video game, I am like, really, we're going back to this? And then the fourth time, I am like, when can we get back to this?
 
 [00:20:33] Norm: Exactly, because the moment he unravels the three body solution, and and he intuits the idea that oh, the world of the video game is supposed to represent a world not like Earth. It's a world where there are three suns, and he solves that problem. And as a reader, you solve the problem along with him. The the then you become invested as he does in that world.
 
-[00:20:51] Will: The problem is literally so. The problem works through basic physics. And and mirrors ancient cultures, moves forward each each time with Earth's ancient cultures, and then the the the moment you you realize around that third or fourth time that oh they're trying to solve this because they want to know they want to be able to predict you know when the when the third sun is going to come up that's going to fry their what fry you know raise the heat I mean they all have to hibernate and not because I think the bit the biological bit we haven't talked about and people who read the book know is that if you don't if they don't dehydrate properly if the sun comes out before they dehydrate properly then they all die
+[00:20:51] Will: The problem is literally so. The problem works through basic physics. And mirrors ancient cultures, moves forward each each time with Earth's ancient cultures, and then the moment you realize around that third or fourth time that oh they're trying to solve this because they want to know they want to be able to predict you know when the third sun is going to come up that's going to fry their what fry you know raise the heat I mean they all have to hibernate and not because I think the bit the biological bit we haven't talked about and people who read the book know is that if you don't if they don't dehydrate properly if the sun comes out before they dehydrate properly then they all die
 
 [00:21:27] Adam: yeah
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:22:31] Norm: And then she says, she replies.
 
-[00:22:33] Will: This is the daughter. This is the the the the opening story.
+[00:22:33] Will: This is the daughter. This is the opening story.
 
 [00:22:37] Adam: Yeah.
 
@@ -440,7 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:23:09] Will: sorry. Yeah,
 
-[00:23:10] Norm: the story falls apart a little bit. The potential of the human civilization, alien civilization interaction, being an echo and being really infused with the the lingering aspects of the Cultural Revolution. I think it does fall apart at the end.
+[00:23:10] Norm: the story falls apart a little bit. The potential of the human civilization, alien civilization interaction, being an echo and being really infused with the lingering aspects of the Cultural Revolution. I think it does fall apart at the end.
 
 [00:23:25] Adam: Well, again, though, there's a there's so it's this is the first book of a trilogy, and I didn't realize that until I was almost done with it.
 
@@ -466,7 +466,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:23:40] Adam: Oh my goodness, I can't wait.
 
-[00:23:41] Will: So, so the thing for me about about this, like, I I got to the end of this book and I was so satisfied by it. I literally was a little bit bummed when I found out that there was a sequel because I was like, I'm actually like, it sets up the the end of the book sets up the sequel. You know, Earth knows that this is happening, or at least a secret cabal of Earth nations knows that this is happening. They know about the Sophons, I think.
+[00:23:41] Will: So, so the thing for me about about this I I got to the end of this book and I was so satisfied by it. I literally was a little bit bummed when I found out that there was a sequel because I was like, I'm actually like, it sets up the end of the book sets up the sequel. Earth knows that this is happening, or at least a secret cabal of Earth nations knows that this is happening. They know about the Sophons, I think.
 
 [00:24:04] Adam: Yeah,
 
@@ -490,7 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:24:33] Adam: dubious
 
-[00:24:33] Will: I would have been totally happy if it all wrapped up nicely and and
+[00:24:33] Will: I would have been totally happy if it all wrapped up nicely and
 
 [00:24:37] Norm: and it didn't need to wrap it didn't have wrapped up nicely because
 
@@ -518,9 +518,9 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:25:21] Will: She killed her husband.
 
-[00:25:22] Norm: She killed her husband and her boss, and where she betrayed the human race essentially. And they say in the beginning of the the book, her last thoughts and her last thoughts, which is this is the part that actually ties back to the Cultural Revolution, is that the people in the Cultural Revolution, all the the the young, the students who rose up against the the privilege and the intellectuals, which we're seeing echo now 50 years later in America a little bit. Um,
+[00:25:22] Norm: She killed her husband and her boss, and where she betrayed the human race essentially. And they say in the beginning of the book, her last thoughts and her last thoughts, which is this is the part that actually ties back to the Cultural Revolution, is that the people in the Cultural Revolution, all the young, the students who rose up against the privilege and the intellectuals, which we're seeing echo now 50 years later in America a little bit.
 
-[00:25:48] Will: at a much at a much less violent scale.
+[00:25:48] Will: at a much less violent scale.
 
 [00:25:50] Norm: Right. Her dying thought is, " Will." Who will judge humanity? Humanity can't judge itself because she's seen both sides of the cultural revolution. Her father dying, and also their uprising, and it really takes a third party, impartial, relatively impartial third party, which is the aliens. And so she embraces that. That's what. That's her motive.
 
@@ -528,11 +528,11 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:26:09] Norm: Is to embrace the judgment of a third party.
 
-[00:26:12] Will: I thought there was something really. There was a wonderful moment when she actually is murdering her boss and her husband. Um, and
+[00:26:12] Will: I thought there was something really. There was a wonderful moment when she actually is murdering her boss and her husband. And
 
 [00:26:19] Adam: a wonderful moment.
 
-[00:26:20] Will: No, no, but I mean, it's it's.
+[00:26:20] Will: No, no, but I mean, it's.
 
 [00:26:22] Adam: I know what you mean.
 
@@ -560,9 +560,9 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:27:48] Adam: amazing totally amazing.
 
-[00:27:48] Norm: Yeah, and that. Is an analog to the machine of the Cultural Revolution of all these independent, a less organized computer. But it is a, you know, in mass over history, when you have millions of people uniting to do one thing, they get a result. And he says that in the beginning, like it's like a CPU, what the soldiers were doing.
+[00:27:48] Norm: Yeah, and that. Is an analog to the machine of the Cultural Revolution of all these independent, a less organized computer. But it is a in mass over history, when you have millions of people uniting to do one thing, they get a result. And he says that in the beginning, like it's like a CPU, what the soldiers were doing.
 
-[00:28:07] Will: It's the thing that was neat about this was it was it was very similar to, and I can't remember the movie. There's a movie where a guy has to go back in time. Oh, it's the 11.22.63.
+[00:28:07] Will: It's the thing that was neat about this was it was very similar to, and I can't remember the movie. There's a movie where a guy has to go back in time. Oh, it's the 11.22.63.
 
 [00:28:16] Adam: Oh,
 
@@ -570,7 +570,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:28:19] Adam: A series with James Franco, right?
 
-[00:28:21] Will: Yeah, exactly. And and it answers like that. That was set up, I think, by Stephen King to answer the if there are people that can travel in time, why do we not know that there are people? Why are there not people from the future amongst us all the time?
+[00:28:21] Will: Yeah, exactly. And it answers like that. That was set up, I think, by Stephen King to answer the if there are people that can travel in time, why do we not know that there are people? Why are there not people from the future amongst us all the time?
 
 [00:28:32] Adam: And I love the convention that he's going back to buy cheap meat.
 
@@ -578,7 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:28:47] Adam: right?
 
-[00:28:47] Will: Or anybody, you know, yeah. So it's kind of for the conspiracy.
+[00:28:47] Will: Or anybody yeah. So it's kind of for the conspiracy.
 
 [00:28:51] Norm: It's hard science too. I mean, there are aliens, and I don't know if Alpha Centauri is
 
@@ -596,7 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:29:12] Norm: It doesn't cheat with the science.
 
-[00:29:14] Adam: Um, I so I I think that's a great place to wrap it up.
+[00:29:14] Adam: I so I I think that's a great place to wrap it up.
 
 [00:29:17] Will: Yeah, I think so.
 
@@ -610,15 +610,15 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:29:33] Adam: Yeah.
 
-[00:29:33] Will: Um, and I mean, I'll definitely read it. I I yeah.
+[00:29:33] Will: And I mean, I'll definitely read it. I yeah.
 
-[00:29:37] Norm: I do think it's a book where the ideas are stronger than the narrative, where in sense that when they make the movie, as they're making the movie about it now. I wouldn't. I don't need the movie to be a super faithful adaptation in terms of plot by point by point. I think it's going to be very difficult to make a movie.
+[00:29:37] Norm: I do think it's a book where the ideas are stronger than the narrative, where in sense that when they make the movie, as they're making the movie about it now. I wouldn't. I don't need the movie to be a super faithful adaptation in terms of plot by point. I think it's going to be very difficult to make a movie.
 
 [00:29:51] Will: Who's your favorite character?
 
-[00:29:53] Norm: Um, that's a really tough question.
+[00:29:53] Norm: That's a really tough question.
 
-[00:29:57] Will: the The the cop was my favorite.
+[00:29:57] Will: the cop was my favorite.
 
 [00:30:00] Adam: I love the cop.
 
@@ -626,23 +626,23 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:30:01] Adam: Love the cop.
 
-[00:30:02] Will: Such a such a well. He's he's a Raymond Chandler character. He's a he's a crooked bad cop who's really good at his job.
+[00:30:02] Will: Such a well. He's a Raymond Chandler character. He's a crooked bad cop who's really good at his job.
 
 [00:30:07] Adam: He's great. He’s a wonderful construct. I totally love him.
 
-[00:30:11] Norm: I say the the nanowire net. I think that's when it went off the rails.
+[00:30:11] Norm: I say the nanowire net. I think that's when it went off the rails.
 
 [00:30:16] Adam: That was
 
 [00:30:16] Norm: that was yeah. See that's again. I think it doesn't. It's not as tight.
 
-[00:30:19] Adam: I I enjoyed the construct.
+[00:30:19] Adam: I enjoyed the construct.
 
-[00:30:21] Will: Yeah. Um. So that'll do it for us this week.
+[00:30:21] Will: Yeah. So that'll do it for us this week.
 
 [00:30:23] Adam: That will.
 
-[00:30:21] Will: Norman Chan. Anything on tested? You want to talk about? Uh.
+[00:30:21] Will: Norman Chan. Anything on tested? You want to talk about?
 
 [00:30:27] Norm: We’ve got one day builds going later this week and behind the scenes stuff. If for tested premium members, Adam's answering questions from everyone. Every week. Not everyone, but tested premium members ask Adam. Check that out on the site, and I think we'll see you next week.
 

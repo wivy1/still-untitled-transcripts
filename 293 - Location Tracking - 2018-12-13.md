@@ -22,11 +22,11 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:00:49] Adam: okay. I can still hear it in your voice a little bit.
 
-[00:00:50] Will: It's uh, yeah, uh, you know, it's tis the season. How are you? How's everybody doing?
+[00:00:50] Will: It's uh, yeah it's tis the season. How are you? How's everybody doing?
 
 [00:00:57] Unknown speaker: Good.
 
-[00:00:58] Will: We didn't have our normal preamble here because you guys are are just humping today.
+[00:00:58] Will: We didn't have our normal preamble here because you guys are just humping today.
 
 [00:01:02] Adam: So I'm leaving for Omaha to do a talk tomorrow when we're recording this. So I'm leaving in at three o'clock to go to the airport.
 
@@ -48,17 +48,17 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:01:48] Will: The favorite things you just recorded is [unclear: very good / mwah].
 
-[00:01:51] Adam: I You know, it's funny about that because this. This year feels like more than any other. I knew precisely what I wanted to highlight and how I wanted to highlight it. Other years, it's not like it's felt different, but just maybe less. This year, it felt like a real direction, and I was really pleased with the high and the low: high technology, low technology, bespoke personal stuff, mass-produced stuff. We included it all.
+[00:01:51] Adam: I it's funny about that because this. This year feels like more than any other. I knew precisely what I wanted to highlight and how I wanted to highlight it. Other years, it's not like it's felt different, but just maybe less. This year, it felt like a real direction, and I was really pleased with the high and the low: high technology, low technology, bespoke personal stuff, mass-produced stuff. We included it all.
 
 [00:02:18] Norm: It's when coming up that list because that could be like a 20-item list if you are looking back at the year and the things that you know, whether it's techniques you learn or new things you process. I go look through my PayPal purchases essentially, not even the Amazon purchases, the PayPal purchases because it's that's where I am getting the one-offs and where I am finding small resellers and discovering things, and that's just a fun retrospective journey for myself internally.
 
-[00:02:43] Will: Well, and it seems like like when we started doing favorite things years and years ago, now it was kind of a gift guide thing. Now it's just becoming increasingly a retrospective.
+[00:02:43] Will: Well, and it seems like when we started doing favorite things years and years ago, now it was kind of a gift guide thing. Now it's just becoming increasingly a retrospective.
 
 [00:02:43] Norm: Yeah,
 
-[00:02:43] Will: like here is here is the stuff that made me like brought joy to me in and. And in 2018, look, we all need all the joy we can find.
+[00:02:43] Will: like here is the stuff that made me like brought joy to me in and. And in 2018, look, we all need all the joy we can find.
 
-[00:02:59] Adam: Well, and so, uh, Bayard Winthrop, who runs American Giant, makers of the incredible hoodie and the hoodie I'm
+[00:02:59] Adam: Well, and so Bayard Winthrop, who runs American Giant, makers of the incredible hoodie and the hoodie I'm
 
 [00:03:06] Will: wearing right now,
 
@@ -70,9 +70,9 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:03:14] Will: Like flannel.
 
-[00:03:15] Adam: I'm not sure flannel specifically, but if you there's a beautiful New York Times article I tweeted from a couple weeks ago that's a deep dive into the work that American Giant did with manufacturers all over the country to bring this to fruition. Anyway, um, one of the first compendiums I did. Favorite things included the American Giant hoodie, and we were talking about the the fact that when I was talking about it, it wasn't really about the hoodie itself. It's also about the story of the hoodie, the story of local manufacturing, and the things that we like to highlight here on Tested.
+[00:03:15] Adam: I'm not sure flannel specifically, but if you there's a beautiful New York Times article I tweeted from a couple weeks ago that's a deep dive into the work that American Giant did with manufacturers all over the country to bring this to fruition. Anyway one of the first compendiums I did. Favorite things included the American Giant hoodie, and we were talking about the fact that when I was talking about it wasn't really about the hoodie itself. It's also about the story of the hoodie, the story of local manufacturing, and the things that we like to highlight here on Tested.
 
-[00:03:44] Will: Taylor Stitch. I did Taylor Stitch years and years ago, and they're just down the street at Valencia and and 15th, I think. And they they brought they they do jeans manufacturing and they make really amazing jeans that should cost way more money than they do, and they're like $150. I mean, they were cheaper then.
+[00:03:44] Will: Taylor Stitch. I did Taylor Stitch years and years ago, and they're just down the street at Valencia and 15th, I think. And they brought they do jeans manufacturing and they make really amazing jeans that should cost way more money than they do, and they're like $150. I mean, they were cheaper then.
 
 [00:04:01] Adam: And Taylor Stitch is a terrific gift certificate to buy someone.
 
@@ -90,9 +90,9 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:04:24] Adam: one where you wear the dots.
 
-[00:04:26] Will: Oh, it's it's. Do
+[00:04:26] Will: Oh, it's. Do
 
-[00:04:27] Norm: you have the the dot photo?.
+[00:04:27] Norm: you have the dot photo?.
 
 [00:04:29] Will: I did not. I did not let Gina take a photo.
 
@@ -100,7 +100,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:04:32] Will: it was. It was. It was. There were unsightly bulges.
 
-[00:04:37] Adam: You you bulgy mocap guy.
+[00:04:37] Adam: You bulgy mocap guy.
 
 [00:04:39] Will: Yeah, I was. It was. It was. You know how sometimes you watch those mocap things and there is blurs in certain areas, or maybe they're wearing like a pedal or a codpiece there. Yeah, I needed the codpiece.
 
@@ -114,7 +114,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:05:06] Adam: theoretically,
 
-[00:05:06] Will: theoretically, and then then you t pose in front of your phone on a little cardboard stand that they give you and you rotate at a slow rate.
+[00:05:06] Will: theoretically, and then you t pose in front of your phone on a little cardboard stand that they give you and you rotate at a slow rate.
 
 [00:05:06] Adam: Wow,
 
@@ -142,7 +142,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:06:14] Will: And um and yeah, so I'll be interested to see. The clothes were really like cheap. Like you can go to there’s plenty of tailors here I could go to and get custom stuff made, or I could go to Taylor Stitch or any number of other places. And yeah, well, I mean, we'll see. I'm I'm interested to see what a $50 white button down that's custom made for me looks like.
 
-[00:06:34] Adam: You know, I I was in Mexico City earlier this year, and one of the things I noticed is that many more people in Mexico wear fitted clothing. You can just see, you can tell the difference, and it's very much the same as like in London and in Europe. You see the same thing. We Americans are very much an off the rack culture, and I really appreciate stuff that's been fitted. And
+[00:06:34] Adam: I was in Mexico City earlier this year, and one of the things I noticed is that many more people in Mexico wear fitted clothing. You can just see, you can tell the difference, and it's very much the same as like in London and in Europe. You see the same thing. We Americans are very much an off the rack culture, and I really appreciate stuff that's been fitted. And
 
 [00:06:58] Norm: it's Often much less expensive than you think.
 
@@ -170,7 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:08:24] Unknown speaker: A showroom.
 
-[00:09:19] Will: the place that makes the dining room chairs that I've had for 20 years and that I love in central Virginia has been making furniture for 200 years, and they recently had the hey, I think we're going to go out of business scare, and luckily somebody who is a fan of their furniture was like, well, we'll give you x number of dollars to keep you going so you can figure this out and and solve your short term cash flow problem. Like holy, I mean, thank you. A if I get a bigger table, it'd be really useful. But also, yeah, support your small businesses.
+[00:09:19] Will: the place that makes the dining room chairs that I've had for 20 years and that I love in central Virginia has been making furniture for 200 years, and they recently had the hey, I think we're going to go out of business scare, and luckily somebody who is a fan of their furniture was like, well, we'll give you x number of dollars to keep you going so you can figure this out and solve your short term cash flow problem. Like holy, I mean, thank you. A if I get a bigger table, it'd be really useful. But also, yeah, support your small businesses.
 
 [00:09:50] Adam: Exactly.
 
@@ -182,25 +182,25 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:10:01] Norm: Right.
 
-[00:10:01] Adam: they can see the blank spots. There was a guy a few years ago who was really mad on his Florida commute about people talking on their cell phones. So he bought a Chinese cell phone jammer, and when he pulled up next to people, he turned it on, and their phone would shut off. And the f the the local cell towers were picking this up. And over literally a couple of years, they were able to triangulate and figure out that it was a guy. It was a regular thing, and they eventually waited for him and they caught him. And it's a big fine, and it's a real crime.
+[00:10:01] Adam: they can see the blank spots. There was a guy a few years ago who was really mad on his Florida commute about people talking on their cell phones. So he bought a Chinese cell phone jammer, and when he pulled up next to people, he turned it on, and their phone would shut off. And the f the local cell towers were picking this up. And over literally a couple of years, they were able to triangulate and figure out that it was a guy. It was a regular thing, and they eventually waited for him and they caught him. And it's a big fine, and it's a real crime.
 
-[00:10:01] Will: Whoa! But but you also remember we used to see that guy with like six cell phones in a briefcase in the park by battery, and he was one of the roving signal quality testers. And they would these guys just walk around with these with these cases. It's a really you actually really love it because it's like totally like you open it up, and at the time it was like 6 or 10 feature phones
+[00:10:01] Will: Whoa! But you also remember we used to see that guy with like six cell phones in a briefcase in the park by battery, and he was one of the roving signal quality testers. And they would these guys just walk around with these cases. It's a really you actually really love it because it's like totally like you open it up, and at the time it was like 6 or 10 feature phones
 
 [00:10:36] Adam: Yeah.
 
-[00:10:36] Will: just jammed up in a thing, and he would sit there for like five minutes and hook it up to a computer and And then he would move on to the next spot, and that was just one of his stops.
+[00:10:36] Will: just jammed up in a thing, and he would sit there for like five minutes and hook it up to a computer and then he would move on to the next spot, and that was just one of his stops.
 
 [00:11:04] Norm: You just created a great movie plot point, a spy thriller device, plot device,
 
 [00:11:04] Adam: Which is?
 
-[00:11:04] Norm: where where the you know the the agency can track the the person who's blocking the signals. Because it's easy to say, let's go look at the you know ping the marketing signals, and now you can find out who lives there. Because that’s real, that’s scary.
+[00:11:04] Norm: where the you know the agency can track the person who's blocking the signals. Because it's easy to say, let's go look at the you know ping the marketing signals, and now you can find out who lives there. Because that’s real, that’s scary.
 
-[00:11:20] Adam: Oh no, what they went through to find him was really significant. Now I'm fascinated by this technology because there's a there's a William Gibson book. I think it's in Spook Country.
+[00:11:20] Adam: Oh no, what they went through to find him was really significant. Now I'm fascinated by this technology because there's a William Gibson book. I think it's in Spook Country.
 
 [00:11:33] Will: The guy with no face.
 
-[00:11:34] Will, then Adam: That one? Well, there's I I can't I think Spook Country is the one where they're tracking down the the money, the container full of money.
+[00:11:34] Will, then Adam: That one? Well, there's I I can't I think Spook Country is the one where they're tracking down the money, the container full of money.
 
 [00:11:41] Will: Yeah, it's the yeah,
 
@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:11:42] Adam: and so in yeah, and in this one, at one point, two characters have a meeting, and one has a small pelican case, and he flips a switch, and the other one says, " What is that?" And he says, " It's a signal jammer that blocks everything from UHF, VHF, all the way up to shortwave and microwave." So we have a 50 foot bubble of Total silence.
 
-[00:12:02] Will: Yeah, the the.
+[00:12:02] Will: Yeah, the.
 
 [00:12:03] Adam: I want that box. I know it's totally illegal, but I want that box.
 
@@ -220,19 +220,19 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:12:03] Adam: and they could turn their store into a Faraday cage.
 
-[00:12:20] Norm: That's right. I was thinking about that because, you, like, is there a market for tiny Faraday cages for your car to put your phone in so that your your location isn't pinged nonstop?
+[00:12:20] Norm: That's right. I was thinking about that because, you is there a market for tiny Faraday cages for your car to put your phone in so that your location isn't pinged nonstop?
 
-[00:12:31] Adam: Well, and actually, the Daily recently, Michael Barbaro on the Daily did an extensive dive into how much information is being tracked on you, and it it shocked even me, who seem who feel I feel like I keep a pretty good eye on this stuff, and I still felt that what they came back with was, oh, whoa,
+[00:12:31] Adam: Well, and actually, the Daily recently, Michael Barbaro on the Daily did an extensive dive into how much information is being tracked on you, and it shocked even me, who seem who feel I feel like I keep a pretty good eye on this stuff, and I still felt that what they came back with was, oh, whoa,
 
 [00:12:49] Norm: [unclear: and I thought about / This is from the New York Times].
 
 [00:12:49] Will: It was a New York Times article.
 
-[00:12:50] Adam: yeah, and I thought about lining, you know, well, what if you had a purse and you just lined it in brass screen so that your phone wouldn't get any signal?
+[00:12:50] Adam: yeah, and I thought about lining well, what if you had a purse and you just lined it in brass screen so that your phone wouldn't get any signal?
 
 [00:12:57] Will: Somebody texts you what? How do you get the text?
 
-[00:12:59] Adam: Well, you you get the text when you pull it back out. Oh
+[00:12:59] Adam: Well, you get the text when you pull it back out. Oh
 
 [00:12:59] Norm: gosh!
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:13:11] Adam: Yeah, that that I don't trust.
 
-[00:13:12] Will: The other thing, the other thing that came out about that was the facial recognition. There's a growing movement about of being aware of how facial recognition is being used and
+[00:13:12] Will: The other thing that came out about that was the facial recognition. There's a growing movement about of being aware of how facial recognition is being used and
 
 [00:13:23] Adam: and misused
 
@@ -254,13 +254,13 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:13:35] Adam: what happens to that data?
 
-[00:13:37] Will: Well, I mean, look, that's a whole other thing. But but it's it's it's like that's a positive thing because then it doesn't give you false positives if your kid comes to the door. It only does it when the when the FedEx guy shows up.
+[00:13:37] Will: Well, I mean, look, that's a whole other thing. But it's like that's a positive thing because then it doesn't give you false positives if your kid comes to the door. It only does it when the FedEx guy shows up.
 
 [00:13:37] Adam: Yeah.
 
 [00:13:37] Will: But like, I'm increasingly thinking maybe we should all be building glasses with IR LEDs in them so that you know William Gibson style, so that people can't, so the cameras don't work in public because they're everywhere.
 
-[00:13:59] Adam: Or we just become juggalos. [unclear: Because the the juggling posse / Because the insane club / Because the insane…]. they they foil all the facial
+[00:13:59] Adam: Or we just become juggalos. [unclear: Because the the juggling posse / Because the insane club / Because the insane…] they foil all the facial
 
 [00:14:07] Norm: Does it really?
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:14:08] Adam: no it's totally
 
-[00:14:09] Will: it's the patterns it's it's basically like what was the razzle dazzle camouflage for your face
+[00:14:09] Will: it's the patterns it's basically like what was the razzle dazzle camouflage for your face
 
 [00:14:09] Norm: Wow.
 
@@ -282,13 +282,13 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:14:21] Norm: manufactured by computer from a database so is is it impossible for to make a juggalo face then
 
-[00:14:34] Adam: oh no no no no no well here's the the other aspect of this is it's easy to feel a little like oh my god they're coming for me but I really appreciate that paper of record like the Times is writing a deep dive into this we are right now as a society and culture across the world having this discussion is this a value to have me being tracked like this and the Paper and the reporters are really writing about it in a way that I find is engendering a public debate. The question is, how much do you sign over, and how clear is what you're signing over when you're in the process of doing it? These are the questions that we need to ask and to decide on what is our value.
+[00:14:34] Adam: oh no no no no no well here's the other aspect of this is it's easy to feel a little like oh my god they're coming for me but I really appreciate that paper of record like the Times is writing a deep dive into this we are right now as a society and culture across the world having this discussion is this a value to have me being tracked like this and the Paper and the reporters are really writing about it in a way that I find is engendering a public debate. The question is, how much do you sign over, and how clear is what you're signing over when you're in the process of doing it? These are the questions that we need to ask and to decide on what is our value.
 
 [00:15:13] Norm: In weighing cost benefit, the benefits are tangible; the costs are not. They're incredibly intangible.
 
-[00:15:18] Adam: Exactly, and so when you have something with a tangible that has that bifurcation of the intangible cost with the tangible benefit, things get really, really sticky, and they can stay sticky for a long time. And it it takes sophistication to kind of understand and parse all the aspects of that debate.
+[00:15:18] Adam: Exactly, and so when you have something with a tangible that has that bifurcation of the intangible cost with the tangible benefit, things get really, really sticky, and they can stay sticky for a long time. And it takes sophistication to kind of understand and parse all the aspects of that debate.
 
-[00:15:36] Will: So Mozilla, full disclosure: Mozilla asked me to help with this, but they they did the Mozilla Foundation did a gift guide that shows you know how how it gives a privacy score to all of the items to a lot of the items that people are buying for Christmas this year. It's like it's like a privacy gift guide.
+[00:15:36] Will: So Mozilla, full disclosure: Mozilla asked me to help with this, but they did the Mozilla Foundation did a gift guide that shows you know how how it gives a privacy score to all of the items to a lot of the items that people are buying for Christmas this year. It's like a privacy gift guide.
 
 [00:15:36] Adam: Yeah,
 
@@ -298,7 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:15:59] Will: As soon as possible. Okay. So, but it's it's they went down a ton of different, even down to like kids' toys, because there's a lot of smart toys that are connected in ways that you don't you don't think about
 
-[00:16:12] Adam: the toy the the vulnerability of kids' toys is terrifying. They every single kids' toy is a goddamn Trojan horse to your house.
+[00:16:12] Adam: the toy the vulnerability of kids' toys is terrifying. They every single kids' toy is a goddamn Trojan horse to your house.
 
 [00:16:12] Will: Not all of them.
 
@@ -308,11 +308,11 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:16:12] Adam: Many of them.
 
-[00:16:22] Will: Like like so, for example, there are companies that are really good about privacy, like LittleBits. Seems seems super dope.
+[00:16:22] Will: Like so, for example, there are companies that are really good about privacy, like LittleBits. Seems seems super dope.
 
 [00:16:28] Adam: Of course, they would be.
 
-[00:16:29] Will: Yeah, but yeah, I mean, nothing's guaranteed in in this day. Um, but yeah, you you have to pay. You have to think about if you connect it to Wi-Fi, you should really think about it and think about what it's doing and what it's selling and what it's selling about you because the old the old thing that that Cory Doctorow was saying in like 2003, which is if if you're not paying for something, you're probably the product, not the customer. Is is more true now than ever, and as more devices and more things become connected to the internet, you really, really, really should think about it with everything.
+[00:16:29] Will: Yeah, but yeah, I mean, nothing's guaranteed in this day. But yeah, you have to pay. You have to think about if you connect it to Wi-Fi, you should really think about it and think about what it's doing and what it's selling about you because the old thing that that Cory Doctorow was saying in like 2003, which is if you're not paying for something, you're probably the product, not the customer. Is is more true now than ever, and as more devices and more things become connected to the internet, you really, really, really should think about it with everything.
 
 [00:17:03] Adam: Exactly. Do your research.
 
@@ -330,13 +330,13 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:18:38] Adam: So, but here's what my son said. Have you seen it? And I go, okay, let me guess. Bomb shot of someone sad. Bomb shot of a big thing. Bomb! Shot of an explosion. He's like, " Yeah, you pretty much got it."
 
-[00:18:54] Will: So yeah. So the the one thing that I saw was the memes about Hawkeye being really sad and pissed, and I love how that character has come full circle. Because remember when Avengers one the first trailer came out and it closed with that that shot the the the like orbital shot around the heroes, the six heroes standing away in a circle facing out, and and everybody's like, " Oh man, it's it's the Hulk and it's Captain America, it's Iron Man, it's and it's the God of of hammers and and then all of a sudden it's like, oh, it's a girl with a gun and a bow and arrow guy, what what the hell? And now and now we are setting up the bow and arrow man
+[00:18:54] Will: So yeah. So the one thing that I saw was the memes about Hawkeye being really sad and pissed, and I love how that character has come full circle. Because remember when Avengers one the first trailer came out and it closed with that that shot the like orbital shot around the heroes, the six heroes standing away in a circle facing out, and everybody's like, " Oh man, it's it's the Hulk and it's Captain America, it's Iron Man, it's and it's the God of of hammers and and then all of a sudden it's like, oh, it's a girl with a gun and a bow and arrow guy, what what the hell? And now and now we are setting up the bow and arrow man
 
-[00:19:32] Adam: and and Hawkeye.
+[00:19:32] Adam: and Hawkeye.
 
 [00:19:33] Will: Yeah, the bow and arrow man's going to save the universe, man.
 
-[00:19:36] Adam: Um, so I have not I have not watched it and I don't plan on on watching it.
+[00:19:36] Adam: So I have not watched it and I don't plan on watching it.
 
 [00:19:40] Norm: Good luck.
 
@@ -356,7 +356,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:19:55] Adam: else has come up on come up lately?
 
-[00:19:59] Will: So, Enter the Spider Verse. I'm going to see this weekend because the trailers for the the reviews for that have been unbelievable, and
+[00:19:59] Will: So, Enter the Spider Verse. I'm going to see this weekend because the trailers for the reviews for that have been unbelievable, and
 
 [00:20:04] Adam: the trailers are magnificent.
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:20:04] Adam: looks visually incredible.
 
-[00:20:07] Will: It looks like the most exciting animation I've seen in a long time. Like the stuff that they're doing with stretching, like the the the there was a there's a great talk on I think the first season Simpsons DVDs with Al Jean and and Groening and some of the people who did the the work on those early seasons where they had talked about sending the animation off to Asia to be to be done and being really upset when they got it back and all the characters limbs were all stretchy like a Betty Boop cartoon.
+[00:20:07] Will: It looks like the most exciting animation I've seen in a long time. Like the stuff that they're doing with stretching, like the there was a there's a great talk on I think the first season Simpsons DVDs with Al Jean and Groening and some of the people who did the work on those early seasons where they had talked about sending the animation off to Asia to be done and being really upset when they got it back and all the characters limbs were all stretchy like a Betty Boop cartoon.
 
 [00:20:07] Adam: Oh, right.
 
@@ -388,7 +388,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:21:24] Will: Oh, that's grim.
 
-[00:21:25] Adam: This is it. Is grim. It's a and it's a completely new look on on a post apocalyptic future. The books were considered very steampunk. Tested, of course. We went down to not, of course, if you don't know, but we went down to New Zealand. We did some coverage. I got to talk to the effects directors and art director and the director, Christian Rivers and Peter Jackson, about this world building. Look, the film is really fun. The world building is incredible. The world building is some of the best I've ever seen because they, they, they. It feels steampunk, but they stayed very away from a lot of the normal tropes, and so I feel like they expanded what you can really think of as steampunk. There's aspects of Miyazaki in there in the design. There's it's a really it's a fun fun fun romp. I really enjoyed it.
+[00:21:25] Adam: This is it. Is grim. It's a and it's a completely new look on a post apocalyptic future. The books were considered very steampunk. Tested, of course. We went down to not, of course, if you don't know, but we went down to New Zealand. We did some coverage. I got to talk to the effects directors and art director and the director, Christian Rivers and Peter Jackson, about this world building. Look, the film is really fun. The world building is incredible. The world building is some of the best I've ever seen because they. It feels steampunk, but they stayed very away from a lot of the normal tropes, and so I feel like they expanded what you can really think of as steampunk. There's aspects of Miyazaki in there in the design. There's it's a really it's a fun fun fun romp. I really enjoyed it.
 
 [00:22:15] Will: Mortal Engines.
 
@@ -420,7 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:22:40] Adam: Also, Henry Cavill is funny. He's constantly hilarious in that role.
 
-[00:22:46] Norm: I think if you watch Man from Uncle and he was in in that,
+[00:22:46] Norm: I think if you watch Man from Uncle and he was in that,
 
 [00:22:50] Unknown speaker: Oh, right.
 
@@ -434,7 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:22:51] Norm: It's Armie Hammer and Man from Uncle, and sorry. Henry Cavill, and that I think was what sold the director on casting him.
 
-[00:23:04] Adam: The thing about Cavill is, I mean, he is—he plays a—you know—they describe that Tom Cruise is a scalpel and Cavill is a hammer, and he really is. That's how he plays it. But he also, just with the look on, he turns out to to be an actor of incredible subtlety.
+[00:23:04] Adam: The thing about Cavill is, I mean, he is—he plays a—you know—they describe that Tom Cruise is a scalpel and Cavill is a hammer, and he really is. That's how he plays it. But he also, just with the look on, he turns out to be an actor of incredible subtlety.
 
 [00:23:21] Norm: He's wry.
 
@@ -462,23 +462,23 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:24:03] Adam: It's I really enjoyed the spit out of that movie.
 
-[00:24:05] Will: Well, so it's funny because that that that series has now become two trilogies, right? Because it was it was the the first ones that happened like 20 years ago, and then they took a little break, and then Brad Bird made a new one, which was I think probably my favorite of the whole of the whole run. The J J Abrams one is great.
+[00:24:05] Will: Well, so it's funny because that that that series has now become two trilogies, right? Because it was the first ones that happened like 20 years ago, and then they took a little break, and then Brad Bird made a new one, which was I think probably my favorite of the whole run. The J J Abrams one is great.
 
 [00:24:05] Norm: That's my favorite.
 
-[00:24:05] Will: Chris McQuarrie ones are great, but the fourth one is is magic for me in a way that the the previous ones hadn't been.
+[00:24:05] Will: Chris McQuarrie ones are great, but the fourth one is is magic for me in a way that the previous ones hadn't been.
 
 [00:24:27] Adam: Interesting. The last two have been my two favorite, and the last one was absolutely my favorite.
 
 [00:24:32] Will: The Fallout or Rogue Nation,
 
-[00:24:32] Norm: yeah. Rogue Nation Fallout, which that itself is, I think, is a trilogy. It's the it's the Ethan Hunt Ilsa Faust relationship.
+[00:24:32] Norm: yeah. Rogue Nation Fallout, which that itself is, I think, is a trilogy. It's the Ethan Hunt Ilsa Faust relationship.
 
 [00:24:41] Will: The Brad Bird one is going to be like an in betweener.
 
-[00:24:43] Norm: Yeah, it sets up, you know, one or two of the characters. It
+[00:24:43] Norm: Yeah, it sets up one or two of the characters. It
 
-[00:24:46] Will: brings well. It introduces um. Simon Pegg and Jeremy Renner, right?
+[00:24:46] Will: brings well. It introduces. Simon Pegg and Jeremy Renner, right?
 
 [00:24:50] Norm: Yeah, Simon Pegg was in the third one.
 
@@ -516,7 +516,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:25:25] Adam: Oh my gosh, I love Jeffrey Ross.
 
-[00:25:26] Norm: You know, for all the Comedy Central roasts. Yeah. Dave Attell, legendary comedian.
+[00:25:26] Norm: For all the Comedy Central roasts. Yeah. Dave Attell, legendary comedian.
 
 [00:25:30] Will: Yeah, yeah.
 
@@ -528,7 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:25:59] Adam: well, that's weird,
 
-[00:26:00] Norm: and and. You know, riff with him.
+[00:26:00] Norm: and. Riff with him.
 
 [00:26:00] Adam: Wow.
 
@@ -562,7 +562,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:26:38] Norm: I know what you’re talking about.
 
-[00:26:38] Will: Yeah, salt, acid, salt, acid, fat, heat, heat, or something like that. It's exceptional.
+[00:26:38] Will: Yeah, salt, acid, fat, heat, heat, or something like that. It's exceptional.
 
 [00:26:38] Unknown speaker: I have not.
 
@@ -570,7 +570,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:26:45] Adam: I believe my son, who is a cook, has been watching it religiously.
 
-[00:26:49] Will: It's. I watched the first two episodes, and it's it's unlike anything I've seen before.
+[00:26:49] Will: It's. I watched the first two episodes, and it's unlike anything I've seen before.
 
 [00:26:53] Adam: Awesome.
 

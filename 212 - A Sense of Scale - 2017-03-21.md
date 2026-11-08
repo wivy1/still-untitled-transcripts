@@ -50,7 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:01:56] Will: Only like with that one or two weeks a year, though.
 
-[00:02:00] Adam: It was fantastic. I, Will, and I talked about it. Had a lovely dinner with some Muppeteer friends. I saw a bunch of my maker friends: Sonya Pryor-Jones, Andrew Coy, and I had a really wonderful panel about the future of making. And you know, like you have goals for a panel about what you'd like to cover, and I could not be happier with how our panel went. It really, it is, it is like a document of a snapshot of of of how we're looking at making and how and how the different tree of possibilities about how it could move forward. So I'm really happy with that panel. I can't wait till it goes live.
+[00:02:00] Adam: It was fantastic. I, Will, and I talked about it. Had a lovely dinner with some Muppeteer friends. I saw a bunch of my maker friends: Sonya Pryor-Jones, Andrew Coy, and I had a really wonderful panel about the future of making. And like you have goals for a panel about what you'd like to cover, and I could not be happier with how our panel went. It really, it is like a document of a snapshot of how we're looking at making and how the different tree of possibilities about how it could move forward. So I'm really happy with that panel. I can't wait till it goes live.
 
 [00:02:39] Norm: Yeah, and something I know also happened was the culmination of the scavenger hunt.
 
@@ -62,13 +62,13 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:02:49] Norm: Yeah, so this is something that we've been working on on and off for like the weeks leading up to South by Southwest. Jen Schachter, who was here at the cave, we recorded a podcast with her. She was embedded with us for a week at our office to do a prototyping of this puzzle. So basically, Adam. And Andrew Coy charged her with designing this this beautiful art piece, laser cut art piece that she then split into nine pieces and seeded in nine different places in Austin. And we launched the scavenger hunt, I think the Friday or Saturday morning before your talk, Adam, and it culminated that Tuesday. And I saw photos, and it looked like it was a huge success.
 
-[00:03:28] Adam: It was a huge success. We got to meet all nine parties that found the the the puzzle pieces. Many of them had solved the clues for most of the clues, but it was complete success. Starting with Jen and her amazing ability to design, engineer, and construct. She's a triple threat, and the the finished piece is magnificent. We'll post that up on Tested along with the video meeting the the makers,
+[00:03:28] Adam: It was a huge success. We got to meet all nine parties that found the puzzle pieces. Many of them had solved the clues for most of the clues, but it was complete success. Starting with Jen and her amazing ability to design, engineer, and construct. She's a triple threat, and the finished piece is magnificent. We'll post that up on Tested along with the video meeting the makers,
 
 [00:03:28] Norm: yeah,
 
 [00:03:28] Adam: the finders.
 
-[00:04:01] Norm: The the whole point of the scavenger hunt was to one not only celebrate the culture of making but to really expand what people understand. And think of when they think of maker culture, and it's not just workshops, metal shops, or maker spaces in what you think is a traditional tech shop type space, laser cutters and and mills, but everything. And any any time you make something that didn't exist before out of your own creativity, that's a part of the maker culture. So she designed these nine different areas of making, from theater to music to costuming, and there it's it's a wonderful, wonderful art piece. And because of the scavenger hunt, we're going to be releasing the files.
+[00:04:01] Norm: The whole point of the scavenger hunt was to one not only celebrate the culture of making but to really expand what people understand. And think of when they think of maker culture, and it's not just workshops, metal shops, or maker spaces in what you think is a traditional tech shop type space, laser cutters and mills, but everything. And any any time you make something that didn't exist before out of your own creativity, that's a part of the maker culture. So she designed these nine different areas of making, from theater to music to costuming, and there it's a wonderful, wonderful art piece. And because of the scavenger hunt, we're going to be releasing the files.
 
 [00:04:40] Will: Oh, nice! So people can build their own. Oh, that’s rad.
 
@@ -84,19 +84,19 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:05:10] Norm: Yeah, and because they're just you know SVG vector files, you can make it any size out there. People out there, we're going to be releasing it in coming weeks as we finish editing the video. But the putting together of a scavenger hunt—that's not easy.
 
-[00:05:22] Will: Well, I was going to say, like, how do you, especially when you're doing it someplace like Austin during South by, you want to make the the things hard enough to find that somebody's not going to accidentally stumble into them because you want the person who finds the piece to be to know what to do with it, right?
+[00:05:22] Will: Well, I was going to say how do you, especially when you're doing it someplace like Austin during South by, you want to make the things hard enough to find that somebody's not going to accidentally stumble into them because you want the person who finds the piece to be to know what to do with it, right?
 
 [00:05:22] Norm: Yeah.
 
 [00:05:22] Will: Or else, then the whole thing breaks.
 
-[00:05:37] Adam: Oh no! It Jen amazes me with her ability to to juggle all of that, and it's a really an incredible achievement. And the finished piece is a work of art, and I really look forward to seeing once we release the files what other people do with it because Jen added color by using different types of plywood that she laser cut, but there's no reason someone couldn't cut this out of clear acrylic or plastic or any sort of material and then paint it and add other depths to it. Really, the sky's the limit. So I get very excited about seeing this, and she's also going to design a frame that holds all nine pieces in orientation.
+[00:05:37] Adam: Oh no! It Jen amazes me with her ability to juggle all of that, and it's a really an incredible achievement. And the finished piece is a work of art, and I really look forward to seeing once we release the files what other people do with it because Jen added color by using different types of plywood that she laser cut, but there's no reason someone couldn't cut this out of clear acrylic or plastic or any sort of material and then paint it and add other depths to it. Really, the sky's the limit. So I get very excited about seeing this, and she's also going to design a frame that holds all nine pieces in orientation.
 
 [00:06:15] Norm: Yeah, I mean, this type of design it's made for remixing. It's supposed to evolve over time, also. But yeah, you're right, Will. Like that Saturday and Sunday, as we launched it, I was just getting ready to do my travels. I was following online, and we had done a post on Tested, and people were contributing answers to the scavenger hunt. So even if they weren't in Austin, they were helping to solve the puzzle.
 
 [00:06:36] Will: So you made it like it was intentionally difficult enough that you needed more than just a handful of brains working on the problems. That's good.
 
-[00:06:41] Adam: Oh, and and that that was something that was really lovely to watch was that thread developing as the Tested community was. And by the way, my my big heart to the Tested community, putting out the answers and collaborating on them, understanding that it's a group effort, but also going back to the the Pittsburgh Maker video that we released last week, and all the makerspaces from Tested Premium members around the country saying, " Hey, we've got a makerspace." I love the volume and
+[00:06:41] Adam: Oh, and that that was something that was really lovely to watch was that thread developing as the Tested community was. And by the way, my big heart to the Tested community, putting out the answers and collaborating on them, understanding that it's a group effort, but also going back to the Pittsburgh Maker video that we released last week, and all the makerspaces from Tested Premium members around the country saying, " Hey, we've got a makerspace." I love the volume and
 
 [00:07:09] Will: oh, that's awesome.
 
@@ -106,9 +106,9 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:07:22] Adam: find like-minded makers.
 
-[00:07:24] Will: That was one of the things we talked about really early on when when when you came on to Tested, basically, is is like a lot of that information is out there, and if you don't know, like I would never know to go to Urban Ore to find tubing and pipes, except for you said, " Hey, Urban Ore is a great what? What is it you're looking for? Oh, go to Urban Ore, go to these other three places, and and like there's a lot of that information is tied up in oral history, and getting it out in a way that people can find it is will make it a lot more accessible for a lot of people.
+[00:07:24] Will: That was one of the things we talked about really early on when you came on to Tested, basically, is is like a lot of that information is out there, and if you don't know, like I would never know to go to Urban Ore to find tubing and pipes, except for you said, " Hey, Urban Ore is a great what? What is it you're looking for? Oh, go to Urban Ore, go to these other three places, and and like there's a lot of that information is tied up in oral history, and getting it out in a way that people can find it is will make it a lot more accessible for a lot of people.
 
-[00:07:54] Adam: And and you know, and when I was in Orlando, there's a wonderful surplus shop in Orlando that I've been to before because it's fairly famous. It got all sorts of stuff, military switches hacked out of old pieces of equipment and stuff like that. And I also, my friend Andrew Coy set up a meeting with me and some of my nation, some of my nation of makers people, and some local makerspaces in Orlando. And we sat down for almost two hours to really talk about the state of making and what we can do to raise the volume on it within a city and within the country. And like every single person in the room laughed when I said I had just come from that surplus shop because it was such a key part of Orlando's maker culture.
+[00:07:54] Adam: And when I was in Orlando, there's a wonderful surplus shop in Orlando that I've been to before because it's fairly famous. It got all sorts of stuff, military switches hacked out of old pieces of equipment and stuff like that. And I also, my friend Andrew Coy set up a meeting with me and some of my nation of makers people, and some local makerspaces in Orlando. And we sat down for almost two hours to really talk about the state of making and what we can do to raise the volume on it within a city and within the country. And like every single person in the room laughed when I said I had just come from that surplus shop because it was such a key part of Orlando's maker culture.
 
 [00:08:40] Will: That's awesome. So Norm, you also can you talk about your trip last week?
 
@@ -134,7 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:09:17] Will: Which book?
 
-[00:09:17] Norm: You know, Angels and Demons.
+[00:09:17] Norm: Angels and Demons.
 
 [00:09:25] Will: Oh right, I didn't read that book.
 
@@ -148,7 +148,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:09:54] Norm: intangible.
 
-[00:09:54] Will: Well, it is. It is. They like a lot of the things that we use every like these. Every lot of stuff in our phones happen because of things that we learned doing particle physics 40 years ago. But the but the results from those those experiments take a really long time to become apparent and and to to develop applications of. So the fact that we've Europe in large part has spent billions of dollars building this this incredible experiment or series of experiments right is is incredible. So what what last time you were there you went and looked at the um the
+[00:09:54] Will: Well, it is. It is. They like a lot of the things that we use every like these. Every lot of stuff in our phones happen because of things that we learned doing particle physics 40 years ago. But the results from those those experiments take a really long time to become apparent and to develop applications of. So the fact that we've Europe in large part has spent billions of dollars building this incredible experiment or series of experiments right is is incredible. So what last time you were there you went and looked at the
 
 [00:10:29] Norm: Atlas
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:11:25] Adam: Wow. Yeah.
 
-[00:11:26] Norm: It's something that builds in layer and layer, but it's all beautifully color coded, and there's power, there's data that all just like it's it's like a living, breathing machine, an organism almost. And we were there to film for a science show we're working on with Kishore, which the community will see in the coming months. But something I did want to talk about is that we also ran a workshop there.
+[00:11:26] Norm: It's something that builds in layer and layer, but it's all beautifully color coded, and there's power, there's data that all just like it's like a living, breathing machine, an organism almost. And we were there to film for a science show we're working on with Kishore, which the community will see in the coming months. But something I did want to talk about is that we also ran a workshop there.
 
 [00:11:47] Will: Oh really?
 
@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:11:48] Adam: Oh wow.
 
-[00:11:48] Norm: So Kishore, who works for the Bay Area, he runs the Bay Area Science Festival, works for UCSF. He his field is basically science communication. And so, Steven Goldfarb, the physicist, we we set up a workshop where we had 30, I think, 35 people attend, physicists and communicators at CERN, and Kishore gave a presentation to talk about science communication, how physicists can be better communicators, because there are a lot of people—
+[00:11:48] Norm: So Kishore, who works for the Bay Area, he runs the Bay Area Science Festival, works for UCSF. He his field is basically science communication. And so, Steven Goldfarb, the physicist, we set up a workshop where we had 30, I think, 35 people attend, physicists and communicators at CERN, and Kishore gave a presentation to talk about science communication, how physicists can be better communicators, because there are a lot of people—
 
 [00:12:16] Adam: The A in STEAM,
 
@@ -188,11 +188,11 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:12:18] Adam: Yeah,
 
-[00:12:18] Norm: and many of them don't even realize that. I mean, there are parts that do, but that the misunderstanding there’s a whole like if you can let it get out of hand. I mean, if you if you search LHC and CERN in YouTube or even in Google, you know, a significant portion of the results are conspiracy theorists. Like
+[00:12:18] Norm: and many of them don't even realize that. I mean, there are parts that do, but that the misunderstanding there’s a whole like if you can let it get out of hand. I mean, if you search LHC and CERN in YouTube or even in Google, you know, a significant portion of the results are conspiracy theorists. Like
 
 [00:12:52] Will: the black hole is going to destroy. They're going to destroy the earth. There, man.
 
-[00:12:55] Norm: And and even popular media, they're controlling the conversation about this work, and it's important that it's an exchange, and it's not just a one-sided conversation.
+[00:12:55] Norm: And even popular media, they're controlling the conversation about this work, and it's important that it's an exchange, and it's not just a one-sided conversation.
 
 [00:13:04] Will: Well, and it's especially tough for particle physicists because the the a lot of what they're talking about is intangible and and incredibly difficult to comprehend if you don't have like at least a bachelor in science, bachelor's degree in science.
 
@@ -204,11 +204,11 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:13:31] Norm: And gave them the footage so they can look at themselves and watch themselves because the best way to do it is really just to practice.
 
-[00:13:37] Will: Yeah. Yeah. I mean, if if if you look at what you and I did the first few months of Tested, I think those videos are still out there. Like it was bad.
+[00:13:37] Will: Yeah. Yeah. I mean, if you look at what you and I did the first few months of Tested, I think those videos are still out there. Like it was bad.
 
 [00:13:37] Norm: Oh yeah.
 
-[00:13:37] Will: I mean, and we were we were shooting video every single day and just learned by watching and doing it over and over again. So it's the same thing for for people on the other side of the of the microphone as well.
+[00:13:37] Will: I mean, and we were shooting video every single day and just learned by watching and doing it over and over again. So it's the same thing for people on the other side of the microphone as well.
 
 [00:13:54] Norm: Absolutely. Yeah.
 
@@ -224,7 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:14:28] Adam: so funny.
 
-[00:14:29] Norm: But we did so much. It was a packed two days, so we got to see the robotics facility where they make the robots. So the tunnel, the tube, we couldn’t actually go down there because that's that's a very restricted area.
+[00:14:29] Norm: But we did so much. It was a packed two days, so we got to see the robotics facility where they make the robots. So the tunnel, the tube, we couldn’t actually go down there because that's a very restricted area.
 
 [00:14:43] Will: The 28 kilometers. The place between, okay,
 
@@ -234,7 +234,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:14:47] Norm: right? Right.
 
-[00:14:47] Adam: That's that's the one policed by BPRD, right?
+[00:14:47] Adam: That's the one policed by BPRD, right?
 
 [00:14:51] Norm: Yeah, exactly, exactly. But they have robots, so
 
@@ -244,9 +244,9 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:15:04] Will: Monorail, monorail, monorail.
 
-[00:15:06] Norm: a cart with materials, and people would, you know, the the the workers would go. Yeah, yeah, but because it's all built, they repurposed the monorail track and built a robot, and there'll be a series of robots that will go along the ring and can visually inspect and
+[00:15:06] Norm: a cart with materials, and people would, you know, the workers would go. Yeah, yeah, but because it's all built, they repurposed the monorail track and built a robot, and there'll be a series of robots that will go along the ring and can visually inspect and
 
-[00:15:23] Will: like if there's a fault in Sector 7G, they can send they can send [unclear: Beppo / Bibo] the robot around there to check it out.
+[00:15:23] Will: like if there's a fault in Sector 7G, they can send [unclear: Beppo / Bibo] the robot around there to check it out.
 
 [00:15:23] Norm: Totally,
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:15:41] Norm: Meet those.
 
-[00:15:41] Will: I had to imagine they were like trying to recruit her. Come in, let's get some, let's get some shitty.
+[00:15:41] Will: I had to imagine they were like trying to recruit her. Come in, let's get some shitty.
 
 [00:15:45] Norm: She wasn't allowed to touch some of the robots. I
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:15:49] Adam: they'd have to explain to her that no, no, no, we're not trying to collide the robots into each other, just particles.
 
-[00:15:54] Will: Yeah, yeah. Um, so it's funny you talk about you. You went to the particle physicist kind of mecca. I did a podcast last, well, a couple months ago now, but it's up now, called Titanium Physics, where we talked about neutrino beams, and three really smart physicists tried to explain neutrino beams to me, which is which also happens at CERN, and they fire neutrinos. I don't know if you know, but they're little particles that basically interact with nothing, yeah, and they fire them through the Earth from from CERN to Italy, where they detect them, and they found all sorts. It was an interesting conversation. It's definitely worth checking out. I'll send you a link if you if you want to
+[00:15:54] Will: Yeah, yeah. So it's funny you talk about you. You went to the particle physicist kind of mecca. I did a podcast last, well, a couple months ago now, but it's up now, called Titanium Physics, where we talked about neutrino beams, and three really smart physicists tried to explain neutrino beams to me, which is which also happens at CERN, and they fire neutrinos. I don't know if you know, but they're little particles that basically interact with nothing, yeah, and they fire them through the Earth from CERN to Italy, where they detect them, and they found all sorts. It was an interesting conversation. It's definitely worth checking out. I'll send you a link if you want to
 
 [00:15:54] Adam: Fascinating.
 
@@ -294,11 +294,11 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:16:57] Adam: Wow,
 
-[00:16:57] Norm: a whole giant and and and the guys there, there was I I believe it was the Italian guys were working there. 7 a.m. just milling custom hardware. They had a they had a titanium welding chamber. So it's this giant chamber that they fill with argon so they can weld titanium and it's a glove box essentially. And like you have, like it was eight pairs of gloves that you can go in there and weld titanium. They had a titanium 3D printing machine.
+[00:16:57] Norm: a whole giant and the guys there was I I believe it was the Italian guys were working there. 7 a.m. just milling custom hardware. They had a titanium welding chamber. So it's this giant chamber that they fill with argon so they can weld titanium and it's a glove box essentially. And like you have, like it was eight pairs of gloves that you can go in there and weld titanium. They had a titanium 3D printing machine.
 
 [00:17:42] Will: Did did they make the stuff for the collider on site or did they like bring in Atlas? Like were Atlas and those things assembled there or were they assembled elsewhere and then trucked in?
 
-[00:17:50] Norm: It's hugely a collaborative. Okay, a lot of it's subcontracted out, but a lot of the the machining that It has to be custom.
+[00:17:50] Norm: It's hugely a collaborative. Okay, a lot of it's subcontracted out, but a lot of the machining that It has to be custom.
 
 [00:17:56] Will: I'm sure if something breaks, then it's not like you can get under the Radio Shack and get a new, new ALICE experiment.
 
@@ -344,13 +344,13 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:19:23] Adam: Back, sorry.
 
-[00:19:24] Norm: Are you traveling with that? Is that on on the tour bus?
+[00:19:24] Norm: Are you traveling with that? Is that on the tour bus?
 
 [00:19:27] Adam: I have been riding it every single day. Thing two, by the way. So now there was a wonderful app called One Wheel Buddy, which has now been absorbed into Onewheel, and their app is a wonderful improvement. Now you can sign up for accounts, and they you can actually record routes where you're riding. You can record routes, and you can trade routes with other people. And there are leaderboards for speed. I'm here to tell you that thing two is Way high up on the speed leaderboard now.
 
-[00:20:03] Will: So, how, but hold on, doesn't it speed limit? Or can you can you turn that off if you get crazy?
+[00:20:03] Will: So, how, but hold on, doesn't it speed limit? Or can you turn that off if you get crazy?
 
-[00:20:08] Adam: No, the the top speed of this is actually almost 20 miles per hour,
+[00:20:08] Adam: No, the top speed of this is actually almost 20 miles per hour,
 
 [00:20:08] Will: Oh, Jesus.
 
@@ -368,23 +368,23 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:20:35] Unknown speaker: Wow.
 
-[00:20:35] Norm: When you when you travel, like you're in a new town, you have something like the Onewheel. When you look at Google Maps, you look at the pedestrian walking time and divide that by three, like for for time estimation, because there is no.
+[00:20:35] Norm: When you travel, like you're in a new town, you have something like the Onewheel. When you look at Google Maps, you look at the pedestrian walking time and divide that by three, like for time estimation, because there is no.
 
-[00:20:49] Adam: Actually, no. It's fairly close to a bicycle in terms of time. You know, with an average speed of 12 miles. Per hour, it's not far off of what a bike journey would be, and I do. I have been getting out in most cities. It's been lovely since we left the Northeast, where it's actually warm down here. In well, it was in Florida for the last week. Um, uh, and speaking of Florida, when I was in Melbourne, Florida, my friend Dave Lavery from NASA came and picked up Thing Two and I, and we got a kind of mind-bending tour. Well, first we went to the Kennedy Space Center, which is I don't know if you've been since since the the shuttles there.
+[00:20:49] Adam: Actually, no. It's fairly close to a bicycle in terms of time. With an average speed of 12 miles. Per hour, it's not far off of what a bike journey would be, and I do. I have been getting out in most cities. It's been lovely since we left the Northeast, where it's actually warm down here. In well, it was in Florida for the last week. And speaking of Florida, when I was in Melbourne, Florida, my friend Dave Lavery from NASA came and picked up Thing Two and I, and we got a kind of mind-bending tour. Well, first we went to the Kennedy Space Center, which is I don't know if you've been since since the shuttles there.
 
 [00:21:28] Will: No,
 
-[00:21:29] Adam: it's um, it's worth going there just for that. It is one of the most beautiful exhibits, and the literally when you see the shuttle, you will burst into tears as I did because it is they have engineered your first view of it in such a beautiful way. It is a completely destination-worthy museum, and I only experienced like one tenth of it. In the few hours that we had,
+[00:21:29] Adam: it's worth going there just for that. It is one of the most beautiful exhibits, and the literally when you see the shuttle, you will burst into tears as I did because it is they have engineered your first view of it in such a beautiful way. It is a completely destination-worthy museum, and I only experienced like one tenth of it. In the few hours that we had,
 
-[00:21:54] Norm: that was the whole thing. Every every museum that got a shuttle had to design it specific for their museum and to make that a unique experience. Because these are, you know, there there are only so many of those relics.
+[00:21:54] Norm: that was the whole thing. Every every museum that got a shuttle had to design it specific for their museum and to make that a unique experience. Because these are there are only so many of those relics.
 
 [00:22:05] Will: So
 
 [00:22:05] Norm: it's, yeah,
 
-[00:22:07] Will: yeah. I was gonna say we saw we saw the Enterprise on the Intrepid on the deck back when it was in the old place, but now it's across the street, and I haven't been back since, so I need to go see that. But I I saw where they have the Discovery or Discovery, I guess, at the Air and Space Museum is just unbelievable. It's in a whole separate hangar all by itself, and you kind of come through this tunnel, and it's just where you walk through your nose on at ground level, and it's just the biggest thing. It's it's it's not unimaginably big in the way that like a Saturn V is, but it is it is it's a unique perspective on it you've never seen before, and you know exactly where you stand in relation to the spaceship, right?
+[00:22:07] Will: yeah. I was gonna say we saw the Enterprise on the Intrepid on the deck back when it was in the old place, but now it's across the street, and I haven't been back since, so I need to go see that. But I I saw where they have the Discovery or Discovery, I guess, at the Air and Space Museum is just unbelievable. It's in a whole separate hangar all by itself, and you kind of come through this tunnel, and it's just where you walk through your nose on at ground level, and it's just the biggest thing. It's not unimaginably big in the way that like a Saturn V is, but it is it's a unique perspective on it you've never seen before, and you know exactly where you stand in relation to the spaceship, right?
 
-[00:22:46] Adam: Well, and so and so the Atlantis, which is what they've got at the Kennedy. Space Center, they've opted for a completely different viewing experience that is much more human scale and much more. You experience looking at. I'm getting chills as I'm telling you this. You experience looking at it that people built this. That this was a. Yeah, I know they built a bunch of them, but this each one of them was a custom one-off because there's so many little differences between them, and you can see the workmanship and the craftsmanship and the wear and the tear, and it's really inspiring. But that's not the best thing I did that day.
+[00:22:46] Adam: Well, and so the Atlantis, which is what they've got at the Kennedy. Space Center, they've opted for a completely different viewing experience that is much more human scale and much more. You experience looking at. I'm getting chills as I'm telling you this. You experience looking at it that people built this. That this was a. Yeah, I know they built a bunch of them, but this each one of them was a custom one-off because there's so many little differences between them, and you can see the workmanship and the craftsmanship and the wear and the tear, and it's really inspiring. But that's not the best thing I did that day.
 
 [00:23:19] Will: What? What?
 
@@ -392,7 +392,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:23:21] Will: What did you do?
 
-[00:23:21] Adam: Double take, will. We we also got a an extensive tour of the VAB or Vehicle Assembly Building.
+[00:23:21] Adam: Double take, will. We also got a an extensive tour of the VAB or Vehicle Assembly Building.
 
 [00:23:32] Will: You went in the big building.
 
@@ -416,29 +416,29 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:24:22] Will: Wow. So, so like I have to imagine, like in scale from fiction, you're talking about a room like as big as the Jaeger room in Pacific Rim, right? It's an enormous, enormous room.
 
-[00:24:33] Adam: It's um, it's very difficult. I took tons of photos, and yet none of them quite communicate what I would refer to. Well, I first experienced this feeling when I went to Hangar Two, one of the large wooden blimp hangars at NASA Ames, and you can see the big steel one up close to the highway, but farther back. Behind it are the two hangars, one and two, made of redwood. They are 1,200 feet long, and it's 230 feet from the middle of the hangar to the trusswork. And if you, we filmed in there on MythBusters several times. And if you are walking down the the the hangar and looking up, you actually get what I call reverse vertigo. Your your body can't quite comprehend the scale of what you are inside, and the VAB is completely the same experience. It is so big; it has structure just because it has. It actually ends up not with weather inside, like you don't get actual clouds, but you do. They said if you open one of these doors, and again, these doors are 500 feet tall. If they open one of the doors, fog can roll through the building, and clouds clouds have entered at the top of the building.
+[00:24:33] Adam: It's very difficult. I took tons of photos, and yet none of them quite communicate what I would refer to. Well, I first experienced this feeling when I went to Hangar Two, one of the large wooden blimp hangars at NASA Ames, and you can see the big steel one up close to the highway, but farther back. Behind it are the two hangars, one and two, made of redwood. They are 1,200 feet long, and it's 230 feet from the middle of the hangar to the trusswork. And if you, we filmed in there on MythBusters several times. And if you are walking down the hangar and looking up, you actually get what I call reverse vertigo. Your body can't quite comprehend the scale of what you are inside, and the VAB is completely the same experience. It is so big; it has structure just because it has. It actually ends up not with weather inside, like you don't get actual clouds, but you do. They said if you open one of these doors, and again, these doors are 500 feet tall. If they open one of the doors, fog can roll through the building, and clouds clouds have entered at the top of the building.
 
-[00:25:45] Will: I so I got to go there when I was in college, I guess, and when I when when the Guy, the person who was giving us the tour was like, " Hey, I want you to tilt your head back as far as it goes and look straight up at the ceiling." And then he stood behind us, so when we started to fall over because we you kind of lost your sense of scale, he like he was there to put a hand on your shoulder so you didn't tip. And like it was, I don't get vertigo, but I kind you kind of have this reverse vertigo. At least I did. It was unbelievable.
+[00:25:45] Will: I so I got to go there when I was in college, I guess, and when I when the Guy, the person who was giving us the tour was like, " Hey, I want you to tilt your head back as far as it goes and look straight up at the ceiling." And then he stood behind us, so when we started to fall over because we you kind of lost your sense of scale, he like he was there to put a hand on your shoulder so you didn't tip. And like it was, I don't get vertigo, but I kind you kind of have this reverse vertigo. At least I did. It was unbelievable.
 
-[00:26:11] Adam: Well, and so they when they first built the building, it had a concrete ceiling, and they had some difficulties with the expansion and contraction of the steel reinforcement caused some pieces to start to fall. So then they built a secondary ceiling to to capture that stuff and to repair the roof, and they did. But up in there, because they built that second ceiling, it means you can actually go up in between the roof and you can see the final beam that was laid to build the VAB and all the signatures of the people who have worked at NASA over the years.
+[00:26:11] Adam: Well, and so they when they first built the building, it had a concrete ceiling, and they had some difficulties with the expansion and contraction of the steel reinforcement caused some pieces to start to fall. So then they built a secondary ceiling to capture that stuff and to repair the roof, and they did. But up in there, because they built that second ceiling, it means you can actually go up in between the roof and you can see the final beam that was laid to build the VAB and all the signatures of the people who have worked at NASA over the years.
 
 [00:26:11] Will: Oh, that's so cool!
 
-[00:26:11] Adam: I have photos of all of this. Norm, I'm going to send you this so we can post it up on Tested. It's it was a like the scale the sheer scale of not only the building but then when you stand on the building and we stood on scaffolding on top of the building and look at where where the mercury and where the Apollo where the astronauts there was a launch that night that we unfortunately it was what was it
+[00:26:11] Adam: I have photos of all of this. Norm, I'm going to send you this so we can post it up on Tested. It's it was a like the scale the sheer scale of not only the building but then when you stand on the building and we stood on scaffolding on top of the building and look at where the mercury and where the Apollo where the astronauts there was a launch that night that we unfortunately it was what was it
 
 [00:27:14] Will: there was a Delta and there was a SpaceX last week both Delta
 
-[00:27:17] Adam: it was a Delta and it was it was unfortunately like 30 minutes late than later than it should have been which meant that we when it was supposed to go was 15 minutes before Brain Candy went on stage and so 15 minutes before my entire crew was on the roof of our theater because we would have been able to see it from Melbourne Florida
+[00:27:17] Adam: it was a Delta and it was unfortunately like 30 minutes late than later than it should have been which meant that we when it was supposed to go was 15 minutes before Brain Candy went on stage and so 15 minutes before my entire crew was on the roof of our theater because we would have been able to see it from Melbourne Florida
 
 [00:27:38] Norm: yeah yeah is that a public tour or did you guys get special access
 
 [00:27:42] Adam: it was very special access in fact it's it was a very apparently a very rare. Rare treat, but
 
-[00:27:42] Norm: wow! Scale is absolutely one of those things where it's so tough to to experience that. Even if you have a 360 panorama,
+[00:27:42] Norm: wow! Scale is absolutely one of those things where it's so tough to experience that. Even if you have a 360 panorama,
 
 [00:27:56] Will: yeah, nothing captures it.
 
-[00:27:57] Norm: And and on the flip side, like you're talking about big scale, but same with small scale. When I got back, there's a new VR experience that NASA worked with to create called Mission ISS. It's a recreation of the International Space Station that you can actually fly through in VR, and I I tried it and it convinced me how small that that those rooms are.
+[00:27:57] Norm: And on the flip side, like you're talking about big scale, but same with small scale. When I got back, there's a new VR experience that NASA worked with to create called Mission ISS. It's a recreation of the International Space Station that you can actually fly through in VR, and I I tried it and it convinced me how small that that those rooms are.
 
 [00:27:57] Adam: Wow!
 
@@ -450,33 +450,33 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:28:25] Will: And it feels even smaller than that. Yeah,
 
-[00:28:26] Norm: because you see photos that you know, like Chris Hadfield, other astronauts take. You know, the exercise bikes or the cupola or the the the glove box room, and
+[00:28:26] Norm: because you see photos that like Chris Hadfield, other astronauts take. You know, the exercise bikes or the cupola or the glove box room, and
 
 [00:28:35] Will: the little sleeping nooks.
 
 [00:28:37] Norm: Right, all of that is actually much much closer than than I had comprehended in my head. It's very very claustrophobic up there.
 
-[00:28:46] Will: Well, so I when we were in the scale model, I didn't feel like it was claustrophobic. Part of that is because they're not all of the modules have like actual or actually connected to the other modules. Some of that sometimes you have go outside into the big room. I felt like that that VR thing felt a lot smaller than what what we saw even. It's really neat. It's totally worth checking out. I think it's free on the Oculus Store.
+[00:28:46] Will: Well, so I when we were in the scale model, I didn't feel like it was claustrophobic. Part of that is because they're not all of the modules have like actual or actually connected to the other modules. Some of that sometimes you have go outside into the big room. I felt like that that VR thing felt a lot smaller than what we saw even. It's really neat. It's totally worth checking out. I think it's free on the Oculus Store.
 
 [00:29:08] Norm: I'll share it with you when you get back back to the shop, Adam.
 
 [00:29:11] Adam: I can't. I just wrote it down. I was. It's on my list. I'm dying to try that. That sounds amazing.
 
-[00:29:16] Norm: Yeah, you know, all of this talk of interesting places. I use Atlas Obscura when we're on the train to find places. But what is Atlas Obscura for? Like science and and making.
+[00:29:16] Norm: Yeah all of this talk of interesting places. I use Atlas Obscura when we're on the train to find places. But what is Atlas Obscura for? Like science and making.
 
 [00:29:25] Will: It’s Atlas Obscura
 
 [00:29:26] Norm: is it also Atlas Obscura?
 
-[00:29:26] Adam: Yeah, yeah. No, they they covered that as well. In fact, Michael Stevens is also a fan of Atlas Obscura. And a couple of different times, we've arrived in the city, and I would say, you know, they've got a blah blah blah here, and he goes, Yeah, I looked it up this morning.
+[00:29:26] Adam: Yeah, yeah. No, they covered that as well. In fact, Michael Stevens is also a fan of Atlas Obscura. And a couple of different times, we've arrived in the city, and I would say they've got a blah blah blah here, and he goes, Yeah, I looked it up this morning.
 
-[00:29:41] Will: I I um. I spending time on Atlas Obscura has let me know that I'm really excited about tunnels. I didn't realize it, but like the article about the old Texas Super Collider, the tunnels there was is really good. The one about the tunnels that go under the Capitol Building, which are you know the staff house, House and Senate staff used to get around, also really interesting. Tunnel tunnels are always good. It turns out
+[00:29:41] Will: I. I spending time on Atlas Obscura has let me know that I'm really excited about tunnels. I didn't realize it, but like the article about the old Texas Super Collider, the tunnels there was is really good. The one about the tunnels that go under the Capitol Building, which are you know the staff house, House and Senate staff used to get around, also really interesting. Tunnel tunnels are always good. It turns out
 
 [00:30:06] Adam: that's really. I want to just give a shout out. This is going up on Tuesday, right?
 
 [00:30:06] Norm: Yes,
 
-[00:30:06] Adam: that's correct. So tonight, Brain Candy is in Birmingham, Birmingham, Alabama, and we have tickets left for this show. If you want to come out and see us, please come out. The show has been going stunningly well. The audiences are incredible. Michael and I are having a really fun time, and it's it's just delightful. The meet and greets afterwards with the kids and the families, and and and new engineers. It's a lot of new engineers. Is really thrilling.
+[00:30:06] Adam: that's correct. So tonight, Brain Candy is in Birmingham, Birmingham, Alabama, and we have tickets left for this show. If you want to come out and see us, please come out. The show has been going stunningly well. The audiences are incredible. Michael and I are having a really fun time, and it's just delightful. The meet and greets afterwards with the kids and the families, and new engineers. It's a lot of new engineers. Is really thrilling.
 
 [00:30:40] Will: That's cool.
 

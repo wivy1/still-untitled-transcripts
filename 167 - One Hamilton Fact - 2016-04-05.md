@@ -12,13 +12,13 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:00:44] Will: You look like the White Witch.
 
-[00:00:46] Adam: I, I, this is I brought this in, but many people know that I collect lightsabers and robots and all sorts of
+[00:00:46] Adam: I, this is I brought this in, but many people know that I collect lightsabers and robots and all sorts of
 
 [00:00:54] Will: pretty much everything,
 
 [00:00:55] Adam: ephemera of everything. But one of my particular favorite things are weirdly. Staffs, like I have all of the, I have all of the wizard staffs that were released for Lord of the Rings, Gandalf's, Radagast's, Gandalf's other, etc. And this is a replica of the White Witch's magic staff from The Lion, the Witch, and the Wardrobe. And I have to say, it is actually maybe one of the loveliest production piece props I've ever seen.
 
-[00:01:23] Will: It's, it's you. I can't. I was. I saw you when you were walking in, and it was. I was like, that is really gorgeous.
+[00:01:23] Will: It's you. I can't. I was. I saw you when you were walking in, and it was. I was like, that is really gorgeous.
 
 [00:01:28] Norm: Yeah, it looks like a spear. Is it a kryptonite spear?
 
@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:01:32] Norm: Okay.
 
-[00:01:32] Adam: Okay. And but I have another piece too, and this is my, this is my Cthulhu octopus cane.
+[00:01:32] Adam: Okay. And but I have another piece too, and this is my Cthulhu octopus cane.
 
 [00:01:39] Will: This is one of the first things we talked about on this podcast. I think, years ago.
 
@@ -46,7 +46,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:02:04] Norm: Right, he doesn't sell the whole staff; he just sells. the cane top.
 
-[00:02:06] Adam: No, no, no, he does sell a whole staff, absolutely. But he he had one cast in stainless, and I bought one from him. And then I I just bought the head because I wanted to turn it.
+[00:02:06] Adam: No, no, no, he does sell a whole staff, absolutely. But he had one cast in stainless, and I bought one from him. And then I I just bought the head because I wanted to turn it.
 
 [00:02:16] Will: And did you weather it up so it's a little little grungy as you do?
 
@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:03:19] Adam: He's only random to me. He's not random to anybody else.
 
-[00:03:22] Norm: So you know, you know, I find it interesting
+[00:03:22] Norm: So I find it interesting
 
 [00:03:23] Adam: specifically
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:03:27] Unknown speaker: Yeah.
 
-[00:03:27] Norm: People are discovering it. People go back and listen. They they
+[00:03:27] Norm: People are discovering it. People go back and listen. They
 
 [00:03:31] Adam: we have a lot of archives.
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:04:04] Adam: Yeah. Because I haven't seen it,
 
-[00:04:04] Will: but I saw it in the morning. I I just went one. I had a little bit of time to kill, and I went and saw it. And if you could, it's late now. If you can go and see it without knowing anything about it,
+[00:04:04] Will: but I saw it in the morning. I just went one. I had a little bit of time to kill, and I went and saw it. And if you could, it's late now. If you can go and see it without knowing anything about it,
 
 [00:04:13] Adam: I don't know anything about it.
 
@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:04:34] Adam: It sounds like an insult coming from me.
 
-[00:04:34] Will: He's a sartorial. Wow. Wow. That was Adam haters. So I went to Warby Parker over on on, and I took my my my my measuring thing
+[00:04:34] Will: He's a sartorial. Wow. Wow. That was Adam haters. So I went to Warby Parker over on, and I took my measuring thing
 
 [00:04:48] Norm: IPD. to
 
@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:05:14] Adam: Because I was, it happens to everyone. It's totally normal.
 
-[00:05:16] Will: Hey, I am not the one that has the staff collection. So I was on another show, and we got word from Oculus that we were finally approved that our app was finally approved. Yeah, when you when you release on like a console or or an app store or a new platform like this, usually they have a little bit of a hand on and they make sure that you know, like you've dotted all your i’s and crossed your t’s. And and with VR, especially, it's important because if you mess up, you are going to make people feel bad. You are going to make them physically ill,
+[00:05:16] Will: Hey, I am not the one that has the staff collection. So I was on another show, and we got word from Oculus that we were finally approved that our app was finally approved. Yeah, when you release on like a console or an app store or a new platform like this, usually they have a little bit of a hand on and they make sure that like you've dotted all your i’s and crossed your t’s. And with VR, especially, it's important because if you mess up, you are going to make people feel bad. You are going to make them physically ill,
 
 [00:05:42] Adam: right?
 
@@ -222,11 +222,11 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:05:58] Adam: that's like when the that's when the White House. Puts out its worst.
 
-[00:06:02] Will: Yeah, that's when that's when you that's when you release the. Oh, we accidentally killed a few thousand people by it was the wrong people. The AI targeted the wrong guys. Oops. Yeah, it's when Microsoft releases the. Yeah, we there there are 35 million infected Windows PCs report.
+[00:06:02] Will: Yeah, that's when you release the. Oh, we accidentally killed a few thousand people by it was the wrong people. The AI targeted the wrong guys. Oops. Yeah, it's when Microsoft releases the. Yeah, we there are 35 million infected Windows PCs report.
 
 [00:06:20] Norm: Well, it turns out for a lot of people, we're on the computer all the time. The weekend's a great time to start downloading and trying new things.
 
-[00:06:25] Will: And I sat there and I thought about it. I was like, look, the people who are going to be trying this, the the people who have Oculus Rifts right now, are going to come home from work. They're going to load it up. They're going to look at the stuff that they've done all week, and they're going to see something new, and they're going to try it out. And we had by far, even including when Norm and I launched, tested the best reaction I've ever had to anything that we've made.
+[00:06:25] Will: And I sat there and I thought about it. I was like, look, the people who are going to be trying this, the people who have Oculus Rifts right now, are going to come home from work. They're going to load it up. They're going to look at the stuff that they've done all week, and they're going to see something new, and they're going to try it out. And we had by far, even including when Norm and I launched, tested the best reaction I've ever had to anything that we've made.
 
 [00:06:47] Adam: That's fantastic,
 
@@ -238,11 +238,11 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:06:57] Adam: That's fantastic.
 
-[00:06:57] Will: So, what what we built, what we're building, is a framework for creating. Lightly interactive television like content that that lives in VR. It's 3D rendered that you can interact with. There’s video, people have captured some videos, so you can go look at them. But the first show is the Foo Show. It's featuring me, and I interview people who make cool things, as we have in the past. And the first people I talked to are these guys, Jake Rodkin and Sean Vanaman from Campo Santo. They made a little adventure game. It's not they made an indie adventure game called Firewatch. And in Firewatch, you are this guy who's kind of running away from problems in his life, and he goes to be a fire watch guy in the Wyoming woods in the late '80s. So, so like you spend a lot of time in this watchtower that's a little 14 by 14 foot box on the top of a really high stilts, and you walk around this environment. You it's basically you walk in the woods, and then sometimes mysterious stuff happens in the woods.
+[00:06:57] Will: So, what we built, what we're building, is a framework for creating. Lightly interactive television like content that that lives in VR. It's 3D rendered that you can interact with. There’s video, people have captured some videos, so you can go look at them. But the first show is the Foo Show. It's featuring me, and I interview people who make cool things, as we have in the past. And the first people I talked to are these guys, Jake Rodkin and Sean Vanaman from Campo Santo. They made a little adventure game. It's not they made an indie adventure game called Firewatch. And in Firewatch, you are this guy who's kind of running away from problems in his life, and he goes to be a fire watch guy in the Wyoming woods in the late '80s. So, so like you spend a lot of time in this watchtower that's a little 14 by 14 foot box on the top of a really high stilts, and you walk around this environment. You it's basically you walk in the woods, and then sometimes mysterious stuff happens in the woods.
 
 [00:07:52] Adam: I heard about this game. It sounds fascinating.
 
-[00:07:54] Will: So we really we I know we've been promising this this for a long time, but there are like three games that have come out in the last few years
+[00:07:54] Will: So we really we I know we've been promising this for a long time, but there are like three games that have come out in the last few years
 
 [00:08:00] Norm: but you would be
 
@@ -266,15 +266,15 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:08:30] Norm: that they've been looking on a flat screen,
 
-[00:08:31] Will: yeah. And and it becomes like it becomes real for them in a in a really short order. And we're all in the room together, so there's three people in the VR room, which is kind of an unusual unusual situation. And the people who are watching this in their goggles get that same experience. So, like when I'm talking to Jake, Jake can pick up a prop from the room and say, " Hey, take a look at this." You know, I Jane made this. Their their modeler made this in an afternoon. She streamed the making of it on YouTube, so you can see how she turned this thing from a from a cylinder into a a thing that looks like a Coleman lantern.
+[00:08:31] Will: yeah. And it becomes like it becomes real for them in a really short order. And we're all in the room together, so there's three people in the VR room, which is kind of an unusual unusual situation. And the people who are watching this in their goggles get that same experience. So, like when I'm talking to Jake, Jake can pick up a prop from the room and say, " Hey, take a look at this." I Jane made this. Their modeler made this in an afternoon. She streamed the making of it on YouTube, so you can see how she turned this thing from a cylinder into a thing that looks like a Coleman lantern.
 
 [00:09:03] Adam: Right?
 
-[00:09:03] Will: We talked about the little jokes that they put on, you know, copy that they expect no one to ever see. Like, you know, there's dozens of books in the game. And they all they wrote like. Back, back blurbs for all of them.
+[00:09:03] Will: We talked about the little jokes that they put on copy that they expect no one to ever see. Like there's dozens of books in the game. And they all they wrote like. Back, back blurbs for all of them.
 
 [00:09:13] Adam: Yeah.
 
-[00:09:03] Will: They wrote journal pages for the character in the game, and they're all there. And then we also got to see a little bit about how, like, behind the scenes stuff, like how the, like, in a video game, not everything has a back, right? Because lots of you are not going to interact with. And we pulled all that stuff off, and we're able to look at that and show how that stuff works. And it it gives you both a real appreciation for the amount of love and effort that goes into making that game,
+[00:09:03] Will: They wrote journal pages for the character in the game, and they're all there. And then we also got to see a little bit about how behind the scenes stuff, like how the in a video game, not everything has a back, right? Because lots of you are not going to interact with. And we pulled all that stuff off, and we're able to look at that and show how that stuff works. And it gives you both a real appreciation for the amount of love and effort that goes into making that game,
 
 [00:09:34] Adam: yeah.
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:10:06] Norm: Still Untitled was already taken.
 
-[00:10:07] Will: Yeah. Exactly. Still Untitled was already taken, so we we're gonna have a lot, both more episodes of the Foo Show, Foo Show, and then later this year we're gonna roll out a bunch of new, different kinds of shows. Because I think that part of my, basically, I think it's gonna be VR presents a lot of really interesting opportunities to break the fourth wall and make interesting kinds of like lightly interactive linear content.
+[00:10:07] Will: Yeah. Exactly. Still Untitled was already taken, so we we're gonna have a lot, both more episodes of the Foo Show, and then later this year we're gonna roll out a bunch of new, different kinds of shows. Because I think that part of my, basically, I think it's gonna be VR presents a lot of really interesting opportunities to break the fourth wall and make interesting kinds of like lightly interactive linear content.
 
 [00:10:35] Adam: That's the thing about the interactive part that I think is very interesting.
 
@@ -312,7 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:10:53] Adam: Yes. Yeah. Absolutely.
 
-[00:10:55] Will: When you get in the room with other people and they're, I mean, there's a lot. Norm and I, we’ll we'll talk about this on this is only a test this week, I'm sure, but. I mean, basically, we don't. We only show you other people. We don't show you yourself because then your proprioception doesn't jack up the the what we're what we're rendering in the headset.
+[00:10:55] Will: When you get in the room with other people and they're, I mean, there's a lot. Norm and I, we’ll we'll talk about this on this is only a test this week, I'm sure, but. I mean, basically, we don't. We only show you other people. We don't show you yourself because then your proprioception doesn't jack up the what we're rendering in the headset.
 
 [00:11:12] Adam: Yeah.
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:12:34] Norm: What were some of the things at the show? That caught your eye.
 
-[00:12:37] Adam: So the big thing at the show was tea ceremony. It's something Tom's been working on for a while, which is his take on the Japanese tea ceremony. And given that Tom's work is really deeply about the the the sense of the sense of transcendence within the repetition and ritual of a shop, tea ceremony, the Japanese tea ceremony. Absolutely exemplifies exemplifies that, and he has taken that deeply to heart and really run with it in a way I find. I mean, I'm completely biased here, invigorating and amazing. And this show is beautiful. From my understanding, the Noguchi Museum, which is devoted to Isamu Noguchi's work, has never had a show of an outside artist before.
+[00:12:37] Adam: So the big thing at the show was tea ceremony. It's something Tom's been working on for a while, which is his take on the Japanese tea ceremony. And given that Tom's work is really deeply about the sense of transcendence within the repetition and ritual of a shop, tea ceremony, the Japanese tea ceremony. Absolutely exemplifies exemplifies that, and he has taken that deeply to heart and really run with it in a way I find. I mean, I'm completely biased here, invigorating and amazing. And this show is beautiful. From my understanding, the Noguchi Museum, which is devoted to Isamu Noguchi's work, has never had a show of an outside artist before.
 
 [00:13:26] Unknown speaker: Wow!
 
@@ -356,7 +356,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:13:32] Will: Is it a cargo? Another kind of like he's kind of got a cargo cult thing going a lot of times, right?
 
-[00:13:37] Adam: There are there are a bunch of toolkits. There are there's a beautiful piece. I tweeted it a foam core mop bucket, but the McDonald's ergonomic back saving mop bucket is like the minimum amount of work McDonald's realized how to get you to do your job without ruining your body so
+[00:13:37] Adam: There are a bunch of toolkits. There are there's a beautiful piece. I tweeted it a foam core mop bucket, but the McDonald's ergonomic back saving mop bucket is like the minimum amount of work McDonald's realized how to get you to do your job without ruining your body so
 
 [00:13:57] Will: you can work longer, so they can increase their profits.
 
@@ -380,7 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:14:31] Unknown speaker: Ah.
 
-[00:14:22] Adam: We went bowling. I didn't bowl, but there is a there is a Broadway bowling league.
+[00:14:22] Adam: We went bowling. I didn't bowl, but there is a Broadway bowling league.
 
 [00:14:37] Will: Why didn't you bowl?
 
@@ -392,7 +392,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:14:42] Will: you were in the cheering section.
 
-[00:14:42] Adam: Really, the the the whole company of Hamilton, the whole company, the crew, the cast, everyone could not. It it it it was a. Where do I begin?
+[00:14:42] Adam: Really, the whole company of Hamilton, the whole company, the crew, the cast, everyone could not. It was a. Where do I begin?
 
 [00:14:54] Will: You seem verklempt
 
@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:14:55] Adam: Transformative show,
 
-[00:14:56] Norm: and you and you had been building it up for yourself for so long. Oh,
+[00:14:56] Norm: and you had been building it up for yourself for so long. Oh,
 
 [00:14:58] Adam: I've been listening to Hamilton like once or twice a day for months.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:15:08] Will: Hamilton. Yes, some song from Hamilton.
 
-[00:15:10] Adam: So it, it, it, and that didn't prepare me for how amazing the show is.
+[00:15:10] Adam: So it, and that didn't prepare me for how amazing the show is.
 
 [00:15:15] Unknown speaker: That's good.
 
@@ -434,15 +434,15 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:15:22] Norm: Birthday present.
 
-[00:15:25] Adam: It's it's it's. You know it’s getting out. You know.
+[00:15:25] Adam: It's. You know it’s getting out. You know.
 
 [00:15:27] Norm: No one listens to this podcast.
 
-[00:15:30] Adam: Um, the show is incredible.
+[00:15:30] Adam: The show is incredible.
 
 [00:15:33] Unknown speaker: Oh.
 
-[00:15:34] Adam: It is really important. It is such a beautiful cast. They are so, uh, like okay. I've been listening to it so long. I had worked out a lot of the blocking in my head.
+[00:15:34] Adam: It is really important. It is such a beautiful cast. They are so like okay. I've been listening to it so long. I had worked out a lot of the blocking in my head.
 
 [00:15:46] Norm: Yeah.
 
@@ -462,13 +462,13 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:16:15] Norm: I'm so excited now for the Tonys because I know he's going to sing a different song for the Tonys, and I bet it's going to be my shot.
 
-[00:16:21] Adam: Um, a couple of things are real.
+[00:16:21] Adam: A couple of things are real.
 
 [00:16:24] Will: What did he sing at the Grammys?
 
 [00:16:26] Norm: I think Grammys is the
 
-[00:16:27] Adam: opening song. Um, the the company is amazing. Leslie Odom stands out. He plays Burr?
+[00:16:27] Adam: opening song. The company is amazing. Leslie Odom stands out. He plays Burr?
 
 [00:16:34] Will: Yeah,
 
@@ -476,7 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:16:48] Norm: Oh, I'm getting chills because I'm thinking of the song where he sings about his daughter,
 
-[00:16:51] Adam: Ah Theodosia, and the room where it happens is amazing. I really the the actor brings a precision to the role of Burr that I found shocking to watch. Daveed Diggs, who plays the Marquis de Lafayette. And Jefferson, my wife, I think on many days since we've seen Hamilton, has just said to herself, " Ah, Daveed, he is so charismatic and so amazing in both roles. The costumes are incredible. We get we got to go backstage. I took pictures of the costumes hanging on the racks. Oh, it was just it was amazing. And I I want to go see it again. I'll see it when it comes out here. They are carefully building the traveling companies. Like I said, there are people who are like, oh, I'm nervous that it'll come out here and I'll see it with a different cast. Don't worry. I saw a different Washington. Chris Jackson wasn't there that night. I saw it with a different actor, and he was amazing. I saw a different Angelica. She was incredible. They seem to have a an axiom of the actor has to the the understudy has to hit their marks, but also they bring their own thing to it. Well, and they really do. They really make it.
+[00:16:51] Adam: Ah Theodosia, and the room where it happens is amazing. I really the actor brings a precision to the role of Burr that I found shocking to watch. Daveed Diggs, who plays the Marquis de Lafayette. And Jefferson, my wife, I think on many days since we've seen Hamilton, has just said to herself, " Ah, Daveed, he is so charismatic and so amazing in both roles. The costumes are incredible. We get we got to go backstage. I took pictures of the costumes hanging on the racks. Oh, it was just it was amazing. And I I want to go see it again. I'll see it when it comes out here. They are carefully building the traveling companies. Like I said, there are people who are like, oh, I'm nervous that it'll come out here and I'll see it with a different cast. Don't worry. I saw a different Washington. Chris Jackson wasn't there that night. I saw it with a different actor, and he was amazing. I saw a different Angelica. She was incredible. They seem to have a an axiom of the actor has to the the understudy has to hit their marks, but also they bring their own thing to it. Well, and they really do. They really make it.
 
 [00:18:04] Norm: So my fear, and when we talked about this last time, you talked about Hamilton. Was do you listen to the soundtrack before you watch it? Because then you build up expectations, like the blocking and the performance, in your head. And if you watch it, and it’s not exactly as it is. Then, what does that change the experience?
 
@@ -492,7 +492,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:18:49] Norm: does this fact come out? It's like in the morning. I can't wait to tell you the fact.
 
-[00:18:52] Adam: It's exactly like this. I'm reading the I'm reading the Chernow bio, which is amazing. By the way, the Ron Chernow biography of Hamilton is beautiful history.
+[00:18:52] Adam: It's exactly like this. I'm reading the Chernow bio, which is amazing. By the way, the Ron Chernow biography of Hamilton is beautiful history.
 
 [00:18:59] Norm: Which is the book that Lin Manuel read to come up with the book?
 
@@ -500,7 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:19:32] Norm: but those commas.
 
-[00:19:33] Adam: Their opinions, but their letters betray a very deep and abiding affection. So they they play with that in the show, and at one point, Elizabeth, Eliza, sorry, Eliza Schuyler says, " My sister wants to form a harem," and Angelica says, " I'm just saying if you really loved me, you would share them." There's an actual letter from Angelica Schuyler saying something very similar
+[00:19:33] Adam: Their opinions, but their letters betray a very deep and abiding affection. So they play with that in the show, and at one point, Elizabeth, Eliza, sorry, Eliza Schuyler says, " My sister wants to form a harem," and Angelica says, " I'm just saying if you really loved me, you would share them." There's an actual letter from Angelica Schuyler saying something very similar
 
 [00:20:01] Norm: to her sister,
 
@@ -512,7 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:20:22] Norm: Okay, so the opening.
 
-[00:20:23] Adam: She had watched him rap his acceptance speech. I had played, and I had played for her one last time, Washington's beautiful song to Hamilton as he's leaving office, which is a really amazing song. And I had played for her the the dual songs or the trio. I think of as one large song of Winter's Ball, Helpless, and Satisfied.
+[00:20:23] Adam: She had watched him rap his acceptance speech. I had played, and I had played for her one last time, Washington's beautiful song to Hamilton as he's leaving office, which is a really amazing song. And I had played for her the dual songs or the trio. I think of as one large song of Winter's Ball, Helpless, and Satisfied.
 
 [00:20:47] Will: It's kind of
 
@@ -534,7 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:21:14] Unknown speaker: Oh.
 
-[00:21:14] Adam: So this morning, this morning she turns to me and she goes, " Today's song." And I said, " Yes." She goes, "
+[00:21:14] Adam: So this morning she turns to me and she goes, " Today's song." And I said, " Yes." She goes, "
 
 [00:21:34] Will: I will
 
@@ -544,13 +544,13 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:21:37] Adam: to remind you of my love." Da da da da
 
-[00:21:41] Norm: da. And you saw it, but you listened to the the soundtrack without seeing it. Now there are, I think, maybe two or three different podcasts
+[00:21:41] Norm: da. And you saw it, but you listened to the soundtrack without seeing it. Now there are, I think, maybe two or three different podcasts
 
 [00:21:48] Adam: Really?
 
 [00:21:41] Norm: devoted to Hamilton. One of which are from these comedy writers who have never seen the show and still are obsessed like you are.
 
-[00:21:55] Adam: So I will tell you, I had. Where was it? Jesus Christ! Where was I? I was. I I had drinks with a bunch of the writers from. Big Bang Theory. Half of whom are totally obsessed with Hamilton and hadn't seen it. We talked about it then, and then Thursday night, I was in Los Angeles. I did Thrilling Adventure Hour, my friends Acker and Blacker's wonderful stage show at Largo. And again, it's most of what we were talking about backstage among everybody was Hamilton, Hamilton, Hamilton.
+[00:21:55] Adam: So I will tell you, I had. Where was it? Jesus Christ! Where was I? I was. I had drinks with a bunch of the writers from. Big Bang Theory. Half of whom are totally obsessed with Hamilton and hadn't seen it. We talked about it then, and then Thursday night, I was in Los Angeles. I did Thrilling Adventure Hour, my friends Acker and Blacker's wonderful stage show at Largo. And again, it's most of what we were talking about backstage among everybody was Hamilton, Hamilton, Hamilton.
 
 [00:22:28] Norm: I'll say that you know I was also on the fence about whether to listen to it before eventually seeing it. Listening to it helps so much more because it's so dense.
 
@@ -560,11 +560,11 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:23:22] Adam: his Mozart giggle. The thing is, is that actor is so amazing on stage. Listening to his songs doesn't prepare you for how brilliantly funny that execution is on stage. It's an audience favorite. So,
 
-[00:23:40] Will: so what is it like? What if you had to pick one thing? What is it that that triggered the obsession on this? Is that it's? It feels like for me, Hamilton feels very, very deliberate, and I mean that in the best possible way, as in as in everything is to a purpose, and it it feels.
+[00:23:40] Will: so what is it like? What if you had to pick one thing? What is it that that triggered the obsession on this? Is that it's? It feels like for me, Hamilton feels very, very deliberate, and I mean that in the best possible way, as in everything is to a purpose, and it feels.
 
 [00:24:01] Norm: It's a story of of a man's life. I think that is deeply rooted in in the origins of our country.
 
-[00:24:09] Adam: Yeah, it takes. This is what it does. Is and Lin said that every time he. Every he tried to write everything political about the time through the personal. So the meeting where Ham where Hamilton decides to move the the the nation's capital from New York to to the Potomac, um, is a key moment in the book. But Lin couldn't figure out how it went into the musical until he showed it through Burr's eyes in the song " The Room Where It Happened." That's how he made the political personal, and he takes this unbelievable story of America's founding with a bunch. I mean, the founding fathers are each one of them is genius in their own right, and the hagiography of the founding fathers is not hyperbolic. It's they're really an amazing dynamic group of individuals, and Hamilton's import is so central. And the the musical makes, while I recognize that there are historical inaccuracies and they moved some of the pieces of his life around for dramatic license, he makes. The politics of that time so personal and helps you understand how movements like that can grow out of individuals' nature. It's so inspiring, and then the fact that the entire cast is is people of color. It's such a beautiful show to watch. The dancers, the background dancers, are male and female, and take male and female roles indiscriminately.
+[00:24:09] Adam: Yeah, it takes. This is what it does. Is and Lin said that every time he. Every he tried to write everything political about the time through the personal. So the meeting where Ham where Hamilton decides to move the nation's capital from New York to the Potomac is a key moment in the book. But Lin couldn't figure out how it went into the musical until he showed it through Burr's eyes in the song " The Room Where It Happened." That's how he made the political personal, and he takes this unbelievable story of America's founding with a bunch. I mean, the founding fathers are each one of them is genius in their own right, and the hagiography of the founding fathers is not hyperbolic. It's they're really an amazing dynamic group of individuals, and Hamilton's import is so central. And the musical makes, while I recognize that there are historical inaccuracies and they moved some of the pieces of his life around for dramatic license, he makes. The politics of that time so personal and helps you understand how movements like that can grow out of individuals' nature. It's so inspiring, and then the fact that the entire cast is is people of color. It's such a beautiful show to watch. The dancers, the background dancers, are male and female, and take male and female roles indiscriminately.
 
 [00:25:39] Unknown speaker: Okay,
 
@@ -574,15 +574,15 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:25:55] Unknown speaker: yeah,
 
-[00:25:55] Norm: like the the songs are catchy.
+[00:25:55] Norm: like the songs are catchy.
 
 [00:25:57] Will: The music is
 
-[00:25:58] Norm: music is yeah, it's captivating. It's diverse. It's not like if if I think originally if someone you know I heard it first. Oh, it's like hip hop, but history. That's not what it is.
+[00:25:58] Norm: music is yeah, it's captivating. It's diverse. It's not like if I think originally if someone you know I heard it first. Oh, it's like hip hop, but history. That's not what it is.
 
 [00:26:07] Adam: Yeah,
 
-[00:26:07] Norm: it's there is a whole range of music, but the story, his story. And of a of a historical figure who before this we knew as the guy on the $10 bill or the guy in the got milk commercial, right? Directed by Michael Bay, also.
+[00:26:07] Norm: it's there is a whole range of music, but the story, his story. And of a historical figure who before this we knew as the guy on the $10 bill or the guy in the got milk commercial, right? Directed by Michael Bay, also.
 
 [00:26:21] Adam: Oh, really?
 
@@ -590,7 +590,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:26:22] Adam: Really?
 
-[00:26:22] Norm: Yeah. Got like um.
+[00:26:22] Norm: Yeah. Got like.
 
 [00:26:26] Adam: Wow.
 
@@ -602,21 +602,21 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:26:38] Will: Intermission.
 
-[00:26:39] Norm: Yeah. Okay. The the the big like climactic reveal isn't it's it's it's really emotional. It's about how people remembered and like I don't give too much away, but it's actually it's a very deeply personal thing.
+[00:26:39] Norm: Yeah. Okay. The big like climactic reveal isn't it's really emotional. It's about how people remembered and like I don't give too much away, but it's actually it's a very deeply personal thing.
 
-[00:26:54] Adam: Oh, it's even more than that, and I don't want to. This is actually a spoiler, but the the the end gives you a viewpoint into the situation that is that from the staging and the way the actors perform it. That's not necessarily fully extant in the in the libretto.
+[00:26:54] Adam: Oh, it's even more than that, and I don't want to. This is actually a spoiler, but the end gives you a viewpoint into the situation that is that from the staging and the way the actors perform it. That's not necessarily fully extant in the libretto.
 
 [00:27:09] Norm: Okay.
 
-[00:27:09] Adam: That's amazing. Um. It's also it also has incredible depth to it, and I've said this. You know, everyone has their own way of rapping. There's layering in the language, but it's just more than each repeated listening yields more depth and more clarity and more understanding. It's it just keeps on giving, and that's why I keep on saying that it's like Shakespeare. It's like Shakespeare was to the people of Shakespeare's time. It's a vernacular musical approach to history and to drama that involves that brings the audience in.
+[00:27:09] Adam: That's amazing. It's also it also has incredible depth to it, and I've said this. Everyone has their own way of rapping. There's layering in the language, but it's just more than each repeated listening yields more depth and more clarity and more understanding. It's it just keeps on giving, and that's why I keep on saying that it's like Shakespeare. It's like Shakespeare was to the people of Shakespeare's time. It's a vernacular musical approach to history and to drama that involves that brings the audience in.
 
-[00:27:42] Will: I mean, that that was that was a lot of it for me. Is that you know, it made me think about something that I hadn't thought about in a really long time, seriously, and maybe look at it from a different perspective, and gave me a little bit more of a human perspective on on things that were three paragraphs in a history book in my junior year in high school.
+[00:27:42] Will: I mean, that that was that was a lot of it for me. Is that you know, it made me think about something that I hadn't thought about in a really long time, seriously, and maybe look at it from a different perspective, and gave me a little bit more of a human perspective on things that were three paragraphs in a history book in my junior year in high school.
 
-[00:28:00] Adam: And also, the the staging is very mannerist. I mean, this one stage supplies for all the sets. Right, so the the stage is at one time it's a it's a city square, and then it's a drawing room, and then it's a duel, and then it's the war.
+[00:28:00] Adam: And also, the staging is very mannerist. I mean, this one stage supplies for all the sets. Right, so the stage is at one time it's a city square, and then it's a drawing room, and then it's a duel, and then it's the war.
 
 [00:28:15] Will: What's mannerist?
 
-[00:28:15] Adam: I mean, it's instead of trying to give you a suspension of disbelief, like you're actually in a drawing room, it's basically you're clear that people are acting out that it's now we're in a drawing room. It's like it's like the the
+[00:28:15] Adam: I mean, it's instead of trying to give you a suspension of disbelief, like you're actually in a drawing room, it's basically you're clear that people are acting out that it's now we're in a drawing room. It's like the
 
 [00:28:29] Norm: in that sense, it feels more like small theater than big theater.
 
@@ -636,17 +636,17 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:29:37] Adam: Absolutely.
 
-[00:29:38] Norm: I want to track the Google, Wikipedia, like traffic for for Hamilton, Alexander Hamilton, the historical figure.
+[00:29:38] Norm: I want to track the Google, Wikipedia, like traffic for Hamilton, Alexander Hamilton, the historical figure.
 
 [00:29:45] Unknown speaker: Oh, yeah, you're right.
 
-[00:29:45] Will: I'm sure there's a spike for the Isaacson biography like 10 years ago, and then there's the little spike for the one that came out three years, three or four years ago, right? And then then there's one that is like to the floor,
+[00:29:45] Will: I'm sure there's a spike for the Isaacson biography like 10 years ago, and then there's the little spike for the one that came out three years, three or four years ago, right? And then there's one that is like to the floor,
 
 [00:29:57] Adam: yeah, for the music for
 
 [00:29:57] Will: the musical, yeah,
 
-[00:29:59] Adam: hilarious, yeah. That was that was an incredible an incredible thing.
+[00:29:59] Adam: hilarious, yeah. That was an incredible thing.
 
 [00:30:03] Will: What else in New York? Anything else while you were there?
 
@@ -654,7 +654,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:30:13] Will: That first day that people put warm clothes on, and they're just like the winter's over. Let's let's bring it. It's so good.
 
-[00:30:19] Adam: Yeah, it's it's an amazing thing. And then I spent a week in L. A., which was lovely. We had a lot of productive meetings, and like I said, I did Thrilling Adventure Hour at Largo. Boy, that company is so inviting and so welcoming. But Paul F. Tompkins made me improvise a song on stage.
+[00:30:19] Adam: Yeah, it's an amazing thing. And then I spent a week in L. A., which was lovely. We had a lot of productive meetings, and like I said, I did Thrilling Adventure Hour at Largo. Boy, that company is so inviting and so welcoming. But Paul F. Tompkins made me improvise a song on stage.
 
 [00:30:37] Will: Do they post those as podcasts?
 
@@ -666,9 +666,9 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:30:50] Will: Yeah.
 
-[00:30:51] Norm: How long of a song? And you and you also you had a band.
+[00:30:51] Norm: How long of a song? And you also you had a band.
 
-[00:30:54] Adam: I there was a full band backing up, and an incredible. I mean, the company is amazing. You know, they're all wonderful. Hal Lublin, Busy Philipps, Paget Brewster, and Acker and Blacker, and everybody else, Marc Evan Jackson. They just They're so welcoming and so lovely that you're just like okay, fuck it. I'm just going in. I solved the problem of a long song in a way that I I hope worked. It was it was a great night.
+[00:30:54] Adam: I there was a full band backing up, and an incredible. I mean, the company is amazing. They're all wonderful. Hal Lublin, Busy Philipps, Paget Brewster, and Acker and Blacker, and everybody else, Marc Evan Jackson. They just They're so welcoming and so lovely that you're just like okay, fuck it. I'm just going in. I solved the problem of a long song in a way that I I hope worked. It was a great night.
 
 [00:31:22] Will: So like having to make up a song on the spot is such a dad thing. Like you know because you sing the songs of nonsense to your children.
 
@@ -700,7 +700,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:32:06] Adam: Oh God! I believe I saw recently that that Eminem was able to rhyme a couple of words with orange.
 
-[00:32:12] Will: I don't, I don't, I don't know if we should encourage that behavior, sir. I guess that'll do it for us this week.
+[00:32:12] Will: I don't know if we should encourage that behavior, sir. I guess that'll do it for us this week.
 
 [00:32:18] Unknown speaker: Yeah,
 

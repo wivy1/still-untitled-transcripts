@@ -22,7 +22,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:00:33] Adam: Yeah.
 
-[00:00:33] Norm: Yeah. Feels like a a lot has been
+[00:00:33] Norm: Yeah. Feels like a lot has been
 
 [00:00:39] Will: stuff happened.
 
@@ -82,7 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:01:46] Adam: And I can't remember the exact date, but it is airing soon in Discovery UK for you for our UK listeners. And each time we know when it's airing in another country, it'll show up in my Twitter feed. So that's where you can go look for that. And your local listings.
 
-[00:02:02] Norm: I mean, these are dream projects, right? Like this is stuff that's been on the notebook of yours throughout the rest of these episodes. These eight episodes, like, are the things that we've heard you kind of like think about, and now you've had the team and the budget to do them, and they are in big scale.
+[00:02:02] Norm: I mean, these are dream projects, right? Like this is stuff that's been on the notebook of yours throughout the rest of these episodes. These eight episodes are the things that we've heard you kind of like think about, and now you've had the team and the budget to do them, and they are in big scale.
 
 [00:02:18] Adam: It's really, really fun to see Xeni Jardin from Boing Boing, who's a friend. Full disclosure, tweeted that it's a we show, not a me show. Yeah, I appreciated that she got that. That was an ethos that was deeply imbued among the crew, and I wanted that to come across, and I'm really glad that it did.
 
@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:02:37] Adam: Yeah,
 
-[00:02:37] Will: like I thought that was really good. I loved, I absolutely loved the flying montage. Like, I, I can, I don't think I've ever seen you lay down on a shoot before. So I can only imagine how broken and exhausted. Like, I what what wait, I mean. I don't. Is this can we?
+[00:02:37] Will: like I thought that was really good. I loved, I absolutely loved the flying montage. Like, I, I can, I don't think I've ever seen you lay down on a shoot before. So I can only imagine how broken and exhausted. Like, I what wait, I mean. I don't. Is this can we?
 
 [00:02:59] Adam: Yeah, by all means. Yeah, ask away.
 
@@ -104,7 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:03:12] Will: Oh wow.
 
-[00:03:12] Adam: And was I mean I wouldn't say he's scrawny, but he's definitely not built like Richard is. And Richard kept on saying it's not about strength; it's about geometry. And so, you know, you think you could you you I kept thinking I could attune it with the throttle, but the throttle's not reactive enough.
+[00:03:12] Adam: And was I mean I wouldn't say he's scrawny, but he's definitely not built like Richard is. And Richard kept on saying it's not about strength; it's about geometry. And so you think you could you I kept thinking I could attune it with the throttle, but the throttle's not reactive enough.
 
 [00:03:49] Will: The throttle's just just on or off more or less, right?
 
@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:04:14] Norm: What did you want to do in not doing it right that made it difficult?
 
-[00:04:17] Adam: Um, I wasn't letting my legs lift off the ground. I was had. You're trying to. It kind of requires leaning forward into almost a fall.
+[00:04:17] Adam: I wasn't letting my legs lift off the ground. I was had. You're trying to. It kind of requires leaning forward into almost a fall.
 
 [00:04:27] Will: So, so is it like you're? So it's like you're leaning on like a handrail in front of you.
 
@@ -126,13 +126,13 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:04:27] Will: And doing one of those kind of push up,
 
-[00:04:33] Adam: and I kept on thinking I would kick myself up, and my legs were flailing around, which was throwing off my center of gravity a lot. And if you watch Richard go, his legs are almost vestigial at the moment he takes the air; they just hang there. And it really, like, what's funny for me when I watch the footage is it looks. If I was watching it and I hadn't made the show, I'd be like, " Well, I've I feel like they're painting out a wire."
+[00:04:33] Adam: and I kept on thinking I would kick myself up, and my legs were flailing around, which was throwing off my center of gravity a lot. And if you watch Richard go, his legs are almost vestigial at the moment he takes the air; they just hang there. And it really what's funny for me when I watch the footage is it looks. If I was watching it and I hadn't made the show, I'd be like, " Well, I've I feel like they're painting out a wire."
 
 [00:04:55] Will: Yeah,
 
 [00:04:55] Adam: right. Because it looks so much like you are just being lifted. from the center point.
 
-[00:04:58] Will: When he does it, it looks beautiful.
+[00:04:58] Will: When he does it looks beautiful.
 
 [00:04:58] Adam: Yeah,
 
@@ -148,25 +148,25 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:05:10] Adam: Yeah.
 
-[00:05:10] Will: And the process for that was similar. Like you, you, you're in a boat. You're going 30 miles an hour, and then you kind of shimmy out of boom, and you put your feet down, and you keep going for as long as you can hold on to the boom, and then you go, and it's and it's incredibly frustrating because like each time you do it, you're just wiped out afterwards,
+[00:05:10] Will: And the process for that was similar. Like you, you're in a boat. You're going 30 miles an hour, and then you kind of shimmy out of boom, and you put your feet down, and you keep going for as long as you can hold on to the boom, and then you go, and it's incredibly frustrating because like each time you do it, you're just wiped out afterwards,
 
 [00:05:10] Adam: right?
 
-[00:05:10] Will: And then you have to climb back up in the boat and do the whole thing again, and there's there's this constant downtime. I I just like it couldn't I couldn't tell from the show whether it was like you using pecs and stuff to pull your arms in.
+[00:05:10] Will: And then you have to climb back up in the boat and do the whole thing again, and there's there's this constant downtime. I just like it couldn't I couldn't tell from the show whether it was like you using pecs and stuff to pull your arms in.
 
 [00:05:41] Adam: It's mostly once you again once you get it, it's much easier than you thought it was going to be. Once you lock your arms and let your body bring them in, it again, it's basically just like holding yourself up on your arms. You're not like you're not pushing with your muscle groups against external. Against lateral forces, it's very linear.
 
-[00:06:01] Norm: It's such an amazing thing is that when you think about how the Iron Man suit was portrayed in the first Iron Man film and the kind of the the direction they took and how he flew, it is that the stiff arm.
+[00:06:01] Norm: It's such an amazing thing is that when you think about how the Iron Man suit was portrayed in the first Iron Man film and the kind of the direction they took and how he flew, it is that the stiff arm.
 
 [00:06:01] Adam: I agree.
 
-[00:06:01] Norm: Aim aim down, palms out, which is not. I remember watching that movie and thinking like that in my mind. That wasn't how flying with like a a jet powered suit would be from reading comic books, but based on physics, that is. It's like
+[00:06:01] Norm: Aim aim down, palms out, which is not. I remember watching that movie and thinking like that in my mind. That wasn't how flying with like a jet powered suit would be from reading comic books, but based on physics, that is. It's like
 
 [00:06:27] Adam: and is as I didn't realize we were going to get so much Iron Man One footage, which is so delightful.
 
 [00:06:33] Will: That was amazing.
 
-[00:06:33] Adam: It really. I also really enjoyed how much Scott Sorensen's cinematography. He's the A camera for Savage Builds, and he's been with me for like 14 years. Scott's camera work so well cut with the real cinematic footage. Well, we we were using mostly primes, non zoom lenses for Savage Builds. Because we wanted that heavy, that that shallow depth of field, that cinematic look,
+[00:06:33] Adam: It really. I also really enjoyed how much Scott Sorensen's cinematography. He's the A camera for Savage Builds, and he's been with me for like 14 years. Scott's camera work so well cut with the real cinematic footage. Well, we were using mostly primes, non zoom lenses for Savage Builds. Because we wanted that heavy, that that shallow depth of field, that cinematic look,
 
 [00:06:59] Norm: Especially with the explosion behind you, slow walking.
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:07:04] Will: Gasoline and air?
 
-[00:07:05] Adam: Uh, yeah. Uh, no, actually, we uh, we filled we filled balloons with propane and shot them with BBs above a candle.
+[00:07:05] Adam: Uh, yeah. Uh, no, actually, we filled balloons with propane and shot them with BBs above a candle.
 
 [00:07:17] Will: It worked out really well. Oh my god!
 
@@ -184,7 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:07:22] Norm: now you know.
 
-[00:07:23] Will: Um, I think that's. I mean, I I I'd encourage people to watch the behind the scenes thing that you did as well. It's like a six minute video shot in the shop over here, and you talk about the problems with working with 3D printed titanium.
+[00:07:23] Will: I think that's. I mean, I I I'd encourage people to watch the behind the scenes thing that you did as well. It's like a six minute video shot in the shop over here, and you talk about the problems with working with 3D printed titanium.
 
 [00:07:23] Unknown (Adam or Will): Oh my god!
 
@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:07:36] Will: Yeah,
 
-[00:07:36] Adam: and the Colorado School of Mines. Uh, you know, I've been lucky enough to spend a lot of time now at two small prestigious, hyper focused engineering schools. The first one was New Mexico Tech, where MythBusters and I did a ton of stories down there in New Mexico. Uh, Colorado School of Mines is so much of a piece. Of the same kind of concentrated brilliance of the students and the teachers, I just love that place. And a few of the Colorado School of Mines students came to NOMCon. I saw them there this weekend in Chattanooga,
+[00:07:36] Adam: and the Colorado School of Mines. I've been lucky enough to spend a lot of time now at two small prestigious, hyper focused engineering schools. The first one was New Mexico Tech, where MythBusters and I did a ton of stories down there in New Mexico. Colorado School of Mines is so much of a piece. Of the same kind of concentrated brilliance of the students and the teachers, I just love that place. And a few of the Colorado School of Mines students came to NOMCon. I saw them there this weekend in Chattanooga,
 
 [00:07:36] Norm: Awesome.
 
@@ -218,7 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:08:28] Norm: Nice.
 
-[00:08:32] Adam: It was great. On the second day, it was like 80, and finally Sunday when I left, it was getting balls hot again. But we had we had the weather, and it was glorious. Chattanooga, which I have been to before on one of my tours, is such a beautiful little city.
+[00:08:32] Adam: It was great. On the second day, it was like 80, and finally Sunday when I left, it was getting balls hot again. But we had the weather, and it was glorious. Chattanooga, which I have been to before on one of my tours, is such a beautiful little city.
 
 [00:08:49] Will: There's a there's something magical happening in those small city. We talked about this before the show, but as a person who came from a small city in the South, there's something really neat happening where. Those downtown urban areas in like these 200,000, 150,000, 250,000, 300,000 person cities are kind of indistinguishable from your Austins and your Portlands and your San Franciscos.
 
@@ -238,7 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:09:24] Adam: Mayors of cities so that were small enough that being mayor is not a full-time job.
 
-[00:09:42] Will: Oh, right. So, like, like, like, like,
+[00:09:42] Will: Oh, right. So
 
 [00:09:44] Adam: 30,000, like 30,000, 25,000, 30,000, 45,000,
 
@@ -258,17 +258,17 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:10:27] Will: Yeah, if the cops like him, then somebody else hates him.
 
-[00:10:29] Adam: Exactly. Um, but it was it felt lovely to to be able to talk about those forward thinking policies about bringing technology and also equalizing access to maker spaces. I mean, everything that NOMCon stands for is what Chattanooga is about, and other cities that I've gotten to spend time in, places like Cleveland and Pittsburgh are also looking towards the same methods to to uplift their populace and and and you know do what we want to do, which is train a generation of digital natives.
+[00:10:29] Adam: Exactly. But it was it felt lovely to be able to talk about those forward thinking policies about bringing technology and also equalizing access to maker spaces. I mean, everything that NOMCon stands for is what Chattanooga is about, and other cities that I've gotten to spend time in, places like Cleveland and Pittsburgh are also looking towards the same methods to uplift their populace and you know do what we want to do, which is train a generation of digital natives.
 
-[00:10:56] Will: Well, that's it. Provide provide opportunity for people so that everybody doesn't move to San Francisco and New York and and all these other places.
+[00:10:56] Will: Well, that's it. Provide provide opportunity for people so that everybody doesn't move to San Francisco and New York and all these other places.
 
 [00:11:02] Norm: Yeah, they don't need to.
 
-[00:11:03] Adam: They can’t. Yeah. Um,
+[00:11:03] Adam: They can’t. Yeah.
 
-[00:11:05] Norm: did you feel like this year? Lessons from last year had, you know, had evolved or bore fruit, or
+[00:11:05] Norm: did you feel like this year? Lessons from last year had had evolved or bore fruit, or
 
-[00:11:14] Adam: that's a really good question. I'm not sure I have a direct. I was so on the ground. I mean, I spent three hours on Saturday just talking to attendees out in the hallway, which was super awesome. You know, everyone brings different. Everyone brings their experience, and the great thing about NomCon is there's space for everyone to learn from each other's experience.
+[00:11:14] Adam: that's a really good question. I'm not sure I have a direct. I was so on the ground. I mean, I spent three hours on Saturday just talking to attendees out in the hallway, which was super awesome. Everyone brings different. Everyone brings their experience, and the great thing about NomCon is there's space for everyone to learn from each other's experience.
 
 [00:11:37] Will: What's the purpose of NomCon? Just for people who don't know.
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:12:00] Will: And this spun out of the maker initiatives that happened during the Obama administration.
 
-[00:12:02] Adam: Indeed, it did. Out of the Office of Science and Technology Policy under under the direct tutelage of. Tom Kalil, who is like a lot of my friends' gateway drug to public service, and NOMCon is where we can meet up with makerspaces around the country and talk about initiatives and talk about what's working, and also how to build databases and share our knowledge and understanding. Part of this comes out of sort of the 4-H idea of the New Deal realizing that the Dust Bowl happened because farmers were using antiquated techniques for for for for farming, and that if we shared best practices across, it would be a net benefit to everybody. Nation of Makers at its loftiest is absolutely the same kind of goal. So that if you're starting a makerspace, you're not starting from scratch. You have a resource, and you have you have people you can reach out to that can that can assist you in everything from best practices for fundraising, who to go to for money, how to ask for it, and then what kind of tools might your makerspace include, and how might you get word to different communities that it exists.
+[00:12:02] Adam: Indeed, it did. Out of the Office of Science and Technology Policy under under the direct tutelage of. Tom Kalil, who is like a lot of my friends' gateway drug to public service, and NOMCon is where we can meet up with makerspaces around the country and talk about initiatives and talk about what's working, and also how to build databases and share our knowledge and understanding. Part of this comes out of sort of the 4-H idea of the New Deal realizing that the Dust Bowl happened because farmers were using antiquated techniques for farming, and that if we shared best practices across, it would be a net benefit to everybody. Nation of Makers at its loftiest is absolutely the same kind of goal. So that if you're starting a makerspace, you're not starting from scratch. You have a resource, and you have people you can reach out to that can assist you in everything from best practices for fundraising, who to go to for money, how to ask for it, and then what kind of tools might your makerspace include, and how might you get word to different communities that it exists.
 
 [00:13:10] Norm: It's a lot of organizers, a lot of people who have had experience setting up,
 
@@ -288,9 +288,9 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:13:15] Norm: Yeah, open to the public.
 
-[00:13:19] Adam: And I mean, I ran into a young couple who, like, had apparently buttonholed me at South by a couple of years ago and said that they had this goal to to to to start this company, and that two years later they it had been successful beyond their wildest imagination. And you know, just like that story times a million.
+[00:13:19] Adam: And I mean, I ran into a young couple who had apparently buttonholed me at South by a couple of years ago and said that they had this goal to start this company, and that two years later they it had been successful beyond their wildest imagination. And just like that story times a million.
 
-[00:13:39] Will: Um, speaking of 4-H,
+[00:13:39] Will: Speaking of 4-H,
 
 [00:13:39] Adam: yeah,
 
@@ -302,7 +302,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:13:45] Norm: Sacramento?
 
-[00:13:46] Will: No, no, this is the San Mateo one. Okay, it's moved on now. There's another one in Alameda, and it moves around a little bit. It's Marin next, I think, then Alameda, and then Petaluma. So I hadn't been to a county fair since I was a kid, but we figured, you know, with the six-year-old, it's the right time to go. Um, and it was it was you know part the normal carny carny experience of turning you upside down and shaking as much money out of you as they can. Right,
+[00:13:46] Will: No, no, this is the San Mateo one. Okay, it's moved on now. There's another one in Alameda, and it moves around a little bit. It's Marin next, I think, then Alameda, and then Petaluma. So I hadn't been to a county fair since I was a kid, but we figured with the six-year-old, it's the right time to go. And it was you know part the normal carny carny experience of turning you upside down and shaking as much money out of you as they can. Right,
 
 [00:14:09] Adam: $15 for cotton candy.
 
@@ -310,15 +310,15 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:14:10] Adam: Oh, really?
 
-[00:14:10] Will: Like I, you know, look,
+[00:14:10] Will: Like I look,
 
 [00:14:16] Adam: all the rides that come off the back of a truck,
 
-[00:14:18] Will: the rides that come off the back of the truck are assembled by people. You know, but they were very nice actually. There were no, there's no seediness. But the, so we did rides, but we also went and looked at the stuff that the 4-H, the local 4-H clubs have done. I didn't really realize that there was a lot of 4-H here, but there was, there were, you know, a bunch of kids had brought sheep and pigs and rabbits and goats and I assume there were chickens someplace. We didn't see them, and then also had all the competitions. So like the traditional, you know, food making competitions, photography competitions, like crafts. Yeah, tons of pies and cookies, cakes,
+[00:14:18] Will: the rides that come off the back of the truck are assembled by people. But they were very nice actually. There were no, there's no seediness. But the, so we did rides, but we also went and looked at the stuff that the 4-H, the local 4-H clubs have done. I didn't really realize that there was a lot of 4-H here, but there was, there were, you know, a bunch of kids had brought sheep and pigs and rabbits and goats and I assume there were chickens someplace. We didn't see them, and then also had all the competitions. So like the traditional food making competitions, photography competitions, like crafts. Yeah, tons of pies and cookies, cakes,
 
 [00:14:58] Adam: corn dogs, fried butter.
 
-[00:14:59] Will: We had we had corn dog. I didn't see any fried butter, but there were fried Oreos. And I had a chocolate dipped ice cream cone that was pretty pretty pretty banger.
+[00:14:59] Will: We had corn dog. I didn't see any fried butter, but there were fried Oreos. And I had a chocolate dipped ice cream cone that was pretty pretty pretty banger.
 
 [00:14:59] Adam: That's awesome.
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:15:28] Will: Oh my god, John! Oh, it's so good.
 
-[00:15:30] Adam: So you know, in order so that I don't hit my grid on the Oculus, I often draw my grid bigger than the space I'm in just a little bit.
+[00:15:30] Adam: So in order so that I don't hit my grid on the Oculus, I often draw my grid bigger than the space I'm in just a little bit.
 
 [00:15:38] Will: Do you play in your living room?
 
@@ -376,19 +376,19 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:16:39] Adam: my glasses got all fogged up.
 
-[00:16:41] Will: Look, one time when we were doing prototypes, I was setting up in a in a hotel room to demo to some very wealthy people who were potential investors. And as I was testing out the space, punched a wall, prototype controller exploded everywhere. It was literally a a $1,000 hotel room that I had for just the afternoon to do this demo.
+[00:16:41] Will: Look, one time when we were doing prototypes, I was setting up in a hotel room to demo to some very wealthy people who were potential investors. And as I was testing out the space, punched a wall, prototype controller exploded everywhere. It was literally a $1,000 hotel room that I had for just the afternoon to do this demo.
 
 [00:16:41] Adam: Oh my god!
 
 [00:16:41] Will: And I had to drive all the way from down south back to my house to get the spare controller. Oh, so at least you didn't break anything. Yeah,
 
-[00:17:06] Norm: but you you like the game.
+[00:17:06] Norm: but you like the game.
 
 [00:17:06] Adam: I do.
 
 [00:17:06] Norm: You like the way it makes you feel. They succeeded, make you feel like John Wick.
 
-[00:17:11] Adam: I, I yeah. What I found I really liked. Okay, I'm going to start with what I didn't like.
+[00:17:11] Adam: I yeah. What I found I really liked. Okay, I'm going to start with what I didn't like.
 
 [00:17:11] Norm: Okay.
 
@@ -410,13 +410,13 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:17:48] Will: Yeah, it's hard for everybody.
 
-[00:17:49] Adam: And so often where I get my practice is when I won a when I won a level and it was saying Super Hot and I still had crap around me.
+[00:17:49] Adam: And so often where I get my practice is when I won a level and it was saying Super Hot and I still had crap around me.
 
 [00:17:49] Will: Yeah.
 
 [00:17:49] Adam: I took the opportunity to pick up everything and work on my throwing technique. And again, I'm a fairly physically intuitive human being, and I could not achieve a consistency. So it made sense to me.
 
-[00:18:10] Will: Your brain is telling you you need to throw that hard enough to actually kill someone, but all you have to do is touch them. So you can just underhanded, and it's a lot. Underhands are easier than overhands.
+[00:18:10] Will: Your brain is telling you need to throw that hard enough to actually kill someone, but all you have to do is touch them. So you can just underhanded, and it's a lot. Underhands are easier than overhands.
 
 [00:18:18] Adam: I actually had an underhanded hit with a wine bottle, hit a guy square in the chest. So slow, it bounced. It broke on him and did not get him.
 
@@ -434,7 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:18:48] Will: just a little bit. Head movements really minor compared to like or rotational movements minor compared to translational.
 
-[00:18:53] Adam: Um, and I also was shocked at the how quickly those shotgun blasts could get to you when you are throwing stuff.
+[00:18:53] Adam: And I also was shocked at the how quickly those shotgun blasts could get to you when you are throwing stuff.
 
 [00:19:00] Norm: It lets you know that you know dodging bullets is not easy.
 
@@ -442,9 +442,9 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:19:00] Norm: Even if you have control from mastery over time.
 
-[00:19:06] Adam: Um, my favorite thing was realizing that I could. Use my knife to slice bullets in half in midair.
+[00:19:06] Adam: My favorite thing was realizing that I could. Use my knife to slice bullets in half in midair.
 
-[00:19:11] Will: Yeah, you can you can use your gun to block stuff too.
+[00:19:11] Will: Yeah, you can use your gun to block stuff too.
 
 [00:19:13] Adam: I oh here's a feature I want. I want to be able to use that ashtray to deflect a bullet towards another opponent.
 
@@ -454,7 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:19:22] Will: It's not. It's not on Quest, but there's a game that's like that on.
 
-[00:19:24] Adam: But I want to do. That's what I want in Super Hot. I want to be able to do that. Um, I'd love to be able to use a mirror to see around a corner. Oh
+[00:19:24] Adam: But I want to do. That's what I want in Super Hot. I want to be able to do that. I'd love to be able to use a mirror to see around a corner. Oh
 
 [00:19:33] Unknown (Adam, Norm or Will): Oh God.
 
@@ -466,7 +466,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:19:40] Will: And you can implement this in two weeks.
 
-[00:19:42] Adam: Um, I really, really, I really enjoyed it. It's a it's an impressive game. It doesn't include the thing that I found makes me most sick in the uh in the uh in VR is any kind of like click there to move over there.
+[00:19:42] Adam: I really, really, I really enjoyed it. It's a it's an impressive game. It doesn't include the thing that I found makes me most sick in the in VR is any kind of like click there to move over there.
 
 [00:19:55] Norm: You don’t want to teleport.
 
@@ -474,11 +474,11 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:20:00] Unknown (Norm or Will): yep.
 
-[00:20:01] Will: So if the if the movement happens instantaneously. You shouldn't notice,
+[00:20:01] Will: So if the movement happens instantaneously. You shouldn't notice,
 
 [00:20:05] Adam: and I didn't.
 
-[00:20:05] Will: If they do, if they do frames,
+[00:20:05] Will: If they do frames,
 
 [00:20:05] Adam: yeah. Finish a level, and you're now 16 feet away, looking from a different angle. I didn't have a problem with that at all. I also really liked the spaces. Like, I really loved the way they. Again, it's this wonderful mix. I understand how much processing power it takes to procedurally generate this stuff.
 
@@ -490,7 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:20:28] Adam: But, sorry, the environment's not procedurally generated, but behavior of your environment is.
 
-[00:20:33] Will: Yeah. Um, that game is pretty tightly scripted. Like the characters behave more or less the same way every time.
+[00:20:33] Will: Yeah. That game is pretty tightly scripted. Like the characters behave more or less the same way every time.
 
 [00:20:38] Adam: I found characters dodging my bullets.
 
@@ -510,7 +510,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:21:09] Adam: some of those agents were very clever.
 
-[00:21:10] Will: Yeah, yeah, but but yeah, okay.
+[00:21:10] Will: Yeah, yeah, but yeah, okay.
 
 [00:21:13] Adam: I also found it funny that when you're waiting for a guy without a gun to get close, and you sit there and do this.
 
@@ -522,7 +522,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:21:26] Adam: It's anyway. Sorry,
 
-[00:21:27] Will: John Wick. That game is is um, it's a puzzle game that feels like a shooter. It's a shooter that is a puzzle game. Is what what all it is.
+[00:21:27] Will: John Wick. That game is is it's a puzzle game that feels like a shooter. It's a shooter that is a puzzle game. Is what all it is.
 
 [00:21:35] Adam: And I yeah, I loved it. I loved. So one thing that I have a difficulty with is the 3D
 
@@ -546,19 +546,19 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:22:05] Will: Yeah.
 
-[00:22:05] Adam: So I start to sweat into the mask. So I still haven't solved that exact problem because the the 3D audio is so important for the Vader game
+[00:22:05] Adam: So I start to sweat into the mask. So I still haven't solved that exact problem because the 3D audio is so important for the Vader game
 
 [00:22:05] Will: It’s so important.
 
 [00:22:05] Adam: that that I couldn't play it.
 
-[00:22:24] Will: It's it's important for all VR stuff.
+[00:22:24] Will: It's important for all VR stuff.
 
 [00:22:24] Adam: Really?
 
 [00:22:24] Will: Like if you need if if you need people to do something other than look straight ahead, then 3D sound is. Maybe you can also do like some light blurs around the edges.
 
-[00:22:34] Adam: You know, I have some of those Bose in-ear headphones.
+[00:22:34] Adam: I have some of those Bose in-ear headphones.
 
 [00:22:34] Will: Yeah.
 
@@ -578,11 +578,11 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:22:53] Adam: Oh. Ah. Interesting.
 
-[00:22:57] Will: Um. It's a yeah.
+[00:22:57] Will: It's a yeah.
 
 [00:22:59] Adam: Yeah. I'm enjoying it. I'm literally each time I've been traveling on this book tour, I've been taking the Oculus with me.
 
-[00:23:04] Will: It's it's a yeah.
+[00:23:04] Will: It's a yeah.
 
 [00:23:05] Adam: I discovered that if you charge it fully, and then you put it in your bag with some socks over the lenses so that it doesn't get scratched, those socks will make it believe that my face is in it, and it will drain that battery.
 
@@ -606,7 +606,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:25:00] Will: What do you mean?
 
-[00:25:00] Norm: They're very hoity-toity. They're they're they're calling your movie Parabellum, which means prepare for war. But like it's they take their film.
+[00:25:00] Norm: They're very hoity-toity. They're calling your movie Parabellum, which means prepare for war. But like it's they take their film.
 
 [00:25:14] Will: Para means before, doesn’t it?
 
@@ -618,7 +618,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:25:18] Will: You're saying this with a little bit of disdain in your voice, so I'm trying to figure out the point.
 
-[00:25:22] Norm: And I I didn't I didn't like that
+[00:25:22] Norm: And I I didn't like that
 
 [00:25:22] Will: you didn't like it.
 
@@ -636,13 +636,13 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:25:29] Will: I liked it a lot better than the second one. The first one is still far and away my favorite.
 
-[00:25:32] Adam: The first one blew me away. I've watched it three times now. The second one, I really and my problem with the second one is not the action, which is just as good as the first one. It's that the the narrative around the action I felt was too much. John Wick, like the first one's great because it turns out this weirdo is a god.
+[00:25:32] Adam: The first one blew me away. I've watched it three times now. The second one, I really and my problem with the second one is not the action, which is just as good as the first one. It's that the narrative around the action I felt was too much. John Wick, like the first one's great because it turns out this weirdo is a god.
 
 [00:25:49] Norm: Yeah,
 
-[00:25:49] Adam: that's that's what it seems. That's what the plot seems to be. But
+[00:25:49] Adam: that's what it seems. That's what the plot seems to be. But
 
-[00:25:52] Will: But there's a twist, and and like, the first one is good because of that twist. You're watching that movie, you have no idea what's going on. The dog gets killed,
+[00:25:52] Will: But there's a twist, and like, the first one is good because of that twist. You're watching that movie, you have no idea what's going on. The dog gets killed,
 
 [00:25:52] Adam: right?
 
@@ -652,7 +652,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:26:03] Will: And it's just like, holy shit, this is not at all what I was expecting. That is a you can't ride on that on the second movie, and they didn't.
 
-[00:26:09] Adam: No, and they and the second movie, he feels too weak to me. Actually, he feels it's it's so relentlessly on the run and being harmed that it, I, I didn't feel the same. Like I'm fascinated and thrilled by his competency, not the lack of it.
+[00:26:09] Adam: No, and they and the second movie, he feels too weak to me. Actually, he feels it's so relentlessly on the run and being harmed that it, I, I didn't feel the same. Like I'm fascinated and thrilled by his competency, not the lack of it.
 
 [00:26:26] Will: So, so for me, the second one, there were two things that I there was a couple things I liked. I like that final sequence when he comes back to New York at the end of the second movie, and he's just fighting his way through from basically Lawrence Fishburne on with the seven bullets.
 
@@ -662,7 +662,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:26:26] Adam: Agreed, agreed.
 
-[00:26:26] Will: I detest the bits. Anytime he has to go engage with somebody in that world, when he's whether the gun scene is the one that jumps out when he goes to the the sommelier in the hotel in Italy and they're talking about getting, he's like, I need something that's a little more robust,
+[00:26:26] Will: I detest the bits. Anytime he has to go engage with somebody in that world, when he's whether the gun scene is the one that jumps out when he goes to the sommelier in the hotel in Italy and they're talking about getting, he's like, I need something that's a little more robust,
 
 [00:26:26] Adam: right?
 
@@ -690,15 +690,15 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:27:20] Adam: I have not. The Korean films.
 
-[00:27:34] Norm: Uh, in uh, yeah, no, not Korean, Indonesian.
+[00:27:34] Norm: In uh, yeah, no, not Korean, Indonesian.
 
 [00:27:37] Will: Really,
 
 [00:27:38] Norm: the raid? Yeah.
 
-[00:27:38] Adam: Oh, okay. Um, sorry about that,
+[00:27:38] Adam: Oh, okay. Sorry about that,
 
-[00:27:40] Norm: it's a little bit of homework that I uh. I I will get you a copy somehow.
+[00:27:40] Norm: it's a little bit of homework that I. I will get you a copy somehow.
 
 [00:27:40] Adam: Okay.
 
@@ -722,11 +722,11 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:28:11] Unknown (speaker not established): What?
 
-[00:28:20] Norm: That's the that's the that's the system breaking down.
+[00:28:20] Norm: That's the system breaking down.
 
 [00:28:23] Adam: Yeah. And I couldn't find a. I couldn’t, I, I'm going to have to watch it because I think apparently what they were trying to do was repeat the success of that amazing hallway fight, which is also based on the raid. Is it not?
 
-[00:28:33] Norm: It. I think. I don't. I don't want to speak for the choreographers, but I think the the
+[00:28:33] Norm: It. I think. I don't. I don't want to speak for the choreographers, but I think the
 
 [00:28:37] Adam: raid has a 10 minute. Yeah. So I believe
 
@@ -744,35 +744,35 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:28:47] Adam: I am mixing up the foreign films. I am mixing up other countries' films that the US has ripped off for their brand.
 
-[00:28:53] Norm: And, and, and I don't want to say ripped off, but I do think that the choreographers do admire the work that you know.
+[00:28:53] Norm: And I don't want to say ripped off, but I do think that the choreographers do admire the work that you know.
 
-[00:28:59] Adam: Not to say that, not to say that, even taking someone else's choreography and trying to film it the same is easy.
+[00:28:59] Adam: Not to say that, even taking someone else's choreography and trying to film it the same is easy.
 
-[00:29:03] Norm: Absolutely not, but they do, you know, it's call and response, and the raid has some of the best action and best choreography and best like just elevation of sequences and increasing difficulty. And two of the actors from the raid who were also in Star Wars: The Force Awakens, I believe, they're the ones on the the ship when Han Solo.
+[00:29:03] Norm: Absolutely not, but they do, you know, it's call and response, and the raid has some of the best action and best choreography and best like just elevation of sequences and increasing difficulty. And two of the actors from the raid who were also in Star Wars: The Force Awakens, I believe, they're the ones on the ship when Han Solo.
 
 [00:29:25] Will: Oh, the monster ship.
 
-[00:29:26] Norm: The monster ship. Yep, yep. They're two of the people that, like, you know, you betrayed us one time. You last time you. Oh,
+[00:29:26] Norm: The monster ship. Yep, yep. They're two of the people that you betrayed us one time. You last time you. Oh,
 
 [00:29:31] Will: I didn't know that.
 
-[00:29:31] Norm: Yeah, they're they're also in John Wick three.
+[00:29:31] Norm: Yeah, they're also in John Wick three.
 
-[00:29:33] Will: So, are they the guys at the the the mid level bosses?
+[00:29:33] Will: So, are they the guys at the mid level bosses?
 
 [00:29:33] Norm: Yes.
 
-[00:29:33] Will: Yeah, that was a good that. Yeah, it was a good sequence. Um.
+[00:29:33] Will: Yeah, that was a good that. Yeah, it was a good sequence.
 
 [00:29:42] Adam: All right, I will see John Wick.
 
-[00:29:44] Norm: You, you should watch the Raid. Okay, the Raid Two.
+[00:29:44] Norm: You should watch the Raid. Okay, the Raid Two.
 
 [00:29:44] Adam: Yeah, let's. I'm totally looking forward to that.
 
-[00:29:47] Norm: We should talk about that. Let's discuss and you know where we think it's places in in in martial arts.
+[00:29:47] Norm: We should talk about that. Let's discuss and you know where we think it's places in martial arts.
 
-[00:29:53] Will: I feel like I feel like Dredd. I haven't seen the Raid Two. I saw the Raid.
+[00:29:53] Will: I feel like Dredd. I haven't seen the Raid Two. I saw the Raid.
 
 [00:29:55] Norm: The Raid and
 
@@ -816,7 +816,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:30:38] Norm: yeah.
 
-[00:30:38] Adam: And it's it's lovely for the camaraderie and love of kitchen.
+[00:30:38] Adam: And it's lovely for the camaraderie and love of kitchen.
 
 [00:30:52] Norm: So it turns out, born out of the making of that film, was Jon Favreau not only learning and appreciating fine cooking and it's the world of cooking, but then really getting obsessed with it.
 
@@ -830,21 +830,21 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:31:26] Norm: I'm getting hungry just thinking about it.
 
-[00:31:27] Adam: Now, I loved this sequence so much, I bought that electric plancha. It's like a $500 kitchen implement, but there is no. I'm getting chills. I described. There's no better way to make a grilled cheese sandwich. Really, you're welcome to come over any time, and we can make them together. But there's the sequence where Roy Choi is showing Favreau. He's like, okay, so you do this with the [unclear: bandages / potatoes / babies], you get this on, you get this, and then Roy lifts up the corner of a sandwich. I'm going to curse here, podcast listeners. I know it's a rarity, but it it's important in this. Roy Choi lifts up the corner of the sandwich and says to Favreau, " You see that color of brown? Your whole fucking life is in that color of brown, and it is. I I I once got to spend a week with cellist David Darling learning about how to play music from a philosophical rather than instrument perspective. I think that's the best way to describe what we went through. But at one point, David Darling said, " A musician plays a note with the quality of a human life. Like it has a beginning, a middle, and an end. It has a full living arc, and so does a song, and so does a symphony. And like, I feel like that's what Roy Choi was saying to Favreau about that. And I love, like, I've always loved that movie and those behind the scenes specifically for that.
+[00:31:27] Adam: Now, I loved this sequence so much, I bought that electric plancha. It's like a $500 kitchen implement, but there is no. I'm getting chills. I described. There's no better way to make a grilled cheese sandwich. Really, you're welcome to come over any time, and we can make them together. But there's the sequence where Roy Choi is showing Favreau. He's like, okay, so you do this with the [unclear: bandages / potatoes / babies] you get this on, you get this, and then Roy lifts up the corner of a sandwich. I'm going to curse here, podcast listeners. I know it's a rarity, but it it's important in this. Roy Choi lifts up the corner of the sandwich and says to Favreau, " You see that color of brown? Your whole fucking life is in that color of brown, and it is. I I I once got to spend a week with cellist David Darling learning about how to play music from a philosophical rather than instrument perspective. I think that's the best way to describe what we went through. But at one point, David Darling said, " A musician plays a note with the quality of a human life. Like it has a beginning, a middle, and an end. It has a full living arc, and so does a song, and so does a symphony. And like, I feel like that's what Roy Choi was saying to Favreau about that. And I love I've always loved that movie and those behind the scenes specifically for that.
 
 [00:32:40] Norm: And that behind the scenes is what this Netflix series it's is.
 
 [00:32:40] Adam: It's all like that.
 
-[00:32:40] Norm: Well, it's revisiting. Like, Jon Favreau turns out after he made that film, he He started cooking,
+[00:32:40] Norm: Well, it's revisiting. Like, Jon Favreau turns out after he made that film, he started cooking,
 
 [00:32:40] Adam: yeah,
 
-[00:32:40] Norm: and he built out a great kitchen. It's filmed in his home kitchen, and so remember when we had Traci come over years ago and make the the omelet.
+[00:32:40] Norm: and he built out a great kitchen. It's filmed in his home kitchen, and so remember when we had Traci come over years ago and make the omelet.
 
 [00:32:40] Adam: Yeah,
 
-[00:32:40] Norm: it feels like that. But with Jon Favreau and Roy Choi, they do a whole episode where they celebrate Jonathan Gold, the food critic who passed away in L.A. Dave Chang pops up out of nowhere. It's like, what are you guys making? Oh, you guys making kimchi fried rice? Let me make some kimchi fried rice. But they revisit a lot of the foods they made for Chef. You know, they go to Franklin Barbecue in Austin. They make the grilled cheese sandwich. They make beignets. They make a cubano, and it's it's real fun. But the best part of the show is Jon Favreau is so adorably earnest because it's been years since they they made the film, and he goes, Roy, Roy, Roy, remember you taught me? I have this email. You texted. I have this email. You told me the recipe, and now I've made it like 10 times and taste it. And did I do it right? And so he's so earnest about his love and his passion for cooking, and eager and an open ear. And there's no egos. Anywhere, and that's the best kind of cooking show.
+[00:32:40] Norm: it feels like that. But with Jon Favreau and Roy Choi, they do a whole episode where they celebrate Jonathan Gold, the food critic who passed away in L.A. Dave Chang pops up out of nowhere. It's like, what are you guys making? Oh, you guys making kimchi fried rice? Let me make some kimchi fried rice. But they revisit a lot of the foods they made for Chef. They go to Franklin Barbecue in Austin. They make the grilled cheese sandwich. They make beignets. They make a cubano, and it's real fun. But the best part of the show is Jon Favreau is so adorably earnest because it's been years since they made the film, and he goes, Roy, Roy, Roy, remember you taught me? I have this email. You texted. I have this email. You told me the recipe, and now I've made it like 10 times and taste it. And did I do it right? And so he's so earnest about his love and his passion for cooking, and eager and an open ear. And there's no egos. Anywhere, and that's the best kind of cooking show.
 
 [00:33:48] Adam: I know Favreau a little bit. He came onto the set with his family, actually just just around the time Chef came out. I have a Chef Crew Challenge Coin in my Challenge Coin case, and my experience of him was exactly that: no ego at all, really, really earnest. And Hell's Bells, man, he's one of my favorite directors.
 
@@ -856,15 +856,15 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:34:15] Adam: Yeah, sometimes actors, and it was watching famous people get drunk. That was the most fun.
 
-[00:34:19] Will: Yeah, but but but like it also was devoid of that, like from his part at least, was devoid of that ego. Well, and in a lovely way.
+[00:34:19] Will: Yeah, but like it also was devoid of that, like from his part at least, was devoid of that ego. Well, and in a lovely way.
 
 [00:34:27] Adam: Now, yeah, and I always felt like Dinner for Five was this kind of lovely space because it was before Iron Man.
 
 [00:34:34] Will: Yeah, and stopped doing it when he started doing Marvel movies, as I recall.
 
-[00:34:36] Adam: Right, he had done Zathura, and I just I love. I guess what I felt was Favreau was like I am a director, but I. Can also do these other things. I can tell these other stories, and I can talk. So let me figure out mediums to do that. And as someone who's always playing around in different mediums, I felt that, like, I really loved how wide he is ranged with his with his storytelling.
+[00:34:36] Adam: Right, he had done Zathura, and I just I love. I guess what I felt was Favreau was like I am a director, but I. Can also do these other things. I can tell these other stories, and I can talk. So let me figure out mediums to do that. And as someone who's always playing around in different mediums, I felt that I really loved how wide he is ranged with his storytelling.
 
-[00:35:01] Will: Well, he he made good TV, and he made what was essentially a proto podcast,
+[00:35:01] Will: Well, he made good TV, and he made what was essentially a proto podcast,
 
 [00:35:01] Adam: right?
 
@@ -892,7 +892,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:35:36] Adam: of the last episode,
 
-[00:35:37] Will: the last two episodes of that are maybe the best two episodes of TV I've ever seen, like back to back. It was, it was just exceptional. The, the, the surprise, the, the things that the way the characters developed in those last two episodes was entirely earned based on the previous 10 episodes, and was an absolute delight to watch. And I, I don't, I have some thoughts about who she's talking to, and I don't think it's us.
+[00:35:37] Will: the last two episodes of that are maybe the best two episodes of TV I've ever seen, like back to back. It was just exceptional. The surprise, the things that the way the characters developed in those last two episodes was entirely earned based on the previous 10 episodes, and was an absolute delight to watch. And I, I don't, I have some thoughts about who she's talking to, and I don't think it's us.
 
 [00:36:06] Adam: You don't think it's us?
 
@@ -926,7 +926,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:37:12] Will: so,
 
-[00:37:13] Adam: and and what love for its characters it demonstrates with that ending with the ending of the series.
+[00:37:13] Adam: and what love for its characters it demonstrates with that ending with the ending of the series.
 
 [00:37:19] Will: Well, it was true.
 
@@ -944,19 +944,19 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:37:43] Adam: sharing the cigarette,
 
-[00:37:44] Will: sharing the cigarette and in the attic. That were just heartbreaking, and I'm I'm tearing up a little bit and getting chills at the same time. But it was it was it it felt like the kind of relationship a person can have with another person only after 30 years, 40 years of shared history, and you don't get that on TV a lot.
+[00:37:44] Will: sharing the cigarette and in the attic. That were just heartbreaking, and I'm I'm tearing up a little bit and getting chills at the same time. But it was it felt like the kind of relationship a person can have with another person only after 30 years, 40 years of shared history, and you don't get that on TV a lot.
 
 [00:38:01] Adam: I will tell you that as a parent, that show has has deeply affected me. Having two adult children now,
 
 [00:38:01] Will: yeah,
 
-[00:38:01] Adam: um, I have my experience of my children, but the show made it put such grace in the dichotomy between the way we view ourselves and the way we are viewed by the people that love us, and how those things can be radically different, and how you know people close to us might look at us as beyond recovery, and yet we can see the possibilities within ourselves. I mean, the the key moments throughout the series were always have always seemed to me always to be about kindness, the kindness of the loan officer.
+[00:38:01] Adam: I have my experience of my children, but the show made it put such grace in the dichotomy between the way we view ourselves and the way we are viewed by the people that love us, and how those things can be radically different, and how you know people close to us might look at us as beyond recovery, and yet we can see the possibilities within ourselves. I mean, the key moments throughout the series were always have always seemed to me always to be about kindness, the kindness of the loan officer.
 
 [00:38:45] Will: Yeah,
 
-[00:38:45] Adam: in the two spaces he shows up in the in the in the show, and what a weird and wonderful character. Well,
+[00:38:45] Adam: in the two spaces he shows up in the show, and what a weird and wonderful character. Well,
 
-[00:38:51] Will: the the kindness of Fleabag, in the end when she's kind of when she comes in and is trying to settle things with her soon to be stepmom, and gets it like oh the stepmom is such a wonderful character
+[00:38:51] Will: the kindness of Fleabag, in the end when she's kind of when she comes in and is trying to settle things with her soon to be stepmom, and gets it like oh the stepmom is such a wonderful character
 
 [00:38:51] Adam: Olivia Colman. Oh my god.
 
@@ -964,7 +964,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:39:06] Adam: she says Olivia Colman says there's not a sentence that comes did I say this last week
 
-[00:39:11] Will: Yeah, you did there's there's there's one sense when you first meet her she's not immediately horrible because I was I was waiting for that like that doesn't start until midway through the first season that's hilarious but so I was watching that and at first I thought that that show was about trying to make a character that is as unlikable as possible that the that the audience still likes because you you you like the character even when you find out the the depths to which she’s sunk.
+[00:39:11] Will: Yeah, you did there's there's there's one sense when you first meet her she's not immediately horrible because I was waiting for that like that doesn't start until midway through the first season that's hilarious but so I was watching that and at first I thought that that show was about trying to make a character that is as unlikable as possible that the audience still likes because you like the character even when you find out the depths to which she’s sunk.
 
 [00:39:34] Adam: and they give her some really interesting things right she's a paint she's a shitbird but she's a painter and she's an excellent painter
 
@@ -974,7 +974,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:39:34] Will: yeah.
 
-[00:39:34] Adam: Right, like that. That's a lovely thing to do—to to give a character that level of complexity.
+[00:39:34] Adam: Right, like that. That's a lovely thing to do—to give a character that level of complexity.
 
 [00:39:47] Will: And she clearly loves the husband or the the father for for good reasons.
 
@@ -986,7 +986,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:39:58] Will: Fleabag. They call her Fleabag.
 
-[00:39:59] Adam: They call her Fleabag in the closed captions. Yeah. And because it's in, because it's from the British Isles, I have to watch it with closed captioning on. And so you get to see that the godmother is only listed as the godmother. Dad is dad. And at one point, the godmother tries to introduce the dad, and she can't say his name. So what is the what is the significance of who gets and doesn't get names within the show?
+[00:39:59] Adam: They call her Fleabag in the closed captions. Yeah. And because it's in, because it's from the British Isles, I have to watch it with closed captioning on. And so you get to see that the godmother is only listed as the godmother. Dad is dad. And at one point, the godmother tries to introduce the dad, and she can't say his name. So what is the significance of who gets and doesn't get names within the show?
 
 [00:40:22] Will: The character.
 
@@ -1032,11 +1032,11 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:40:53] Adam: My only issue with the series is he's a little too venal for me in the second season. He's like unrelentingly dark and kind of the degree to which he and Fleabag seek to harm each other, I found really upsetting. Actually, not not exhausting. Actually, just upsetting.
 
-[00:41:10] Will: I I mean, I think
+[00:41:10] Will: I mean, I think
 
 [00:41:10] Adam: That was my only issue with him.
 
-[00:41:13] Will: Having never been through a divorce personally. I don't know what that experience is like, but I can see. I mean, that came from a place of of a sad, angry man.
+[00:41:13] Will: Having never been through a divorce personally. I don't know what that experience is like, but I can see. I mean, that came from a place of a sad, angry man.
 
 [00:41:13] Adam: Yeah,
 
@@ -1048,7 +1048,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:41:22] Adam: but I believe there's a purpose behind that, and I'm I'm curious about what it might be.
 
-[00:41:36] Will: I mean, if you think about it, the people that have names. The people that don't have names have titles that are self-descriptive, right? So, like, you know, her dad is her dad, her godmother is her godmother/
+[00:41:36] Will: I mean, if you think about it, the people that have names. The people that don't have names have titles that are self-descriptive, right? So you know, her dad is her dad, her godmother is her godmother/
 
 [00:41:36] Adam: right?
 
@@ -1066,7 +1066,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:42:02] Norm: Don't have an answer.
 
-[00:42:03] Adam: Yeah. So this is an open question. I'd love to see your your your ideas in the comments.
+[00:42:03] Adam: Yeah. So this is an open question. I'd love to see your ideas in the comments.
 
 [00:42:08] Norm: And what do you think about the fox? What does the fox represent?
 
@@ -1084,7 +1084,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:42:38] Will: Yeah. Anything that challenges him, it seems.
 
-[00:42:40] Adam: And so I think. It might be the the i it's very yeah I haven't yet fully unpacked in my head the narrative grid of the way she deals with her own sexuality and also the priest deals with his own sexuality and the way they deal with their sexuality to each other. It's such a fascinating set of portraits.
+[00:42:40] Adam: And so I think. It might be the i it's very yeah I haven't yet fully unpacked in my head the narrative grid of the way she deals with her own sexuality and also the priest deals with his own sexuality and the way they deal with their sexuality to each other. It's such a fascinating set of portraits.
 
 [00:42:58] Will: The turn when her dad says, " That's why you're so that's why you're so hurt by it." When they're talking about love, you
 
@@ -1098,11 +1098,11 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:43:11] Adam: yeah.
 
-[00:43:11] Will: And then, and then, yeah. Anyway,
+[00:43:11] Will: And then, yeah. Anyway,
 
 [00:43:14] Adam: it was those oh those moments of grace between dad and flea bag are really are you're right. They're super super moving.
 
-[00:43:22] Will: Well, because and it's made it's made that that that is made stronger by the fact that in the early parts of the show, when her dad comes to confront her about stealing the statue, he's just like, " Well, that's all I can do." I clearly have no relationship with this woman, and and and and then as it goes on, it becomes clear that they really everybody everybody involved really loves each other except maybe the stepmother.
+[00:43:22] Will: Well, because and it's made that that that is made stronger by the fact that in the early parts of the show, when her dad comes to confront her about stealing the statue, he's just like, " Well, that's all I can do." I clearly have no relationship with this woman, and then as it goes on, it becomes clear that they really everybody everybody involved really loves each other except maybe the stepmother.
 
 [00:43:45] Adam: But dad deserves to be happy. He's right.
 
@@ -1114,13 +1114,13 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:43:51] Adam: I've watched the first season twice, and I plan to watch it again. I really can't get enough of this show.
 
-[00:44:15] Will: Um, and this is it's it's over.
+[00:44:15] Will: And this is it's over.
 
 [00:44:17] Adam: Yeah, that's it.
 
 [00:44:18] Will: She walks away. She waves to us.
 
-[00:44:19] Adam: She's all done. And I mean, the the second season is maybe one of the best six episodes of television I've seen in ages.
+[00:44:19] Adam: She's all done. And I mean, the second season is maybe one of the best six episodes of television I've seen in ages.
 
 [00:44:26] Will: Like God bless England, because if this was made when they make when they remake this for the United States, it's going to be 12 seasons.
 
@@ -1166,7 +1166,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:45:45] Norm: Enjoy your time off.
 
-[00:45:47] Adam: Thank you. We will. Uh, it it it it's a long time coming. It's been a very very busy year. I just a last thing. I trammed my mill yesterday, which is something if you own a mill, you've got to tune it in.
+[00:45:47] Adam: Thank you. We will. It it's a long time coming. It's been a very very busy year. I just a last thing. I trammed my mill yesterday, which is something if you own a mill, you've got to tune it in.
 
 [00:45:47] Unknown (Will or Norm): That sounds filthy.
 
@@ -1174,13 +1174,13 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:45:47] Will: Oh wow!
 
-[00:45:47] Adam: Yeah, it's been a while. So you know, part of the vacation is going to be coming in here for a couple hours at a time to kind of reconnect with the space and kind of get to know it again.
+[00:45:47] Adam: Yeah, it's been a while. So part of the vacation is going to be coming in here for a couple hours at a time to kind of reconnect with the space and kind of get to know it again.
 
 [00:46:28] Will: Hey, shout out to Simone who made an amazing video.
 
 [00:46:31] Adam: Dude, Truckla video.
 
-[00:46:32] Will: Uh, she did something. She she made a small modification to her Tesla Model 3.
+[00:46:32] Will: She did something. She made a small modification to her Tesla Model 3.
 
 [00:46:32] Unknown (Adam or Will): Unbelievable.
 

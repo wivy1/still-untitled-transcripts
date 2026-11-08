@@ -18,7 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:00:15] Will: He can't. He can't follow the contraction scheme.
 
-[00:00:17] Adam: The the the the that lovely. So I'm going to take the idea of the contraction and segue right away into the podcasts that I'm cheating on you guys with.
+[00:00:17] Adam: The that lovely. So I'm going to take the idea of the contraction and segue right away into the podcasts that I'm cheating on you guys with.
 
 [00:00:26] Will: Yeah, I came in and was like, " Man, I've really been enjoying your your bullshit cheater podcast that you're podcasting with other people." But that's fine.
 
@@ -40,11 +40,11 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:00:50] Will: DC Fontana.
 
-[00:00:52] Adam: I mean, every every one of these interviews was so yeah, it was awesome. Like I, I don't want to gush too much. I did a lot of press about it. I'm really proud of how the how the interviews went. I would keep doing this show for a long time. Like if sci fi wants, hey sci fi, if you want to keep going, don't don't let's totally make that deal.
+[00:00:52] Adam: I mean, every every one of these interviews was so yeah, it was awesome. Like I, I don't want to gush too much. I did a lot of press about it. I'm really proud of how the interviews went. I would keep doing this show for a long time. Like if sci fi wants, hey sci fi, if you want to keep going, don't don't let's totally make that deal.
 
-[00:01:09] Will: Don't put all your cards out on the table. You gotta you gotta you gotta kind of side eye him a little bit, kind of just be like,
+[00:01:09] Will: Don't put all your cards out on the table. You gotta kind of side eye him a little bit, kind of just be like,
 
-[00:01:15] Adam: just to say, it was straight up straight up fun. My team was amazing. Was really great.
+[00:01:15] Adam: just to say, it was straight up fun. My team was amazing. Was really great.
 
 [00:01:19] Will: Much better than the chuckleheads over here.
 
@@ -64,9 +64,9 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:01:44] Adam: Makes a huge difference.
 
-[00:01:44] Will: It makes a huge difference. Like like Zencastr and stuff. There are good solutions that work around the remote thing, but it's still not quite the same.
+[00:01:44] Will: It makes a huge difference. Like Zencastr and stuff. There are good solutions that work around the remote thing, but it's still not quite the same.
 
-[00:02:00] Adam: I mean, look, I wouldn't mind a Skype picture of the person. There is a way in which I notice that my affect is tamped down on a phone call that when it isn't in in the room. One of my favorite notes I kept on getting from my producer Jennifer on the Syfy Origin Stories podcast was she kept on holding up signs going less technical detail. And not because Syfy is afraid of technical detail, not by any stretch of the imagination. But there was a couple like when I was interviewing John Knoll, we went way down a rabbit hole.
+[00:02:00] Adam: I mean, look, I wouldn't mind a Skype picture of the person. There is a way in which I notice that my affect is tamped down on a phone call that when it isn't in the room. One of my favorite notes I kept on getting from my producer Jennifer on the Syfy Origin Stories podcast was she kept on holding up signs going less technical detail. And not because Syfy is afraid of technical detail, not by any stretch of the imagination. But there was a couple like when I was interviewing John Knoll, we went way down a rabbit hole.
 
 [00:02:32] Will: Inventor of Knolling.
 
@@ -84,7 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:02:48] Will: Yep. Yeah.
 
-[00:02:49] Adam: John is a is a legend, and John and I were actually at a party last weekend together. Not together, but we were at the same party, and someone walked up to the pair of us and said, " So, what do you guys do?" There was this long pause, and I said, " I wrote Photoshop," and John went, " And I used to host Mythbusters."
+[00:02:49] Adam: John is a legend, and John and I were actually at a party last weekend together. Not together, but we were at the same party, and someone walked up to the pair of us and said, " So, what do you guys do?" There was this long pause, and I said, " I wrote Photoshop," and John went, " And I used to host Mythbusters."
 
 [00:03:06] Norm: That's amazing. That's so awesome.
 
@@ -96,21 +96,21 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:03:38] Will: they want, I mean, I hope I would hope with your network of people they would come in and say, pick your 25 favorite science fiction people, right?
 
-[00:03:46] Adam: It wasn't even like that. They were just like, we don't have, we don't want to impose any. Outside thing on this, we want to work it out with you, and so I, you know, I called up the people that I knew, people like Jonathan Frakes and Neil Gaiman, and you know the guys at ILM, Doug Chiang, John, John Knoll,
+[00:03:46] Adam: It wasn't even like that. They were just like, we don't have, we don't want to impose any. Outside thing on this, we want to work it out with you, and so I I called up the people that I knew, people like Jonathan Frakes and Neil Gaiman, and you know the guys at ILM, Doug Chiang, John, John Knoll,
 
 [00:04:04] Norm: Rick Baker,
 
-[00:04:05] Adam: and then they brought in people like D.C. Fontana, Nnedi Okorafor, Sana Amanat, and like these interviews were so so invigorating, and because those folks weren't on my first list radar, for me it was like this awesome treat of getting to unpack these these other ways of looking at the same thing that I love. Right? I sit down with with with Doug Chiang, and it's not like I know exactly where it's going to go, but I I understand the territory. You know, I know Doug, and
+[00:04:05] Adam: and then they brought in people like D.C. Fontana, Nnedi Okorafor, Sana Amanat, and like these interviews were so so invigorating, and because those folks weren't on my first list radar, for me it was like this awesome treat of getting to unpack these these other ways of looking at the same thing that I love. Right? I sit down with Doug Chiang, and it's not like I know exactly where it's going to go, but I I understand the territory. I know Doug, and
 
 [00:04:05] Will: we've a working relationship.
 
-[00:04:05] Adam: Yeah. Um. So for me, it was just there. There's equal parts of awesome in some of the interviews of people that I knew as much as the people I didn't know.
+[00:04:05] Adam: Yeah. So for me, it was just there. There's equal parts of awesome in some of the interviews of people that I knew as much as the people I didn't know.
 
-[00:04:44] Will: But like somebody like DC Fontana comes in. And like she, she, she, right? Yeah, I never, I never, I was, I was like, she's one of the early women writing Star Trek,
+[00:04:44] Will: But somebody like DC Fontana comes in. And she, right? Yeah, I never, I was like, she's one of the early women writing Star Trek,
 
 [00:04:44] Adam: Totally.
 
-[00:04:44] Will: and and so she was there when science fiction was still a super, super small, like edge case niche, and then watched it become this massive mainstream thing where the science fiction movies are making billions of dollars every year.
+[00:04:44] Will: and so she was there when science fiction was still a super, super small, like edge case niche, and then watched it become this massive mainstream thing where the science fiction movies are making billions of dollars every year.
 
 [00:05:06] Adam: My favorite bit of comeuppance that I got was in my interview with DC, as I said, so you worked on the original Star Trek in the '60s, and then of course you worked on the reboot about the Next Generation, and she went, she basically went stop right there. Yeah, there was an animated Star Trek series. I was like, yeah, no, I know about that. She's like, right, none of the writers or any of the production staff of Star Trek considered that anything less than a full blown reboot of Star Trek was the same writers room, the same complexity of plots and same, same complexity of character development, just happened to be animated. So she was really clear that within the canon of Star Trek, the animated series belongs after the TOS, and that was really cool to me. I didn't expect that.
 
@@ -126,13 +126,13 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:05:53] Unknown speaker: Yeah.
 
-[00:05:53] Will: and then the animated series literally picks up like it's the five year mission. It's the it's the holes filled in the five year mission.
+[00:05:53] Will: and then the animated series literally picks up like it's the five year mission. It's the holes filled in the five year mission.
 
 [00:05:53] Adam: Right, right,
 
-[00:05:53] Will: and it's it's really well done. Like it's really well done. Animation's a little janky by modern standards, but
+[00:05:53] Will: and it's really well done. Like it's really well done. Animation's a little janky by modern standards, but
 
-[00:06:17] Adam: I loved the creator being so proud of the creation and like, like as soon as she said that, I'm never gonna let that one slide. Like that, it totally belongs within that. Canon.
+[00:06:17] Adam: I loved the creator being so proud of the creation and like as soon as she said that, I'm never gonna let that one slide. Like that, it totally belongs within that. Canon.
 
 [00:06:26] Norm: And that's a perspective that you're gonna get from the writer in the writer's room and the fact that this was a selection of people who were writers, actors, creators, directors,
 
@@ -144,11 +144,11 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:06:26] Norm: different their relationships, different across different timelines.
 
-[00:06:45] Adam: And I, you know, sorry, go ahead.
+[00:06:45] Adam: And I sorry, go ahead.
 
-[00:06:46] Norm: No, and and it just you can talk about the same topic. From so many different directions, so different ways.
+[00:06:46] Norm: No, and it just you can talk about the same topic. From so many different directions, so different ways.
 
-[00:06:51] Adam: Absolutely, and there, of course, in a lot of the early tweets this weekend when this went live, people were like, " How did you not interview so and so? How did you how did you miss so and so?" And the answer is, like, when you make a list of 15 people to try and cover the scope of science fiction, you're going to lose. There's nothing you can possibly do. I could host this podcast for 20 years and not not hit everybody.
+[00:06:51] Adam: Absolutely, and there, of course, in a lot of the early tweets this weekend when this went live, people were like, " How did you not interview so and so? How did you how did you miss so and so?" And the answer is when you make a list of 15 people to try and cover the scope of science fiction, you're going to lose. There's nothing you can possibly do. I could host this podcast for 20 years and not not hit everybody.
 
 [00:07:14] Will: There's an infinity of people.
 
@@ -156,11 +156,11 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:07:16] Will: Yeah,
 
-[00:07:16] Norm: and it would be. I think it would it would miss the point to just just get the 15 people that immediately come to mind,
+[00:07:16] Norm: and it would be. I think it would miss the point to just just get the 15 people that immediately come to mind,
 
 [00:07:16] Adam: Right?
 
-[00:07:16] Norm: For for sci-fi fans.
+[00:07:16] Norm: For sci-fi fans.
 
 [00:07:25] Adam: Well, and obviously we're interviewing people, many of whom are actively working constantly, and so the scheduling because there were lots of people on our list who said yes, yes, they wanted to do it, but we couldn't find the time. We couldn't coordinate with Jordan Vogt-Roberts directed Kong. I really wanted him, and we had a great conversation at Comic Con.
 
@@ -178,7 +178,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:07:50] Will: What like what's your like I go through and listen to podcasts that they do with other people because it's always like if you do a 40 minute podcast with somebody, you're going to get past the first five minutes of interview questions. I'm kind of curious what your prep process is for a show like that.
 
-[00:08:28] Adam: It's multifold. On one level, yes, I usually listen to like three mainstream interviews with that person to hear the five questions they always get, and those look. I want I want to service the fans, and I want to make sure we cover territory that's necessary in order to get to the deeper stuff. And if it's a question they constantly get, and they got a great story, I'll ask that question, or I'll ask it in a slightly different way to try and get a different answer. But you know, I I don't mind getting the same question as a person being interviewed. So yeah, that's the beginning.
+[00:08:28] Adam: It's multifold. On one level, yes, I usually listen to like three mainstream interviews with that person to hear the five questions they always get, and those look. I want to service the fans, and I want to make sure we cover territory that's necessary in order to get to the deeper stuff. And if it's a question they constantly get, and they got a great story, I'll ask that question, or I'll ask it in a slightly different way to try and get a different answer. But I I don't mind getting the same question as a person being interviewed. So yeah, that's the beginning.
 
 [00:08:28] Will: Okay.
 
@@ -192,15 +192,15 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:09:40] Will: You can always tell which ones are norms.
 
-[00:09:41] Adam: And and even just the difference of the flavor of those gives me new directions to think about. In reality, when I sit down to an interview, I've read over the questions enough that I pretty much don't look at the sheet throughout the whole interview.
+[00:09:41] Adam: And even just the difference of the flavor of those gives me new directions to think about. In reality, when I sit down to an interview, I've read over the questions enough that I pretty much don't look at the sheet throughout the whole interview.
 
 [00:09:54] Will: Right.
 
-[00:09:55] Adam: But it gives me it gives me landscapes and places to go.
+[00:09:55] Adam: But it gives me landscapes and places to go.
 
-[00:09:59] Will: Well, it's it's it's both a comfort in that if you have a lull and you don't know where to go next, you have a new jumping off point. But
+[00:09:59] Will: Well, it's both a comfort in that if you have a lull and you don't know where to go next, you have a new jumping off point. But
 
-[00:09:59] Unknown speaker: But but like—
+[00:09:59] Unknown speaker: But like—
 
 [00:10:05] Adam: oh my god, the lull! I spend all the time interviewing, just absolutely fucking terrified. I'm gonna run. I'm gonna have nothing to fill the next space.
 
@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:10:20] Will: Well, but and sometimes sometimes having the giving the room that moment like gives the person you're talking to, you know, it's uncomfortable for people on both sides, right? So so you you have that that gives them an opportunity to kind of jump in if they've had something they wanted to hit that you haven't given them an opportunity to get to, and sometimes that's the best stuff, right? Like
 
-[00:10:38] Adam: this is true. This is totally true. Um, and it's different if they're on the phone and I'm sitting there and I'm like doodling, which is kind of one of the ways I listen. I'll sit there and doodle and I'll like mark off which questions I've asked to kind of give myself a sense of the landscape. And I can see questions coming because I can look down. But if I'm in person with someone, I don't want to take that pause and go. That's great. Hey, so what about that thing that time? So I'm very sensitive to the the actual conversational dynamic of two people in a room together. And I like you know it's
+[00:10:38] Adam: this is true. This is totally true. And it's different if they're on the phone and I'm sitting there and I'm like doodling, which is kind of one of the ways I listen. I'll sit there and doodle and I'll like mark off which questions I've asked to kind of give myself a sense of the landscape. And I can see questions coming because I can look down. But if I'm in person with someone, I don't want to take that pause and go. That's great. Hey, so what about that thing that time? So I'm very sensitive to the actual conversational dynamic of two people in a room together. And I like you know it's
 
 [00:11:12] Norm: and it's okay to go
 
@@ -232,7 +232,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:11:48] Adam: Well, so
 
-[00:11:49] Will: I'm I'm making a joke about our. President, our Commander in Chief, talking through the moment of silence this morning.
+[00:11:49] Will: I'm making a joke about our. President, our Commander in Chief, talking through the moment of silence this morning.
 
 [00:11:56] Unknown speaker: Right, really?
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:12:01] Adam: How big this crowd is!
 
-[00:12:02] Will: What a what a fantastic group of people we have here!
+[00:12:02] Will: What a fantastic group of people we have here!
 
 [00:12:04] Adam: It's actually also my anniversary today.
 
@@ -310,7 +310,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:14:23] Will: Yeah, yeah. I'm I'm not going to see my I mean my second billion. I got 10 years on, still 12 years on.
 
-[00:14:28] Norm: I like I like counting the days and seconds because if you count them in days, like how long your life is in days, it's not that many.
+[00:14:28] Norm: I like counting the days and seconds because if you count them in days, like how long your life is in days, it's not that many.
 
 [00:14:34] Adam: We've only been together for 156 months.
 
@@ -320,7 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:14:38] Unknown speaker: Yeah.
 
-[00:14:38] Will: So so this this seconds thing though is one of my favorite science fiction tropes. Like when you think about an interstellar civilization, days are meaningless, right? Because days are based around the orbit of one particular the rotation one particular planet around one particular sun. So really. The way to think about days is in terms of kiloseconds, right? So, like, if you look at like the Iain Banks culture novels, which are my all-time favorite science fiction novels, or I think this Charlie Stross post-singularity stuff does this too. It's all kiloseconds, which requires a
+[00:14:38] Will: So so this seconds thing though is one of my favorite science fiction tropes. Like when you think about an interstellar civilization, days are meaningless, right? Because days are based around the orbit of one particular the rotation one particular planet around one particular sun. So really. The way to think about days is in terms of kiloseconds, right? So if you look at like the Iain Banks culture novels, which are my all-time favorite science fiction novels, or I think this Charlie Stross post-singularity stuff does this too. It's all kiloseconds, which requires a
 
 [00:15:08] Adam: 1,000 seconds per hour.
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:15:37] Will: But yeah,
 
-[00:15:44] Norm: and and chose that arbitrarily as, but it's universal constant.
+[00:15:44] Norm: and chose that arbitrarily as, but it's universal constant.
 
 [00:15:47] Will: Yeah.
 
@@ -358,15 +358,15 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:15:55] Will: Cool.
 
-[00:15:55] Adam: And it's been it's been a reasonably busy yet quiet day. I don't know how to explain it better than that.
+[00:15:55] Adam: And it's been a reasonably busy yet quiet day. I don't know how to explain it better than that.
 
-[00:16:06] Will: Yeah. I mean, I think I think that the best case for you on quiet days is that it's busy yet.
+[00:16:06] Will: Yeah. I mean, I think that the best case for you on quiet days is that it's busy yet.
 
 [00:16:11] Adam: I got some shit done today.
 
 [00:16:12] Norm: It's so funny because the past two podcasts we've talked about projects that we have not filmed. Right. We'll do some filming here and there around, and I think we're going to talk about another one today. You have on table.
 
-[00:16:21] Adam: Oh yes, yes the the the DL 44 blaster. You
+[00:16:21] Adam: Oh yes, yes the DL 44 blaster. You
 
 [00:16:25] Will: guys did one of these a few years ago. We
 
@@ -374,7 +374,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:16:36] Will: Norm Norm spent a long time collecting the parts to do that, as I recall.
 
-[00:16:39] Adam: Um. So this is my build, and Norm turned me on to a company selling an all aluminum airsoft version of a DL 40 of a of a broomhandle Mauser.
+[00:16:39] Adam: So this is my build, and Norm turned me on to a company selling an all aluminum airsoft version of a DL 40 of a broomhandle Mauser.
 
 [00:16:50] Norm: Dave Goldberg sent me the tip. A friend who was the VFX supervisor on Con Air.
 
@@ -406,9 +406,9 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:17:38] Adam: Yeah. So these came from a replica props forum run. Oh,
 
-[00:17:43] Norm: okay. And they're they're milled.
+[00:17:43] Norm: okay. And they're milled.
 
-[00:17:44] Adam: They're milled. I sanded them, stained them, and then lacquered them. But the the aluminum Mauser came with the front shroud that is pre-blacked and a scope, which while it does not have the letters etched on it,
+[00:17:44] Adam: They're milled. I sanded them, stained them, and then lacquered them. But the aluminum Mauser came with the front shroud that is pre-blacked and a scope, which while it does not have the letters etched on it,
 
 [00:17:44] Norm: Right.
 
@@ -418,11 +418,11 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:18:06] Adam: I think this is a darn good looking side arm.
 
-[00:18:08] Will: That’s a lovely arm. Yeah, I mean, as your as your
+[00:18:08] Will: That’s a lovely arm. Yeah, I mean, as your
 
 [00:18:11] Adam: sorry for putting it down on the table, pointed at your belly,
 
-[00:18:13] Will: your gun, your gun safety there. Years on MythBusters. It's totally worn off. I can see.
+[00:18:13] Will: your gun safety there. Years on MythBusters. It's totally worn off. I can see.
 
 [00:18:17] Norm: It's really funny because you posted something on Twitter. You now have three.
 
@@ -454,13 +454,13 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:18:48] Norm: Yeah,
 
-[00:18:53] Will: it's the coolest. I mean, look, Blade Runner gun is amazing, and it's lovely, and yours is exceptional. But this is the this is the one that I grew up with, my finger pointing and shooting at people in my backyard,
+[00:18:53] Will: it's the coolest. I mean, look, Blade Runner gun is amazing, and it's lovely, and yours is exceptional. But this is the one that I grew up with, my finger pointing and shooting at people in my backyard,
 
-[00:19:03] Adam: and being able to take this, you know, this knob and weather it down until you can see the the brass, and take some steel wool to the front of this and really fine tune it is a deep pleasure.
+[00:19:03] Adam: and being able to take this, you know, this knob and weather it down until you can see the brass, and take some steel wool to the front of this and really fine tune it is a deep pleasure.
 
 [00:19:15] Will: What changes the Empire one? It's a silver. It's a silver [unclear: light / shot, right?].
 
-[00:19:19] Adam: There's like six different blasters that he carries throughout the movies. There are so many variants that it's it's it's nearly arbitrary. I haven't even been able to wrap my head around all the particulars of all the variants.
+[00:19:19] Adam: There's like six different blasters that he carries throughout the movies. There are so many variants that it's nearly arbitrary. I haven't even been able to wrap my head around all the particulars of all the variants.
 
 [00:19:34] Norm: Laser disc.
 
@@ -470,7 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:19:45] Norm: and of course where I am when the new movie comes out. It's gotta be in the film, right? I mean, I guess he the
 
-[00:19:51] Adam: new the Force Awakens one, the Force Awakens one is a MGC base DL 44,
+[00:19:51] Adam: new the Force Awakens one is a MGC base DL 44,
 
 [00:19:58] Norm: and which is also different than the one they used in like the poster,
 
@@ -482,7 +482,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:20:07] Will: You guys are incredible nerds.
 
-[00:20:10] Norm: Yes, the answer is yes. But with the upcoming film, you know, they they had to make one for the film and have it be as issued probably, or in the in the books. You know, the idea is that he cobbled it and he modified it to have the fastest, the fastest release.
+[00:20:10] Norm: Yes, the answer is yes. But with the upcoming film they had to make one for the film and have it be as issued probably, or in the books. You know, the idea is that he cobbled it and he modified it to have the fastest release.
 
 [00:20:10] Will: Like hair trigger?
 
@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:20:44] Adam: Wow!
 
-[00:20:46] Will: Have you guys talked about? Have you Have you guys talked about the thing that I can't remember what I was going to ask now?
+[00:20:46] Will: Have you guys talked about? Have you guys talked about the thing that I can't remember what I was going to ask now?
 
 [00:20:46] Adam: Um, hey.
 
@@ -516,7 +516,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:20:56] Norm: I mind read him.
 
-[00:20:58] Will: You knew, you force, you force read.
+[00:20:58] Will: You knew, you force read.
 
 [00:20:59] Adam: Mind meld. Brotherly love stuff.
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:21:16] Will: It's both.
 
-[00:21:16] Norm: Now that's that's the
+[00:21:16] Norm: Now that's the
 
 [00:21:18] Will: that's the metric.
 
@@ -600,7 +600,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:22:27] Adam: How How was it working on an actual commercial production?
 
-[00:22:29] Will: So I'd never worked on an actual commercial before, and that was one of the hardest days I've ever like like. When we work on tested, it's a small crew, and it's like three or four people, and like. Shit goes wrong, and it's just kind of the way things go when you work with a small crew. And everybody's everybody's pretty chill about it, and you like roll on. On this commercial shoot, there are like 25 people there, and
+[00:22:29] Will: So I'd never worked on an actual commercial before, and that was one of the hardest days I've ever like. When we work on tested, it's a small crew, and it's like three or four people, and. Shit goes wrong, and it's just kind of the way things go when you work with a small crew. And everybody's everybody's pretty chill about it, and you like roll on. On this commercial shoot, there are like 25 people there, and
 
 [00:22:52] Adam: still a very tiny crew for commercials.
 
@@ -616,11 +616,11 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:22:53] Unknown speaker: Yeah.
 
-[00:22:53] Will: you know, because we're doing some weird experimental VR animation, and and it worked. It worked like everything worked really well. We've done two more shoots since then. We've shot four or five spots, and
+[00:22:53] Will: Because we're doing some weird experimental VR animation, and it worked. It worked like everything worked really well. We've done two more shoots since then. We've shot four or five spots, and
 
 [00:22:53] Adam: amazing,
 
-[00:22:53] Will: like the the the complexity of what we're doing with each shoot gets higher and higher. The actors who are playing the guys in the commercials are getting more and more comfortable. Like they're finding the roles, and like it's it's becoming like like we're beginning to kind of appreciate the absurdist nature of putting these you know cartoon essentially cartoon guys into these weird. Anyway, it's it's been really it's been a great learning experience. It's been really fun.
+[00:22:53] Will: like the complexity of what we're doing with each shoot gets higher and higher. The actors who are playing the guys in the commercials are getting more and more comfortable. Like they're finding the roles, and it's becoming like we're beginning to kind of appreciate the absurdist nature of putting these you know cartoon essentially cartoon guys into these weird. Anyway, it's been really it's been a great learning experience. It's been really fun.
 
 [00:23:47] Adam: God, that's awesome. That sounds like so much fun.
 
@@ -628,19 +628,19 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:24:18] Unknown speaker: That's right, football season.
 
-[00:24:19] Will: Football season started last week. Right, it was it was on, and people can like call or Skype in to talk to Carl. He has this whole big virtual set. He drinks beer. He eats he eats chicken wings, and the the so the guys who made the the original Aqua Teen are the are voicing Carl and and some of the other characters. It was really, I think it was a I've loved Adult Swim for a really really long time,
+[00:24:19] Will: Football season started last week. Right, it was on, and people can like call or Skype in to talk to Carl. He has this whole big virtual set. He drinks beer. He eats chicken wings, and the so the guys who made the original Aqua Teen are the are voicing Carl and some of the other characters. It was really, I think it was a I've loved Adult Swim for a really really long time,
 
 [00:24:19] Adam: Yeah.
 
-[00:24:19] Will: like like starting with Space Ghost. Way back when I was probably in college, still, like what they do with animation is kind of it's it's kind of like what Mike Judge did with Beavis and Butt Head and and the the the Liquid Television people were doing on MTV and the in the '90s. Like it's really fascinating. It was amazing to go in there and watch those those folks work and and get to be the tiniest little. I mean, I guess we we do animate all do all the animation, so we're not the tiniest little.
+[00:24:19] Will: Starting with Space Ghost. Way back when I was probably in college, still, like what they do with animation is kind of it's kind of like what Mike Judge did with Beavis and Butt Head and the Liquid Television people were doing on MTV and the in the '90s. Like it's really fascinating. It was amazing to go in there and watch those those folks work and get to be the tiniest little. I mean, I guess we do animate all do all the animation, so we're not the tiniest little.
 
-[00:25:09] Adam: You're getting a really awesome ringside seat to to play with these guys.
+[00:25:09] Adam: You're getting a really awesome ringside seat to play with these guys.
 
 [00:25:13] Will: Yeah,
 
 [00:25:13] Unknown speaker: It's awesome. Fabulous.
 
-[00:25:13] Will: And like you know, the the the the Dave Willis who plays Carl is like you. He basically comes in with a list of topics he's going to hit, and then just does like six minutes off the cuff on the on the topics and goes through segments. And I mean, Carl's a horrible, horrible person. Just to be clear, he's not. Dave is a lovely human being. Carl is an absolute dirt bag.
+[00:25:13] Will: And like you know, the Dave Willis who plays Carl is like you. He basically comes in with a list of topics he's going to hit, and then just does like six minutes off the cuff on the topics and goes through segments. And I mean, Carl's a horrible, horrible person. Just to be clear, he's not. Dave is a lovely human being. Carl is an absolute dirt bag.
 
 [00:25:37] Norm: Were you in Atlanta for DragonCon?
 
@@ -662,7 +662,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:25:47] Adam: I thought you would have seen Mayor McCheese there.
 
-[00:25:49] Will: All the Lyft, all the Lyft drivers were really, really like. You're not with Dragon Con, are you?
+[00:25:49] Will: All the Lyft drivers were really, really like. You're not with Dragon Con, are you?
 
 [00:25:55] Norm: You look like a Dragon Con.
 
@@ -674,7 +674,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:26:03] Adam: Their costumes ripped my leather.
 
-[00:26:04] Will: Yeah, exactly. Some guy got in and wanted. He was dressed up like a like a Ewok, and it seemed like he might not have pants on. I don't know. No one
+[00:26:04] Will: Yeah, exactly. Some guy got in and wanted. He was dressed up like a Ewok, and it seemed like he might not have pants on. I don't know. No one
 
 [00:26:13] Adam: got
 
@@ -698,7 +698,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:26:30] Will: Everything sticks to you. Why would people live here? This is all like I've gotten so good at manipulating the fans in my house in the last three weeks. It's like okay, it's below 78 degrees. Time to turn on the exhaust fans.
 
-[00:26:42] Adam: That was so weird. Thing thing two is off, and living in Los Angeles, but thing one is living in the house. And what we have now is a war of a war of of who's using who's using the Dyson fan.
+[00:26:42] Adam: That was so weird. Thing thing two is off, and living in Los Angeles, but thing one is living in the house. And what we have now is a war of who's using the Dyson fan.
 
 [00:26:55] Will: Oh,
 
@@ -732,7 +732,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:27:21] Norm: Yes,
 
-[00:27:21] Will: Scotty, she she can't take much more of this.
+[00:27:21] Will: Scotty, she can't take much more of this.
 
 [00:27:25] Norm: Talk about bad design.
 
@@ -756,13 +756,13 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:27:51] Adam: I've been to Abu Dhabi and that place is no joke. That heat is like opening an oven and walking around in it.
 
-[00:27:56] Will: At one point, at one point when I looked up and the nest was like it's 97 degrees in your office. I was like, I don't care how hot it is. I'm turning on the fan just so I feel anything. And I turned on the fan and I immediately turn it off and shut the window because it was it was literally like standing behind a bus, right? I was just like, this is this is the worst feeling. Oh, I'm gonna go open the oven up and put my head in there because it's cooler.
+[00:27:56] Will: At one point when I looked up and the nest was like it's 97 degrees in your office. I was like, I don't care how hot it is. I'm turning on the fan just so I feel anything. And I turned on the fan and I immediately turn it off and shut the window because it was literally like standing behind a bus, right? I was just like, this is the worst feeling. Oh, I'm gonna go open the oven up and put my head in there because it's cooler.
 
 [00:28:22] Unknown speaker: Yeah,
 
-[00:28:23] Will: I got more heat bits if you want them. It's it's it's bad.
+[00:28:23] Will: I got more heat bits if you want them. It's bad.
 
-[00:28:26] Adam: We we we.
+[00:28:26] Adam: We.
 
 [00:28:28] Will: I mean, we can't complain. We shouldn't be complaining about weather because the weather in other places has been a different kind of deadly and awful.
 
@@ -778,7 +778,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:28:48] Will: happy anniversary, Adam.
 
-[00:28:50] Adam: Thank you. We we have bedside tables like most people, yeah. And on the bedside table every night, put a glass of ice water.
+[00:28:50] Adam: Thank you. We have bedside tables like most people, yeah. And on the bedside table every night, put a glass of ice water.
 
 [00:28:50] Will: Yep,
 
@@ -794,15 +794,15 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:29:25] Will: So the water comes off of the glass. So
 
-[00:29:27] Adam: I go, " Yeah, I noticed that. Isn't that funny?" And she and she then goes off my wife on a like a 10 minute tirade of, " I am," she says, " when I think about holding a glass of." Of water that has moisturized to the outside of the glass, like the bottom of that glass is really pretty much maybe the cleanest thing in this room. Like it's not going anywhere. Goes from the dishwasher to get filled, and then I put it on. So how is the coaster dirty? How in what possible permutation did you get dirt from you onto a thing that no one ever needs to touch that only is ever touched by the cleanest thing in this room?
+[00:29:27] Adam: I go, " Yeah, I noticed that. Isn't that funny?" And she then goes off my wife on a like a 10 minute tirade of, " I am," she says, " when I think about holding a glass of." Of water that has moisturized to the outside of the glass, like the bottom of that glass is really pretty much maybe the cleanest thing in this room. Like it's not going anywhere. Goes from the dishwasher to get filled, and then I put it on. So how is the coaster dirty? How in what possible permutation did you get dirt from you onto a thing that no one ever needs to touch that only is ever touched by the cleanest thing in this room?
 
 [00:30:08] Will: Yes.
 
-[00:30:08] Adam: Wet new water, and we concluded that in some in some heat fevered haze, I must have taken the damp coaster and swabbed my brow with it.
+[00:30:08] Adam: Wet new water, and we concluded that in some heat fevered haze, I must have taken the damp coaster and swabbed my brow with it.
 
 [00:30:19] Unknown speaker: That’s gross. That’s amazing.
 
-[00:30:21] Unknown speaker: I mean, in fairness, you're you're you're dirty.
+[00:30:21] Unknown speaker: I mean, in fairness, you're dirty.
 
 [00:30:23] Unknown speaker: I’m a dirty boy.
 
@@ -822,7 +822,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:30:30] Norm: my dog is eating ice cubes out of my ice water at night.
 
-[00:30:33] Will: We've had so much like it's so humid. It's unusual here, but it's so humid that like the like the if you put a glass of ice water out, it's just whatever's underneath it is soaked in like four minutes now. I
+[00:30:33] Will: We've had so much like it's so humid. It's unusual here, but it's so humid that like the if you put a glass of ice water out, it's just whatever's underneath it is soaked in like four minutes now. I
 
 [00:30:44] Adam: came into the shop on the day after the first heat wave. And some of the we have a bunch of cardboard photos we've used for parties in the past, and I've hung some of them on the wall. One of them bowed to such a large degree it fell off the wall and knocked my like sorting bin of dowels off the wall. I came in to find dowels like everywhere.
 
@@ -844,15 +844,15 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:31:13] Adam: I read the books. I haven't watched the TV show,
 
-[00:31:16] Norm: but but seriously, some parts of U.S. and also U.S. Virgin Islands under serious trouble and totally worth making some donations.
+[00:31:16] Norm: but seriously, some parts of U.S. and also U.S. Virgin Islands under serious trouble and totally worth making some donations.
 
 [00:31:16] Will: Barbuda, Saint Barth.
 
 [00:31:23] Adam: Absolutely, the Red Cross makes it very easy to make donations from your phone. Text. I don't know the exact thing, but we'll put it at the end of the post.
 
-[00:31:30] Will: There's also there's also a bunch of resources that that represent local charities, specifically designed for hurricane shelters and stuff like that. You posted a good link the other night for a basketball player. I think
+[00:31:30] Will: There's also a bunch of resources that that represent local charities, specifically designed for hurricane shelters and stuff like that. You posted a good link the other night for a basketball player. I think
 
-[00:31:40] Norm: Tim Duncan from the U.S. Virgin Islands. He's matching up to $1 million. I just went. I went to my Amazon order page and I looked at on that page the things that I bought that I did not need and took that amount. And I said, okay, that's how I'm going to donate because, like, I didn't need. Why do I need those things?
+[00:31:40] Norm: Tim Duncan from the U.S. Virgin Islands. He's matching up to $1 million. I just went. I went to my Amazon order page and I looked at on that page the things that I bought that I did not need and took that amount. And I said, okay, that's how I'm going to donate because I didn't need. Why do I need those things?
 
 [00:31:40] Will: Right, right, right.
 
@@ -862,21 +862,21 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:31:57] Adam: that is really cool.
 
-[00:31:58] Will: Yeah. So, so he specifically that post. You should post that link in the show notes because it was a great post. He explained how he was there, I think, on Hurricane Hugo when he was a 13 year old, and and like how the first few weeks are the most important, especially on those islands where there aren't like where it's difficult to get things, where there's no resources, where they expect power to be out for six months in some cases.
+[00:31:58] Will: Yeah. So, so he specifically that post. You should post that link in the show notes because it was a great post. He explained how he was there, I think, on Hurricane Hugo when he was a 13 year old, and like how the first few weeks are the most important, especially on those islands where there aren't like where it's difficult to get things, where there's no resources, where they expect power to be out for six months in some cases.
 
 [00:32:18] Adam: And we're talking about places in which like 90% of the buildings on some of these islands have been decimated.
 
-[00:32:24] Will: Yeah, yeah. So, so yeah, take a look and and I mean, also this is a great time to look at your 72 hour kit and refill it and replace all the stuff that you have,
+[00:32:24] Will: Yeah, yeah. So, so yeah, take a look and I mean, also this is a great time to look at your 72 hour kit and refill it and replace all the stuff that you have,
 
-[00:32:34] Adam: making sure I I actually just double checked all the water the water jugs I keep in the house.
+[00:32:34] Adam: making sure I I actually just double checked all the water jugs I keep in the house.
 
-[00:32:39] Will: One of the things we added last year to ours is a water filtration kit because, like, you can keep enough water, but if you can clean the water that you can collect or or get from creeks or whatever, then that helps a ton.
+[00:32:39] Will: One of the things we added last year to ours is a water filtration kit because you can keep enough water, but if you can clean the water that you can collect or get from creeks or whatever, then that helps a ton.
 
 [00:32:50] Adam: I use a gravity system that for my camping. I did a lot of research of. A couple of years ago, and found that the gravity feed camping filters actually filter more water faster than almost any other specific type.
 
 [00:33:03] Will: Are these like the big canvas sacks that you just run down to the lake or creek or whatever and fill up, and then hang from a tree, and it gives you a spigot at the bottom?
 
-[00:33:09] Adam: I suppose that might be one of the form factors. The one I got, I can't remember the name of it, but it's it's about a liter, and it'll do a liter in a couple of minutes, like three or four minutes. And so it's a double bag system, so you fill one, and then it feeds into the other. And there's this way in which you handle it to make sure you don't cross contaminate.
+[00:33:09] Adam: I suppose that might be one of the form factors. The one I got, I can't remember the name of it, but it's about a liter, and it'll do a liter in a couple of minutes, like three or four minutes. And so it's a double bag system, so you fill one, and then it feeds into the other. And there's this way in which you handle it to make sure you don't cross contaminate.
 
 [00:33:27] Will: Oh, that's awesome!
 
@@ -890,7 +890,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:33:32] Adam: cool. And Burning Man was this weekend, and none of us went to Burning Man, but I got to tell you, the traffic in San Francisco was absolutely dreamy.
 
-[00:33:40] Will: I mean, Burning Man weekend is traditionally one of my favorite weekends of the year in San Francisco because it's you can you can go to brunch anywhere you want, you don't have to wait in line.
+[00:33:40] Will: I mean, Burning Man weekend is traditionally one of my favorite weekends of the year in San Francisco because it's you can go to brunch anywhere you want, you don't have to wait in line.
 
 [00:33:47] Norm: Wash your just wash your car beforehand. Absolutely, do your car wash before they get back.
 
@@ -902,7 +902,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:33:57] Norm: A bunch of stuff going on this week. I think we have a build going up this week. Adam did a infrastructure build in the cave in a place you've never seen before.
 
-[00:34:06] Will: Oh, oh, yeah. this is this is nice work.
+[00:34:06] Will: Oh, oh, yeah. this is nice work.
 
 [00:34:08] Adam: That was really
 

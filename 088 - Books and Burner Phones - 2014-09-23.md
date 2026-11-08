@@ -46,7 +46,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:00:38] Norm: Yes.
 
-[00:00:39] Will: How about how about right there? So I don't have to navigate microphones.
+[00:00:39] Will: How about right there? So I don't have to navigate microphones.
 
 [00:00:42] Norm: That's the best radio ever. There you go.
 
@@ -68,7 +68,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:01:03] Adam: Yeah.
 
-[00:01:03] Will: and the first thing I noticed as a resident of San Francisco for the last 15 years, and I haven't been kind of leisurely in another city in a while. Usually, when when Norm and I go someplace for work,
+[00:01:03] Will: and the first thing I noticed as a resident of San Francisco for the last 15 years, and I haven't been kind of leisurely in another city in a while. Usually, when Norm and I go someplace for work,
 
 [00:01:12] Adam: it’s very direct.
 
@@ -104,17 +104,17 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:02:44] Adam: But then, and I actually did read one study that said it almost doesn't matter what the restriction is as long as you have some,
 
-[00:02:51] Will: like, like, like, just in a disciplinary sense.
+[00:02:51] Will: Just in a disciplinary sense.
 
 [00:02:53] Adam: As a disciplinary sense, like when I was a kid, we couldn't watch Saturday morning cartoons past 9:30 in the morning.
 
 [00:02:59] Will: Oh, so you had to get up early.
 
-[00:03:00] Adam: We had to go out and do stuff. We couldn't watch cartoons. We couldn't watch TV until after six p.m. on weekdays. So we couldn't just come home from school and get on the the the teat, as it were.
+[00:03:00] Adam: We had to go out and do stuff. We couldn't watch cartoons. We couldn't watch TV until after six p.m. on weekdays. So we couldn't just come home from school and get on the teat, as it were.
 
 [00:03:00] Will: Yeah.
 
-[00:03:00] Adam: We had to go out and do something. And that, those are I I agree with those restrictions. And we've always had those television restrictions for the boys. And now the the digital stuff is it's been very fascinating.
+[00:03:00] Adam: We had to go out and do something. And that, those are I I agree with those restrictions. And we've always had those television restrictions for the boys. And now the digital stuff is it's been very fascinating.
 
 [00:03:23] Will: I kind of assume that the TV stuff isn't a problem anymore.
 
@@ -138,7 +138,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:03:37] Will: But like TV has become a thing that I do on a schedule. Right. But it's my schedule. Like I I watch an hour of TV twice a week, and then that's it. No, it's not something I just have on.
 
-[00:03:59] Adam: That whole thing where people are when we were kids, where you used to watch. I mean, I remember the the early '90s with Thursday night on NBC. Man,
+[00:03:59] Adam: That whole thing where people are when we were kids, where you used to watch. I mean, I remember the early '90s with Thursday night on NBC. Man,
 
 [00:04:07] Will: Friends, Seinfeld,
 
@@ -146,13 +146,13 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:04:08] Will: Yeah.
 
-[00:04:08] Adam: I mean that was that was an important. That was the line, oh, and followed by ER. That was the lineup. That was.
+[00:04:08] Adam: I mean that was an important. That was the line, oh, and followed by ER. That was the lineup. That was.
 
 [00:04:16] Norm: And when people were all watching the same thing together, and the same everyone was watching the six PM news,
 
 [00:04:16] Adam: Yeah.
 
-[00:04:16] Norm: That was your connection to the greater world, and not just your family. I noticed, I noticed, like, you live in a place where you don't have the TV is at the center of your living
+[00:04:16] Norm: That was your connection to the greater world, and not just your family. I noticed you live in a place where you don't have the TV is at the center of your living
 
 [00:04:29] Adam: No.
 
@@ -160,17 +160,17 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:04:30] Adam: In fact, actually, it's funny because while I love technology, I hate looking at it. So we only have one desktop computer in this house, and it's hidden way up in my office. I don't like seeing screens around.
 
-[00:04:41] Will: Do you have Do you have a shared TV? Like, if you and Julia and the kids want to watch a movie, do you?
+[00:04:41] Will: Do you have a shared TV? Like, if you and Julia and the kids want to watch a movie, do you?
 
-[00:04:46] Adam: We do in the living room, um, behind a cabinet. There, there is a there is a television. It's a big one, and I mean, big one. It's like 50 inches.
+[00:04:46] Adam: We do in the living room behind a cabinet. There is a television. It's a big one, and I mean, big one. It's like 50 inches.
 
 [00:04:53] Will: It's it's a it's a big one for the 2000s. It's not a big one for the 2010s.
 
-[00:04:56] Adam: Um and We'll sit. I mean, actually, now we finally got our couch back from the from the
+[00:04:56] Adam: And We'll sit. I mean, actually, now we finally got our couch back from the
 
 [00:05:02] Will: couch
 
-[00:05:03] Adam: couch cover, um, and that pit is all set up to sit, and you know, so that eight or nine people can watch a movie together because we love doing. it.
+[00:05:03] Adam: couch cover and that pit is all set up to sit, and so that eight or nine people can watch a movie together because we love doing. it.
 
 [00:05:11] Will: Yeah,
 
@@ -178,9 +178,9 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:05:11] Adam: Yeah.
 
-[00:05:11] Norm: You you you ate food and watched the TV, and the more I think about it, people, it's better to say, like. I would love living at home where you couldn’t see the TV in any of the public. spaces.
+[00:05:11] Norm: You ate food and watched the TV, and the more I think about it, people, it's better to say, like. I would love living at home where you couldn’t see the TV in any of the public. spaces.
 
-[00:05:28] Adam: Oh, see, we we this the TV we have in the kitchen here. We love it. We love turning it on at certain points. Um.
+[00:05:28] Adam: Oh, see, we this the TV we have in the kitchen here. We love it. We love turning it on at certain points.
 
 [00:05:34] Will: Well, it's nice if you're do chopping or something. I mean, I don't have a TV in the kitchen, but I see the appeal of that. Like, even if it's just to put music on.
 
@@ -188,7 +188,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:05:48] Will: was a nice segue.
 
-[00:05:49] Adam: Thank you. Um, which is a few years ago. I see. I have a phobia now because a few years ago I went to Canada, and I've probably talked about this on one of our podcasts. I went to Toronto or Montreal, Montreal. And I turned on my phone and surfed the web for a couple of hours.
+[00:05:49] Adam: Thank you. Which is a few years ago. I see. I have a phobia now because a few years ago I went to Canada, and I've probably talked about this on one of our podcasts. I went to Toronto or Montreal, Montreal. And I turned on my phone and surfed the web for a couple of hours.
 
 [00:06:05] Will: How much? How much did it cost?
 
@@ -214,7 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:06:23] Adam: Yeah.
 
-[00:06:23] Will: that's insane. You could you could do telegrams in 1910 for less than that.
+[00:06:23] Will: that's insane. You could do telegrams in 1910 for less than that.
 
 [00:06:23] Adam: Yep. Yeah, I am not kidding about the $0.10 a kilobyte. That's that's like that's a real
 
@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:06:36] Adam: I was in Montreal. I surfed the web on the computer for some research. Blah blah blah blah. And we then flew from Montreal to LA, and I remember this specifically because we stay at the Beverly Hilton, or we used to stay a lot at the Beverly Hilton because it's kind of like a old, not cool anymore hotel—
 
-[00:06:54] Will: It's a lot of red velvet, red velvet—
+[00:06:54] Will: It's a lot of red velvet—
 
 [00:06:55] Adam: and we love how kind of not cool it is, right? It means that it's quiet, and I like that. Hmm. So we're actually by the pool at the Hilton, total cliche, and my phone stops working. So I dial six one one, and she says, " Oh yes, your phone doesn't work because of your inordinately large bill." And I'm like, " I'm paid up, 100%." She's like, " Yeah, but you racked up a lot of costs. Were you in Canada yesterday?" Yeah.
 
@@ -266,13 +266,13 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:08:50] Adam: Because I, I at that point, I had 40,000 Twitter followers.
 
-[00:08:50] Will: Yeah. I, I have, I have, I'm in that neighborhood. So, like, powerful number of Twitter followers.
+[00:08:50] Will: Yeah. I have, I'm in that neighborhood. So powerful number of Twitter followers.
 
-[00:08:58] Adam: So I, I tweeted. I tweeted, uh, something along the lines of " The hell with AT&T." I just got a $12,000 bill for surfing in Canada. hashtag Something like " Screw AT&T."
+[00:08:58] Adam: So I, I tweeted. I tweeted something along the lines of " The hell with AT&T." I just got a $12,000 bill for surfing in Canada. hashtag Something like " Screw AT&T."
 
 [00:08:58] Will: Screw AT&T.
 
-[00:08:58] Adam: I, I didn't. I don't use curses. I try not to use curses in my Twitter.
+[00:08:58] Adam: I didn't. I don't use curses. I try not to use curses in my Twitter.
 
 [00:09:19] Will: You could have said " die in a fire." That's totally acceptable.
 
@@ -284,7 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:09:21] Will: Oh yeah.
 
-[00:09:21] Adam: With with websites about the bill, and then AT and T called and they said, " We can take care of this." We can make this go away.
+[00:09:21] Adam: With websites about the bill, and then AT and T called and they said, " We can take care of this." We can make this go away.
 
 [00:09:56] Will: But that’s bullshit, kind of, because like if that happened to somebody who doesn't have 20,000 Twitter followers,
 
@@ -292,21 +292,21 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:09:56] Will: It's just the middle fingers straight at you from the man.
 
-[00:10:02] Adam: I completely agree with you, but at least at least I can use the platform.
+[00:10:02] Adam: I completely agree with you, but at least I can use the platform.
 
 [00:10:05] Will: That’s true.
 
 [00:10:07] Adam: Right?
 
-[00:10:07] Norm: And and
+[00:10:07] Norm: And
 
 [00:10:08] Adam: I don't have to sign something. They didn't make me sign anything. I said I'm still going to talk about this. Is a problem. It's a problem that gets exploited every time a national border is crossed
 
-[00:10:18] Will: Or, or even if you live on. Oh, sorry, Norm. Even if you live on the border,
+[00:10:18] Will: Or even if you live on. Oh, sorry, Norm. Even if you live on the border,
 
 [00:10:18] Adam: Yeah.
 
-[00:10:18] Will: Like we we know people who live in upstate New York, and if they pick up the Rogers Tower,
+[00:10:18] Will: Like we know people who live in upstate New York, and if they pick up the Rogers Tower,
 
 [00:10:25] Adam: oh, they get really
 
@@ -374,7 +374,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:12:07] Will: Not even Windows Phone Nokia.
 
-[00:12:08] Norm: Yes, so I want to know what is the the burner Nokia phone look like today.
+[00:12:08] Norm: Yes, so I want to know what is the burner Nokia phone look like today.
 
 [00:12:13] Adam: Oh, it is. It looks like a phone that I was using 10 years ago. It is a little screen up top that's color and the crappiest resolution ever.
 
@@ -428,11 +428,11 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:13:37] Will: So you didn't have a data. You didn't have.
 
-[00:13:38] Adam: Well, no. So I guess about a week in, um, our assistant realized that we were being stupid and signed both Julia’s and my phones and the boys' phones up to international texting plans.
+[00:13:38] Adam: Well, no. So I guess about a week in our assistant realized that we were being stupid and signed both Julia’s and my phones and the boys' phones up to international texting plans.
 
 [00:13:38] Will: Oh, okay.
 
-[00:13:38] Adam: And frankly. That is phenomenal for travel because you don't really need to be calling people and being available on text to the U.S. was actually fantastic in terms of my ability to to conduct business. You know, in some parts of Australia, in New Zealand, you're five hours. You're well. It's technically you're 19 hours ahead.
+[00:13:38] Adam: And frankly. That is phenomenal for travel because you don't really need to be calling people and being available on text to the U.S. was actually fantastic in terms of my ability to conduct business. In some parts of Australia, in New Zealand, you're five hours. You're well. It's technically you're 19 hours ahead.
 
 [00:14:13] Will: Yeah.
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:14:34] Adam: Means that my midnight's your nine a.m.
 
-[00:14:36] Will: Oh, that's terrible. So, it means that nine a.m. it's like 4:30 or something. Yeah, that's that's that's that shouldn't be.
+[00:14:36] Will: Oh, that's terrible. So, it means that nine a.m. it's like 4:30 or something. Yeah, that's that shouldn't be.
 
 [00:14:42] Adam: No, so it's basically by the time I wake up, you're on your way home. By the time I go to sleep, you're arriving at work.
 
@@ -458,7 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:14:55] Adam: This is terrible.
 
-[00:14:55] Will: It's it's it's you could buy watches that did this, like I've always I've always loved the 25 hour and change watches that the that the JPL guys who are running the Martian rover missions use.
+[00:14:55] Will: It's you could buy watches that did this, like I've always loved the 25 hour and change watches that the JPL guys who are running the Martian rover missions use.
 
 [00:14:55] Adam: Oh, right.
 
@@ -466,19 +466,19 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:15:29] Adam: I appreciate that technology that's only good for one person in one place.
 
-[00:15:29] Will: Yeah. that's that's great, but the swatch internet time is that for everyone.
+[00:15:29] Will: Yeah. that's great, but the swatch internet time is that for everyone.
 
-[00:15:36] Adam: So at at at any rate, we we we it was it was weird not being able to look stuff up on the internet
+[00:15:36] Adam: So at at at any rate, we it was weird not being able to look stuff up on the internet
 
 [00:15:43] Will: immediately. Yeah,
 
-[00:15:44] Adam: that felt like it was weird at first, and then it was weird a couple of times a day after that. Well, it was also unpleasant to navigate. I think that you know, obviously, all of this will go away.
+[00:15:44] Adam: that felt like it was weird at first, and then it was weird a couple of times a day after that. Well, it was also unpleasant to navigate. I think that obviously, all of this will go away.
 
 [00:15:56] Will: That’s infrastructure.
 
 [00:15:56] Norm: By
 
-[00:15:57] Adam: the times our kids are adults, you know.
+[00:15:57] Adam: the times our kids are adults.
 
 [00:15:57] Will: You think so?
 
@@ -488,7 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:16:14] Adam: No, no, no. I just think that eventually you'll be able to sign up for a navigation plan internationally, right? So you're not just sucking down huge amounts of.
 
-[00:16:23] Will: I I don't know. I think that affects so few people because so few people travel internationally.
+[00:16:23] Will: I don't know. I think that affects so few people because so few people travel internationally.
 
 [00:16:23] Adam: Well—
 
@@ -496,7 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:16:32] Adam: The thing that really gets me is how complicated it is to turn off all the proper stuff on your phone internationally, right? Like there's like five different slider buttons of voice and data, data, cellular data, and it's like I I'm pretty savvy, and I don't know where the crossover is for some of that, and how it’ll directly affect. And it's like, come on. This is a screen that displays text. Can't you show me what each of these things does and why I'd want to click them?
 
-[00:17:02] Will: But this is this is it's Apple's in charge of that. They sell phones to dozens and or hundreds of carriers probably around the world, and the carriers it's not in the carrier's best interest to be transparent about that.
+[00:17:02] Will: But this is it's Apple's in charge of that. They sell phones to dozens and or hundreds of carriers probably around the world, and the carriers it's not in the carrier's best interest to be transparent about that.
 
 [00:17:12] Adam: No, they
 
@@ -504,11 +504,11 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:17:14] Adam: My question is totally rhetorical because I'm an angry market.
 
-[00:17:18] Will: I I
+[00:17:18] Will: I
 
 [00:17:18] Adam: participant who doesn't like getting boned.
 
-[00:17:21] Will: I don't know. I thought that when we had the the spectrum auction and that and Google ran up the price on what is now the LTE bands that Verizon uses, so that and and and in the process of that required that they be open and accessible. A lot of this stuff would go away because someone would sell a phone that taps into that network and is just a pure data phone that you hook a phone number to.
+[00:17:21] Will: I don't know. I thought that when we had the spectrum auction and that and Google ran up the price on what is now the LTE bands that Verizon uses, so that and in the process of that required that they be open and accessible. A lot of this stuff would go away because someone would sell a phone that taps into that network and is just a pure data phone that you hook a phone number to.
 
 [00:17:21] Adam: Right, right.
 
@@ -520,9 +520,9 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:17:55] Adam: it is a sad situation.
 
-[00:17:56] Will: So, you have your your burner phone, like a common drug dealer,
+[00:17:56] Will: So, you have your burner phone, like a common drug dealer,
 
-[00:17:59] Adam: and we we we come back to our rooms and use Wi Fi in the hotel
+[00:17:59] Adam: and we come back to our rooms and use Wi Fi in the hotel
 
 [00:18:04] Will: in the hotel
 
@@ -544,7 +544,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:18:25] Adam: Oh, yeah, no, no, no. I look, I know these big nice hotels that were built in the '20s are all brick and really hard to put Wi Fi signals through. And the companies, the third party companies, they contract to put the repeaters and routers everywhere. It's a nightmare. Hell with them. $35 a day is a stupid price to pay for internet.
 
-[00:18:42] Will: Yes, even even anything a day is stupid. When you are paying two hundred and fifty plus a night. If I could go to the to the Holiday Inn Express and pay $79 a night and get free Wi Fi,
+[00:18:42] Will: Yes, even even anything a day is stupid. When you are paying two hundred and fifty plus a night. If I could go to the Holiday Inn Express and pay $79 a night and get free Wi Fi,
 
 [00:18:52] Adam: fastest Wi Fi I've ever gotten in a hotel was in the one in Mojave Desert. Was the Motel in Mojave Desert?
 
@@ -562,15 +562,15 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:19:21] Will: and being present when your family's around,
 
-[00:19:23] Adam: right? And you know, it's like you're in the you're in a foreign country. Who cares how fast the Wi Fi in the hotel is? You're in another country. Get out and go do stuff. So I ended up. I read a ton of books on vacation. On vacation, okay, on the tour.
+[00:19:23] Adam: right? And it's like you're in the you're in a foreign country. Who cares how fast the Wi Fi in the hotel is? You're in another country. Get out and go do stuff. So I ended up. I read a ton of books on vacation. On vacation, okay, on the tour.
 
 [00:19:36] Will: So you say you read a ton of books. Did you take paper copies of books with you?
 
-[00:19:41] Adam: Uh, I took a couple, and yeah, I didn't read them digitally. I I read everything in a paper copy. I brought a couple and bought several while I was there,
+[00:19:41] Adam: I took a couple, and yeah, I didn't read them digitally. I read everything in a paper copy. I brought a couple and bought several while I was there,
 
 [00:19:48] Will: and left some behind. Or
 
-[00:19:50] Adam: Uh, we shipped them back.
+[00:19:50] Adam: We shipped them back.
 
 [00:19:51] Will: So I, I, like when—
 
@@ -584,7 +584,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:19:59] Adam: Yeah.
 
-[00:19:59] Will: And we were going to lay on beaches and read books and drink, you know, boat drinks. So I took a suitcase full of books with me on that trip. Like, oh, like not not like a carry on, like a big ass book. It was for Gina, I mean, a huge book of suit. And I never wanted to do that at the get at the end by the end of that because it was an enormous pain in the ass. It was a huge waste of resources because I mean it's a whole other suitcase that somebody else could have put a dog in that space or something. I don't know. And like, I have stopped being attached. I've— I thought I was I was no longer attached to the physical books.
+[00:19:59] Will: And we were going to lay on beaches and read books and drink boat drinks. So I took a suitcase full of books with me on that trip. Like, oh, like not not like a carry on a big ass book. It was for Gina, I mean, a huge book of suit. And I never wanted to do that at the get at the end by the end of that because it was an enormous pain in the ass. It was a huge waste of resources because I mean it's a whole other suitcase that somebody else could have put a dog in that space or something. I don't know. And like, I have stopped being attached. I've— I thought I was no longer attached to the physical books.
 
 [00:20:43] Adam: Yeah.
 
@@ -594,27 +594,27 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:20:44] Will: Like I miss the page turning.
 
-[00:20:47] Adam: It's funny because I was thinking this directly segues into something that I was thinking while reading one of the books I read, uh, Wild by Cheryl Strayed. Um, which is just about to be a movie starring Reese Witherspoon.
+[00:20:47] Adam: It's funny because I was thinking this directly segues into something that I was thinking while reading one of the books I read Wild by Cheryl Strayed. Which is just about to be a movie starring Reese Witherspoon.
 
 [00:20:47] Will: Okay.
 
-[00:20:47] Adam: Um, I'm— I've just got chills thinking about the book. I can't recommend it enough. Cheryl Strayed. Um, her last name isn't originally Strayed. S T R A Y E D. But when she got divorced, um, none of this is a real spoiler. Basically, she was in her early 20s and her mom died, and her she kind of had a meltdown over a few years, and her life sort of fell apart, and she her marriage dissolved. And when she was signing her divorce papers, it said, " What's your new name?" And she realized, " I can choose anything." So she wrote Strayed, Cheryl Strayed, because she considered that's what she did. She strayed from the path.
+[00:20:47] Adam: I'm— I've just got chills thinking about the book. I can't recommend it enough. Cheryl Strayed. Her last name isn't originally Strayed. S T R A Y E D. But when she got divorced none of this is a real spoiler. Basically, she was in her early 20s and her mom died, and her she kind of had a meltdown over a few years, and her life sort of fell apart, and she her marriage dissolved. And when she was signing her divorce papers, it said, " What's your new name?" And she realized, " I can choose anything." So she wrote Strayed, Cheryl Strayed, because she considered that's what she did. She strayed from the path.
 
 [00:21:39] Will: Yeah.
 
-[00:21:39] Adam: Right. Um, and, uh, it's a beautiful book. What had what happened was she kind of healed herself by walking the Pacific Crest Trail from Mojave to Washington.
+[00:21:39] Adam: Right. And it's a beautiful book. What had what happened was she kind of healed herself by walking the Pacific Crest Trail from Mojave to Washington.
 
 [00:21:50] Will: That sounds wonderful.
 
-[00:21:51] Adam: And it took her over 100 days, and it was absolutely backbreaking and grueling and transformative and. Transcendent, and the book is all of those things as well. Um, it's just
+[00:21:51] Adam: And it took her over 100 days, and it was absolutely backbreaking and grueling and transformative and. Transcendent, and the book is all of those things as well. It's just
 
 [00:22:03] Will: It's the story of the walk.
 
-[00:22:04] Adam: The story of the walk, and it's incredibly moving. And what, you know, she she overpacks her backpack; it weighs like more than half of her weight. She nicknames it " Monster." And one of the things she learns from the other hikers is that when you bring books on the trail, you burn every night the pages you've read that day.
+[00:22:04] Adam: The story of the walk, and it's incredibly moving. And what, you know, she overpacks her backpack; it weighs like more than half of her weight. She nicknames it " Monster." And one of the things she learns from the other hikers is that when you bring books on the trail, you burn every night the pages you've read that day.
 
 [00:22:04] Will: Oh wow!
 
-[00:22:04] Adam: Right, you lighten your load as you go. Right, and that is that is a key part of backpacking. But now
+[00:22:04] Adam: Right, you lighten your load as you go. Right, and that is a key part of backpacking. But now
 
 [00:22:34] Will: you just take a Kindle.
 
@@ -632,7 +632,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:22:49] Norm: When was the walk?
 
-[00:22:50] Adam: Uh, it was in the '90s that she did it.
+[00:22:50] Adam: It was in the '90s that she did it.
 
 [00:22:50] Norm: Okay.
 
@@ -640,7 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:23:00] Norm: Is that something that anyone, either any of these people, any of you guys on this table, ever want to do? A long walk across country. It's a very cliche thing to do, but it's very like there's something very enamoring about. it.
 
-[00:23:11] Adam: Well, so this is we've been talking about this person off off podcast, but, um, my wife and I have been upgrading our camping gear with the plan to do some camping this fall and winter, um, which is the optimal season for Cal— Northern California camping. Wonderful. Um, and camping, you know, gathering camping gear satisfies all of my spielkas about organization and knolling and research and everything. But also, I wanted to make sure that my my my hiking boots weren't going to kill me, so I started hiking in them, and the hiking felt really good. And so now every day for the past couple months, minus Australia, I've been strapping on a 35 pound pack and walking a couple miles every day, and it feels really really good and I'm experiencing that that euphoria from the working out that I've always heard about for the first time in my life because I kind of like I need to have a purpose. I guess maybe I'm sort of a prepper now, right?
+[00:23:11] Adam: Well, so this is we've been talking about this person off off podcast, but my wife and I have been upgrading our camping gear with the plan to do some camping this fall and winter which is the optimal season for Cal— Northern California camping. Wonderful. And camping gathering camping gear satisfies all of my spielkas about organization and knolling and research and everything. But also, I wanted to make sure that my hiking boots weren't going to kill me, so I started hiking in them, and the hiking felt really good. And so now every day for the past couple months, minus Australia, I've been strapping on a 35 pound pack and walking a couple miles every day, and it feels really really good and I'm experiencing that that euphoria from the working out that I've always heard about for the first time in my life because I kind of like I need to have a purpose. I guess maybe I'm sort of a prepper now, right?
 
 [00:24:11] Will: Hold on, but are you a robot apocalypse prepper or are you a super flu prepper?
 
@@ -664,7 +664,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:24:50] Norm: walking cross country.
 
-[00:24:51] Will: There's no danger with with. I mean. I mean, there is danger. There's more danger than sitting in your house watching TV, reruns on TV. But I mean, if you're prepared and and you know going on a long, so the longest trip I've ever done was about two weeks, um, [unclear: by bike / by that], which is kind of depending on how you how you pack. Like I pack, that's as far as I can go without having to stop and get food along the way.
+[00:24:51] Will: There's no danger with. I mean. I mean, there is danger. There's more danger than sitting in your house watching TV, reruns on TV. But I mean, if you're prepared and you know going on a long, so the longest trip I've ever done was about two weeks [unclear: by bike / by that] which is kind of depending on how you pack. Like I pack, that's as far as I can go without having to stop and get food along the way.
 
 [00:25:12] Adam: Right, right. That's that's a pretty reasonable two weeks of food is a lot of weight.
 
@@ -672,7 +672,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:25:16] Adam: Right, right.
 
-[00:25:16] Will: Um, and I and that was a summertime trip, so I basically would go with a hammock and a real light sleeping bag
+[00:25:16] Will: And I and that was a summertime trip, so I basically would go with a hammock and a real light sleeping bag
 
 [00:25:16] Adam: Oh, wow.
 
@@ -684,11 +684,11 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:25:16] Adam: Yeah.
 
-[00:25:16] Will: Um, and I like sleeping in hammocks because they're they're comfortable.
+[00:25:16] Will: And I like sleeping in hammocks because they're comfortable.
 
 [00:25:42] Adam: Yeah.
 
-[00:25:42] Will: Um, so I would I went for two weeks, and by the end of the two weeks, I, because I like that for me was the lead up to I'm graduating from college next year, and I'm gonna go I'm gonna go walk the Appalachian Trail. Maybe I'll go walk the Appalachian Trail. And that was the dry run to see if I liked walking for two weeks.
+[00:25:42] Will: So I would I went for two weeks, and by the end of the two weeks, I, because I like that for me was the lead up to I'm graduating from college next year, and I'm gonna go walk the Appalachian Trail. Maybe I'll go walk the Appalachian Trail. And that was the dry run to see if I liked walking for two weeks.
 
 [00:25:58] Adam: Right, right. And
 
@@ -696,35 +696,35 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:26:00] Adam: Yeah. Did you run into anybody else?
 
-[00:26:05] Will: Oh, I met, met tons of fascinating people. Like I met, I met. Um, so I walked from. I grew up about four miles from the trail from the AT, and I just started, um, you know.
+[00:26:05] Will: Oh, I met, met tons of fascinating people. Like I met. So I walked from. I grew up about four miles from the trail from the AT, and I just started.
 
 [00:26:15] Adam: Oh right, so I've heard the Appalachian Trail is really crowded.
 
-[00:26:18] Will: Um, it can be. It wasn't so bad then. I think now it's much much worse.
+[00:26:18] Will: It can be. It wasn't so bad then. I think now it's much much worse.
 
 [00:26:18] Adam: Yeah.
 
-[00:26:18] Will: Um, if you go in the summer, you'll there are parts like around like through DC, through Shenandoah, and all that stuff. It, it gets, as I understand it, super dense.
+[00:26:18] Will: If you go in the summer, you'll there are parts like around like through DC, through Shenandoah, and all that stuff. It gets, as I understand it, super dense.
 
 [00:26:18] Adam: Yeah.
 
-[00:26:18] Will: But like down in Georgia and up in Maine, it's you know there's still very few people. It was really it was really lovely. I don't think I'd want to do one straight through, through, you know, three. If you in order to do that in three months, you have to go really fast.
+[00:26:18] Will: But like down in Georgia and up in Maine, it's you know there's still very few people. It was really lovely. I don't think I'd want to do one straight through, through three. If you in order to do that in three months, you have to go really fast.
 
 [00:26:18] Adam: Yeah.
 
-[00:26:18] Will: Um, I think I'd like to do a month and then a month and then take some time off or or you know rent an Airbnb someplace and and then get back on the trail at the end of that two weeks or.
+[00:26:18] Will: I think I'd like to do a month and then take some time off or you know rent an Airbnb someplace and then get back on the trail at the end of that two weeks or.
 
-[00:26:53] Adam: But also, you know, maybe even do it with your family. I've, I've been. I bought the boys packs because I figured, you know, this is a good age. 15, they get some camping and some hiking. And now, um, and then when they leave home in a few years, which will be like that, they'll have a a pack for life. You know, they'll they'll have the skills to to do that. Um, every hike we did in Australia, New Zealand, Julia and I were were thinking and talking about Wild because it's so powerful. The way she writes about how the isolation is both liberating and claustrophobic. How how her feelings about the trail and her isolation on it change over the course of 100 days. How she changes.
+[00:26:53] Adam: But also maybe even do it with your family. I've been. I bought the boys packs because I figured, you know, this is a good age. 15, they get some camping and some hiking. And now and then when they leave home in a few years, which will be like that, they'll have a pack for life. They'll they'll have the skills to do that. Every hike we did in Australia, New Zealand, Julia and I were thinking and talking about Wild because it's so powerful. The way she writes about how the isolation is both liberating and claustrophobic. How how her feelings about the trail and her isolation on it change over the course of 100 days. How she changes.
 
 [00:27:38] Norm: You change day to day.
 
 [00:27:39] Adam: What's that?
 
-[00:27:39] Norm: You can, you can change day to day.
+[00:27:39] Norm: You can change day to day.
 
-[00:27:40] Adam: Absolutely, absolutely. And you know, walking through the Mojave Desert as opposed to walking on exposed ridges of Oregon mountain range. You know, where there's snow, but it's still 95 degrees, and you're blistering at the same time as you know the moment there's shade, it's freezing. It's it's a terrific read, and I I really can't recommend it enough. Definitely check that. Given that the movie's coming out, like go get it.
+[00:27:40] Adam: Absolutely, absolutely. And walking through the Mojave Desert as opposed to walking on exposed ridges of Oregon mountain range. You know, where there's snow, but it's still 95 degrees, and you're blistering at the same time as you know the moment there's shade, it's freezing. It's a terrific read, and I I really can't recommend it enough. Definitely check that. Given that the movie's coming out, like go get it.
 
-[00:28:05] Will: Get out in front of that. You don't want to. Terrific. The movie comes out bad. You know, you don't want to be. Plus,
+[00:28:05] Will: Get out in front of that. You don't want to. Terrific. The movie comes out bad. You don't want to be. Plus,
 
 [00:28:09] Norm: you don't want the copy of the book. That's a
 
@@ -760,17 +760,17 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:28:48] Will: Yeah.
 
-[00:28:50] Adam: Oh. I also read, uh, I read a. Hold on, let me see what that who I, uh, I have to see what—
+[00:28:50] Adam: Oh. I also read I read a. Hold on, let me see what that who I I have to see what—
 
-[00:29:00] Will: Yeah, yeah. We're looking things up on the internet. The mark of great podcasting. It's so, I think so, so when I went when I did, but when I did my long hike, I met people along the way. But basically, you'd stay together for a few hours or maybe an afternoon or something like that, and then you would roll. You know, you either roll on, or they'd stop someplace before you wanted to stop, or whatever. I feel like doing that as a pair. Like you don't want to go with a big group of people because you— the quiet is really good,
-
-[00:29:00] Adam: Yeah.
-
-[00:29:00] Will: And and you want to kind of get some space on the trail.
+[00:29:00] Will: Yeah, yeah. We're looking things up on the internet. The mark of great podcasting. It's so, I think so, so when I went when I did, but when I did my long hike, I met people along the way. But basically, you'd stay together for a few hours or maybe an afternoon or something like that, and then you would roll. You either roll on, or they'd stop someplace before you wanted to stop, or whatever. I feel like doing that as a pair. Like you don't want to go with a big group of people because you— the quiet is really good,
 
 [00:29:00] Adam: Yeah.
 
-[00:29:00] Will: But with a pair, you can say, you know, you can get up early. Say I'm going to take off. I'll meet you. You know, so and so. You know, at the end of the day, and you also would lose that. Hey, if I twisted my ankle right now, I would be really super fucked.
+[00:29:00] Will: And you want to kind of get some space on the trail.
+
+[00:29:00] Adam: Yeah.
+
+[00:29:00] Will: But with a pair, you can say you can get up early. Say I'm going to take off. I'll meet you. So and so. At the end of the day, and you also would lose that. Hey, if I twisted my ankle right now, I would be really super fucked.
 
 [00:29:42] Adam: Well, and frankly, if you know, and frankly,
 
@@ -780,7 +780,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:29:47] Will: Yeah. well, if you carry a tent, for sure.
 
-[00:29:53] Adam: Right. Um, so I also read No Place to Hide by Glenn Greenwald about his interactions with Eds with Snowden, which is fantastic and really riveting. Greenwald, I know, is a polarizing figure, and that's exactly where he wants to be. And good on him. I think he's actually raising the right questions. But whatever you think about his politics, he's a phenomenal writer. He's a really, really good writer. Complex topics explained really clearly.
+[00:29:53] Adam: Right. So I also read No Place to Hide by Glenn Greenwald about his interactions with Eds with Snowden, which is fantastic and really riveting. Greenwald, I know, is a polarizing figure, and that's exactly where he wants to be. And good on him. I think he's actually raising the right questions. But whatever you think about his politics, he's a phenomenal writer. He's a really, really good writer. Complex topics explained really clearly.
 
 [00:29:53] Will: That’s good.
 
@@ -802,13 +802,13 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:30:37] Adam: Yeah, totally far out.
 
-[00:31:26] Will: When you go travel someplace new, do you do you does your reading shift to encompass the new place?
+[00:31:26] Will: When you go travel someplace new, do you does your reading shift to encompass the new place?
 
 [00:31:32] Adam: You know, it did this time, which made me feel both kind of good and like I was a little bit of a poser.
 
 [00:31:38] Will: Yeah.
 
-[00:31:38] Adam: I picked up the Captain Cook book in a bookstore in Australia, mostly because I love seafaring stories. I read, you know, we talked about this. I read all the Captain Patrick O'Brian novels last year, and I've been reading books about like the transatlantic. Race the Vendée Globe around the Drake Passage, Southern Ocean race. I love that stuff. Maybe because I know I'm never ever going to do it. I don't have that desire to sail around the world, but I love the idea of it. So I read a lot about it, and Captain Cook satisfied that.
+[00:31:38] Adam: I picked up the Captain Cook book in a bookstore in Australia, mostly because I love seafaring stories. I read we talked about this. I read all the Captain Patrick O'Brian novels last year, and I've been reading books about like the transatlantic. Race the Vendée Globe around the Drake Passage, Southern Ocean race. I love that stuff. Maybe because I know I'm never ever going to do it. I don't have that desire to sail around the world, but I love the idea of it. So I read a lot about it, and Captain Cook satisfied that.
 
 [00:32:13] Norm: Cool.
 
@@ -816,7 +816,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:32:16] Adam: We’re going to do more on that.
 
-[00:32:17] Will: So if if you want, this is probably a good time to tell people we're going to read. We're all going to reread the book. You're going to listen to it on audio. Norm's going to read it for the first time. I'm probably going to read the physical version again, and then
+[00:32:17] Will: So if you want, this is probably a good time to tell people we're going to read. We're all going to reread the book. You're going to listen to it on audio. Norm's going to read it for the first time. I'm probably going to read the physical version again, and then
 
 [00:32:17] Adam: Of The Martian.
 
@@ -842,9 +842,9 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:32:49] Norm: which is like a long podcast.
 
-[00:32:50] Will: Right. It's like a it's like a narrative driven podcast.
+[00:32:50] Will: Right. It's like a narrative driven podcast.
 
-[00:32:53] Adam: Lastly, I will say I read a book by a native New Zealander called Wulf W U L F. Oh, and I also just read The Luminaries, which is a book about the gold rush in New Zealand. It's a bestseller right now. Yeah, yeah. A lot of bookstores are putting it front and center. It's a lovely book. It's really, it's really riveting with some amazing characters. I'm not sure in the end if I think it's a truly great book because it's just it's a it's a big heavy book. I mean, it's like a lot goes. I sound like an idiot.
+[00:32:53] Adam: Lastly, I will say I read a book by a native New Zealander called Wulf W U L F. Oh, and I also just read The Luminaries, which is a book about the gold rush in New Zealand. It's a bestseller right now. Yeah, yeah. A lot of bookstores are putting it front and center. It's a lovely book. It's really riveting with some amazing characters. I'm not sure in the end if I think it's a truly great book because it's just it's a big heavy book. I mean, it's like a lot goes. I sound like an idiot.
 
 [00:33:25] Will: There's a lot goes on in there. And there's a lot of shit happens.
 
@@ -866,7 +866,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:33:56] Adam: I think that's a fine place to finish.
 
-[00:33:58] Will: I, I, I agree, sir. Okay, so your homework: The Martian by Andy Weir,
+[00:33:58] Will: I agree, sir. Okay, so your homework: The Martian by Andy Weir,
 
 [00:34:02] Adam: Yeah.
 
@@ -874,7 +874,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:33:58] Adam: Yes.
 
-[00:33:58] Will: positive or negative, we like it all. We read we read comments. We may not respond to all of them, but we read them.
+[00:33:58] Will: positive or negative, we like it all. We read comments. We may not respond to all of them, but we read them.
 
 [00:34:17] Adam: Tested is the only site on which I read the comments.
 

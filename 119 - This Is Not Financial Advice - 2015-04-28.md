@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:00:21] Adam: well done.
 
-[00:00:21] Will: It's it's it's amazing to me that in San Francisco, in the middle of the great California drought of the last five years, we can go from no rain for like say the eight weeks that we normally get rain every single day, and then the one day that I have tons of little kids coming over to my house to go catch eggs in the backyard,
+[00:00:21] Will: It's amazing to me that in San Francisco, in the middle of the great California drought of the last five years, we can go from no rain for like say the eight weeks that we normally get rain every single day, and then the one day that I have tons of little kids coming over to my house to go catch eggs in the backyard,
 
 [00:00:42] Adam: Easter,
 
@@ -42,13 +42,13 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:00:50] Norm: We have to.
 
-[00:00:51] Will: We do the we do the fast showers. I've stopped eating almonds entirely.
+[00:00:51] Will: We do the fast showers. I've stopped eating almonds entirely.
 
 [00:00:55] Adam: Yeah, right. A gallon of water per almond, or something like that.
 
 [00:00:59] Norm: Jeez.
 
-[00:01:00] Will: But the but the gallon of water per almond sounds like one of those huge stats. And then the real one is it's like 2,500 gallons of water for a quarter pound hamburger. So
+[00:01:00] Will: But the gallon of water per almond sounds like one of those huge stats. And then the real one is it's like 2,500 gallons of water for a quarter pound hamburger. So
 
 [00:01:09] Adam: and other things like for every shrimp you eat, 35 pounds of bycatch is caught and killed and thrown away. Just bycatch is the other crap they dredge up from the bottom while grabbing the shrimp.
 
@@ -70,7 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:01:35] Adam: Right, and we have a drought, and there's
 
-[00:01:37] Norm: you're driving down the five, and you see you see like golf course there and there,
+[00:01:37] Norm: you're driving down the five, and you see like golf course there and there,
 
 [00:01:41] Adam: and you know they're opening more
 
@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:02:07] Adam: Yeah.
 
-[00:02:07] Will: So, you know, if if we're gonna say, hey, these are public use spaces, or or you know, whatever it happens to be, what's the best way to use this the water? I don't necessarily think it is getting rid of—. Like I joke about the almonds, but I don't think it necessarily is letting all the almonds die because we've already spent in many cases ten or twenty. I mean, those are trees that will produce for a very long time, take 10, 20 years, and the one gallon per almond is some is some cost over the life of the tree, not per almond every year.
+[00:02:07] Will: So, you know, if we're gonna say, hey, these are public use spaces, or whatever it happens to be, what's the best way to use this the water? I don't necessarily think it is getting rid of—. Like I joke about the almonds, but I don't think it necessarily is letting all the almonds die because we've already spent in many cases ten or twenty. I mean, those are trees that will produce for a very long time, take 10, 20 years, and the one gallon per almond is some cost over the life of the tree, not per almond every year.
 
 [00:02:36] Adam: Right.
 
@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:02:38] Adam: It's a lot of water.
 
-[00:02:39] Will: Um, you know, I I got much more upset a few years ago when the reports about the the farmers in the valley using 80% of California's water and not um and and not actually using like water conservative irrigation methods like drip irrigation and stuff like that. Now a lot of those guys, it seems like, have have Turned over to to
+[00:02:39] Will: I got much more upset a few years ago when the reports about the farmers in the valley using 80% of California's water and not actually using like water conservative irrigation methods like drip irrigation and stuff like that. Now a lot of those guys, it seems like, have have Turned over to
 
 [00:03:03] Adam: Seen the light and
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:03:07] Adam: right,
 
-[00:03:07] Will: you know, it's all good. We'll figure it out, I guess.
+[00:03:07] Will: It's all good. We'll figure it out, I guess.
 
 [00:03:11] Adam: It's bad.
 
@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:03:13] Adam: nights in San Francisco have been bumming bumming us out.
 
-[00:03:16] Will: Are you Are you guys? If it's yellow, letting it mellow.
+[00:03:16] Will: Are you guys? If it's yellow, letting it mellow.
 
 [00:03:19] Adam: Yeah, well, yeah.
 
@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:03:28] Will: Okay.
 
-[00:03:28] Adam: No, and I don’t know. I don't have any problem with that. And we did that in New York when I was a kid. We had a drought back in New York, and this is not this is not our first rodeo in San Francisco. But still, it's like the the levels to which it's gotten, and frankly, the the what seems like an incredibly poor response from Sacramento is very upsetting. I don't think the water restrictions that Jerry Brown's they don't go far enough.
+[00:03:28] Adam: No, and I don’t know. I don't have any problem with that. And we did that in New York when I was a kid. We had a drought back in New York, and this is not our first rodeo in San Francisco. But still, it's like the levels to which it's gotten, and frankly, the what seems like an incredibly poor response from Sacramento is very upsetting. I don't think the water restrictions that Jerry Brown's they don't go far enough.
 
 [00:03:50] Norm: Well, it's too little, too late.
 
@@ -140,7 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:03:53] Norm: we're so resistant to change anyway.
 
-[00:03:55] Will: Well, and the fact that there's municipal like. The fact that San Francisco— San Francisco is planning non-drought-tolerant stuff as recently as three years ago in like medians and parks and stuff like that is insane. That's good to have green space.
+[00:03:55] Will: Well, and the fact that there's municipal like. The fact that San Francisco is planning non-drought-tolerant stuff as recently as three years ago in like medians and parks and stuff like that is insane. That's good to have green space.
 
 [00:04:06] Adam: Yeah,
 
@@ -160,15 +160,15 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:04:21] Norm: Turn off, taking all the green space away.
 
-[00:04:24] Adam: Well, you know, as as as far as talking to talking about consequences, I was talking with the kids this morning. We were we were going over some tax stuff. So every now and then, Juliet hands me some forms, some breakdowns from our from our tax records, and says, " Can you look over these and tell me if they are all corporate expenses? Let's just make sure." So going through the granularity and thing two says, " Why do you have to?" Is it really bad to spend money from your corporate card on non-corporate stuff? And so we start to explain the tax system, and then we start to explain also why you need to keep track of that stuff. Like keeping track is the lifeblood of not getting behind financially. Yeah. And then we start telling them, man, like you'll get a bank account, and they'll just start sending you credit cards in the mail that say, " Sign this," and immediately you have $3,000, which you don't have to pay off for a long time,
+[00:04:24] Adam: Well as far as talking to talking about consequences, I was talking with the kids this morning. We were going over some tax stuff. So every now and then, Juliet hands me some forms, some breakdowns from our tax records, and says, " Can you look over these and tell me if they are all corporate expenses? Let's just make sure." So going through the granularity and thing two says, " Why do you have to?" Is it really bad to spend money from your corporate card on non-corporate stuff? And so we start to explain the tax system, and then we start to explain also why you need to keep track of that stuff. Like keeping track is the lifeblood of not getting behind financially. Yeah. And then we start telling them, man, like you'll get a bank account, and they'll just start sending you credit cards in the mail that say, " Sign this," and immediately you have $3,000, which you don't have to pay off for a long time,
 
 [00:05:24] Will: forever. Forever. If you pay the minimum payment, yeah.
 
-[00:05:26] Adam: And and and the the the my my mom, who's been in town this week, had brought up that the British one of the British expressions for a credit card is the never never.
+[00:05:26] Adam: And the my mom, who's been in town this week, had brought up that the British one of the British expressions for a credit card is the never never.
 
 [00:05:36] Will: Is it as in this is the thing you never never use?
 
-[00:05:39] Adam: No, as you never ever see it or feel it or pay for it. Right, it's off there in the distance when you when you do it, and so that got us to talking about the fact that home economics. Did you take home economics when you were a kid?
+[00:05:39] Adam: No, as you never ever see it or feel it or pay for it. Right, it's off there in the distance when you do it, and so that got us to talking about the fact that home economics. Did you take home economics when you were a kid?
 
 [00:05:51] Will: No, they didn't have it anymore.
 
@@ -184,7 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:06:13] Adam: No, and it amazes me that my kids are in school and they're learning all sorts of stuff about Hammurabi's code and world history, which is super important.
 
-[00:06:24] Norm: Sounds like sounds like ninth grade.
+[00:06:24] Norm: Sounds like ninth grade.
 
 [00:06:26] Adam: But they're not. Yes, but they're not They’re not— learning about how to balance a checkbook.
 
@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:06:41] Adam: True that.
 
-[00:06:42] Norm: No, there was a. you know, one of the merit badges.,
+[00:06:42] Norm: No, there was a. One of the merit badges.,
 
 [00:06:43] Will: we had the management badge.
 
@@ -236,19 +236,19 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:07:46] Will: And then they probably hit you with the fees as well too. Right.
 
-[00:07:48] Adam: And the fees are the fees are what. It's like a standard fee. It's going to be like $35, and then there's an amount on the check that it takes— it takes a percentage of. It can be hundreds of dollars.
+[00:07:48] Adam: And the fees are what. It's like a standard fee. It's going to be like $35, and then there's an amount on the check that it takes a percentage of. It can be hundreds of dollars.
 
-[00:08:00] Will: Oh yeah. The the um well okay just to be clear
+[00:08:00] Will: Oh yeah. The um well okay just to be clear
 
 [00:08:03] Adam: they don't know any of that stuff
 
-[00:08:05] Will: if you if your bank changes your credit card payment date and that stuff regularly without telling you you should get a new bank like I've had Bank of America for 20 years and have never had that happen.
+[00:08:05] Will: if you if your bank changes your credit card payment date and that stuff regularly without telling you should get a new bank like I've had Bank of America for 20 years and have never had that happen.
 
 [00:08:14] Adam: Our Amex bills due date just changed again. It's you know it's just the fact that it happens out there in the world is something everybody needs to be aware of Yeah. because I remember being a kid and starting to like I got a checking account and I started getting credit cards in the mail and I had one and I signed it and got a credit card I felt really grown up I didn't spend anything on it for months and then
 
 [00:08:42] Will: bam
 
-[00:08:42] Adam: everything and then I I thought if I ignored it it would go away
+[00:08:42] Adam: everything and then I I thought if I ignored it would go away
 
 [00:08:47] Will: oh no it doesn't work
 
@@ -260,9 +260,9 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:08:56] Unknown speaker: Wow!
 
-[00:08:56] Adam: You know, I had to go to consumer credit counselors.
+[00:08:56] Adam: I had to go to consumer credit counselors.
 
-[00:08:59] Will: Well, but I mean, it's it's one of those things that they don't. No one ever explains, unless your parents do it, unless you happen to be lucky enough that they read the book that somebody hands you,
+[00:08:59] Will: Well, but I mean, it's one of those things that they don't. No one ever explains, unless your parents do it, unless you happen to be lucky enough that they read the book that somebody hands you,
 
 [00:09:07] Adam: yeah,
 
@@ -270,19 +270,19 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:09:10] Adam: I actually read it.
 
-[00:09:11] Will: Yeah, but but like home financing, the difference between a home loan and a a loan that's compounded monthly and annually and and whatever the other options are. There's only two I know about. I guess they probably the loan shark does daily, but I don't know.
+[00:09:11] Will: Yeah, but like home financing, the difference between a home loan and a loan that's compounded monthly and annually and whatever the other options are. There's only two I know about. I guess they probably the loan shark does daily, but I don't know.
 
 [00:09:25] Adam: The vig,
 
-[00:09:25] Will: yeah, exactly. Well, you know, you got a real nice leg here. It'd be a pity if something happened to it. Yeah, it's. I mean, it's it's that stuff's never explained.
+[00:09:25] Will: yeah, exactly. Well you got a real nice leg here. It'd be a pity if something happened to it. Yeah, it's. I mean, it's that stuff's never explained.
 
 [00:09:35] Adam: No,
 
-[00:09:35] Will: you have to find that out for yourself, and the earlier you find that out, the better off you are. One one of our friends, Brian, made a had a revelation when he turned about 30, I think, where he realized that realized that if he kept his expenses low, he could literally do anything he wanted. Because he had reached a point in his in his life where he was able to earn money without necessarily going to an office every day,
+[00:09:35] Will: you have to find that out for yourself, and the earlier you find that out, the better off you are. One one of our friends, Brian, made a had a revelation when he turned about 30, I think, where he realized that if he kept his expenses low, he could literally do anything he wanted. Because he had reached a point in his life where he was able to earn money without necessarily going to an office every day,
 
 [00:09:58] Adam: yeah.
 
-[00:09:58] Will: And he he was like, " Look, I don't have credit card debt. I don't have a car payment. I have this house, but I can rent it for more than I'm I'm I put it into it.
+[00:09:58] Will: And he was like, " Look, I don't have credit card debt. I don't have a car payment. I have this house, but I can rent it for more than I'm I'm I put it into it.
 
 [00:10:06] Adam: Yeah,
 
@@ -294,17 +294,17 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:10:11] Adam: I know. Yeah.
 
-[00:10:11] Norm: Did you read that Vogue story about that? There was a a couple who did this startup. I think they did Songify [unclear: and App / now / nap and] they made this ton a ton of money. I think they're they sold to Smule, and then they lived in Palo Alto or somewhere in Silicon Valley. Bought tons of stuff. Everyone there has a Maserati or a Tesla. Started buying tons of stuff, and then one day they just gave it all away and traveled the world for a year.
+[00:10:11] Norm: Did you read that Vogue story about that? There was a couple who did this startup. I think they did Songify [unclear: and App / now / nap and] they made this ton a ton of money. I think they're they sold to Smule, and then they lived in Palo Alto or somewhere in Silicon Valley. Bought tons of stuff. Everyone there has a Maserati or a Tesla. Started buying tons of stuff, and then one day they just gave it all away and traveled the world for a year.
 
 [00:10:33] Will: Because it's very appealing to me.
 
-[00:10:35] Norm: It is very appealing. And there's Airbnb and there's the progression of as they explain it, you know, internet was spotty at times, but then once internet got internet got spotty enough, they just put away their phones for weeks at a time, and it's and it's not a concept I can. Connect with
+[00:10:35] Norm: It is very appealing. And there's Airbnb and there's the progression of as they explain it internet was spotty at times, but then once internet got spotty enough, they just put away their phones for weeks at a time, and it's not a concept I can. Connect with
 
 [00:10:50] Adam: yeah,
 
-[00:10:50] Norm: that's incredible. And they said it was it was the most liberating thing ever. Everyone says that.
+[00:10:50] Norm: that's incredible. And they said it was the most liberating thing ever. Everyone says that.
 
-[00:10:54] Adam: Did you guys ever get in trouble and use consumer credit counselors? Do you know about this service? This is kind of amazing. When you if you end up if you end up with a lot of credit card debt from multiple credit cards, it can be very, very, very difficult, not impossible, to get out from under that. If you have let's say some past dues of thirty, sixty, or 90 days, they will be coming after you. They will be compounding fees and penalties, et cetera. So there is a group. It's a nonprofit, I believe, called Consumer Credit Counseling Services. They actually were, if I'm not incorrect about my history, formed by the credit card companies to help people get out of default. And the way it works is because Consumer Credit Counselors has a terrific record. What they'll do is you go to them and you say, " I owe money on these five credit cards. It's $18,000 in debt." My minimum monthly payment is $1,800 a month, and I can't make that.
+[00:10:54] Adam: Did you guys ever get in trouble and use consumer credit counselors? Do you know about this service? This is kind of amazing. When you if you end up with a lot of credit card debt from multiple credit cards, it can be very, very, very difficult, not impossible, to get out from under that. If you have let's say some past dues of thirty, sixty, or 90 days, they will be coming after you. They will be compounding fees and penalties, et cetera. So there is a group. It's a nonprofit, I believe, called Consumer Credit Counseling Services. They actually were, if I'm not incorrect about my history, formed by the credit card companies to help people get out of default. And the way it works is because Consumer Credit Counselors has a terrific record. What they'll do is you go to them and you say, " I owe money on these five credit cards. It's $18,000 in debt." My minimum monthly payment is $1,800 a month, and I can't make that.
 
 [00:11:53] Will: Right.
 
@@ -314,11 +314,11 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:12:29] Adam: There’s two things They do. They freeze the interest and they get your monthly payment down so that you can actually start paying off the principal that you owe instead of just constantly pedaling. And they got me out of my debt, and it was phenomenal. It it like the relief was so massive. So it's a, it's a, you know, these are the kind of things that I think they should be teaching kids in high school, which is where my kids are. Like. Yeah. Like that is exactly the age at which they should learn that.
 
-[00:12:55] Will: Have you gotten a checking account for your kids yet? When do you, when do you think is it? Like I got that when I went to college, basically.
+[00:12:55] Will: Have you gotten a checking account for your kids yet? When do you think is it? Like I got that when I went to college, basically.
 
 [00:13:00] Adam: Yeah, I we've been my wife and I have been talking lately about sitting down and talking to them and running through maybe you know a summer of a checkbook balancing home course, right? Like homeschooling them in finances like that because they should be scared, like they don't realize that there are algorithms built to exploit the ways that they don't think about money Right. in order to extract more from them in the long run.
 
-[00:13:24] Norm: And as there are services, you know, it's so easy for younger people to get into PayPal and to to use digital services and with things like the Apple Watch stuff and and Apple Pay, you know, it's it's they don't there's no tangible aspect to it.
+[00:13:24] Norm: And as there are services it's so easy for younger people to get into PayPal and to use digital services and with things like the Apple Watch stuff and Apple Pay it's they don't there's no tangible aspect to it.
 
 [00:13:38] Adam: No,
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:13:45] Norm: Yeah, let me Venmo something. Nope, overdrawn. Yeah,
 
-[00:13:48] Adam: debt. And you know, even down to understanding, do you know what the credit card companies refer to customers who pay off in full every month?
+[00:13:48] Adam: debt. And even down to understanding, do you know what the credit card companies refer to customers who pay off in full every month?
 
 [00:13:55] Unknown speaker: No,
 
@@ -362,9 +362,9 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:14:17] Adam: Yes. What is this new mic stand? I love this.
 
-[00:14:19] Will: Um I didn't want to carry the 30-pound one.
+[00:14:19] Will: I didn't want to carry the 30-pound one.
 
-[00:14:21] Adam: That's that's great. We should have all of those.
+[00:14:21] Adam: That's great. We should have all of those.
 
 [00:14:24] Will: They're a little bit of a pain to put on and off because you have to screw them under the table.
 
@@ -398,7 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:14:52] Adam: I'm like this has one job, which is to hold a microphone, which it shouldn't make any noise.
 
-[00:14:56] Will: This is a $35 one, and I put silicone, the lithium grease on the on the joints when I got it, and it was quiet for a long time. It doesn't have like the smooth fluid movement.
+[00:14:56] Will: This is a $35 one, and I put silicone, the lithium grease on the joints when I got it, and it was quiet for a long time. It doesn't have like the smooth fluid movement.
 
 [00:15:06] Adam: Yeah.
 
@@ -410,7 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:15:13] Adam: Really?
 
-[00:15:13] Will: They they you can just kind of one finger up, one finger down. They there's no resistance. Like it just goes from no resistance to moving, which is amazing. And they don't make sound.
+[00:15:13] Will: They you can just kind of one finger up, one finger down. They there's no resistance. Like it just goes from no resistance to moving, which is amazing. And they don't make sound.
 
 [00:15:24] Adam: That's amazing to me. But sorry, just so back to the finances. I'd love to hear comments about I don't know whether there's courses that people found that were useful for teaching their kids about finances.
 
@@ -420,9 +420,9 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:15:39] Will: Not smart money the podcast, but money.
 
-[00:15:41] Adam: I'd be interested in one that I could listen to with my kids. You know, something like that to to really help them understand the shape, because I understand it now in a way that I was so dumb and green and the perfect target.
+[00:15:41] Adam: I'd be interested in one that I could listen to with my kids. You know, something like that to really help them understand the shape, because I understand it now in a way that I was so dumb and green and the perfect target.
 
-[00:15:56] Will: Well, you learned the hard way. I mean, everybody. I did the same thing when I was in college. I signed— signed up for one of those. Hey, you you get a two liter Coke if you sign up for this credit card right now. It's like, why would I not do it? I'd be a fool not to do this.
+[00:15:56] Will: Well, you learned the hard way. I mean, everybody. I did the same thing when I was in college. I signed— signed up for one of those. Hey, you get a two liter Coke if you sign up for this credit card right now. It's like, why would I not do it? I'd be a fool not to do this.
 
 [00:16:09] Norm: It sounds like a difference between what they teach in school is more of the macro side, like the big picture. You know how how banks screw over corporations, other banks,
 
@@ -432,13 +432,13 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:16:18] Adam: You really need to know that. Yeah, you know, my son the other day we were driving and he was he's very car oriented. Thing two is
 
-[00:16:26] Will: well, he's he's 16 years old,
+[00:16:26] Will: well, he's 16 years old,
 
 [00:16:28] Adam: but I mean he really like he gets a Car and Driver and he knows all the specs of all the cars. And so we're driving, we're talking about the car, and he's like, " Yeah, you get a lot of value for your money for that car, big expensive car." And I was like, " I would I would be careful about saying things like that. You kind of sound like a little rich kid." He was like, " Oh my god, I'm so sorry. I don't want I get that. Thank you for telling me." Which is awesome.
 
 [00:16:49] Will: That's good. Yeah, that's the right answer.
 
-[00:16:51] Adam: Right. Totally. But one of the things I was saying was like, you can't say that because you don't have any money, and you've never made any money, and you've never run down to the phone company on the last day of the month on a Friday afternoon after work to get the payment in so they don't cut off your phone for the weekend, which is something all of us had to do. It's like everybody, you know, screws up.
+[00:16:51] Adam: Right. Totally. But one of the things I was saying was like, you can't say that because you don't have any money, and you've never made any money, and you've never run down to the phone company on the last day of the month on a Friday afternoon after work to get the payment in so they don't cut off your phone for the weekend, which is something all of us had to do. It's like everybody screws up.
 
 [00:17:12] Will: Oh yeah.
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:17:20] Adam: A little entitled.
 
-[00:17:20] Will: I I just I just I think about like the things that I learned the hard way were house house financing.
+[00:17:20] Will: I just I think about like the things that I learned the hard way were house house financing.
 
 [00:17:29] Adam: Yeah.
 
@@ -460,15 +460,15 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:17:38] Adam: instantly. Yeah.
 
-[00:17:39] Will: You know, 5-10% of the car at minimum. Um, and usually if they get you into financing, you're going to be making you know that's that's not a great choice. generally.
+[00:17:39] Will: 5-10% Of the car at minimum. And usually if they get you into financing, you're going to be making you know that's not a great choice. generally.
 
 [00:17:47] Adam: That's true. I grew up. My parents paid for every car in cash.
 
-[00:17:50] Will: I I paid for every car in cash up until this point. Which has been, you know, I I always buy cars that are two years old.
+[00:17:50] Will: I paid for every car in cash up until this point. Which has been I I always buy cars that are two years old.
 
 [00:17:56] Adam: Yeah, and actually, that is, I plan that teaching my kids how to work on their own car is a key thing.
 
-[00:18:04] Will: That's a that's really hard to do now, though. I mean, if you if you look at it, like you can change brakes and and wheels and and brakes and and oil. That's kind of it. Like, yeah, air filters.
+[00:18:04] Will: That's a that's really hard to do now, though. I mean, if you look at it, like you can change brakes and wheels and brakes and oil. That's kind of it. Like, yeah, air filters.
 
 [00:18:16] Adam: Yeah, it's a good question.
 
@@ -500,11 +500,11 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:18:54] Adam: That's hilarious.
 
-[00:18:54] Will: So yeah. I mean, but but the lesson was there. Like, we learned how to. I learned how to take the top block off,
+[00:18:54] Will: So yeah. I mean, but the lesson was there. Like, we learned how to. I learned how to take the top block off,
 
 [00:18:59] Adam: Yeah.
 
-[00:18:59] Will: where to take it to get the top machine, and and then how to put it back together. And probably 9% of that is usable information on in a car I drive today.
+[00:18:59] Will: where to take it to get the top machine, and then how to put it back together. And probably 9% of that is usable information on in a car I drive today.
 
 [00:19:08] Adam: Yeah,
 
@@ -512,7 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:19:18] Norm: Give
 
-[00:19:18] Adam: me, it's not the shifter per se; it's the shifter assembly. As soon as they say assembly, you know, you are totally
+[00:19:18] Adam: me, it's not the shifter per se; it's the shifter assembly. As soon as they say assembly you are totally
 
 [00:19:24] Will: wrong place. You made the wrong choice.
 
@@ -526,7 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:19:35] Adam: Mine were Always brown.
 
-[00:19:36] Will: It had it had wood paneling sticker on the side. It wasn't even wood paneling. And then the first car I bought though was a Ford pickup truck, a Ranger, a 1985 Ranger.
+[00:19:36] Will: It had wood paneling sticker on the side. It wasn't even wood paneling. And then the first car I bought though was a Ford pickup truck, a Ranger, a 1985 Ranger.
 
 [00:19:46] Adam: Norm,
 
@@ -560,7 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:20:26] Adam: That thing was a cop magnet. I could not go through the Waldo Tunnel in Marin without getting pulled over. I was like, what do I want to do today? Oh, let's get pulled over. Woo! Over there in Marin.
 
-[00:20:36] Will: Well, you know they don't let your people over there in Marin.
+[00:20:36] Will: Well they don't let your people over there in Marin.
 
 [00:20:38] Adam: In Marin, you get pulled over for driving an ugly car.
 
@@ -578,7 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:20:52] Adam: I would be very interested.
 
-[00:20:52] Will: Books, podcasts, things that people should know. I I know that there's a ton of stuff that we should have talked about. We probably didn't. In terms of finance, especially.
+[00:20:52] Will: Books, podcasts, things that people should know. I know that there's a ton of stuff that we should have talked about. We probably didn't. In terms of finance, especially.
 
 [00:21:03] Adam: No, I know it's a big, big subject, and it doesn't. The thing is, is that, and what I'd be interested in is, it doesn't have to be. You don't have to understand everything about the full banking system to at least understand the rudiments of how to protect yourself.
 

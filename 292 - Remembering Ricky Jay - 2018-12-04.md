@@ -22,7 +22,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:01:00] Jeremy: Thank you, Norm. I'm doing well. Thank you. How are you?
 
-[00:01:03] Norm: Uh, you know, getting there. Yeah. Sleeps are. We got Ripley back this weekend.
+[00:01:03] Norm: Getting there. Yeah. Sleeps are. We got Ripley back this weekend.
 
 [00:01:07] Adam: Ah.
 
@@ -30,7 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:01:08] Jeremy: Is that a good thing?
 
-[00:01:09] Norm: Uh, well, we had missed her, and I'll tell you this. Uh, I'm sure anyone who has both a pet and a child knows that a pet and a child are that the child will make your pet like an angel.
+[00:01:09] Norm: Uh, well, we had missed her, and I'll tell you this. I'm sure anyone who has both a pet and a child knows that a pet and a child are that the child will make your pet like an angel.
 
 [00:01:22] Adam: Oh, really? Because the pet can tell that some order has changed. Everyone's bumped up a notch.
 
@@ -48,7 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:01:36] Unknown speaker (Adam or Norm): Yeah,
 
-[00:01:36] Norm: and and you can you you can hold your head up. Your neck is strong. Oh, be more like your sister. [unclear: Avery / Yeah].
+[00:01:36] Norm: and you can hold your head up. Your neck is strong. Oh, be more like your sister. [unclear: Avery / Yeah]
 
 [00:01:41] Jeremy: cats are even more self-sufficient though. Like if you have a dog, you still have to walk it, but cats you can forget about.
 
@@ -66,7 +66,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:02:02] Unknown speaker (Norm or Adam): [unclear: Yeah, yeah, yeah / Yeah, yeah].
 
-[00:02:04] Norm: Because I'm like, I'll make the coffee. I'll walk the dog. Have a screaming child in my face, but we we we love him.
+[00:02:04] Norm: Because I'm like, I'll make the coffee. I'll walk the dog. Have a screaming child in my face, but we love him.
 
 [00:02:12] Jeremy: No no work is now the vacation.
 
@@ -82,9 +82,9 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:02:19] Adam: This is when I was at Industrial Light and Magic. A whole bunch of us, Dave Fogler Aaron Haye, Fon Davis. We all had kids at about the same time, and so we'd be in the computer room because it was a bunch of the Laser Boys. That's that's what we they kind of called me. And you know we would commiserate and talk about raising kids because again, just like six, seven people all with infants at home. And at one point, there's like a lunch, and I pick up the phone. Yeah, yeah, yeah, and I hang up the phone, and I went, man, that was a tough call. And my John Duncan turns to me and he goes, " Is that one of the I've locked myself in the bathroom to keep from killing your children?" Call. And I said, " Yeah, that was the call."
 
-[00:03:03] Norm: And today, with with with text messaging and FaceTime, you can't. You can't not pick up those and.
+[00:03:03] Norm: And today, with text messaging and FaceTime, you can't. You can't not pick up those and.
 
-[00:03:09] Adam: oh well yeah I mean of course not of course it's a partnership you know I back when my boys were really young I would I was working at ILM full time commuting from here in the Mission and when I got home at 6 p.m. I took over the boys until 5 a.m. the next morning I did all the I did all the feedings and all the changings for that that was that was my that was my gig and again the boys were pretty easy sleepers pretty early on they slept like in five or six hour spurts
+[00:03:09] Adam: oh well yeah I mean of course not of course it's a partnership you know I back when my boys were really young I would I was working at ILM full time commuting from here in the Mission and when I got home at 6 p.m. I took over the boys until 5 a.m. the next morning I did all the feedings and all the changings for that that was that was my gig and again the boys were pretty easy sleepers pretty early on they slept like in five or six hour spurts
 
 [00:03:35] Unknown, possibly Norm or Jeremy: Wow.
 
@@ -104,7 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:04:01] Norm: I'm happy to defer.
 
-[00:04:04] Adam: But I think it's interesting the lines. It's a fascinating exercise the lines you draw in the partnership and how to how to work those lines together with the kids because it's in some ways it's a war of attrition and in other ways it's this totally collaborative love fest. But it's an it's an intense thing.
+[00:04:04] Adam: But I think it's interesting the lines. It's a fascinating exercise the lines you draw in the partnership and how to work those lines together with the kids because it's in some ways it's a war of attrition and in other ways it's this totally collaborative love fest. But it's an intense thing.
 
 [00:04:22] Jeremy: Yeah, you really find out who you guys are in a whole new way.
 
@@ -120,11 +120,11 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:04:41] Jeremy: Oh, awesome!
 
-[00:04:42] Adam: Yes, I have. I I but the problem I have with my hearing aids is that you get them tuned back when I got them. You got them tuned at the audiologist's office, and I bought the best ones with the best sound that replicated the stuff that I was missing, which is not normal.
+[00:04:42] Adam: Yes, I have. I but the problem I have with my hearing aids is that you get them tuned back when I got them. You got them tuned at the audiologist's office, and I bought the best ones with the best sound that replicated the stuff that I was missing, which is not normal.
 
 [00:04:57] Jeremy: How long ago was that?
 
-[00:04:58] Adam: Like six or seven years. I've had hearing aids for over 10 years, but the the last pair, you know, [unclear: ∅ / I], I’m missing a lot of the low end, which is not common. Most people who have hearing loss from, you know, sounds lose their high end, and hearing aids have been designed to replicate that. I'm not missing the high end; I'm missing the low end, and that's a little harder. So I bought the best brand for that, but it would adjust for you know being in conversation in my house. But then I go to a restaurant; it was a nightmare. And to get a different mode, you have to make another appointment with the audiologist for like five weeks from now, and then go in and tune it, and then go out, and it's like, are you kidding me? This is how I have to do this this ridiculous appointment process. So I'm buying these new hearing aids that I can adjust their equalization from my phone.
+[00:04:58] Adam: Like six or seven years. I've had hearing aids for over 10 years, but the last pair [unclear: ∅ / I] I’m missing a lot of the low end, which is not common. Most people who have hearing loss from sounds lose their high end, and hearing aids have been designed to replicate that. I'm not missing the high end; I'm missing the low end, and that's a little harder. So I bought the best brand for that, but it would adjust for you know being in conversation in my house. But then I go to a restaurant; it was a nightmare. And to get a different mode, you have to make another appointment with the audiologist for like five weeks from now, and then go in and tune it, and then go out, and it's like, are you kidding me? This is how I have to do this ridiculous appointment process. So I'm buying these new hearing aids that I can adjust their equalization from my phone.
 
 [00:05:41] Jeremy: Oh, that's awesome!
 
@@ -156,9 +156,9 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:06:24] Adam: Right.
 
-[00:06:24] Norm: Right. For people who drop their glasses, they drop their glasses, they just hold their phone up because it's it's right there.
+[00:06:24] Norm: Right. For people who drop their glasses, they just hold their phone up because it's right there.
 
-[00:06:28] Adam: So I'm really excited. My wife is really excited. My my hearing is actually I just had another hearing test recently, and my hearing has actually gotten a little better over the last couple of years. But these hearing aids are at their end of their lifespan, and their sound I think has kind of flattened out. So I'm I'm really excited.
+[00:06:28] Adam: So I'm really excited. My wife is really excited. My hearing is actually I just had another hearing test recently, and my hearing has actually gotten a little better over the last couple of years. But these hearing aids are at their end of their lifespan, and their sound I think has kind of flattened out. So I'm I'm really excited.
 
 [00:06:44] Jeremy: How long do the batteries last?
 
@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:08:01] Adam: Oh, not seeing Jim Halpert. right?  I see what you're saying.
 
-[00:08:03] Jeremy: Yeah, I mean, he's he's doing the Bourne thing on Amazon, right?
+[00:08:03] Jeremy: Yeah, I mean, he's doing the Bourne thing on Amazon, right?
 
 [00:08:06] Norm: Right. Yeah,
 
@@ -236,11 +236,11 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:09:09] Norm: [unclear: Nice / Uh]. Jack Reacher, as a character in the books, is absurd, though. Right? If to cast someone who would fit the physical description, it would have to be like The Rock.
 
-[00:09:21] Adam: Yeah, no, not necessarily. Yeah, he is. You know, I just read a recent quote. I think Clive James described when the first Conan the Barbarian movie came out. Clive James, the New York Times film reporter, referred to Arnold Schwarzenegger as a condom filled with walnuts.
+[00:09:21] Adam: Yeah, no, not necessarily. Yeah, he is. I just read a recent quote. I think Clive James described when the first Conan the Barbarian movie came out. Clive James, the New York Times film reporter, referred to Arnold Schwarzenegger as a condom filled with walnuts.
 
 [00:09:39] Unknown speaker (Jeremy or Norm): What?
 
-[00:09:41] Norm: I I actually I think I knew that.
+[00:09:41] Norm: I actually I think I knew that.
 
 [00:09:44] Unknown speaker (Norm or Adam then Norm then Adam or Norm then Adam): [unclear: Yeah. Yeah. Yeah / Yeah. Yeah. Um, yeah / Yeah. Yeah].
 
@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:09:51] Norm: That's like a basketball player.
 
-[00:09:52] Adam: He’s but he’s like 250, so he’s a he’s a lanky, muscular. Version of that. He's not necessarily traditionally handsome, but rugged and good-looking in a way that the ladies in the in the in the books clearly like. His his romances in the books are for the largest part age-appropriate and usually [unclear: it’s very quite quite pure. Like he he / it’s very quite quite like. He he] hooks up with people who you like as characters. They're never just stand-ins or some sort of reward for getting the bad guy. I appreciate the romantic entanglements of Jack Reacher. There's a couple of novels where he sleeps with the girls way too young and they're creepy. But besides that,
+[00:09:52] Adam: He’s but he’s like 250, so he’s a lanky, muscular. Version of that. He's not necessarily traditionally handsome, but rugged and good-looking in a way that the ladies in the books clearly like. His his romances in the books are for the largest part age-appropriate and usually [unclear: it’s very quite quite pure. Like he he / it’s very quite quite like. He he] hooks up with people who you like as characters. They're never just stand-ins or some sort of reward for getting the bad guy. I appreciate the romantic entanglements of Jack Reacher. There's a couple of novels where he sleeps with the girls way too young and they're creepy. But besides that,
 
 [00:10:31] Norm: but isn't one of the appeals of the book is the way the he problem solves and how every action is dissected?
 
@@ -256,25 +256,25 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:10:38] Adam: His internal monologue is fascinating because he'll say things like, " I could see the guy rearing up for a swing, so I adjusted my left foot so that when he did, I bent down, which put my elbow in the perfect place to give him a kidney hit. That would bring down a normal guy, but this guy wanted more. I mean, it’s all this. The the physics and the momentum and the the the the constellation of signals he is processing in a fight is really delightful.
 
-[00:11:02] Norm: There's infallibility, I think, that works great in  book form. Yeah, but it's it's tough to convey in movie form.
+[00:11:02] Norm: There's infallibility, I think, that works great in book form. Yeah, but it's tough to convey in movie form.
 
 [00:11:10] Jeremy: Didn't they make a second movie?
 
-[00:11:11] Adam: Jeffrey Dean Jeffrey Dean Morgan. Jeffrey Dean Morgan's just a little bit old, but could do a could have that kind of stature. Tom Hardy is an actor, I think, who could play Jack Reacher pretty well.
+[00:11:11] Adam: Jeffrey Dean Morgan. Jeffrey Dean Morgan's just a little bit old, but could do a could have that kind of stature. Tom Hardy is an actor, I think, who could play Jack Reacher pretty well.
 
 [00:11:22] Norm: All right.
 
-[00:11:22] Adam: Um, it is a difficult role because he's kind of a giant in this, and he's a former military MP, so he's arrested everybody, right? So he arrests special forces guys. He has to be good enough to do that, and now he's a you know a drifter.
+[00:11:22] Adam: It is a difficult role because he's kind of a giant in this, and he's a former military MP, so he's arrested everybody, right? So he arrests special forces guys. He has to be good enough to do that, and now he's a you know a drifter.
 
-[00:11:37] Norm: Um, I want to talk about I know I want to talk about Ricky Jay because
+[00:11:37] Norm: I want to talk about I know I want to talk about Ricky Jay because
 
 [00:11:42] Adam: Ricky Jay, fuck, yeah.
 
-[00:11:42] Norm: since we recorded last time, Ricky Jay, uh, the magician, uh, he was he wore so many hats.
+[00:11:42] Norm: since we recorded last time, Ricky Jay the magician he was he wore so many hats.
 
-[00:11:50] Adam: He's a historian, a magician, an Actor, a raconteur, a a guardian of the of the of the Church of Magic. I mean, you know, Ricky Jay was really important culturally.
+[00:11:50] Adam: He's a historian, a magician, an Actor, a raconteur, a guardian of the Church of Magic. I mean Ricky Jay was really important culturally.
 
-[00:12:02] Jeremy: The only thing I ever knew him for was from Boogie Nights.  That's how that's how I knew him. That's how I was introduced to him. I watched the commentary track multiple times and I know Paul Thomas Anderson has a world of respect for him and refers to him as a magician first.
+[00:12:02] Jeremy: The only thing I ever knew him for was from Boogie Nights. That's how I knew him. That's how I was introduced to him. I watched the commentary track multiple times and I know Paul Thomas Anderson has a world of respect for him and refers to him as a magician first.
 
 [00:12:15] Adam: Yeah,
 
@@ -294,7 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:12:29] Norm: I think he’s like a computer hacker?
 
-[00:12:31] Adam: Um, I will tell you, I saw Ricky Jay perform the first time in 1982 at the International Jugglers Convention in SUNY Purchase, New York. Um, Ricky came there and was throwing playing cards out into the audience, like he could throw playing cards like 200 feet
+[00:12:31] Adam: I will tell you, I saw Ricky Jay perform the first time in 1982 at the International Jugglers Convention in SUNY Purchase, New York. Ricky came there and was throwing playing cards out into the audience, like he could throw playing cards like 200 feet
 
 [00:12:52] Norm: Cut watermelons.
 
@@ -316,13 +316,13 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:13:55] Jeremy: There's the boogie nights tie-in.
 
-[00:13:57] Adam: That's totally, and so I said we have to bring Ricky Jay in to help us with cards as weapons. And I knew someone who knew his assistant, and I got him on the phone, and I convinced him to come on down to come on up to up to up to MythBusters. And so he participated. He showed me how to throw cards. We had a showdown where we threw cards at each other, and he killed me, killed me. It was a fantastic like fantasy camp day for me to get to play with him. And I also met one of his prime collaborators, my very good friend and director of Brain Candy, Michael Weber. Yeah. And Michael came up with Ricky at that point. The two of them have done had done a huge amount of problem solving and practical illusions for Hollywood. For instance, it's Ricky Jay and Michael Weber that made Gary Sinise's legs disappear for Forrest Gump
+[00:13:57] Adam: That's totally, and so I said we have to bring Ricky Jay in to help us with cards as weapons. And I knew someone who knew his assistant, and I got him on the phone, and I convinced him to come on down to come on up to MythBusters. And so he participated. He showed me how to throw cards. We had a showdown where we threw cards at each other, and he killed me. It was a fantastic like fantasy camp day for me to get to play with him. And I also met one of his prime collaborators, my very good friend and director of Brain Candy, Michael Weber. Yeah. And Michael came up with Ricky at that point. The two of them have done had done a huge amount of problem solving and practical illusions for Hollywood. For instance, it's Ricky Jay and Michael Weber that made Gary Sinise's legs disappear for Forrest Gump
 
 [00:14:44] Norm: because they founded the company to do just that, right? The creative was that before CG was a big thing.
 
 [00:14:49] Adam: Exactly, and that was mostly a practical effect because CG was expensive. And they came up with a way to do it that didn't. I've still never asked them how they. I've still never asked Michael how they did it, but they did it in a way that was practical that didn't cause Sinise to lose all circulation to his legs. So Sinise's, sorry, excuse me, Ricky Jay did collaboration with Robert Zemeckis and tons of other directors for stuff exactly like this.
 
-[00:15:15] Jeremy: Practical magic effects for for the screen,
+[00:15:15] Jeremy: Practical magic effects for the screen,
 
 [00:15:17] Adam: exactly.
 
@@ -330,9 +330,9 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:15:18] Unknown speaker (Norm or Jeremy): Yeah,
 
-[00:15:18] Norm: and consultations in general for storytelling too. Like, how do you trick an audience to to care about this thing?
+[00:15:18] Norm: and consultations in general for storytelling too. Like, how do you trick an audience to care about this thing?
 
-[00:15:18] Adam: And such a wonderful, wonderful actor. I mean, I love him in the movie Heist. is one of my favorite David Mamet films with Sam Rockwell, Rebecca Pidgeon, Danny DeVito, and Ricky Jay is just is one of their one of their team.
+[00:15:18] Adam: And such a wonderful, wonderful actor. I mean, I love him in the movie Heist. is one of my favorite David Mamet films with Sam Rockwell, Rebecca Pidgeon, Danny DeVito, and Ricky Jay is just is one of their team.
 
 [00:15:39] Jeremy: I don't mean to digress, but I'm stuck on the physics of how you throw a card so well and directly so that it embeds itself into a watermelon.
 
@@ -348,7 +348,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:16:12] Norm: And Your whole arm has this sling out.
 
-[00:16:14] Adam: And you know, I have I have I have cut pieces of fruit. I have sliced cigarettes in half. I am much less accurate than a genuine pro like Ricky Jay was, but you know, I can I can I I can peek above the clouds a little bit.
+[00:16:14] Adam: And I have cut pieces of fruit. I have sliced cigarettes in half. I am much less accurate than a genuine pro like Ricky Jay was, but I can I I can peek above the clouds a little bit.
 
 [00:16:29] Jeremy: Right, that's very cool.
 
@@ -362,7 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:17:40] Jeremy: right? Which took 10,000 hours of practice,
 
-[00:17:42] Adam: precisely. And Ricky Jay and his 52 assistants is that kind of magic interspersed with just the best storytelling about the history of magic. He's an incredible raconteur. He was an incredible raconteur. There's a there's a somebody online who tweets as God,
+[00:17:42] Adam: precisely. And Ricky Jay and his 52 assistants is that kind of magic interspersed with just the best storytelling about the history of magic. He's an incredible raconteur. He was an incredible raconteur. There's a somebody online who tweets as God,
 
 [00:17:57] Norm, possibly Jeremy: yes.
 
@@ -370,11 +370,11 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:18:00] Jeremy: That's God, you know.
 
-[00:18:00] Adam: Yeah. Well, right right after the announcement that Ricky Jay died, he tweeted, " Ricky Jay just stole my wallet." I really appreciated that. That that was like I was really sad about that, and that that was exactly the right amount of lightening of the mood, and I think that Ricky would have loved that. Um, one last thing about Ricky Jay is that when we went to do the card showdown, [unclear: because when we went / was when we, when we went] to do the showdown, I was effectively directing this sequence, and so Ricky said, " What do you want to do?" And I said, " Well, let's face off. I'll say 10 paces, and you'll go. 
+[00:18:00] Adam: Yeah. Well, right right after the announcement that Ricky Jay died, he tweeted, " Ricky Jay just stole my wallet." I really appreciated that. That that was like I was really sad about that, and that that was exactly the right amount of lightening of the mood, and I think that Ricky would have loved that. One last thing about Ricky Jay is that when we went to do the card showdown, [unclear: because when we went / was when we, when we went] to do the showdown, I was effectively directing this sequence, and so Ricky said, " What do you want to do?" And I said, " Well, let's face off. I'll say 10 paces, and you'll go.
 
 [00:18:09] Unknown speaker (Adam or Jeremy): Let’s do it."
 
-[00:18:39] Adam: And I, you know, I'm not an actor, but I stand in front of Ricky Jay, who really is an actor. And he is ready to do the showdown and goes into that dead face cowboy showdown look, and it was terrifying to be in the beams of his incredible eyes for that shot. It was like, whoa! That was like, I feel really lucky that I got to experience that.
+[00:18:39] Adam: And I I'm not an actor, but I stand in front of Ricky Jay, who really is an actor. And he is ready to do the showdown and goes into that dead face cowboy showdown look, and it was terrifying to be in the beams of his incredible eyes for that shot. It was like, whoa! That was like, I feel really lucky that I got to experience that.
 
 [00:19:06] Jeremy: Yeah, hope you're wearing your safety goggles.
 
@@ -388,9 +388,9 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:19:17] Unknown speaker (Norm or Jeremy): Was it at at the lens like you’re doing one of those?
 
-[00:19:19] Adam: Yeah, I was, but I mean, [unclear: my my / at the, my my] crew will tell you that during that week I was just throwing cards constantly at everything. I was like, I was like an ADHD kid. I was an ADHD kid. Let's be clear.
+[00:19:19] Adam: Yeah, I was, but I mean, [unclear: my my / at the, my my] crew will tell you that during that week I was just throwing cards constantly at everything. I was like an ADHD kid. I was an ADHD kid. Let's be clear.
 
-[00:19:32] Norm: Ah, that's kind of muscle memory you you can't buy. It's like
+[00:19:32] Norm: Ah, that's kind of muscle memory you can't buy. It's like
 
 [00:19:34] Unknown speaker (Norm or Adam then Norm then Adam or Adam then Jeremy then Adam): Yeah, yeah, yeah.
 
@@ -448,11 +448,11 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:22:53] Jeremy: If we did RF or NFC. The sky's the limit. Like you could totally do that for nothing.
 
-[00:22:59] Adam: So that passive, passive reception transmission from just the radio waves technology was, I believe, and perhaps some commentators to the the comments underneath this podcast might help me remember this was the technology that allowed the Russians to bug an American embassy. Yeah. They put something like that in a painting, and the no bug sweep would find it unless it was activated. Right.
+[00:22:59] Adam: So that passive, passive reception transmission from just the radio waves technology was, I believe, and perhaps some commentators to the comments underneath this podcast might help me remember this was the technology that allowed the Russians to bug an American embassy. Yeah. They put something like that in a painting, and the no bug sweep would find it unless it was activated. Right.
 
 [00:23:24] Norm: Is this a plot point of the Americans?
 
-[00:23:26] Adam: No, no, no, no. This is actually a thing that really happened. So it was a really, really clever bug because it wasn't actively powered. It was only powered when they were beaming a radio at it, and so the normal bug sweeps would not pick it up because this had no had no signature.
+[00:23:26] Adam: No, no, no, no. This is actually a thing that really happened. So it was a really, really clever bug because it wasn't actively powered. It was only powered when they were beaming a radio at it, and so the normal bug sweeps would not pick it up because this had no signature.
 
 [00:23:42] Jeremy: Yeah. Wow.
 
@@ -486,13 +486,13 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:24:08] Norm: You think so?
 
-[00:24:09] Adam: It's Total conspiracy. I'm sorry, I don't buy any of that for one bit. The the yeah no that was I mean it's a clever plan, sure, but still a plan nonetheless.
+[00:24:09] Adam: It's Total conspiracy. I'm sorry, I don't buy any of that for one bit. The yeah no that was I mean it's a clever plan, sure, but still a plan nonetheless.
 
 [00:24:20] Norm: Related to that, I have two recommendations for things for people to watch. The Banksy, whatever that that stunt was, was perfectly timed for this new HBO documentary that just came out called " The Price of Everything," and it's about the world of high end art collecting in modern art.
 
 [00:24:38] Jeremy, possibly Norm: Right.
 
-[00:24:38] Norm: So people like Jeff Koons and Banksy and and the auction houses that deal in that art and what it really means to price something 
+[00:24:38] Norm: So people like Jeff Koons and Banksy and the auction houses that deal in that art and what it really means to price something
 
 [00:24:38] Unknown speaker (Norm or Jeremy): right
 
@@ -500,15 +500,15 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:24:48] Unknown speaker: The market will bear,
 
-[00:24:48] Norm: and it is the the whole documentary plays like a Christopher Guest mockumentary, but it's real.
+[00:24:48] Norm: and it is the whole documentary plays like a Christopher Guest mockumentary, but it's real.
 
 [00:24:56] Adam: Wow.
 
-[00:24:56] Norm: Because it's it's absurd. Because you can't, no one watching this could relate. To these people who are
+[00:24:56] Norm: Because it's absurd. Because you can't, no one watching this could relate. To these people who are
 
 [00:25:01] Adam: spending $3 million, $5 million, $10 million, Yes.
 
-[00:25:03] Norm: and the people hawking and the artists who think their work is worth that much, I mean, there's this one plot point I'll talk about in which one of the auctioneers talks, or one of the the Sotheby's people says that you know, around Central Park there's high rises, and in these apartment buildings they know for sure that on certain floors there are multiple floors with exact same piece of artwork, like a limited run on the exact same wall, you know, $5 million, $10 million each on each floor, because that's what these people barter in. Like, it's what my what my neighbor has three stories below me because I am in a $50 million apartment building. Well, I got to have that same vase or the same painting.
+[00:25:03] Norm: and the people hawking and the artists who think their work is worth that much, I mean, there's this one plot point I'll talk about in which one of the auctioneers talks, or one of the Sotheby's people says that around Central Park there's high rises, and in these apartment buildings they know for sure that on certain floors there are multiple floors with exact same piece of artwork, like a limited run on the exact same wall$5 million, $10 million each on each floor, because that's what these people barter in. Like, it's what my neighbor has three stories below me because I am in a $50 million apartment building. Well, I got to have that same vase or the same painting.
 
 [00:25:41] Adam: Seriously,
 
@@ -538,13 +538,13 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:26:24] Unknown speaker: I think people are going to like it.
 
-[00:26:25] Adam: I'm trying to figure out. So yeah, I'm trying to figure out exactly how to display it, how to properly display it. That'll be that'll be the next thing. Oh, that's such a tease. I'm so sorry, everybody.  It’s a Blade Runner prop.
+[00:26:25] Adam: I'm trying to figure out. So yeah, I'm trying to figure out exactly how to display it, how to properly display it. That'll be the next thing. Oh, that's such a tease. I'm so sorry, everybody. It’s a Blade Runner prop.
 
 [00:26:39] Norm: Oh,
 
-[00:26:39] Adam: Yeah, there you go. I'm dropping it. It’s a Blade Runner prop, and you might have seen it in the background of some various some various videos here or there. I think it might have shown up in the background a couple times.
+[00:26:39] Adam: Yeah, there you go. I'm dropping it. It’s a Blade Runner prop, and you might have seen it in the background of some various videos here or there. I think it might have shown up in the background a couple times.
 
-[00:26:50] Norm: Yeah, I think that's enough information. People can suss that out based on that, but it’s it’s worth the wait. Definitely worth the wait. One other recommendation, and it's for you guys in the room too. I was doing. We're watching a lot of Netflix now because baby, and I actually found [unclear: some / someone] on Netflix just randomly selecting something that ended up being amazing. It's and kind of passed by. Came out last year. It's called Five Came Back, and it's a Steven Spielberg produced three episode documentary series about the five film directors in Hollywood who went to film World War II. Oh, wow. So it’s about John Ford, John Huston, George Stevens, Frank Capra, and William Wyler, who in the '20s and '30s were pioneers in Hollywood. [unclear: ∅ / Yeah]. Some of them had already made you know Maltese Falcon [unclear: and and and / Yeah, yeah, and] won Academy Awards, and their decision to pause their careers and support the war effort by filming World War II. So it builds up and culminates, and this is all history. So the footage you see on D Day and the Battle of Midway are filmed by these. These directors and how they brought their directorial sensibilities to telling the story of war,
+[00:26:50] Norm: Yeah, I think that's enough information. People can suss that out based on that, but it’s worth the wait. Definitely worth the wait. One other recommendation, and it's for you guys in the room too. I was doing. We're watching a lot of Netflix now because baby, and I actually found [unclear: some / someone] on Netflix just randomly selecting something that ended up being amazing. It's and kind of passed by. Came out last year. It's called Five Came Back, and it's a Steven Spielberg produced three episode documentary series about the five film directors in Hollywood who went to film World War II. Oh, wow. So it’s about John Ford, John Huston, George Stevens, Frank Capra, and William Wyler, who in the '20s and '30s were pioneers in Hollywood. [unclear: ∅ / Yeah] Some of them had already made you know Maltese Falcon [unclear: and and and / Yeah, yeah, and] won Academy Awards, and their decision to pause their careers and support the war effort by filming World War II. So it builds up and culminates, and this is all history. So the footage you see on D Day and the Battle of Midway are filmed by these. These directors and how they brought their directorial sensibilities to telling the story of war,
 
 [00:28:08] Unknown speaker (Adam or Jeremy): incredible,
 
@@ -554,7 +554,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:28:14] Norm: Yes, well, 100%.
 
-[00:28:15] Adam: That also that also dovetails really with the " They Shall Not Grow Old" coming out
+[00:28:15] Adam: That also dovetails really with the " They Shall Not Grow Old" coming out
 
 [00:28:21] Norm: in mid-December, Totally, no, absolutely.
 
@@ -564,25 +564,25 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:28:26] Adam: [unclear: ∅ / Oh].
 
-[00:28:26] Norm: Steven Spielberg, Lawrence Kasdan, and and Francis Ford Coppola.
+[00:28:26] Norm: Steven Spielberg, Lawrence Kasdan, and Francis Ford Coppola.
 
 [00:28:51] Adam: Your memory Norm is really something to marvel at.
 
-[00:28:54] Jeremy: He's He's lost 10%.
+[00:28:54] Jeremy: He's lost 10%.
 
 [00:28:55] Norm: Yeah, 10 feet. You can see it. Yeah,
 
 [00:28:58] Jeremy: but still, that's like 100%, but more than I have.
 
-[00:29:00] Adam: Um, I did. I just a shameless plug. I want to point out that we have some brand new products, for sale for the holidays on AdamSavage.com, where we've released some wide mouth pouches that you can buy in a set, a large and a small. I don't go anywhere without these in my bag. Been developing this with Marcos for several months, and the pouches. Yeah, I'm really psyched about this. And we have a EDC one, EDC twos now. The smaller EDC bag in black, and black on black, and black with a gray interior. So if you're interested in some of those things, go check it out at AdamSavage.com. And shameless plug.
+[00:29:00] Adam: I did. I just a shameless plug. I want to point out that we have some brand new products, for sale for the holidays on AdamSavage.com, where we've released some wide mouth pouches that you can buy in a set, a large and a small. I don't go anywhere without these in my bag. Been developing this with Marcos for several months, and the pouches. Yeah, I'm really psyched about this. And we have a EDC one, EDC twos now. The smaller EDC bag in black, and black on black, and black with a gray interior. So if you're interested in some of those things, go check it out at AdamSavage.com. And shameless plug.
 
 [00:29:36] Norm: Perfect for the holidays. And I think that does it for this week's podcast. Oh, I'll just do a shameless plug for Tested because we have a great video that dropped as we’re recording this, you meeting Melissa Ng in the cave, and her showing you her Phoenix gauntlets.
 
-[00:29:52] Adam: She is so amazing. I'm her Phoenix gauntlets have have they're sitting right over there on my pool table because I'm. Trying to figure out how best to display all of my gauntlets, I realized in the same way I have helmet display, I need to come up with a way for the gauntlets to all be visible in a in a singular way, and that's non trivial.
+[00:29:52] Adam: She is so amazing. I'm her Phoenix gauntlets have have they're sitting right over there on my pool table because I'm. Trying to figure out how best to display all of my gauntlets, I realized in the same way I have helmet display, I need to come up with a way for the gauntlets to all be visible in a singular way, and that's non trivial.
 
 [00:30:09] Norm: [unclear: Oh well, these / They’re large things]. because they're so posable, yeah. Might want to. How do you find a? hand?
 
-[00:30:13] Adam: Well, I have some posable hands over there. I bought some of those wooden artist posable hands, but then really, I want all the gauntlets to be posed and visible, you know. So [unclear: that’s / that’s a / that’s it.] Melissa Ng is lightning in a bottle. It's delightful to know her, and she was so much fun to host here in the cave.
+[00:30:13] Adam: Well, I have some posable hands over there. I bought some of those wooden artist posable hands, but then really, I want all the gauntlets to be posed and visible. So [unclear: that’s / that’s a / that’s it.] Melissa Ng is lightning in a bottle. It's delightful to know her, and she was so much fun to host here in the cave.
 
 [00:30:29] Jeremy: I would have thought there was no room left in your cave years ago, and yet you always find a way.
 

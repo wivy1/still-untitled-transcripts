@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:00:22] Adam: Really, really, really. I just watched it again a few weeks ago with the boys. It's a stunner, and it's phenomenal.
 
-[00:00:36] Will: They have they have such a wide ranging, like yeah, but I mean, but at the same time, they're so they're so prolific. It's hard to like. It's hard to know just by looking at a trailer or whatever whether it's going to be a Coen Brothers movie. I like,
+[00:00:36] Will: They have such a wide ranging, like yeah, but I mean, but at the same time, they're so prolific. It's hard to like. It's hard to know just by looking at a trailer or whatever whether it's going to be a Coen Brothers movie. I like,
 
 [00:00:36] Adam: Yeah.
 
@@ -82,7 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:01:49] Adam: Everyone knows the left side of a salmon is black.
 
-[00:01:53] Will: Is this is this the return of Big Mouth Billy Bass singing that song about all about the bass?
+[00:01:53] Will: Is this the return of Big Mouth Billy Bass singing that song about all about the bass?
 
 [00:01:57] Adam: These are not animatronic fish. These are born of a. These are.
 
@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:03:13] Adam: Not even gonna do a Katherine Helmond update of her Brazil shoe hat or something like that.
 
-[00:03:19] Norm: Do you do you recall? And you must have in your records when you bought these on on eBay. So maybe you can look up.
+[00:03:19] Norm: Do you recall? And you must have in your records when you bought these on eBay. So maybe you can look up.
 
 [00:03:25] Adam: I could look at my browsing history and see what—
 
@@ -134,7 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:03:33] Norm: Memory edition.
 
-[00:03:34] Adam: Maybe maybe the NSA already knows what I was planning to do and and has you know
+[00:03:34] Adam: Maybe maybe the NSA already knows what I was planning to do and has you know
 
 [00:03:38] Will: I've forgotten. If they're gonna spy on us anyway, at least they could help us out when we forget stuff.
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:04:13] Norm: best gift giver ever.
 
-[00:04:17] Will: And and so it's always
+[00:04:17] Will: And so it's always
 
 [00:04:17] Adam: have you done that?
 
@@ -176,11 +176,11 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:04:22] Adam: I've never done that. I don't drink.
 
-[00:04:23] Norm: But it's not drinking, but just like sleepy. Yeah. Like, you know, any any time.
+[00:04:23] Norm: But it's not drinking, but just like sleepy. Yeah. Like any any time.
 
 [00:04:28] Adam: Yeah. Oh
 
-[00:04:29] Will: yeah. Like two weeks later, a package comes. You open it, like, what the hell is this? And then it's some taxidermy fish.
+[00:04:29] Will: yeah. Like two weeks later, a package comes. You open it what the hell is this? And then it's some taxidermy fish.
 
 [00:04:33] Adam: Oh well, that happens all the time.
 
@@ -220,7 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:05:08] Will: Yeah. Pre-order stuff does is is bad about that, just in general. I don't like pre-orders because of that, but sometimes you don't have a choice. Yeah, these are the real internet, the first worldiest to first world problems.
 
-[00:05:19] Adam: My my pre-order toy has not arrived, and it's been a year.
+[00:05:19] Adam: My pre-order toy has not arrived, and it's been a year.
 
 [00:05:22] Will: Man, hold on, but go back. Remember when you were a kid and you had to send something in? It was like it'll take six to eight weeks to arrive, and that was the longest six to eight weeks of your young life.
 
@@ -264,13 +264,13 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:06:48] Norm: So scared.
 
-[00:06:49] Adam: And I don't have the $30, and so I just start throwing away the letters. Oh, I 8 10 months go by. I start getting. I get letters like this, Mister Savage. It's time to stop beating around the bush. When something needs to be said, it's time to say it. You have, you have, taken something. For I mean, I was, and I like the shame. I read this and. Threw it in the trash, and my mom was like, " A couple days later, she was like, 'Honey, what is this?'" And I was like, " I'm sorry, I'm sorry, I'm sorry." I felt like they were going to come for me, and she was like, " Oh my god," she felt so bad, and she immediately made it go away. But she got on the phone.
+[00:06:49] Adam: And I don't have the $30, and so I just start throwing away the letters. Oh, I 8 10 months go by. I start getting. I get letters like this, Mister Savage. It's time to stop beating around the bush. When something needs to be said, it's time to say it. You have, taken something. For I mean, I was, and I like the shame. I read this and. Threw it in the trash, and my mom was like, " A couple days later, she was like, 'Honey, what is this?'" And I was like, " I'm sorry, I'm sorry, I'm sorry." I felt like they were going to come for me, and she was like, " Oh my god," she felt so bad, and she immediately made it go away. But she got on the phone.
 
 [00:07:26] Will: Yeah, she killed him. Oh,
 
 [00:07:26] Adam: you go away.
 
-[00:07:29] Norm: You know. I'll tell you this. I'll go one step further. I got like the it's the subscription thing, the magazine thing, and having worked in magazines, they never went really went after people. Like it's not worth
+[00:07:29] Norm: I'll tell you this. I'll go one step further. I got like the it's the subscription thing, the magazine thing, and having worked in magazines, they never went really went after people. Like it's not worth
 
 [00:07:40] Will: it. They don't. No one. It's all about threatening letters.
 
@@ -278,7 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:07:43] Will: That's as deep as they go.
 
-[00:07:45] Norm: Deep as they'll go. Threatening letters because it's not worth the legal time. Yeah. Um, to pursue, but as a kid, you get the one free magazine, and then you got to cancel, or else they'll send you. And
+[00:07:45] Norm: Deep as they'll go. Threatening letters because it's not worth the legal time. Yeah. To pursue, but as a kid, you get the one free magazine, and then you got to cancel, or else they'll send you. And
 
 [00:07:54] Will: you have to spend $0.20 on that stamp.
 
@@ -292,7 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:08:28] Adam: Yeah, I got a model, model T Ford,
 
-[00:08:30] Norm: right? And you get, and I got like a space, like a F-14 fighter jet. I remember, like a small one in fifth grade, and it's like the best thing ever. But you don't want,
+[00:08:30] Norm: right? And you get, and I got a space a F-14 fighter jet. I remember a small one in fifth grade, and it's like the best thing ever. But you don't want,
 
 [00:08:38] Adam: but then you need to send them a registered letter to cancel the subscription. That's the whole thing, making it hard to get out of something. It's just, it's one of the. I think it's right. I think if they did an update of Dante's Inferno, there would be a special place in hell for the
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:08:56] Adam: Oh, right,
 
-[00:08:57] Will: right. I I got still
+[00:08:57] Will: right. I got still
 
 [00:08:59] Adam: something like 20% of their actual annual income is that
 
@@ -372,7 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:10:29] Norm: Next week,
 
-[00:10:29] Adam: this is why I can't have nice things. I, I let's see.
+[00:10:29] Adam: this is why I can't have nice things. I let's see.
 
 [00:10:33] Norm: Is today Monday?
 
@@ -438,7 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:11:41] Will: I buy stuff if I want.
 
-[00:11:43] Norm: We are. I think the people at this table are probably the worst people to get Christmas presents for. Um, I specifically have things that I telegraph, and I know I will not buy, even though I want, because I know they are will be they are easy Christmas presents for people to buy me, and they falls between the stuff that's too easy for me to buy, like I was mentioning books earlier.
+[00:11:43] Norm: We are. I think the people at this table are probably the worst people to get Christmas presents for. I specifically have things that I telegraph, and I know I will not buy, even though I want, because I know they are will be they are easy Christmas presents for people to buy me, and they falls between the stuff that's too easy for me to buy, like I was mentioning books earlier.
 
 [00:12:01] Adam: That is both awesome and a little weird.
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:12:04] Will: Norm's biography.
 
-[00:12:05] Norm: So, like, I will buy that, and I don't want people to buy me that for a gift because, like, I can buy it for myself, and I want the instant gratification. But for things like a set of pint glasses, I really want. I don't need them now.
+[00:12:05] Norm: So I will buy that, and I don't want people to buy me that for a gift because I can buy it for myself, and I want the instant gratification. But for things like a set of pint glasses, I really want. I don't need them now.
 
 [00:12:05] Adam: Right,
 
@@ -480,7 +480,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:13:07] Will: Okay.
 
-[00:13:07] Norm: Or or Netflix.
+[00:13:07] Norm: Or Netflix.
 
 [00:13:09] Adam: Oh yeah. And. What do they do? Extra materials.
 
@@ -494,11 +494,11 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:13:18] Will: extra materials are what I love.
 
-[00:13:19] Adam: Extra materials, Frank, from a from a prop. Replication standpoint, extra materials on DVDs is often one of the most fertile places to find behind-the-scenes looks at the props you're trying to replicate. Giving super, there was detail. There were details on the ZF1 from the Fifth Element that I could only discern by buying the German version of Die Fünfte Element.
+[00:13:19] Adam: Extra materials, Frank, from a prop. Replication standpoint, extra materials on DVDs is often one of the most fertile places to find behind-the-scenes looks at the props you're trying to replicate. Giving super, there was detail. There were details on the ZF1 from the Fifth Element that I could only discern by buying the German version of Die Fünfte Element.
 
 [00:13:46] Will: That's the Fifth Element.
 
-[00:13:47] Adam: And and managing to click through the screens to behind the scenes and watching the documentaries in German.
+[00:13:47] Adam: And managing to click through the screens to behind the scenes and watching the documentaries in German.
 
 [00:13:54] Will: I just love the thing. I love about discs is the commentaries. So like Gina and I will put on commentaries for a movie that we've watched. This is why I have probably four different versions of Almost Famous because there's different commentaries on each one. Oh. And like
 
@@ -520,7 +520,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:14:21] Adam: where you can
 
-[00:14:21] Will: so. But we'll put them on while we're doing board games or cleaning the house or something. You just kind of it's it's background noise. It's not music, and it's wonderful.
+[00:14:21] Will: so. But we'll put them on while we're doing board games or cleaning the house or something. You just kind of it's background noise. It's not music, and it's wonderful.
 
 [00:14:28] Norm: Yeah.
 
@@ -530,7 +530,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:14:33] Adam: Add as a director's track, add $1, and you click on it, and you get it.
 
-[00:14:36] Will: Well, so some stuff has that, but then they have a like like um the digital I my digital version of Captain America has that of Winter Soldier, and it has like a limited selection of extras, but you never know what you're gonna get, and sometimes they're exclusive, and it's just you know.
+[00:14:36] Will: Well, so some stuff has that, but then they have a like the digital I my digital version of Captain America has that of Winter Soldier, and it has like a limited selection of extras, but you never know what you're gonna get, and sometimes they're exclusive, and it's just you know.
 
 [00:14:50] Norm: But I was saying, I let people know I do not buy Blu-rays, and so, but I enjoy them, and I'm more than happy to.
 
@@ -552,7 +552,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:15:25] Adam: Oh wow!
 
-[00:15:26] Will: There's a there's a YouTube video that Warner Brothers posted. No, no, well, it looks it looks as the best it's ever going to look. Yes. Um. There's a there's a YouTube video where you can see the like left right of the film transfer versus the TV transfer, and it's it's
+[00:15:26] Will: There's a YouTube video that Warner Brothers posted. No, no, well, it looks as the best it's ever going to look. Yes. There's a YouTube video where you can see the like left right of the film transfer versus the TV transfer, and it's
 
 [00:15:40] Adam: stunning. Night and day. Yeah. Chalk and cheese, as they say in the UK.
 
@@ -562,17 +562,17 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:16:00] Norm: Do you do an exchange on Christmas morning?
 
-[00:16:01] Adam: We do. We do do little exchanges on Christmas morning, and sometimes one of the other of us will get a a inspiration and kind of go all out and do something nifty. Um, but for the most part, yeah, we're kind of we're sort of like if something grabs us, we'll go and do it. But for the most part, it's like you know, making sure the kids get you know. I think one of the boys wants an amp this year, which is totally cool.
+[00:16:01] Adam: We do. We do do little exchanges on Christmas morning, and sometimes one of the other of us will get a inspiration and kind of go all out and do something nifty. But for the most part, yeah, we're kind of we're sort of like if something grabs us, we'll go and do it. But for the most part, it's like making sure the kids get you know. I think one of the boys wants an amp this year, which is totally cool.
 
 [00:16:25] Will: That's a good thing.
 
 [00:16:26] Adam: Yeah, music music gift.
 
-[00:16:28] Will: It's the kind of gift that you'll buy and you immediately will regret. But you know, oh, I guess you can plug headphones in. Yeah,
+[00:16:28] Will: It's the kind of gift that you'll buy and you immediately will regret. But oh, I guess you can plug headphones in. Yeah,
 
 [00:16:33] Adam: yeah. But God, as far as
 
-[00:16:36] Will: I don't know, my wife and I usually buy experiences for each other. Like we we give small gifts, but then we'll like if we want to do something big, then we'll go on a trip someplace or we'll you know do something silly.
+[00:16:36] Will: I don't know, my wife and I usually buy experiences for each other. Like we give small gifts, but then we'll like if we want to do something big, then we'll go on a trip someplace or we'll you know do something silly.
 
 [00:16:46] Norm: A hot air balloon ride.
 
@@ -604,7 +604,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:17:39] Will: Oh boy, that's great. Oh wow, that is totally a grandpa joke.
 
-[00:17:42] Norm: In terms of experiences, I think a lot of people might they might want instead of objects, they want the thing that can get the story they can tell. They want a story, and and the story I want, and it's also experiences. I want to wake up on Christmas morning and go out, and someone has put a big giant red bow on my car—
+[00:17:42] Norm: In terms of experiences, I think a lot of people might they might want instead of objects, they want the thing that can get the story they can tell. They want a story, and the story I want, and it's also experiences. I want to wake up on Christmas morning and go out, and someone has put a big giant red bow on my car—
 
 [00:17:59] Will: the one that you already own
 
@@ -620,7 +620,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:18:13] Will: You just go there and do every car in the street.
 
-[00:18:14] Norm: They can have the the December to remember, and then they can tweet about it, and that's their experience.
+[00:18:14] Norm: They can have the December to remember, and then they can tweet about it, and that's their experience.
 
 [00:18:19] Adam: So a few years ago, when we first bought a the Fiat 500. The Cinquecento, Julia and I had been planning to go get one, but Mythbusters takes so much time to shoot, and I never got around to it. So she just went to the dealer and did it. And well, I woke up on Christmas morning to the car in the garage.
 
@@ -640,13 +640,13 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:18:56] Adam: So, so the thing was, is that was also the year I sold a couple of my old laptops and bought the boys a pair of MacBook Airs. It was like four or five years ago.
 
-[00:19:06] Will: It was when the MacBook Air, like the the new design.
+[00:19:06] Will: It was when the MacBook Air, like the new design.
 
 [00:19:10] Adam: Yeah, I think so.
 
 [00:19:10] Will: The old ones were cheaper.
 
-[00:19:11] Adam: and and one of the MacBook Airs just wouldn't sign on to the web. You know, sometimes they come out of the box with a proclivity, and this one. The other one was like, " Bink, I'm online. Everything is here." And the other one was like, " I have no idea who I am or what you are." And like, an hour, and I'm, you know, I'm getting madder and madder because my son is getting upset. And meanwhile, the whole family knows that there's a car in the garage for me,
+[00:19:11] Adam: and one of the MacBook Airs just wouldn't sign on to the web. Sometimes they come out of the box with a proclivity, and this one. The other one was like, " Bink, I'm online. Everything is here." And the other one was like, " I have no idea who I am or what you are." And like, an hour, and I'm I'm getting madder and madder because my son is getting upset. And meanwhile, the whole family knows that there's a car in the garage for me,
 
 [00:19:41] Will: except for you,
 
@@ -670,7 +670,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:20:31] Adam: Yeah,
 
-[00:20:31] Will: trying to print something. Right, fucking printers. Um, Christmas. So, so for us this year, Christmas, my daughter turns two in January. So this is oh, this is the Christmas.
+[00:20:31] Will: trying to print something. Right, fucking printers. Christmas. So, so for us this year, Christmas, my daughter turns two in January. So this is oh, this is the Christmas.
 
 [00:20:58] Adam: Yes, right.
 
@@ -680,9 +680,9 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:21:05] Norm: holy crap! Setting up the cameras.
 
-[00:21:07] Adam: That's um, that's uh, so it's also hard not to spoil two and three and four year olds because everyone in the family sends them stuff and they just get like this king's ransom of crap.
+[00:21:07] Adam: That's so it's also hard not to spoil two and three and four year olds because everyone in the family sends them stuff and they just get like this king's ransom of crap.
 
-[00:21:16] Will: This is this is my family's been really good about that so far because they we we ask them to spread stuff out throughout the year and bring stuff on visits and stuff like that.
+[00:21:16] Will: This is my family's been really good about that so far because they we ask them to spread stuff out throughout the year and bring stuff on visits and stuff like that.
 
 [00:21:16] Adam: Yeah.
 
@@ -698,7 +698,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:21:38] Adam: That's awesome.
 
-[00:21:38] Will: But yeah, so we're we're going through and like picking out. Yeah. She's getting Lego and all sorts of stuff.
+[00:21:38] Will: But yeah, so we're going through and like picking out. Yeah. She's getting Lego and all sorts of stuff.
 
 [00:21:58] Adam: Ah, Lego. That's the thing. For years, that was just my only answer. What do the boys want? Lego. What do the boys want? Lego.
 
@@ -706,9 +706,9 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:22:05] Adam: Done. It's it's such an easy thing, and no one ever overlaps.
 
-[00:22:09] Will: Well, we like Lego. I think Lincoln Logs are probably still a choking hazard for one more year, but I'm looking forward to those because those were always you know fun when I was a kid. Yeah. Um, and that kind of stuff.
+[00:22:09] Will: Well, we like Lego. I think Lincoln Logs are probably still a choking hazard for one more year, but I'm looking forward to those because those were always you know fun when I was a kid. Yeah. And that kind of stuff.
 
-[00:22:19] Norm: Doing the kind of work we do, we get a lot of solicitations around this time. You know, people asking companies asking, " Are you doing a gift guide? " Yeah. We like consideration in your gift guide, and we don't do gift guides, but. I do like reading about recommendations.
+[00:22:19] Norm: Doing the kind of work we do, we get a lot of solicitations around this time. People asking companies asking, " Are you doing a gift guide? " Yeah. We like consideration in your gift guide, and we don't do gift guides, but. I do like reading about recommendations.
 
 [00:22:32] Will: I like a good gift guide,
 
@@ -738,7 +738,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:23:27] Norm: 15th,
 
-[00:23:27] Will: maybe 15th. Yeah, you've been there. We we pick something up there one time.
+[00:23:27] Will: maybe 15th. Yeah, you've been there. We pick something up there one time.
 
 [00:23:30] Adam: Amazing!
 
@@ -750,7 +750,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:23:36] Adam: But not your standard run of cheese boards. Really, there's a from high to low, good taste, really wonderful stuff.
 
-[00:23:44] Will: It seems like they buy from from like artists and craftspeople.
+[00:23:44] Will: It seems like they buy from like artists and craftspeople.
 
 [00:23:47] Adam: They have fantastic taste.
 
@@ -768,9 +768,9 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:24:17] Will: Yeah.
 
-[00:24:18] Adam: So I'll go slightly bigger than that, and I'll spend a day before Christmas printing out 10 or 15 different ones and give those out. And I really like that because it's it's creative, it's thoughtful, and I've got. 50,000 photos in my collection, and some of them are family members that are great that we all forgot that I took, and they're wonderful to see.
+[00:24:18] Adam: So I'll go slightly bigger than that, and I'll spend a day before Christmas printing out 10 or 15 different ones and give those out. And I really like that because it's creative, it's thoughtful, and I've got. 50,000 photos in my collection, and some of them are family members that are great that we all forgot that I took, and they're wonderful to see.
 
-[00:24:39] Will: I mean, that's that's a wonderful gift for parents and grandparents and stuff like that. Is even if you don't have a great camera or a huge printer, you can get four by sixes printed at Target.
+[00:24:39] Will: I mean, that's a wonderful gift for parents and grandparents and stuff like that. Is even if you don't have a great camera or a huge printer, you can get four by sixes printed at Target.
 
 [00:24:39] Adam: Oh yeah,
 
@@ -798,7 +798,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:25:22] Adam: Wraps up all 10 strings of Christmas lights, which are all connected in series. Around a large cardboard tube, it takes me like 45 minutes to walk that many times around the Christmas tree to wrap them around. But every year at Christmas, when it's time to decorate the Christmas tree, I thank past me because it's totally trivial. Plug it in and walk around the tree.
 
-[00:25:43] Will: I'll have to tell my wife; she's she's in charge of our lights,
+[00:25:43] Will: I'll have to tell my wife; she's in charge of our lights,
 
 [00:25:45] Adam: dude.
 
@@ -816,7 +816,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:26:01] Adam: You could.
 
-[00:26:01] Norm: Oh, that's that's a great life hack.
+[00:26:01] Norm: Oh, that's a great life hack.
 
 [00:26:04] Adam: There's my life hack for Christmas decoration.
 
@@ -826,15 +826,15 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:26:09] Will: can't have nice. This fish Has ruined the whole podcast. Christmas plans? Fam, spend time with family.
 
-[00:26:16] Adam: Um, yeah, we um, we don't have distinct Christmas plans yet. At as of this, we tend to play that stuff kind of late. Yeah. Well,
+[00:26:16] Adam: Um, yeah, we don't have distinct Christmas plans yet. At as of this, we tend to play that stuff kind of late. Yeah. Well,
 
 [00:26:26] Will: last year you guys were in New York, I think,
 
-[00:26:27] Adam: right? And the boys are not with us this Christmas. They were with us last Christmas in New York. Yeah, they're not with us this Christmas. They're with their they're with relatives in another state. So we will be by ourselves. And you know, sometimes we just like go to a hotel and have a little quiet Christmas in San Francisco, like a little time out of time.
+[00:26:27] Adam: right? And the boys are not with us this Christmas. They were with us last Christmas in New York. Yeah, they're not with us this Christmas. They're with their they're with relatives in another state. So we will be by ourselves. And sometimes we just like go to a hotel and have a little quiet Christmas in San Francisco, like a little time out of time.
 
 [00:26:48] Will: That's nice.
 
-[00:26:49] Adam: You know, we we we did that a couple a few years back, and it was lovely.
+[00:26:49] Adam: We did that a couple a few years back, and it was lovely.
 
 [00:26:53] Will: We stayed
 
@@ -848,11 +848,11 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:27:07] Adam: before. Yes, it's been on multiple ones. The ceilings are like 80 feet tall, and it's like a football field wide. I'm totally lying about all of these dimensions.
 
-[00:27:15] Will: And the and the
+[00:27:15] Will: And the
 
 [00:27:15] Adam: There's a Christmas tree that's like
 
-[00:27:17] Will: there's a big huge. It looks like the Christmas. It almost feels like a tesseract where you go into the room and it's bigger outside than it is inside, or let's flip that, reverse it. Um, but the but the no matter no matter how the the the staff at the Fairmont is unflappable.
+[00:27:17] Will: there's a big huge. It looks like the Christmas. It almost feels like a tesseract where you go into the room and it's bigger outside than it is inside, or let's flip that, reverse it. But the no matter how the staff at the Fairmont is unflappable.
 
 [00:27:33] Adam: They are
 
@@ -860,7 +860,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:27:35] Adam: They've been, the people, they've been attempted to be flapped by everybody
 
-[00:27:39] Will: and and at that time of year they deal with a lot of extemporaneous situations. Um,
+[00:27:39] Will: and at that time of year they deal with a lot of extemporaneous situations.
 
 [00:27:45] Adam: you guys, you're staying in town.
 
@@ -868,7 +868,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:27:53] Adam: do you ever go to the movies on Christmas?
 
-[00:27:55] Will: Um, I used to. No, I took my sister. I took my sister when we were in Tennessee one year to see the Two Towers on Christmas Day.
+[00:27:55] Will: I used to. No, I took my sister. I took my sister when we were in Tennessee one year to see the Two Towers on Christmas Day.
 
 [00:28:02] Adam: I saw the Two Towers on New Year's
 
@@ -926,7 +926,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:29:08] Will: We should do that.
 
-[00:29:08] Norm: Did he TV show with the robot, the the cop robot partner TV show, and that got canceled on Fox?
+[00:29:08] Norm: Did he TV show with the robot, the cop robot partner TV show, and that got canceled on Fox?
 
 [00:29:15] Will: We should have a Karl Urban Film Festival.
 
@@ -966,7 +966,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:29:55] Will: Oh, it's the best Christmas movie ever.
 
-[00:30:02] Adam: You know, I have heard tell that MythBusters is a Christmas tradition. They run a marathon every Christmas. My mom watches it.
+[00:30:02] Adam: I have heard tell that MythBusters is a Christmas tradition. They run a marathon every Christmas. My mom watches it.
 
 [00:30:02] Norm: Okay.
 
@@ -1066,7 +1066,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:33:14] Adam: Yes,
 
-[00:33:15] Will: and probably on VHS, maybe DVD, I guess, but but I think Netflix has ruined that. In a lot of cases, because you know your $8 a month that everybody's paying for. Oh, that was me. Sorry. Oh, far out. Your $8 a month is, you know, taking care all the TVs there. Yeah. Um, the thing that just happened was I set on I set the accessibility alert so that when I get a ringtone, my light flashes, which is annoying and awesome.
+[00:33:15] Will: and probably on VHS, maybe DVD, I guess, but I think Netflix has ruined that. In a lot of cases, because you know your $8 a month that everybody's paying for. Oh, that was me. Sorry. Oh, far out. Your $8 a month is taking care all the TVs there. Yeah. The thing that just happened was I set on I set the accessibility alert so that when I get a ringtone, my light flashes, which is annoying and awesome.
 
 [00:33:38] Adam: I thought I was having an aneurysm.
 
@@ -1076,15 +1076,15 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:33:43] Norm: Our aneurysms are syncing up. We've been hanging out so long.
 
-[00:33:47] Will: Um, I think that'll. I think that's. I feel like.
+[00:33:47] Will: I think that'll. I think that's. I feel like.
 
-[00:33:50] Norm: Do you do the thing where you you Contact it. Do the Contact thing where the most American thing is if you can buy two for the price that buy two of them for the double the price. Why not? And you just buy one for yourself and one buy.
+[00:33:50] Norm: Do you do the thing where you Contact it. Do the Contact thing where the most American thing is if you can buy two for the price that buy two of them for the double the price. Why not? And you just buy one for yourself and one buy.
 
 [00:34:00] Adam: I do a lot of that. I'm terrible. I'm terrible. Yeah.
 
 [00:34:03] Norm: And the best gift is one that you know there's only one, and you decide to buy it for them. Yeah, and not for
 
-[00:34:09] Adam: you. But the best gifts are always ones that you want. Yeah. Right. Those are. Those are. That's a. That's a. That's a lovely thing. I I really enjoyed that. Um. What about New Year's? Should we talk about New Year's?
+[00:34:09] Adam: you. But the best gifts are always ones that you want. Yeah. Right. Those are. Those are. That's a. That's a. That's a lovely thing. I really enjoyed that. What about New Year's? Should we talk about New Year's?
 
 [00:34:19] Will: New Year. I have a. Two year old, so I'll be watching Dick Clark and the ball drop and all that business, most likely. Well, I guess I'm not watching Dick Clark. Sorry, Dick. R.I.P.
 
@@ -1106,7 +1106,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:34:52] Adam: and how it went.
 
-[00:34:53] Will: That's that's a big promise, but we'll we'll see what we can do about that. See you guys next time.
+[00:34:53] Will: That's a big promise, but we'll we'll see what we can do about that. See you guys next time.
 
 [00:34:57] Adam: Bye, guys.
 

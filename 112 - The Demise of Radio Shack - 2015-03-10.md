@@ -20,7 +20,7 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:02:00] Norm: Adam, what are your thoughts on Radio Shack?
 
-[00:02:02] Adam: Ah, Radio Shack! That is a great thing to talk about. What a sad, what a sad state of affairs that Radio Shack could not figure out a way here to stay in business.
+[00:02:02] Adam: Ah, Radio Shack! That is a great thing to talk about. What a sad state of affairs that Radio Shack could not figure out a way here to stay in business.
 
 [00:02:18] Will: I am of two minds on Radio Shack.
 
@@ -28,7 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:02:20] Will: because I spent a significant portion of my formative years in both Radio Shack and also screwdriver shops, like early PC—the places you would go to buy PC parts before the internet.
 
-[00:02:18] Unknown speaker: and Radio Shack. Um,
+[00:02:18] Unknown speaker: and Radio Shack.
 
 [00:02:31] Adam: Screwdriver shops.
 
@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:02:33] Norm: Never heard that term.
 
-[00:02:33] Will: So you're probably a little bit, a little bit on the wrong side, a little bit on the too old side,
+[00:02:33] Will: So you're probably a little bit on the wrong side, a little bit on the too old side,
 
 [00:02:37] Norm: right?
 
@@ -52,25 +52,25 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:02:57] Norm: [unclear: Nutra second] flavor.
 
-[00:02:58] Will: and we're back. The the the screwdriver shops are places where you could go to buy PC components in the early days of PC building, say the early to mid '90s, before everybody got internet access, and then were able to take advantage of things like what was it? Price Watch was the one. Is it was the first one? Like the PC Price Matching Engine, which was a nationwide network of screwdriver shops, and they would all compete to get the lowest prices on white box hardware that was straight from from the east. It was it was a short period of time that stuff happened because then CompUSA rose and those places went away. But both Radio Shack and screwdriver shops are kind of, in my mind, is the same thing because there were places that old nerds would go to share information and talk shop and find out what was the latest stuff. Yeah. In the days before message boards,
+[00:02:58] Will: and we're back. The screwdriver shops are places where you could go to buy PC components in the early days of PC building, say the early to mid '90s, before everybody got internet access, and then were able to take advantage of things like what was it? Price Watch was the one. Is it was the first one? Like the PC Price Matching Engine, which was a nationwide network of screwdriver shops, and they would all compete to get the lowest prices on white box hardware that was straight from the east. It was a short period of time that stuff happened because then CompUSA rose and those places went away. But both Radio Shack and screwdriver shops are kind of, in my mind, is the same thing because there were places that old nerds would go to share information and talk shop and find out what was the latest stuff. Yeah. In the days before message boards,
 
-[00:03:44] Norm: I am not too young to remember these. It's it's when you you would also find the price in the magazine. There were small chains of these shops. I didn't call them screwdrivers; other it's computer shops, but There would be like you'd have to get one of those trade publications or something like Computer Currents or Computer Shopper, and oh yeah, the franchise would like they would they would issue you know this month this went down $7 and you bring the magazine in and they would have a copy and that's how they would figure out their their own prices. Wow.
+[00:03:44] Norm: I am not too young to remember these. It's when you would also find the price in the magazine. There were small chains of these shops. I didn't call them screwdrivers; other it's computer shops, but There would be like you'd have to get one of those trade publications or something like Computer Currents or Computer Shopper, and oh yeah, the franchise would like they would issue you know this month this went down $7 and you bring the magazine in and they would have a copy and that's how they would figure out their own prices. Wow.
 
-[00:04:11] Will: Well, and and so like I am here because of screwdriver shops,
+[00:04:11] Will: Well, and so like I am here because of screwdriver shops,
 
 [00:04:15] Adam: right?
 
-[00:04:15] Will: Like I I learned how to build PCs in those places and then I found Boot Magazine, which led to me getting a job writing about technology on the internet, and then I ended up writing at the the successor to Boot, which was Maximum PC, for almost 10 years.
+[00:04:15] Will: Like I I learned how to build PCs in those places and then I found Boot Magazine, which led to me getting a job writing about technology on the internet, and then I ended up writing at the successor to Boot, which was Maximum PC, for almost 10 years.
 
 [00:04:27] Adam: That's so fun.
 
-[00:04:28] Will: Um. So like I I am sad that Radio Shack is gone, but Radio Shack of the last decade and a half has not has been a
+[00:04:28] Will: So like I I am sad that Radio Shack is gone, but Radio Shack of the last decade and a half has not has been a
 
 [00:04:36] Adam: so much longer than that.
 
 [00:04:37] Will: Yep.
 
-[00:04:37] Adam: Okay. So I've been, I, I've been regularly going to Radio Shack for 30 some odd years. Um. There wasn't a Radio Shack in my hometown of Tarrytown, New York, so I didn't really go to one in high school. Occasionally I would go to the one at the mall at the Galleria. It was much more after I got to San Francisco in 1990 that I began to frequent Radio Shacks, because there used to be a couple of other electronics stores in San Francisco, and they both promptly disappeared in the early '90s. Radio Shack was it. There is all electronics in Berkeley, and there is another wonderful electronics place up in Marin and San Rafael, and then there is Fry's Electronics down in Sunnyvale, but in Palo Alto.
+[00:04:37] Adam: Okay. So I've been, I, I've been regularly going to Radio Shack for 30 some odd years. There wasn't a Radio Shack in my hometown of Tarrytown, New York, so I didn't really go to one in high school. Occasionally I would go to the one at the mall at the Galleria. It was much more after I got to San Francisco in 1990 that I began to frequent Radio Shacks, because there used to be a couple of other electronics stores in San Francisco, and they both promptly disappeared in the early '90s. Radio Shack was it. There is all electronics in Berkeley, and there is another wonderful electronics place up in Marin and San Rafael, and then there is Fry's Electronics down in Sunnyvale, but in Palo Alto.
 
 [00:05:18] Will: But Fry's isn't exactly the same.
 
@@ -92,7 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:06:17] Adam: No, and I realized that. I also have. I've been looking into this lately, and I've been reading a bunch of ex-employee blogs of Radio Shack employees, and it sounds like for at least the last 30 years, it's been one of the like uniquely worst places to work.
 
-[00:06:32] Will: Yeah, I mean, you you know, like for a while when I would go into Radio Shack in the '90s and buy batteries, and they'd be like, " Hey, I think there's a there's a comedy bit about this. Why the fuck do you need my phone number to buy batteries?"
+[00:06:32] Will: Yeah, I mean like for a while when I would go into Radio Shack in the '90s and buy batteries, and they'd be like, " Hey, I think there's a there's a comedy bit about this. Why the fuck do you need my phone number to buy batteries?"
 
 [00:06:43] Adam: Right.
 
@@ -110,15 +110,15 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:07:35] Norm: They all kind of fall in the same
 
-[00:07:36] Adam: right. But so they they have this nationwide network of electronic stores. They decide to sell all their expensive. They sell. They get rid of all their expensive employees and put entry level employees out on the floor. And within a very small amount of time, within a couple of years, the company is completely bankrupt and gone. Well, and I just have a point here, which is, it's this idea, this. This American corporate structure that really pisses me off. Of like lowest common denominator, and you read this on the Radio Shack employee blogs constantly of like two people running an empty store for days on end and having to then run inventory from one to five in the morning after the store closes because it's like capriciously been decided by central. And the end result is it's no mystery to me why Radio Shack is closing. I've never, I haven't walked into a Radio Shack in 25 years and found someone who knew what they were talking about, well, or knew where anything was except nine volt batteries and remote control cars.
+[00:07:36] Adam: right. But so they have this nationwide network of electronic stores. They decide to sell all their expensive. They sell. They get rid of all their expensive employees and put entry level employees out on the floor. And within a very small amount of time, within a couple of years, the company is completely bankrupt and gone. Well, and I just have a point here, which is, it's this idea, this. This American corporate structure that really pisses me off. Of like lowest common denominator, and you read this on the Radio Shack employee blogs constantly of like two people running an empty store for days on end and having to then run inventory from one to five in the morning after the store closes because it's like capriciously been decided by central. And the end result is it's no mystery to me why Radio Shack is closing. I've never, I haven't walked into a Radio Shack in 25 years and found someone who knew what they were talking about, well, or knew where anything was except nine volt batteries and remote control cars.
 
-[00:08:32] Will: And and the fundamental problem is.
+[00:08:32] Will: And the fundamental problem is.
 
 [00:08:34] Adam: By the way, I also don't place that blame on the employee. Like,
 
 [00:08:37] Will: no, no. I mean, when you go to the Apple Store, the Apple employees know what they're talking about, or they can point you to someone who does. The problem with Radio Shack has always been that they don't. They never had the stuff that you need. If you just needed something, it was always way more expensive than you could get it literally anywhere else that sold that thing. And if you needed something in a hurry and you're willing to pay that premium, then they didn't have enough of it, or they didn't have the right thing, or they had something that was like one axis off or whatever. And I mean, like they couldn't. People always say, " Hey, people who make stuff should be supporting Radio Shack." But if you're making stuff and you're on any kind of budget, Radio Shack is not a good place to buy any of the stuff that they sell for makers, Arduinos, and components, whatever.
 
-[00:09:18] Adam: And they did make the attempt to pivot towards makers. They brought in Arduino. They repackaged and rebranded all of their electronics drawers to be much easier to sift to navigate through. I found I I took note of that. I still noted that they were grossly under understocked. That it really felt like a token kind of thing. Like, right? I know there's an LED in this drawer, but it's not the one that I need, and it's not it's not a one that's useful.
+[00:09:18] Adam: And they did make the attempt to pivot towards makers. They brought in Arduino. They repackaged and rebranded all of their electronics drawers to be much easier to sift to navigate through. I found I I took note of that. I still noted that they were grossly under understocked. That it really felt like a token kind of thing. Like, right? I know there's an LED in this drawer, but it's not the one that I need, and it's not a one that's useful.
 
 [00:09:43] Will: Well, and the stores were hot and cold based on location. I think based on the who the independent operator was, or whether who they were owned by. For example, there's a store. There's a Radio Shack in Sebastopol near Old Maker. Make Make magazines headquarters in Sebastopol. That is one of the best electronic shops I've ever been.
 
@@ -128,13 +128,13 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:10:13] Norm: it doesn't need to be a Radio Shack.
 
-[00:10:14] Will: But but the vast majority of them, when they pivoted to selling sale cell phones 10 years ago, have been. It's just been one disaster after the next.
+[00:10:14] Will: But the vast majority of them, when they pivoted to selling sale cell phones 10 years ago, have been. It's just been one disaster after the next.
 
-[00:10:23] Adam: Well, and I mean, does it, it's like what is the business model? The whole idea of Radio Shack was that it was a tinkerer's paradise. That's the beginning, and then of course that's not a supportable national franchise business. Of course, I say of course. It's like you know, smart people made the made the attempt, and then they you know they sold phones, they sold computers, they sold the batteries for your cordless phones, and ridiculously expensive digital media.
+[00:10:23] Adam: Well, and I mean, does it, it's like what is the business model? The whole idea of Radio Shack was that it was a tinkerer's paradise. That's the beginning, and then of course that's not a supportable national franchise business. Of course, I say of course. It's like smart people made the attempt, and then they you know they sold phones, they sold computers, they sold the batteries for your cordless phones, and ridiculously expensive digital media.
 
 [00:10:49] Will: I've always wanted to buy it. I remember buying $12 CD ROMs. Yeah, CD Rs.
 
-[00:10:53] Adam: Yeah. But at the at the very same time, you could buy a stack of 100 at Office Max for like $18.
+[00:10:53] Adam: Yeah. But at the very same time, you could buy a stack of 100 at Office Max for like $18.
 
 [00:11:00] Will: Oh yeah,
 
@@ -146,17 +146,17 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:11:20] Will: in the internet age? I mean, that's scary if it's such a case because there's a lot of edge businesses.
 
-[00:11:25] Adam: Look, I I feel like I mean we we it's a very it's a difficult time because you have a lot of people. What do you call that when they go and look at the item in the store and then order it online?
+[00:11:25] Adam: Look, I I feel like I mean we it's a very it's a difficult time because you have a lot of people. What do you call that when they go and look at the item in the store and then order it online?
 
 [00:11:34] Will: Show Showrooming.
 
-[00:11:35] Adam: Right. I mean, you know, Circuit City. It's not Circuit City.
+[00:11:35] Adam: Right. I mean Circuit City. It's not Circuit City.
 
 [00:11:38] Will: Best Buy.
 
 [00:11:39] Adam: Best Buy. The last man standing. I mean, they get that all the time,
 
-[00:11:42] Norm: which is ironic because they killed the actual showroom model of electronics, which Good Guys used to be. Good Guys. You walk in. Circuit City was a showroom, and then each you know the registers were at their departments. And Best Buy turned it into the shopping, the the the grocery store model.
+[00:11:42] Norm: which is ironic because they killed the actual showroom model of electronics, which Good Guys used to be. Good Guys. You walk in. Circuit City was a showroom, and then each you know the registers were at their departments. And Best Buy turned it into the shopping, the grocery store model.
 
 [00:11:42] Unknown speaker: Circuit City, yeah.
 
@@ -172,19 +172,19 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:12:36] Will: Kind of,
 
-[00:12:37] Norm: and I think the internet analog in terms of retail to to Radio Shack, it's like Monoprice. It's like they have every single length of cable, type of cable.
+[00:12:37] Norm: and I think the internet analog in terms of retail to Radio Shack, it's like Monoprice. It's like they have every single length of cable, type of cable.
 
 [00:12:46] Will: All colors.
 
-[00:12:46] Norm: They make it, and then and you can get it real cheap. And that is that is what people used to go to a RadioShack for. It is,
+[00:12:46] Norm: They make it, and then and you can get it real cheap. And that is what people used to go to a RadioShack for. It is,
 
-[00:12:53] Adam: and how could you? And you have this open question of how could that be supportable to to to to keep a nationwide chain of franchises where you make sure that they all have a six inch, one foot, 18 inch, two foot, 36 inch, everything. You know, it's not.
+[00:12:53] Adam: and how could you? And you have this open question of how could that be supportable to keep a nationwide chain of franchises where you make sure that they all have a six inch, one foot, 18 inch, two foot, 36 inch, everything. It's not.
 
 [00:13:11] Will: I mean, maybe the so two things. One, one somebody who's writing about RadioShack's demise pointed out that there's never been a nationwide electronics chain that survived.
 
 [00:13:20] Adam: Right,
 
-[00:13:20] Will: right. They they all have a 12 or 20 25 year lifespan at most. The other thing that that comes to mind is what Amazon is doing in New York, which is they're stocking the most commonly ordered things in locations in Midtown, that then they can do put on a bike courier or a one hour courier and do one hour delivery for. Yeah. Which, for my purposes, like one hour delivery to where I am is much better than going to the store.
+[00:13:20] Will: right. They all have a 12 or 20 25 year lifespan at most. The other thing that that comes to mind is what Amazon is doing in New York, which is they're stocking the most commonly ordered things in locations in Midtown, that then they can do put on a bike courier or a one hour courier and do one hour delivery for. Yeah. Which, for my purposes, like one hour delivery to where I am is much better than going to the store.
 
 [00:13:47] Adam: Absolutely.
 
@@ -192,49 +192,49 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:13:48] Adam: Impossible to compete with.
 
-[00:13:50] Will: Yeah. So I mean it's it's a little scary because we're moving toward an Amazon-dominated mono mono retail,
+[00:13:50] Will: Yeah. So I mean it's a little scary because we're moving toward an Amazon-dominated mono mono retail,
 
-[00:13:57] Adam: and that's and that's I got a lot out of being a kid and wandering around hardware stores and looking at stuff. And hardware stores are one of those things that don't seem to be in I don't know I haven't looked into this, but I mean there's still plenty of little hardware stores around
+[00:13:57] Adam: and that's I got a lot out of being a kid and wandering around hardware stores and looking at stuff. And hardware stores are one of those things that don't seem to be in I don't know I haven't looked into this, but I mean there's still plenty of little hardware stores around
 
 [00:14:11] Will: here. They seem okay. They I don't know if that's equivalent to restaurants. I don't know if
 
-[00:14:14] Adam: That's indicative. Yeah, it's self-selected here, but you know I got a lot out of wandering around and seeing stuff. If anyone's ever ordered from McMaster Carr, the difference between flipping through their print catalog and looking at them online, and McMaster was one of the earliest big companies, and they sell a little bit of everything, to have an incredibly navigable website that felt very much like navigating the catalog. They really worked hard on that interface, and they nailed it. And still, I think browsing that catalog is twice as useful. As going online because when you're looking a when you're looking at a a wall of shelves or you're flipping through a catalog you're making connections that you wouldn't make normally you know you're looking for the micro switches but the micro switches are end are at the end of a 90 page chapter on switches of every kind oh I didn't know that wait they've got one I didn't even know you could get oh wait oh my god that one does 12 double pole double throw this and all of a sudden problems were solved you didn't know you had
+[00:14:14] Adam: That's indicative. Yeah, it's self-selected here, but you know I got a lot out of wandering around and seeing stuff. If anyone's ever ordered from McMaster Carr, the difference between flipping through their print catalog and looking at them online, and McMaster was one of the earliest big companies, and they sell a little bit of everything, to have an incredibly navigable website that felt very much like navigating the catalog. They really worked hard on that interface, and they nailed it. And still, I think browsing that catalog is twice as useful. As going online because when you're looking a when you're looking at a wall of shelves or you're flipping through a catalog you're making connections that you wouldn't make normally you know you're looking for the micro switches but the micro switches are end are at the end of a 90 page chapter on switches of every kind oh I didn't know that wait they've got one I didn't even know you could get oh wait oh my god that one does 12 double pole double throw this and all of a sudden problems were solved you didn't know you had
 
 [00:15:16] Will: you find a better solution for a problem that you didn't know you had
 
 [00:15:19] Adam: by by by the random looking
 
-[00:15:21] Will: well and and then other stuff that's hard
+[00:15:21] Will: well and then other stuff that's hard
 
 [00:15:23] Norm: virtual reality is going to solve that by the way
 
 [00:15:24] Adam: do you think so
 
-[00:15:25] Norm: I, I, I think we'll have
+[00:15:25] Norm: I think we'll have
 
-[00:15:28] Adam: that's really nicely optimistic but I I I feel like that solution like the the ideal application of that which is being able to sort of wander it wander the aisles of a virtual store where you know hell hell's bells like you probably put something in your basket and all the shelves you start to look at are different because they've prioritized again this is that's problematic to me even though it probably seems like well first of all it seems like 20 years away.
+[00:15:28] Adam: that's really nicely optimistic but I I I feel like that solution like the ideal application of that which is being able to sort of wander it wander the aisles of a virtual store where you know hell hell's bells like you probably put something in your basket and all the shelves you start to look at are different because they've prioritized again this is that's problematic to me even though it probably seems like well first of all it seems like 20 years away.
 
-[00:15:53] Norm: So you're saying the permanence of space and the the our brains being able to sort and analyze and inventory
+[00:15:53] Norm: So you're saying the permanence of space and the our brains being able to sort and analyze and inventory
 
 [00:16:00] Adam: could be
 
 [00:16:00] Will: Well, because when you look at a search results page, you only see the 10 things that you that were that the recommendation engine thinks you want to see.
 
-[00:16:07] Adam: And there's a, there's a, there's a, it's the accidental occurrence that that a store environment or catalog gives you that I would love to see. Well, I mean, I'd love to see McMaster try it on their catalog. Like, flip, flip, flip, stop. What is that? I mean, you know that that those accidents have yielded so many really interesting solutions for me in the making of things.
+[00:16:07] Adam: And there's a, it's the accidental occurrence that that a store environment or catalog gives you that I would love to see. Well, I mean, I'd love to see McMaster try it on their catalog. Like, flip, flip, flip, stop. What is that? I mean, you know that that those accidents have yielded so many really interesting solutions for me in the making of things.
 
 [00:16:30] Will: The the fundamental problem with online purchasing versus catalogs or retail, and and it's funny I hadn't thought about catalogs. I always thought about catalogs as being closer to online. But I think you're probably right because you jam at least in like a McMaster-Carr situation, you're jamming so many things. Or Campmor, you're jamming so many things on one page because every inch of space is valuable.
 
-[00:16:49] Adam: Yeah. Let me let me make it. There's a wonderful model makers catalog called Micro-Mark. There's another one called the Small Parts Catalog. Both of them, I recommend you go to their websites and order a catalog from each. They're delicious catalogs. Sit there; they're both probably about 50, 60 pages, and you can sit there and browse through every kind of tool and knife and little ball bearing and rods and you know rod ends and electronics and just fantastic, fantastic catalogs for learning about new ways that are being developed to make things in ways that the website's not necessarily going to lead you to, because websites are all what do you need to find here? It is
+[00:16:49] Adam: Yeah. Let me make it. There's a wonderful model makers catalog called Micro-Mark. There's another one called the Small Parts Catalog. Both of them, I recommend you go to their websites and order a catalog from each. They're delicious catalogs. Sit there; they're both probably about 50, 60 pages, and you can sit there and browse through every kind of tool and knife and little ball bearing and rods and you know rod ends and electronics and just fantastic, fantastic catalogs for learning about new ways that are being developed to make things in ways that the website's not necessarily going to lead you to, because websites are all what do you need to find here? It is
 
-[00:17:33] Will: well. I mean, they're they're they're very transactional. Like it's it's intentionally that way because they want you to find something, and their goal is to get you to click buy on something in as few clicks as possible and as less time because the more you click buy, the more money they make.
+[00:17:33] Will: well. I mean, they're very transactional. Like it's intentionally that way because they want you to find something, and their goal is to get you to click buy on something in as few clicks as possible and as less time because the more you click buy, the more money they make.
 
-[00:17:45] Adam: Exactly. And I get that. And it's just I, I, I don't mean to say. You know, I'm not lamenting the good old days.
+[00:17:45] Adam: Exactly. And I get that. And it's just I, I, I don't mean to say. I'm not lamenting the good old days.
 
 [00:17:54] Will: Well, you kind of are.
 
 [00:17:55] Adam: I guess I am, but I'm, I'm lamenting good old days that for me never existed with Radio Shack.
 
-[00:18:00] Norm: But I think that you know, going back to can could Radio Shack have sustained itself? Could it have survived as a nationwide chain? I don't think that's possible.
+[00:18:00] Norm: But I think that going back to can could Radio Shack have sustained itself? Could it have survived as a nationwide chain? I don't think that's possible.
 
 [00:18:07] Adam: I think you might be right.
 
@@ -242,13 +242,13 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:18:18] Adam: Yeah,
 
-[00:18:18] Norm: you know, it's it's a place where people go to learn.
+[00:18:18] Norm: It's a place where people go to learn.
 
-[00:18:20] Adam: It's that's the trick. Is that it is a brand that is still pretty strong. You know, I I would have loved to have helped them out in some way. You know, it strikes me as the Adam Savage brand, the Adam and Jamie brand, the Tested brand are all brands that would dovetail nicely with Radio Shack's you know their perception, their curating, whatever that is, the public's idea.
+[00:18:20] Adam: It's that's the trick. Is that it is a brand that is still pretty strong. I would have loved to have helped them out in some way. You know, it strikes me as the Adam Savage brand, the Adam and Jamie brand, the Tested brand are all brands that would dovetail nicely with Radio Shack's you know their perception, their curating, whatever that is, the public's idea.
 
 [00:18:45] Will: their original thing.
 
-[00:18:46] Adam: Yeah. Um. We've got a good Radio Shack up in Noe Valley here. Jamie and I both shop there frequently.
+[00:18:46] Adam: Yeah. We've got a good Radio Shack up in Noe Valley here. Jamie and I both shop there frequently.
 
 [00:18:54] Norm: Yeah.
 
@@ -260,7 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:19:03] Norm: I'd love to hear from people who maybe work at or don't go to or own not a Radio Shack, but there are a bunch of electronic stores, mom and pop ones. There's one in San Rafael. It's amazing. But what has their business been like over the past 10 years? And how do they keep themselves afloat? What are the things they do?
 
-[00:19:20] Will: Well, and and when you look at the threat, I mean, because at this point, Amazon is has gone from being the internet underdog to being the Walmart killer,
+[00:19:20] Will: Well, and when you look at the threat, I mean, because at this point, Amazon is has gone from being the internet underdog to being the Walmart killer,
 
 [00:19:31] Adam: right?
 
@@ -282,9 +282,9 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:20:21] Will: Yeah.
 
-[00:20:21] Adam: I, as far as I'm concerned, I don't see Uber doing anything different once they owned the entirety of the of the business model.
+[00:20:21] Adam: I, as far as I'm concerned, I don't see Uber doing anything different once they owned the entirety of the business model.
 
-[00:20:28] Will: Well, and and I mean they're behaving in
+[00:20:28] Will: Well, and I mean they're behaving in
 
 [00:20:29] Adam: yeah.
 
@@ -294,7 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:20:42] Will: anyway,
 
-[00:20:42] Norm: and and and as well as Amazon is doing, there are areas that it doesn't do well. You know, like
+[00:20:42] Norm: and as well as Amazon is doing, there are areas that it doesn't do well. Like
 
 [00:20:49] Will: diapers. They built. They pulled out of the diaper thing
 
@@ -310,9 +310,9 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:20:52] Will: people don't buy the diapers.
 
-[00:20:58] Norm: You know, custom picture frames. Like there are areas, and that's areas where mom and pops, where there's businesses that can grow.
+[00:20:58] Norm: Custom picture frames. Like there are areas, and that's areas where mom and pops, where there's businesses that can grow.
 
-[00:21:05] Will: Custom picture frames are a are a perfect example, though, of a business that could be outsourced and run out of China. Like if you look at eyeglasses, I mean, your Warby Parker eyeglass frames, you know, they they're not ground locally. Your crowns, your dentist can get crowns and and dental work. They they make the scans.
+[00:21:05] Will: Custom picture frames are a perfect example, though, of a business that could be outsourced and run out of China. Like if you look at eyeglasses, I mean, your Warby Parker eyeglass frames they they're not ground locally. Your crowns, your dentist can get crowns and dental work. They make the scans.
 
 [00:21:27] Adam: Yeah, exactly.
 
@@ -360,7 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:22:49] Will: the cartridges.
 
-[00:22:49] Adam: Right. Um, there was a battery in that packet of film that you slipped into the camera.
+[00:22:49] Adam: Right. There was a battery in that packet of film that you slipped into the camera.
 
 [00:22:55] Will: Did not know that.
 
@@ -368,7 +368,7 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:22:56] Will: Yeah, it's really clever.
 
-[00:22:57] Adam: So actually, what was really cool was you could save those up. Those were good batteries. You could use them for stuff. I used them in props all the time because they're super flat and had a nice output. Um, but this guy behind the counter had taken apart the entire Polaroid camera looking for the battery.
+[00:22:57] Adam: So actually, what was really cool was you could save those up. Those were good batteries. You could use them for stuff. I used them in props all the time because they're super flat and had a nice output. But this guy behind the counter had taken apart the entire Polaroid camera looking for the battery.
 
 [00:23:11] Will: No.
 
@@ -382,11 +382,11 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:23:36] Adam: Our response to that was Radio Shack. You have questions? Well, frankly, so do we.
 
-[00:23:43] Will: I think that's as good a place as any to wrap this one up. Um. So anyway, R.I.P. Radio Shack. I guess I don't know. Maybe the idea of Radio Shack more than Radio Shack.
+[00:23:43] Will: I think that's as good a place as any to wrap this one up. So anyway, R.I.P. Radio Shack. I guess I don't know. Maybe the idea of Radio Shack more than Radio Shack.
 
 [00:23:53] Adam: Maybe Radio Shack will be born as an online marketplace of ideas.
 
-[00:23:57] Will: You know, I was just thinking we needed some more idea marketplaces
+[00:23:57] Will: I was just thinking we needed some more idea marketplaces
 
 [00:24:00] Adam: with vertical integration. And I don't even know what it is.
 
@@ -410,7 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:24:32] Adam: Points for the best talk. I want to play this game so badly.
 
-[00:24:36] Will: Well, you know we can make that happen.
+[00:24:36] Will: Well we can make that happen.
 
 [00:24:37] Adam: Let's do that. We have to do that.
 

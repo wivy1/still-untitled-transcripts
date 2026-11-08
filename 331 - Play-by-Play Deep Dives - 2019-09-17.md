@@ -48,7 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:01:42] Adam: Brilliant!
 
-[00:01:43] Will: It's great. It's like having air conditioning, but you know, free.
+[00:01:43] Will: It's great. It's like having air conditioning, but free.
 
 [00:01:45] Adam: We bought one of those little portable units and it has been a great boon to our lives in our bedroom.
 
@@ -58,13 +58,13 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:01:53] Will: Yeah.
 
-[00:01:54] Adam: Yes. Because no, I know Ryan had to Ryan had to like drag it from someone else at Best Buy. Right. The whole thing.
+[00:01:54] Adam: Yes. Because no, I know Ryan had to like drag it from someone else at Best Buy. Right. The whole thing.
 
 [00:02:00] Norm: Right. Yeah.
 
-[00:02:01] Will: I I bought a window unit last year, thinking I was going to put it in if it ever got hot again. And then it turns out I don't have a window that I can put a window unit in.
+[00:02:01] Will: I bought a window unit last year, thinking I was going to put it in if it ever got hot again. And then it turns out I don't have a window that I can put a window unit in.
 
-[00:02:09] Adam: We're we're going to put it in our house.
+[00:02:09] Adam: We're going to put it in our house.
 
 [00:02:11] Will: I.
 
@@ -80,7 +80,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:02:36] Unknown speaker: Yeah.
 
-[00:02:36] Adam: But the floor where we have our bedroom, top floor, it gets stupid hot, and that has a crawl space, so it's easy for us to add in. So because what we have is we have central heating on the on the mid floor on the base and the ground floor. Through registers.
+[00:02:36] Adam: But the floor where we have our bedroom, top floor, it gets stupid hot, and that has a crawl space, so it's easy for us to add in. So because what we have is we have central heating on the mid floor on the base and the ground floor. Through registers.
 
 [00:02:52] Will: Yeah.
 
@@ -100,7 +100,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:03:04] Norm: And now you can double the functionality of your Nest thermostat, right? That was the thing. Like you can actually activate the AC side of it as opposed to just heating.
 
-[00:03:12] Will: Well, the Nest the Nest doesn't understand houses without air conditioning.
+[00:03:12] Will: Well, the Nest doesn't understand houses without air conditioning.
 
 [00:03:16] Norm: Yeah. Oh really?
 
@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:03:51] Adam: And we played a lot of chess, and I collected a bunch of chess sets, and I read some books on chess. And the long and the short of it is, I played enough chess to realize I was never going to be great at chess.
 
-[00:04:02] Will: Yeah, that's that's the thing that happens to everybody who gets into chess at some point.
+[00:04:02] Will: Yeah, that's the thing that happens to everybody who gets into chess at some point.
 
 [00:04:05] Adam: And yet, I have great respect for the game. I really enjoy playing it. One of the key moments in raising my sons was when thing two checkmated me.
 
@@ -146,13 +146,13 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:04:32] Norm: it does take. You can get to like really competent and really good, and that takes effort. But then there's like a huge ramp after that,
 
-[00:04:40] Adam: right? I mean, there are basic strategies that are available to the novice that are that are effect that can be effective. Yeah, that might be the case.
+[00:04:40] Adam: right? I mean, there are basic strategies that are available to the novice that are effect that can be effective. Yeah, that might be the case.
 
 [00:04:50] Norm: Because it's not like one of those like Go.
 
 [00:04:52] Unknown speaker: Right.
 
-[00:04:52] Norm: Go is the the learning curve can go—
+[00:04:52] Norm: Go is the learning curve can go—
 
 [00:04:55] Will: It's infinite.
 
@@ -170,13 +170,13 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:05:42] Adam: Precisely, not only talking about why they make the moves that they make, but oh, while it would seem to you natural for so and so to take the queen to take the bishop in this case, only five moves of prognostication show that that's the wrong move, and here's how this will go. And then they'll rewind and say, and this is the other thing that he could have done, but this is also why he didn't do that. And then this is why this is considered the best move. That anyone's ever made in chess,
 
-[00:06:06] Will: it's it's fascinating because, like, I I played chess every weekend with my grandmother as a kid growing up. Like, we played Sunday mornings until we both got tired of playing, and I never got to a point that I was able to see more than like a move or two ahead.
+[00:06:06] Will: it's fascinating because I I played chess every weekend with my grandmother as a kid growing up. Like, we played Sunday mornings until we both got tired of playing, and I never got to a point that I was able to see more than like a move or two ahead.
 
 [00:06:18] Unknown speaker: Right, right.
 
-[00:06:18] Will: You kind of get a hint of what you are going to do next, but you never can really predict your opponent. And playing German games, Norm and I have played a lot of, you know, starting with Catan, like everybody does, and going through all the other stuff. You eventually get to the point with the games that you play enough that you can see that stuff, and it's fascinating when it happens because it's a real weird brain feel.
+[00:06:18] Will: You kind of get a hint of what you are going to do next, but you never can really predict your opponent. And playing German games, Norm and I have played a lot of starting with Catan, like everybody does, and going through all the other stuff. You eventually get to the point with the games that you play enough that you can see that stuff, and it's fascinating when it happens because it's a real weird brain feel.
 
-[00:06:34] Adam: So the the the thing that hooked me on this YouTube channel, the chess website, is this this Bobby Fischer game called that Bobby Fischer played when he was, I think, 13. And he, I am sorry if I get this wrong because I watched a whole bunch of them, but I think in this is the specific game I was watching in which he sacrifices his queen. Without a return on his investment,
+[00:06:34] Adam: So the thing that hooked me on this YouTube channel, the chess website, is this Bobby Fischer game called that Bobby Fischer played when he was, I think, 13. And he, I am sorry if I get this wrong because I watched a whole bunch of them, but I think in this is the specific game I was watching in which he sacrifices his queen. Without a return on his investment,
 
 [00:07:02] Will: because he sees the return in five.
 
@@ -184,11 +184,11 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:07:24] Unknown speaker: Oh, that's really cool.
 
-[00:07:24] Adam: what he's able to do by doing it. And each of these deep dives is really really thrilling. And having someone who is a high level chess player walk you through these choices and stratagems and alternate ways that it could have been done, and ways in which it's considered within the chess, is really enjoyable. And they're not too long. They're, none of these games are are hugely like extensive games either. So it's a nice bulleted sort of an intellectual deep dive into something that's only 15 minutes long. So it's kind of a great like
+[00:07:24] Adam: what he's able to do by doing it. And each of these deep dives is really really thrilling. And having someone who is a high level chess player walk you through these choices and stratagems and alternate ways that it could have been done, and ways in which it's considered within the chess, is really enjoyable. And they're not too long. They're, none of these games are hugely like extensive games either. So it's a nice bulleted sort of an intellectual deep dive into something that's only 15 minutes long. So it's kind of a great like
 
 [00:07:56] Norm: what's the best play by play?
 
-[00:07:58] Adam: Right, just come home and kind of sit there and watch it. My. I had the volume on in bed the other night. My wife is walking in, and she's like, " Are you listening to stock quotes?" Because of the the dry delivery of the guy who narrates the games, it doesn't sound like it's a thrilling video, but it's really fun.
+[00:07:58] Adam: Right, just come home and kind of sit there and watch it. My. I had the volume on in bed the other night. My wife is walking in, and she's like, " Are you listening to stock quotes?" Because of the dry delivery of the guy who narrates the games, it doesn't sound like it's a thrilling video, but it's really fun.
 
 [00:08:15] Norm: Are you pausing after every to like process?
 
@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:08:19] Adam: Sometimes I'm pausing to look at pictures of who who the players are, also, and doing other research about this game of the century, that game of the century.
 
-[00:08:27] Will: Well, it's funny because this is this is the place that like watching sports fails. Like the sports commentators, it's it's funny because the folks that make a video game called Dota do this big international tournament every few years, and they run multiple commentary streams. They run one for people who don't understand the game at all, and then they run others for people who like have played the game and understand basic strategy and stuff like that. And it's it's like that's the kind of thing that I think you miss on physical sports a lot of times. Like baseball commentators shoot for the median, right? Like they don't they don't explain the strategy of pulling the pitcher at this point.
+[00:08:27] Will: Well, it's funny because this is the place that like watching sports fails. Like the sports commentators, it's funny because the folks that make a video game called Dota do this big international tournament every few years, and they run multiple commentary streams. They run one for people who don't understand the game at all, and then they run others for people who like have played the game and understand basic strategy and stuff like that. And it's like that's the kind of thing that I think you miss on physical sports a lot of times. Like baseball commentators shoot for the median, right? Like they don't explain the strategy of pulling the pitcher at this point.
 
 [00:09:01] Adam: No, and there have been some Deadspin articles about baseball moves where I'm like. I still don't understand why that's important. So then I'll go research that move and have to do all this research to fill in the story on deadspin because I want more. It's one of the actually. I mean, in general, on the internet, foundational perspective is often missing from stories that people are being paid $8 an hour to file 50 a day of.
 
@@ -226,15 +226,15 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:10:32] Will: Oh yeah,
 
-[00:10:32] Adam: because he's he's put him off balance, and then he just stands up and sinks this three. Yeah, and like I watched that game. So first of all, I was like, I should watch the last three games of Michael Jordan's career for hell's sake, right?
+[00:10:32] Adam: because he's put him off balance, and then he just stands up and sinks this three. Yeah, and like I watched that game. So first of all, I was like, I should watch the last three games of Michael Jordan's career for hell's sake, right?
 
-[00:10:44] Will: He's—he's—yeah,
+[00:10:44] Will: He's—yeah,
 
-[00:10:45] Adam: you know, Yeah, it's one of the— And I enjoyed the spit out of them. It was really, really, really great. My ex-wife was wandering around the house going, " I didn't marry a man who watches sports on TV. What's happened? What have you done with my husband?" And then I found online about a year later this, or maybe it was even a New Yorker article, a deep dive. Into that game and that move of Jordan, and they talked about it within the arc of Jordan's body changing through the course of his career, and him adjusting his style of play and strategy, knowing deeply what his body could and couldn't do, and how the mental aspect of the strategy was all exemplified by the " All I have to do is fake this little bit, and this guy will be doesn't realize how far off balance he will be. I'll tip him over and do this shot." And I like I. It was lovely to read that kind of stuff.
+[00:10:45] Adam: Yeah, it's one of the— And I enjoyed the spit out of them. It was really, really, really great. My ex-wife was wandering around the house going, " I didn't marry a man who watches sports on TV. What's happened? What have you done with my husband?" And then I found online about a year later this, or maybe it was even a New Yorker article, a deep dive. Into that game and that move of Jordan, and they talked about it within the arc of Jordan's body changing through the course of his career, and him adjusting his style of play and strategy, knowing deeply what his body could and couldn't do, and how the mental aspect of the strategy was all exemplified by the " All I have to do is fake this little bit, and this guy will be doesn't realize how far off balance he will be. I'll tip him over and do this shot." And I like I. It was lovely to read that kind of stuff.
 
-[00:11:35] Will: It's it's the thing that I think makes competitive video games and and like pick up basketball games and all of the the kind of sports you know bowling joining a bowling league. It's the thing that we have as kids, and a lot of times we lose as adults. That I think is actually really help like having competition in your life that is healthy and not destructive. It turns out is really good.
+[00:11:35] Will: It's the thing that I think makes competitive video games and like pick up basketball games and all of the kind of sports you know bowling joining a bowling league. It's the thing that we have as kids, and a lot of times we lose as adults. That I think is actually really help like having competition in your life that is healthy and not destructive. It turns out is really good.
 
-[00:11:57] Adam: Agreed. My my wife and I have been playing a game often called Russian Rummy. It was introduced to us as a game called Sets and Runs.
+[00:11:57] Adam: Agreed. My wife and I have been playing a game often called Russian Rummy. It was introduced to us as a game called Sets and Runs.
 
 [00:12:03] Will: Okay,
 
@@ -264,11 +264,11 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:12:40] Adam: Mm-hmm.
 
-[00:12:40] Will: A few years ago, Matt Leacock, I think, made the Pandemic, or well, they they started making a Risk Legacy game, which is a game of Risk that's designed to be played 12 times, and the board changes as you play.
+[00:12:40] Will: A few years ago, Matt Leacock, I think, made the Pandemic, or well, they started making a Risk Legacy game, which is a game of Risk that's designed to be played 12 times, and the board changes as you play.
 
 [00:12:52] Norm: Oh, so you only play it 12 times, and you have to buy a new set because you want to physically
 
-[00:12:56] Adam: because because that's like the real Risk where you only play it once before someone hurls the board across the room into the wall.
+[00:12:56] Adam: because that's like the real Risk where you only play it once before someone hurls the board across the room into the wall.
 
 [00:13:02] Will: This is. This is a better game in a lot of ways, but
 
@@ -280,9 +280,9 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:13:14] Adam: Wow!
 
-[00:13:14] Will: Right? Like it's it's it's those kinds of interactions are are are lovely, and getting to play like it's fun to dig into a game long enough to get to the meat of it.
+[00:13:14] Will: Right? Like it's those kinds of interactions are lovely, and getting to play like it's fun to dig into a game long enough to get to the meat of it.
 
-[00:13:22] Norm: Well, like every game, it's about the the shared experience and that story you've built together. Yeah. The fact that you can have then an artifact at the end of 12 games, whatever it is, that is a tangible, physical, marked up you know thing of that journey, and then someone gets to keep it.
+[00:13:22] Norm: Well, like every game, it's about the shared experience and that story you've built together. Yeah. The fact that you can have then an artifact at the end of 12 games, whatever it is, that is a tangible, physical, marked up you know thing of that journey, and then someone gets to keep it.
 
 [00:13:37] Will: Did you ever? Did you ever finish one of those campaigns?
 
@@ -292,7 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:13:40] Norm: We did five.
 
-[00:13:40] Adam: Have um Have you guys ever played Set?
+[00:13:40] Adam: Have Have you guys ever played Set?
 
 [00:13:43] Norm: No.
 
@@ -310,7 +310,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:14:08] Adam: and we were yeah yeah and we were having a lot of fun playing it with my boys and Julie and I played it a ton and then we played it with my niece who turns out to be I mean she's brilliant but she's like a savant at set and it's like she's so good at it I don't want to play anymore not because she's going to beat me every time because my brain literally cannot do what she can do she walks by the table we're all sitting there like staring at these cards and she's like set
 
-[00:14:36] Will: well that's I mean that's what that's what I mean that's what happens with the German with the German kind of board games I mean Gina and I have played some of those sometimes you play for 10 games and somebody figures out the core strategy that the other person hasn't sussed out yet and then or you figure out how to break the game and then it just becomes a race to see who breaks the game that's not very much fun
+[00:14:36] Will: well that's I mean that's what happens with the German kind of board games I mean Gina and I have played some of those sometimes you play for 10 games and somebody figures out the core strategy that the other person hasn't sussed out yet and then or you figure out how to break the game and then it just becomes a race to see who breaks the game that's not very much fun
 
 [00:14:55] Adam: yeah
 
@@ -324,7 +324,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:15:04] Adam: you want to try this. And strategies and sets and runs are. I'm finding some very subtle ones, some really interesting ones.
 
-[00:15:11] Will: Yeah, we played hundreds of games of Seven Wonders and Splendor and games like that, and and they're still it's still exceptional every time.
+[00:15:11] Will: Yeah, we played hundreds of games of Seven Wonders and Splendor and games like that, and they're still it's still exceptional every time.
 
 [00:15:18] Adam: So yes, I'm stumping today for the chess websites YouTube channel deep dives into chess games. It is really really fun. I wanted to talk about a TV show.
 
@@ -372,7 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:16:07] Adam: I like it when [unclear name: 'Marty Nussbaum'] on work on NPR has his wife join him on that.
 
-[00:16:12] Will: We had a really good time. It became challenging when when our daughter was born.
+[00:16:12] Will: We had a really good time. It became challenging when our daughter was born.
 
 [00:16:16] Adam: Oh, sure.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:18:50] Norm: I wonder if they cut like if they were selected and what they showed.
 
-[00:18:54] Adam: Oh, absolutely. I mean, so look, there's. I mean, one of these couples. I was watching it, and I was like, " He's crazy." And my my wife points out, " Yeah, we're only seeing a little bit of each episode." You know, one of the things that typifies almost all the couples on this show is a deep feeling of love between the two people, and that you don't see anybody being cruel to each other in session. You see very little being dismissive or, or, or yeah, none of that. You see people having genuine activation and real life difficulties and feeling like they're not seen or heard or dealing with past trauma that is coloring their current relationship. There's a lot of that. There's a lot of unpacking of that. Mostly, it's a show about you know helping people communicate,
+[00:18:54] Adam: Oh, absolutely. I mean, so look, there's. I mean, one of these couples. I was watching it, and I was like, " He's crazy." And my wife points out, " Yeah, we're only seeing a little bit of each episode." one of the things that typifies almost all the couples on this show is a deep feeling of love between the two people, and that you don't see anybody being cruel to each other in session. You see very little being dismissive or yeah, none of that. You see people having genuine activation and real life difficulties and feeling like they're not seen or heard or dealing with past trauma that is coloring their current relationship. There's a lot of that. There's a lot of unpacking of that. Mostly, it's a show about you know helping people communicate,
 
 [00:19:45] Norm: and they have a good foundation.
 
@@ -422,7 +422,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:19:46] Norm: they chose the right people.
 
-[00:19:47] Adam: You know, you get when you like when I talk about it, just for people who might not like think about this like this. But when I say a dynamic in a relationship, I mean, you know, you and I might have had a fight eight years ago about a thing, and both of us took something from that fight that. Stuck with us, and it colors the way in which we talk around that issue forever after, and it becomes difficult to even approach the issue because there's so much of this feedback loop happening.
+[00:19:47] Adam: You get when you like when I talk about it, just for people who might not like think about this like this. But when I say a dynamic in a relationship, I mean you and I might have had a fight eight years ago about a thing, and both of us took something from that fight that. Stuck with us, and it colors the way in which we talk around that issue forever after, and it becomes difficult to even approach the issue because there's so much of this feedback loop happening.
 
 [00:20:13] Will: Well, and sometimes that happens, and only one person notices.
 
@@ -430,7 +430,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:20:16] Will: Yeah, which is,
 
-[00:20:16] Adam: and it becomes very difficult to get the other person to see the perspective of the other person. Again, therapy is a great place to unpack those dynamics and see about them safely, and and get to a new place. So, couples therapy, wonderful show, and a great description of what a creative and an amazing discipline being a therapist can be.
+[00:20:16] Adam: and it becomes very difficult to get the other person to see the perspective of the other person. Again, therapy is a great place to unpack those dynamics and see about them safely, and get to a new place. So, couples therapy, wonderful show, and a great description of what a creative and an amazing discipline being a therapist can be.
 
 [00:20:39] Will: I saw a tweet this morning that's very relevant.
 
@@ -440,7 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:21:03] Adam: I just lost you in my feed here.
 
-[00:21:04] Will: It's it's been popping in and out for me too.
+[00:21:04] Will: It's been popping in and out for me too.
 
 [00:21:06] Adam: Oh, is it?
 
@@ -452,7 +452,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:21:23] Adam: Yeah.
 
-[00:21:23] Will: And and a lot of the things that we do now are, you know, talking about things that are challenging or that that are that are you know delicate topics in a very open and forthcoming way. But that is not the same as actually being vulnerable to another human being.
+[00:21:23] Will: And a lot of the things that we do now are talking about things that are challenging or that that are that are you know delicate topics in a very open and forthcoming way. But that is not the same as actually being vulnerable to another human being.
 
 [00:21:42] Adam: No.
 
@@ -474,11 +474,11 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:22:15] Will: Okay.
 
-[00:22:15] Adam: I will tell you. So, it's it definitely has a positive effect for me. Like to watch it, and it like I I like watching people working to solve their own problems in a loving and supportive way. Like that's thrilling.
+[00:22:15] Adam: I will tell you. So, it's it definitely has a positive effect for me. Like to watch it, and it I I like watching people working to solve their own problems in a loving and supportive way. Like that's thrilling.
 
 [00:22:31] Will: It's nice to know that your experience as a human is not unique.
 
-[00:22:34] Adam: Yes, that's the other thing is that you hear these people talk about this stuff, and you know one of the other things that typifies the couples that come is they came to play. And from my wife, I understand that like some people show up and they're just not ready to talk, and the therapist has to spend all this time kind of getting them to feel safe enough to really talk. Some of these people, like at one point in couples therapy, one of the the husband of one couple says something that I just find unforgivably weird and terrible. But I'm like so amazed that he just brought it. Like if that's what he thinks,
+[00:22:34] Adam: Yes, that's the other thing is that you hear these people talk about this stuff, and you know one of the other things that typifies the couples that come is they came to play. And from my wife, I understand that like some people show up and they're just not ready to talk, and the therapist has to spend all this time kind of getting them to feel safe enough to really talk. Some of these people, like at one point in couples therapy, one of the husband of one couple says something that I just find unforgivably weird and terrible. But I'm like so amazed that he just brought it. Like if that's what he thinks,
 
 [00:23:08] Unknown speaker: yeah,
 
@@ -486,7 +486,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:23:13] Will: Does the therapist ever say, " Well, you know, you guys are right to be in therapy. You should maybe consider this one a wash and move on"?
 
-[00:23:17] Adam: I have not reached the last episode, and I'm not sure. I'm actually getting a little choked up as I say this. I'm not sure one of the couples makes it whole by the end of the series, and that's actually intense. I kind of want to know how they how they turn out.
+[00:23:17] Adam: I have not reached the last episode, and I'm not sure. I'm actually getting a little choked up as I say this. I'm not sure one of the couples makes it whole by the end of the series, and that's actually intense. I kind of want to know how they turn out.
 
 [00:23:32] Will: Couples therapy is on Amazon.
 
@@ -502,7 +502,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:23:46] Will: Born, and then they check in every year.
 
-[00:23:48] Adam: If someone's [unclear: 'hearing thing'] that they were listening to this podcast on broke right now, they go download that. And and be upset.
+[00:23:48] Adam: If someone's [unclear: 'hearing thing'] that they were listening to this podcast on broke right now, they go download that. And be upset.
 
 [00:23:58] Will: So it's based on a notoriously violent graphic novel or comic book series. I'm not sure which.
 
@@ -556,13 +556,13 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:25:05] Will: Oh, okay.
 
-[00:25:05] Adam: He he talked extensively about what it's like to play a character like Bones.
+[00:25:05] Adam: He talked extensively about what it's like to play a character like Bones.
 
 [00:25:13] Will: Yeah.
 
 [00:25:13] Adam: And bring in the history at the same time as finding your own solution to the character.
 
-[00:25:19] Will: That was the thing, like the the scene in the first Star Trek when he gets in with when he gets in the shuttle when Kirk gets in the shuttle with him. I was like, oh wow, he's doing something really good here.
+[00:25:19] Will: That was the thing, like the scene in the first Star Trek when he gets in with when he gets in the shuttle when Kirk gets in the shuttle with him. I was like, oh wow, he's doing something really good here.
 
 [00:25:28] Adam: Yeah.
 
@@ -572,7 +572,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:25:33] Will: I and Zachary Quinto too. I mean, they all did it.
 
-[00:25:34] Adam: All three of them. I got to interview all three of them on stage. By the way, all three of them giants. They're all like six one, six two, six three. As we were backstage, and you know, they didn't quite notice me because I think I think I look like a troll to them. But as I walked up to them.
+[00:25:34] Adam: All three of them. I got to interview all three of them on stage. By the way, all three of them giants. They're all like six one, six two, six three. As we were backstage, and they didn't quite notice me because I think I look like a troll to them. But as I walked up to them.
 
 [00:25:50] Will: Don't mind me. You're from the internet.
 
@@ -604,7 +604,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:26:37] Norm: And and then, but the premise is the the boys. The name of the show is a reference to a covert team, in this case run by Billy Butcher, played by Karl Urban, that in the comic book was commissioned by the CIA to take the superheroes down a notch to. Put them in their place because they've been running reckless. And in the TV show, it's adapted where they have more of a vendetta with the superhero team. So they are working underground to try to break the system and show the world that these superheroes aren't as perfect because they're not.
 
-[00:27:07] Will: It's it's like Lex Luthor's ultimate plan in every Superman ever, basically.
+[00:27:07] Will: It's like Lex Luthor's ultimate plan in every Superman ever, basically.
 
 [00:27:11] Norm: Sure.
 
@@ -628,7 +628,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:27:40] Norm: So it's not torture porn. The way this sounds like Brightburn has some torture porn ish elements.
 
-[00:27:45] Will: Bright Brightburn, there's definitely sadism and and like. Cruelty against animals and animals or people.
+[00:27:45] Will: Bright Brightburn, there's definitely sadism and like. Cruelty against animals and animals or people.
 
 [00:27:52] Norm: There's cruelty in the boys. There's gore in the boys. A lot of it is for shock value, but a lot of it is to show how realistic it would be if you have someone with the powers of a Superman,
 
@@ -648,13 +648,13 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:28:33] Adam: Yeah,
 
-[00:28:33] Will: it's like there was no there was no no extra flesh on those.
+[00:28:33] Will: it's like there was no no extra flesh on those.
 
 [00:28:37] Adam: What do they call those bottle episodes? Not a bottle episode in the bunch.
 
 [00:28:41] Will: I like a you know. I don't mind them. I don't mind a bottle episode.
 
-[00:28:44] Adam: But you know, I got to the end of the first season of Westworld, and I was like, I just watched 10 hours, and I feel like I watched four and a half hours.
+[00:28:44] Adam: But I got to the end of the first season of Westworld, and I was like, I just watched 10 hours, and I feel like I watched four and a half hours.
 
 [00:28:51] Will: Oh, you watched more than 10 hours. You watched 25 hours.
 
@@ -674,9 +674,9 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:29:08] Will: yeah,
 
-[00:29:09] Adam: the boys crackles along. Ooh. I really, there's not a dull moment, and the the way in which the boys kind of reveals layers of its reality to you, is also wonderful. For instance, there's one of the supers they call them soops. One of the supers, you wonder for the first few episodes if he is bad, and then when you start to learn what his true character is like, that still takes several episodes to sink into you the depth of his character.
+[00:29:09] Adam: the boys crackles along. Ooh. I really, there's not a dull moment, and the way in which the boys kind of reveals layers of its reality to you, is also wonderful. For instance, there's one of the supers they call them soops. One of the supers, you wonder for the first few episodes if he is bad, and then when you start to learn what his true character is like, that still takes several episodes to sink into you the depth of his character.
 
-[00:29:42] Will: That's that's really when you see character development that comes across at that kind of pace. It's really fun.
+[00:29:42] Will: That's really when you see character development that comes across at that kind of pace. It's really fun.
 
 [00:29:47] Norm: Every character has depth. This every superhero
 
@@ -714,7 +714,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:31:10] Norm: Okay. Yes. Right. Yes.
 
-[00:31:12] Adam: A kind of a femme fatale, dark, smart operator, working on a bunch of different fronts at once. Look, the main thing that shines through this show is the intelligence of most of the characters. Funnily enough, the Supes are not among those. The the Supes don't show up as the smartest.
+[00:31:12] Adam: A kind of a femme fatale, dark, smart operator, working on a bunch of different fronts at once. Look, the main thing that shines through this show is the intelligence of most of the characters. Funnily enough, the Supes are not among those. The Supes don't show up as the smartest.
 
 [00:31:33] Will: I assume they fall into the Jon Hamm rule from 30 Rock, where like the more beautiful you are, the dumber you get.
 
@@ -732,17 +732,17 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:32:04] Will: What they used to call strong sexual content back in the day.
 
-[00:32:06] Adam: Yeah, strong sexual content, and um, and yeah,
+[00:32:06] Adam: Yeah, strong sexual content, and yeah,
 
-[00:32:09] Norm: but yeah, you know when you when you watch HBO and like Game of Thrones and before shows, shows with TVMA feels yeah. Well, it says TVMA because there's violence, language, nudity. You know, dragons. All of the above. We call the fiver. The fiver.
+[00:32:09] Norm: but yeah, you know when you watch HBO and like Game of Thrones and before shows, shows with TVMA feels yeah. Well, it says TVMA because there's violence, language, nudity. Dragons. All of the above. We call the fiver. The fiver.
 
 [00:32:23] Adam: Oh, okay.
 
 [00:32:23] Norm: This is really this is every episode. It's like a fiver.
 
-[00:32:26] Adam: Ah, okay. So let's talk about the show spoilers now. So if you don't want, if you want, if you haven't watched The Boys, you might want to turn it off now and watch some of it.
+[00:32:26] Adam: Ah, okay. So let's talk about the show spoilers now. So if you don't want, if you haven't watched The Boys, you might want to turn it off now and watch some of it.
 
-[00:32:34] Will: Do you think Do you think spoilers matter? Like, is this? There's some stuff that like.
+[00:32:34] Will: Do you think spoilers matter? Like, is this? There's some stuff that like.
 
 [00:32:38] Norm: No,
 
@@ -756,13 +756,13 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:32:51] Will: Fourth season's coming soon. By the way,
 
-[00:32:53] Norm: I think as long as we don't talk about the the very last episode of the boys, that we're fine.
+[00:32:53] Norm: I think as long as we don't talk about the very last episode of the boys, that we're fine.
 
-[00:32:57] Adam: Sure. Um, you know, there's so much development of different characters on different fronts within the. Is it eight episodes? It is eight.
+[00:32:57] Adam: Sure. There's so much development of different characters on different fronts within the. Is it eight episodes? It is eight.
 
 [00:33:06] Norm: Yeah.
 
-[00:33:06] Adam: Um, that there's a lot to cover, and I don't think talking about it, like actually, ruins the experience of watching it because it's so well put together. It's well shot.
+[00:33:06] Adam: That there's a lot to cover, and I don't think talking about it, like actually, ruins the experience of watching it because it's so well put together. It's well shot.
 
 [00:33:15] Norm: We can start with the characters. We can start with okay, Homelander, the Superman figure in the show,
 
@@ -780,11 +780,11 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:33:36] Adam: He's got Judge Dredd shoulders.
 
-[00:33:38] Norm: Yeah, costume is really good. Uh,
+[00:33:38] Norm: Yeah, costume is really good.
 
 [00:33:41] Adam: he's terrifying.
 
-[00:33:41] Norm: He's a he's a psychopath.
+[00:33:41] Norm: He's a psychopath.
 
 [00:33:43] Adam: He's completely and not only is he a psychopath, but I mean, he's raised to be a psychopath.
 
@@ -798,13 +798,13 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:34:06] Norm: Well, they try to save the people on the plane, but then
 
-[00:34:08] Adam: oh no no no not that plane the earlier plane the the
+[00:34:08] Adam: oh no no no not that plane the earlier plane the
 
-[00:34:12] Norm: yeah yeah yeah the the congressperson
+[00:34:12] Norm: yeah yeah yeah the congressperson
 
 [00:34:14] Adam: the congressperson who wants to reveal the secret of compound V
 
-[00:34:18] Norm: yeah he he basically laser beams a plane out of the sky
+[00:34:18] Norm: yeah he basically laser beams a plane out of the sky
 
 [00:34:22] Adam: but the people in the plane like look out the window and they see Homelander and they're like Homelander's out the side of the plane I wonder if everything's okay and then he like slices through their engine and they go down with his eyes with his laser eye beams and it's you're just like what
 
@@ -812,13 +812,13 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:34:39] Adam: oh is it really
 
-[00:34:40] Will: what if what if baby Kal-El lands in Kansas.
+[00:34:40] Will: what if baby Kal-El lands in Kansas.
 
 [00:34:43] Adam: Oh, okay, that show. That show, yeah.
 
 [00:34:44] Will: But yeah.
 
-[00:34:46] Adam: Um. So yeah, Homelander is terrifying, and Homelander's relationship with his handler, whose name is Elizabeth Stillwell, and that's who plays is played by Elizabeth.
+[00:34:46] Adam: So yeah, Homelander is terrifying, and Homelander's relationship with his handler, whose name is Elizabeth Stillwell, and that's who plays is played by Elizabeth.
 
 [00:34:58] Will: Is she a human, normal human?
 
@@ -830,7 +830,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:35:11] Will: Okay.
 
-[00:35:11] Adam: Uh, and Vought is effectively like you know some giant conglomerate,
+[00:35:11] Adam: And Vought is effectively like you know some giant conglomerate,
 
 [00:35:17] Norm: yeah,
 
@@ -866,7 +866,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:36:16] Adam: yeah.
 
-[00:36:18] Norm: But the whole thing is corporatized, and that's the conceit, right? These superheroes and the whole business of superheroes, which may be a commentary on maybe Marvel Disney and the business of superheroes that we're in these days. That is that is one of the the big plot points.
+[00:36:18] Norm: But the whole thing is corporatized, and that's the conceit, right? These superheroes and the whole business of superheroes, which may be a commentary on maybe Marvel Disney and the business of superheroes that we're in these days. That is one of the big plot points.
 
 [00:36:32] Adam: Well, and so what you see in her is as the scales fall from her eyes, she shows up. I'm one of the seven. This is the fulfillment of my life dreams. And the first thing that happens is the Aquaman guy, the deep, forces her to have sex with him.
 
@@ -890,7 +890,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:37:20] Norm: Yeah, his girlfriend.
 
-[00:37:20] Adam: His girlfriend. You meet him and his girlfriend, and this is one of those examples of terrific writing where they're funny together. You find them funny. You you see the love they have for each other. You get why they're together, and you like them. And he's standing on the street corner, holding her hands when the equivalent of the Flash. Runs by and through her,
+[00:37:20] Adam: His girlfriend. You meet him and his girlfriend, and this is one of those examples of terrific writing where they're funny together. You find them funny. You see the love they have for each other. You get why they're together, and you like them. And he's standing on the street corner, holding her hands when the equivalent of the Flash. Runs by and through her,
 
 [00:37:45] Norm: and she pulverizes.
 
@@ -900,7 +900,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:37:53] Norm: That's the show.
 
-[00:37:54] Adam: That's that's the opening.
+[00:37:54] Adam: That's the opening.
 
 [00:37:56] Will: I'd be pretty pissed off at the Justice League,
 
@@ -966,7 +966,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:39:43] Norm: interesting
 
-[00:39:43] Adam: in late in the season, she learns in a kind of a really important and vital way that her romantic interest, which is Dennis Quaid's son, has not been truthful to her at this very important and deep level. And she's there's this aspect of her that still, like, she calls him up and says, " I need you to tell me why all this has gone the way that it has." And it's a level of like in a normal screenplay, the simplest, the simplistic version is, " You betrayed me. I'm not going to talk to you." But these are two really smart people who are also really emotionally conversant and present. And when she finds out that he hasn't been truthful to her, instead of simply feeling betrayal, she also wants answers and reaches out to him. And it's this kind of a great wrinkle on a standard relationship trope that I thought was really neat. Like she still does, she still knows that she trusts him in a key and abiding way, and wants to find out. More about what's been going on.
+[00:39:43] Adam: in late in the season, she learns in a kind of a really important and vital way that her romantic interest, which is Dennis Quaid's son, has not been truthful to her at this very important and deep level. And she's there's this aspect of her that still she calls him up and says, " I need you to tell me why all this has gone the way that it has." And it's a level of like in a normal screenplay, the simplest, the simplistic version is, " You betrayed me. I'm not going to talk to you." But these are two really smart people who are also really emotionally conversant and present. And when she finds out that he hasn't been truthful to her, instead of simply feeling betrayal, she also wants answers and reaches out to him. And it's this kind of a great wrinkle on a standard relationship trope that I thought was really neat. Like she still does, she still knows that she trusts him in a key and abiding way, and wants to find out. More about what's been going on.
 
 [00:40:44] Will: I don't remember any of this from the comic book.
 
@@ -980,7 +980,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:41:05] Will: Oh man,
 
-[00:41:06] Adam: yeah. Having just watched him in in in Band of Brothers.
+[00:41:06] Adam: yeah. Having just watched him in Band of Brothers.
 
 [00:41:09] Norm: Oh my god.
 
@@ -1016,7 +1016,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:42:13] Adam: It is so beautiful to read Dark Knight in a larger format. It is really, really thrilling. It's one of those things of like, I wonder how this is going to be, and I got it, and I was like, Oh my god, this is amazing.
 
-[00:42:23] Will: Well, it's actually, I mean, the thing is, you see the actual paint rather than the the the print, the print, yeah,
+[00:42:23] Will: Well, it's actually, I mean, the thing is, you see the actual paint rather than the print, yeah,
 
 [00:42:28] Adam: and and Dark Knight, which is Lynn Varley, is the colorist, right? Such an important colorist to to Miller's drawing. And layout, really. That's the other thing. Is yeah, that layout.
 
@@ -1024,13 +1024,13 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:42:39] Norm: Oh, because it's so dense.
 
-[00:42:40] Will: the layouts. Yeah, well, and it tells the story with the layout. Like, yeah, it's it's it's incredible.
+[00:42:40] Will: the layouts. Yeah, well, and it tells the story with the layout. Like, yeah, it's incredible.
 
 [00:42:44] Adam: It's too bad he's nuts.
 
 [00:42:46] Will: Well, you know, the good ones always are. That's not true. We shouldn't encourage that behavior.
 
-[00:42:49] Norm: It's the only art form that goes that goes along your pace, where the page turn is the pause.
+[00:42:49] Norm: It's the only art form that goes along your pace, where the page turn is the pause.
 
 [00:42:57] Will: Yeah,
 
@@ -1080,7 +1080,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:45:07] Adam: they came up with they basically tried a bunch of different methods and came up with a method that that works and like invented it.
 
-[00:45:13] Will: What when you when you can't move the camera and can't control what the person's looking at, the way you tell stories is dramatic changes dramatically.
+[00:45:13] Will: What when you can't move the camera and can't control what the person's looking at, the way you tell stories is dramatic changes dramatically.
 
 [00:45:21] Adam: And it's a for VR to become to fulfill its potential, it requires all these different teams of folks working in it. To play around with these, I'm preaching to the choir to anyone who's developing in VR. But for those watching at home, that might not be clear to you just how radically new all this stuff still can be.
 

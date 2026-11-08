@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:01:18] Norm: but there's so much that happened.
 
-[00:01:21] Adam: Yeah, it is. It's it's it's this happens in my life a lot, where things get really busy for a while, then they get really really chilled for a while, and they get really really busy, and they go back and forth. So we're right now sort of at the tail end of a crazy busy. Well, actually, it's not a tail end. I got stuff going on every weekend now through early November, and then, well, we're going to announce this very soon, but Jamie and I are going to tour the Behind the Myths show around the country again this late fall, in early winter, November and December.
+[00:01:21] Adam: Yeah, it is. It's this happens in my life a lot, where things get really busy for a while, then they get really really chilled for a while, and they get really really busy, and they go back and forth. So we're right now sort of at the tail end of a crazy busy. Well, actually, it's not a tail end. I got stuff going on every weekend now through early November, and then, well, we're going to announce this very soon, but Jamie and I are going to tour the Behind the Myths show around the country again this late fall, in early winter, November and December.
 
 [00:01:49] Norm: Oh, very cool.
 
@@ -54,23 +54,23 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:02:03] Norm: Amazing, you said you had something to show me.
 
-[00:02:05] Adam: I do, I do. So every now and then on eBay, I have my things. I go search for. I might look for Ackbar. I might search Jason Bourne. I might search Colonel Kurtz. Things that I am interested in,
+[00:02:05] Adam: I do. So every now and then on eBay, I have my things. I go search for. I might look for Ackbar. I might search Jason Bourne. I might search Colonel Kurtz. Things that I am interested in,
 
-[00:02:16] Norm: and these are just saved searches on on eBay.
+[00:02:16] Norm: and these are just saved searches on eBay.
 
-[00:02:19] Adam: Exactly, and they're just you know, it's when I am bored, when I am on a plane, and you know, it's like a breath I'll take from something else. And one of the things I search for regularly are Strandbeests, which is Theo Jansen's walking. We did a segment on Tested me building one,
+[00:02:19] Adam: Exactly, and they're just it's when I am bored, when I am on a plane, and it's like a breath I'll take from something else. And one of the things I search for regularly are Strandbeests, which is Theo Jansen's walking. We did a segment on Tested me building one,
 
 [00:02:33] Norm: and actually, we saw a mechanical one at Maker Faire in the Bay Area. The leg movements, the mechanical design, was inspired by a Strandbeest, but this guy also put like a geodesic dome on top,
 
 [00:02:45] Adam: right? Right,
 
-[00:02:45] Norm: and that was that was very cool.
+[00:02:45] Norm: and that was very cool.
 
-[00:02:47] Adam: So the the the models I have of the Strandbeests on my shelf that are my favorites are from this Japanese company that puts out a magazine that also includes a model kit, and they have all sorts of different models. They're cool model kits, like a one to one replica of. Of Galileo's first telescope, which I bought and I built, and I love it; it's great.
+[00:02:47] Adam: So the models I have of the Strandbeests on my shelf that are my favorites are from this Japanese company that puts out a magazine that also includes a model kit, and they have all sorts of different models. They're cool model kits, like a one to one replica of. Of Galileo's first telescope, which I bought and I built, and I love it; it's great.
 
 [00:03:04] Norm: I think the kit is called Gakken, and it's like science for adults, is the translation.
 
-[00:03:10] Adam: And they're expensive; they're about $120 for one of these. But something happened, and now they're like $11. I don't quite understand, except that the magazine itself has been torn out, and I wonder if that if this is like kind of like a remaindered book where they tear the cover off. But this is just the Strandbeest kit and the directions. And I got one for you. I got, I got one for Will too when he shows up.
+[00:03:10] Adam: And they're expensive; they're about $120 for one of these. But something happened, and now they're like $11. I don't quite understand, except that the magazine itself has been torn out, and I wonder if that if this is like kind of like a remaindered book where they tear the cover off. But this is just the Strandbeest kit and the directions. And I got one for you. I got one for Will too when he shows up.
 
 [00:03:36] Norm: So this is exactly. It's not like a bootleg kit.
 
@@ -122,7 +122,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:05:22] Norm: And thank you again. We want to talk about DragonCon.
 
-[00:05:27] Adam: Yeah, we haven't we haven't done a recap.
+[00:05:27] Adam: Yeah, we haven't done a recap.
 
 [00:05:30] Norm: Yeah, or we actually never got to podcast there either.
 
@@ -140,7 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:06:02] Adam: Right.
 
-[00:06:03] Norm: Because you have local conventions, whether it's a board game convention or even like a comic book convention, you can have your small ones, which are more independent artist based and maybe not as commercial and not big name. And then Comic Con seems like a good if you can get in these days, a good way to just get immerse yourself in in geek culture.
+[00:06:03] Norm: Because you have local conventions, whether it's a board game convention or even like a comic book convention, you can have your small ones, which are more independent artist based and maybe not as commercial and not big name. And then Comic Con seems like a good if you can get in these days, a good way to just get immerse yourself in geek culture.
 
 [00:06:22] Adam: Yes,
 
@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:06:40] Norm: Yeah, it's a big convention center,
 
-[00:06:41] Adam: It's a giant convention center. So when I say there's a lot of people in costume, maybe that's like 20,000 people in costume. It's not; it's it's on a percentage basis. It's like 10%,
+[00:06:41] Adam: It's a giant convention center. So when I say there's a lot of people in costume, maybe that's like 20,000 people in costume. It's not; it's on a percentage basis. It's like 10%,
 
 [00:06:51] Norm: right? And there are definitely more people just there, just gawkers, yeah, or shoppers, or comic book fans, movie fans.
 
@@ -166,7 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:07:18] Norm: Get a commission, even.
 
-[00:07:19] Adam: But, but you know, I'd been to Comic Con three three times before I first went to Dragon Con, and I was like, oh, cool, Dragon Con. I knew about that. I'd love to go to that, and I went to that, and I was thinking, oh my gosh, do you know what? Um, so there are two of these. One is that alcoholics call New Year's Eve amateur night, right?
+[00:07:19] Adam: But I'd been to Comic Con three three times before I first went to Dragon Con, and I was like, oh, cool, Dragon Con. I knew about that. I'd love to go to that, and I went to that, and I was thinking, oh my gosh, do you know what? So there are two of these. One is that alcoholics call New Year's Eve amateur night, right?
 
 [00:07:38] Norm: Yes.
 
@@ -196,7 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:08:38] Adam: Right.
 
-[00:08:38] Norm: And inside the hotels are these atriums, these massive, like, 47-story hotels,
+[00:08:38] Norm: And inside the hotels are these atriums, these massive 47-story hotels,
 
 [00:08:45] Adam: which make it feel kind of like a set of Star Trek.
 
@@ -214,15 +214,15 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:09:01] Norm: and it's something that goes on for almost all night.
 
-[00:09:05] Adam: It goes on well, right? That's the other thing is that when you when you first get there, it starts on Tuesday or
+[00:09:05] Adam: It goes on well, right? That's the other thing is that when you first get there, it starts on Tuesday or
 
 [00:09:11] Norm: Wednesday.
 
-[00:09:12] Adam: It starts on Wednesday, right? So I arrived Wednesday night this year, which is earlier than I've ever gone. And as the nights progress, as the as the week progresses, I I I do believe, and I don't mean any disrespect to the cosplayers because I am one of them, I am one of you, but things start to smell a little funky in the elevator on the third or fourth day because people aren't taking the costumes off and they're like they're walking around all day. It's Atlanta, it's Labor Day, so it's hot, and then everyone's standing up. I mean, the lobby of the hotel is is going twenty four seven, and the hotel lets that go on so that you're not partying in the rooms and keeping people awake.
+[00:09:12] Adam: It starts on Wednesday, right? So I arrived Wednesday night this year, which is earlier than I've ever gone. And as the nights progress, as the week progresses, I I I do believe, and I don't mean any disrespect to the cosplayers because I am one of them, I am one of you, but things start to smell a little funky in the elevator on the third or fourth day because people aren't taking the costumes off and they're like they're walking around all day. It's Atlanta, it's Labor Day, so it's hot, and then everyone's standing up. I mean, the lobby of the hotel is is going twenty four seven, and the hotel lets that go on so that you're not partying in the rooms and keeping people awake.
 
 [00:09:51] Norm: I confess, and then there's a lot of partying goes in. I confess, one night I did stay up till 5:30. And it was still very busy in the atrium.
 
-[00:10:00] Adam: I remember, I remember hanging out one night until about 2:30 in the morning, and I could hear people doing cosplay karaoke downstairs at the top of their lungs. It was awesome.
+[00:10:00] Adam: I remember hanging out one night until about 2:30 in the morning, and I could hear people doing cosplay karaoke downstairs at the top of their lungs. It was awesome.
 
 [00:10:10] Norm: Oh my goodness!
 
@@ -230,11 +230,11 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:10:14] Norm: You do?
 
-[00:10:14] Adam: I do. I was a I was a diehard for those who remember San Francisco's karaoke scene in the '90s. I was a regular at the Mint.
+[00:10:14] Adam: I do. I was a diehard for those who remember San Francisco's karaoke scene in the '90s. I was a regular at the Mint.
 
 [00:10:22] Norm: I didn't realize San Francisco had a karaoke scene.
 
-[00:10:24] Adam: Totally had a karaoke scene in the '90s. At least at the Mint, it did, and I went there all the time. I I don't
+[00:10:24] Adam: Totally had a karaoke scene in the '90s. At least at the Mint, it did, and I went there all the time. I don't
 
 [00:10:30] Norm: It's the LaserDisc era.
 
@@ -242,11 +242,11 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:10:33] Norm: But what are your go to songs?
 
-[00:10:34] Adam: For obvious reasons. Uh, I'll tell you the
+[00:10:34] Adam: For obvious reasons. I'll tell you the
 
 [00:10:37] Norm: not not to put you on the spot, but you mentioned it.
 
-[00:10:39] Adam: No, I didn't think anyone would ask. That's so funny. Um, I could nail " Round Here" by the Counting Crows.
+[00:10:39] Adam: No, I didn't think anyone would ask. That's so funny. I could nail " Round Here" by the Counting Crows.
 
 [00:10:46] Norm: Okay.
 
@@ -258,19 +258,19 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:10:56] Norm: right. You've got, you gotta think of it that way.
 
-[00:10:58] Adam: Oh, and I would, I would rehearse. I would get ready for it. Was, um, Try a Little Tenderness.
+[00:10:58] Adam: Oh, and I would rehearse. I would get ready for it. Was Try a Little Tenderness.
 
 [00:11:04] Norm: Wow,
 
-[00:11:04] Adam: and I, I could really, I could really do that song. I had a lot of fun with it. I just remember one night, one night at the Mint, and so this would probably be like it was long before my boys were born. So it's '95, '96. I get up and the music starts and it's the trumpets from the beginning of Try a Little Tenderness. This would be the version from the amazing film The Commitments, and it's ba ba da da na na na na na, and it just pauses and the vocalist says, " Oh, she may get weary," and I, I'm not going to do it here,
+[00:11:04] Adam: and I, I could really do that song. I had a lot of fun with it. I just remember one night at the Mint, and so this would probably be like it was long before my boys were born. So it's '95, '96. I get up and the music starts and it's the trumpets from the beginning of Try a Little Tenderness. This would be the version from the amazing film The Commitments, and it's ba ba da da na na na na na, and it just pauses and the vocalist says, " Oh, she may get weary," and I, I'm not going to do it here,
 
 [00:11:37] Norm: Okay.
 
-[00:11:38] Adam: Uh, but I started out the first one, and the whole first three rows was a musical theater group that had just had its opening night and were drunk and psyched, and when I started nailing this song, they became the greatest. Audience, ever, and it was like a feedback loop. Every performer knows this. You get a great audience, and all of a sudden, things can go really to a high level. And we had so—I mean, we just had the whole crowd just like freaking out towards the end. It was awesome.
+[00:11:38] Adam: But I started out the first one, and the whole first three rows was a musical theater group that had just had its opening night and were drunk and psyched, and when I started nailing this song, they became the greatest. Audience, ever, and it was like a feedback loop. Every performer knows this. You get a great audience, and all of a sudden, things can go really to a high level. And we had so—I mean, we just had the whole crowd just like freaking out towards the end. It was awesome.
 
 [00:12:07] Norm: Adam Savage karaoke.
 
-[00:12:10] Adam: You're never going to see it. I'm just telling you, you're never going to see it. I will. I will cover songs. You know, I, I, like I did John Roderick's song. Tim Minchin has given me permission to cover one of his songs, and I, I think I think I know the one I want to do. I'm just not sure when
+[00:12:10] Adam: You're never going to see it. I'm just telling you, you're never going to see it. I will. I will cover songs. I, like I did John Roderick's song. Tim Minchin has given me permission to cover one of his songs, and I, I think I know the one I want to do. I'm just not sure when
 
 [00:12:27] Norm: you sang at DragonCon.
 
@@ -278,15 +278,15 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:12:34] Norm: Yeah,
 
-[00:12:36] Adam: the Gollum voices. I figured that's the kind of game I should bring to DragonCon. We we didn't do every other year. I've been to DragonCon. My cohorts in w00tstock, Paul and Storm, and also Wil Wheaton have always been at PAX. And this year, Paul and Storm decided to go to DragonCon instead. So we had it wasn't the what was it called the Palooza?
+[00:12:36] Adam: the Gollum voices. I figured that's the kind of game I should bring to DragonCon. We didn't do every other year. I've been to DragonCon. My cohorts in w00tstock, Paul and Storm, and also Wil Wheaton have always been at PAX. And this year, Paul and Storm decided to go to DragonCon instead. So we had it wasn't the what was it called the Palooza?
 
-[00:12:56] Norm: Uh, it was like a Gonzoroo,
+[00:12:56] Norm: It was like a Gonzoroo,
 
 [00:12:58] Adam: Gonzoroo, that was it, and it was the the big performance at DragonCon on the Saturday night. And Paul and Storm helped Ken Plume organize it, and I brought around towards the end with with Gollum singing, " I Will Survive."
 
 [00:13:12] Norm: But at w00tstock, you've also played the piano and sang, so it's something of like a... It's a guilty pleasure of yours.
 
-[00:13:20] Adam: Absolutely, no, it really is. I I I I love learning new things, and I we had a piano. We had to get rid of it because it was too big, and we're going to get another piano in the house because both my boys are very musical. And I I wanted to teach myself a song, so I wrote to John Roderick and said, " Could I teach myself your song?" The Commander Thinks Aloud, and he's like, " Absolutely!" And he, I've said this before somewhere, but he sent me the video of him playing the song and taught me how to play it. And so at Comic Con this year, I I broke it out with Finn on the drums and Paul and Storm providing backup vocals, Molly Lewis on the guitar. It was fantastic. It was really fun.
+[00:13:20] Adam: Absolutely, no, it really is. I love learning new things, and I we had a piano. We had to get rid of it because it was too big, and we're going to get another piano in the house because both my boys are very musical. And I I wanted to teach myself a song, so I wrote to John Roderick and said, " Could I teach myself your song?" The Commander Thinks Aloud, and he's like, " Absolutely!" And he, I've said this before somewhere, but he sent me the video of him playing the song and taught me how to play it. And so at Comic Con this year, I I broke it out with Finn on the drums and Paul and Storm providing backup vocals, Molly Lewis on the guitar. It was fantastic. It was really fun.
 
 [00:14:03] Norm: That's a video I think people can probably find on YouTube. Since filming is okay,
 
@@ -316,9 +316,9 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:14:49] Adam: friendly. It's the ultimate masquerade ball, and it lasts for almost a week.
 
-[00:14:53] Norm: It's a party. It's like a it's like a Halloween party, but nonstop.
+[00:14:53] Norm: It's a party. It's like a Halloween party, but nonstop.
 
-[00:14:57] Adam: So the the the thing that I The thing that I loved when I first went to Comic Con was slowly letting it, slowly having it dawn on me what a kind of you know to the rest of the world it's like oh these are people letting their freak flags fly, and sure that is one aspect of it, and I don't mean to speak for cosplayers here because there are people who are far more serious and dedicated than I am. It's making my one or two costumes a year. I still feel like a little bit of a dilettante, but there is also this really important theater that's going on, and it's a theater where everyone is both a performer and an audience member, and that's there's a really there's a real grace to that interaction that we don't normally get in theater and performance type type scenarios. That's wonderful. So you have everyone in costume. When I was Jack Sparrow, and I walk around, I found these other two Jacks who actually go out and perform as a pair of Jacks. That's the name of their performance troupe, and they have the mannerisms down. And they were talking to me about you know I had this on the wrong hand, but they were were admiring some of the other stuff I had, and they had. Stuff that I didn't have, and it was, you know, and they never broke character throughout the whole thing. It's in the video of me doing my cosplay. It's like they never broke character. Those guys were tight.
+[00:14:57] Adam: So the thing that I loved when I first went to Comic Con was slowly letting it, slowly having it dawn on me what a kind of you know to the rest of the world it's like oh these are people letting their freak flags fly, and sure that is one aspect of it, and I don't mean to speak for cosplayers here because there are people who are far more serious and dedicated than I am. It's making my one or two costumes a year. I still feel like a little bit of a dilettante, but there is also this really important theater that's going on, and it's a theater where everyone is both a performer and an audience member, and that's there's a really there's a real grace to that interaction that we don't normally get in theater and performance type type scenarios. That's wonderful. So you have everyone in costume. When I was Jack Sparrow, and I walk around, I found these other two Jacks who actually go out and perform as a pair of Jacks. That's the name of their performance troupe, and they have the mannerisms down. And they were talking to me about you know I had this on the wrong hand, but they were admiring some of the other stuff I had, and they had. Stuff that I didn't have, and it was and they never broke character throughout the whole thing. It's in the video of me doing my cosplay. It's like they never broke character. Those guys were tight.
 
 [00:16:12] Norm: It is a form of performance art,
 
@@ -326,7 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:16:14] Norm: in the entire spectrum of what that word means, that phrase means. Because you have people and expression of creativity. You have people who do weird mashups, and at night I saw this group of cosplayers that had a big flag, and they were dressed as like bros with pop collars, and they were the riders of Brohan, and they would just it would be a dozen of them with you know many polo shirts and glasses standing in a corner holding a big flag like Lord of the Rings Brohan, handing out swag. Wait 15 minutes, and then you moved another part of the room and do the same thing in a different crowd, and then you had people start little dance circles, and
 
-[00:16:52] Adam: you know. So there's there is. I've been reading some of. I haven't watched Heroes of Cosplay yet.
+[00:16:52] Adam: So there's there is. I've been reading some of. I haven't watched Heroes of Cosplay yet.
 
 [00:16:57] Norm: Yes, yes, right.
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:17:46] Norm: Extremely gracious.
 
-[00:17:48] Adam: It is is incredibly incredibly rare to run across any kind of negative response to that. I mean, you know, I see I saw it first on the RPF. You'd see somebody who's like a 14 year old kid in the Philippines who's got like you know $40 to spend on an Iron Man costume, and he's making it out of cardboard and meticulously doing it, and it might be crunchy. But everyone is encouraging the crap out of him because it's like good work, keep going. That looks great, and giving him reference and giving him guidelines, and that's the spirit of that whole community. And DragonCon is like 40,000 people strong with that kind of feeling.
+[00:17:48] Adam: It is is incredibly incredibly rare to run across any kind of negative response to that. I mean I see I saw it first on the RPF. You'd see somebody who's like a 14 year old kid in the Philippines who's got like you know $40 to spend on an Iron Man costume, and he's making it out of cardboard and meticulously doing it, and it might be crunchy. But everyone is encouraging the crap out of him because it's like good work, keep going. That looks great, and giving him reference and giving him guidelines, and that's the spirit of that whole community. And DragonCon is like 40,000 people strong with that kind of feeling.
 
 [00:18:21] Norm: That's not to say that cosplayers can't be competitive
 
@@ -348,7 +348,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:18:25] Adam: absolutely.
 
-[00:18:25] Norm: And and these are this isn't not it's not like the show floor. They there's a stage. There's a panel of judges. There's a whole multi hour evaluation period.
+[00:18:25] Norm: And these are this isn't not it's not like the show floor. They there's a stage. There's a panel of judges. There's a whole multi hour evaluation period.
 
 [00:18:35] Adam: And there's whole things about whether or not your costume was commissioned or whether it was handmade, et cetera.
 
@@ -360,11 +360,11 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:18:43] Adam: absolutely.
 
-[00:18:44] Norm: And there was a documentary I saw recently about the Atlanta cosplay scene. I think it was the public television station. It's online. I'll link to it in the show notes. But it's wonderful because these there are seamstresses, there are prop makers, and you know, husband wife. Couples who are working together.
+[00:18:44] Norm: And there was a documentary I saw recently about the Atlanta cosplay scene. I think it was the public television station. It's online. I'll link to it in the show notes. But it's wonderful because these there are seamstresses, there are prop makers, and husband wife. Couples who are working together.
 
-[00:19:04] Adam: Well, I've been finding, as I as I look about and commission different people for different types of costume work that I that I need done, I'm finding the cosplayers of Etsy to be a fantastic and wonderful resource because they're out there showing the stuff that they've made, the commissions they made for other people, the stuff they've made for themselves. You get to see them wearing it at the cons, and then you know because you're a cosplayer, instead of you know I've taken I guess my V for Vendetta tunic was made by buying one that was pretty close, buying fabric that was dead to rights, perfect, and then taking it to my tailor. I got a guy who does tailoring for me in San Francisco, and you know it cost about the same as it would to commission someone on Etsy, but there wasn't that interaction of the thrill of working on something together.
+[00:19:04] Adam: Well, I've been finding, as I look about and commission different people for different types of costume work that I need done, I'm finding the cosplayers of Etsy to be a fantastic and wonderful resource because they're out there showing the stuff that they've made, the commissions they made for other people, the stuff they've made for themselves. You get to see them wearing it at the cons, and then you know because you're a cosplayer, instead of you know I've taken I guess my V for Vendetta tunic was made by buying one that was pretty close, buying fabric that was dead to rights, perfect, and then taking it to my tailor. I got a guy who does tailoring for me in San Francisco, and you know it cost about the same as it would to commission someone on Etsy, but there wasn't that interaction of the thrill of working on something together.
 
-[00:19:49] Norm: Yes, and and you mentioned fabric. That is something that cosplayers are so serious about. I was I was walking with Keith Zendragon and Abby Darkstar one night, and they were stopped by some cosplayers, and they spent 15 minutes in a hallway just talking about each other's fabrics. Just examining the fabrics.
+[00:19:49] Norm: Yes, and you mentioned fabric. That is something that cosplayers are so serious about. I was walking with Keith Zendragon and Abby Darkstar one night, and they were stopped by some cosplayers, and they spent 15 minutes in a hallway just talking about each other's fabrics. Just examining the fabrics.
 
 [00:20:07] Adam: Well, I mean, there are you can spend years trying to find the right fabric. When I was doing some research on the alien spacesuit, it wasn't until I someone sent me a picture of lacing pulled apart so I could see a flower hidden by one of the costume details in the original alien spacesuit built by John Mollo, designed by Moebius, that I was able to take that to Britex and find that it was this esoteric trim sold called broderie made specifically for lingerie, and you can buy it in strips. And these strips were sewn three at a time around. I mean, that kind of research, which took me six months to find the right stuff, that kind of stuff is the whole cosplay community just spends hundreds of man years on it.
 
@@ -380,11 +380,11 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:21:24] Adam: Yes, they totally do.
 
-[00:21:24] Norm: or craft, or or you know, sell masks and helmets and stuff. Etsy is a great place for that.
+[00:21:24] Norm: or craft, or sell masks and helmets and stuff. Etsy is a great place for that.
 
 [00:21:30] Adam: Etsy is a fantastic place for that. You can also buy patterns. You can also download. Often, many people I've been finding when I've been looking up Admiral Nelson's uniform, I found lots of sites devoted to Regency era clothing, in which the sites would have hundreds of clothing patterns you could just download and try sewing yourself with guides and step-by-step directions on how to do it.
 
-[00:21:55] Norm: I think that I really want to communicate to people who might want to like buy commissions that they have to take it seriously. It's not just like a Halloween costume that you can buy, you know, online on Amazon. These things are they take a lot of time.
+[00:21:55] Norm: I think that I really want to communicate to people who might want to like buy commissions that they have to take it seriously. It's not just like a Halloween costume that you can buy online on Amazon. These things are they take a lot of time.
 
 [00:22:07] Adam: They take a lot of time, and I would actually say that given this is coming out at the beginning of October, if you are contacting a seller on Etsy about hand making a costume, I can tell you you'd be lucky if they could finish it for you in time.
 
@@ -402,11 +402,11 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:22:52] Norm: Oh, that's a good tip. It's like I'm buying candy on November 1. I should be buying costumes.
 
-[00:22:58] Adam: You know, but the main thing I think what you are alluding to is that the community is incredibly supportive, and if you find a costuming community, the Replica Prop Forum is repeated almost ad nauseum is one of the largest, but There are specific ones for most types of costumes. There are entire groups about Spider-Man, entire groups about Wonder Woman, esoteric DC and Marvel characters, anime. There are people that have done done huge builds for for almost nothing at a craft foam and camping mats and yoga mats. There are painting tutorials for that. And again, if you feel like devoting a few dozen hours to this, the community will totally give you tons of advice as long as you're asking questions and you know playing along and seeing what's going on and learning as you go.
+[00:22:58] Adam: But the main thing I think what you are alluding to is that the community is incredibly supportive, and if you find a costuming community, the Replica Prop Forum is repeated almost ad nauseum is one of the largest, but There are specific ones for most types of costumes. There are entire groups about Spider-Man, entire groups about Wonder Woman, esoteric DC and Marvel characters, anime. There are people that have done done huge builds for almost nothing at a craft foam and camping mats and yoga mats. There are painting tutorials for that. And again, if you feel like devoting a few dozen hours to this, the community will totally give you tons of advice as long as you're asking questions and you know playing along and seeing what's going on and learning as you go.
 
 [00:23:45] Norm: Now you've worked in film production on the model making side, but not on the costuming side. Do you think that someone like a costume designer on a film today is aware of that community or maybe designs with that partially in mind? Because it's all it's almost like free publicity if you design a costume.
 
-[00:24:01] Adam: I don't. I don't. I can't imagine a costume designer is trying to design with that in mind. I really don't think so. But I do think that they are. Hyper aware of that community. One because I know that that community tries to reach out to great designers like Janty Yates from Prometheus, and I know Deborah Nadoolman, who's an amazing costume designer, John Landis' wife. She she's the I would call the grand poohbah of the costume parade at Comic Con every year. So she completely knows that community and really appreciates the amount of work and effort and exactitude that goes into that. Because I mean, a costumer. It's funny we think of model makers as being hyper exact, but man, when I've sat down and talked to film costumers, sometimes I feel like I don't know where it's at because these these folks will go to every degree to get they'll they'll have stuff custom printed and woven like different types of cotton weave done in India and printed with special dyes to be super accurate to the film. And that's in the movies. That's not a that's not a cosplayer. That's a you know a film going to that length.
+[00:24:01] Adam: I don't. I don't. I can't imagine a costume designer is trying to design with that in mind. I really don't think so. But I do think that they are. Hyper aware of that community. One because I know that that community tries to reach out to great designers like Janty Yates from Prometheus, and I know Deborah Nadoolman, who's an amazing costume designer, John Landis' wife. She she's the I would call the grand poohbah of the costume parade at Comic Con every year. So she completely knows that community and really appreciates the amount of work and effort and exactitude that goes into that. Because I mean, a costumer. It's funny we think of model makers as being hyper exact, but man, when I've sat down and talked to film costumers, sometimes I feel like I don't know where it's at because these these folks will go to every degree to get they'll they'll have stuff custom printed and woven like different types of cotton weave done in India and printed with special dyes to be super accurate to the film. And that's in the movies. That's not a cosplayer. That's a you know a film going to that length.
 
 [00:25:09] Norm: Yeah, it's this weird symbiotic relationship between the fans and the content creators and the IP owners.
 
@@ -420,25 +420,25 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:25:49] Adam: Dragon Con. It's Labor Day in Atlanta, downtown Atlanta. Get your tickets now because the hotels book up pretty quickly.
 
-[00:25:55] Norm: Hotels book up. I think the the tickets get more expensive over time if you buy early.
+[00:25:55] Norm: Hotels book up. I think the tickets get more expensive over time if you buy early.
 
 [00:25:59] Adam: Yes,
 
-[00:25:59] Norm: then it's it's only like $50 or something for the whole weekend.
+[00:25:59] Norm: then it's only like $50 or something for the whole weekend.
 
-[00:26:02] Adam: I I had so much fun this year. I had a really. I think it was my favorite Dragon Con yet.
+[00:26:02] Adam: I had so much fun this year. I had a really. I think it was my favorite Dragon Con yet.
 
-[00:26:08] Norm: It's really good to hear. Well, we we started talking about Dragon Con and we end up talking about cosplay.
+[00:26:08] Norm: It's really good to hear. Well, we started talking about Dragon Con and we end up talking about cosplay.
 
-[00:26:13] Adam: You can't you can't talk about Dragon Con and not have a deep, long, abiding conversation about cosplay.
+[00:26:13] Adam: You can't talk about Dragon Con and not have a deep, long, abiding conversation about cosplay.
 
 [00:26:19] Norm: They do go hand in hand.
 
 [00:26:20] Adam: Yes.
 
-[00:26:20] Norm: Well, that's that's about it for this episode. Subscribe. We'll be back next week.
+[00:26:20] Norm: Well, that's about it for this episode. Subscribe. We'll be back next week.
 
-[00:26:27] Adam: We'll be back next week. Subscribe. Put your comments up on. We really appreciate and we read your comments on YouTube. I I must admit, within the celebrity community, if you look at comments for content that you've generated, we call that cutting.
+[00:26:27] Adam: We'll be back next week. Subscribe. Put your comments up on. We really appreciate and we read your comments on YouTube. I must admit, within the celebrity community, if you look at comments for content that you've generated, we call that cutting.
 
 [00:26:44] Norm: Well, I know Ben Affleck doesn't do it.
 

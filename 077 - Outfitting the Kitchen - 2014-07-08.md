@@ -22,9 +22,9 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:00:28] Adam: So, what would you say?
 
-[00:00:29] Will: You know, don't you know that we come in six packs now? It's like lines from Zaphod Beeblebrox when he introduces in the radio play. Especially has a bunch of one lines back when they say, " Oh my God, you're Zaphod Beeblebrox." Well, you know, actually,
+[00:00:29] Will: Don't you know that we come in six packs now? It's like lines from Zaphod Beeblebrox when he introduces in the radio play. Especially has a bunch of one lines back when they say, " Oh my God, you're Zaphod Beeblebrox." Well actually,
 
-[00:00:41] Adam: you know, you can buy right now at Prop Store of London on their website. You can buy Sam Rockwell's second head for Zaphod Beeblebrox's second head. It's not that much
+[00:00:41] Adam: You can buy right now at Prop Store of London on their website. You can buy Sam Rockwell's second head for Zaphod Beeblebrox's second head. It's not that much
 
 [00:00:41] Will: from the movie.
 
@@ -32,7 +32,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:00:54] Adam: I believe it's somewhere in the $2,000 range.
 
-[00:00:58] Norm: The actual, like, how many heads they make? Not
+[00:00:58] Norm: The actual how many heads they make? Not
 
 [00:01:00] Adam: probably, you know, a dozen.
 
@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:01:05] Adam: It's. I love Sam Rockwell. I love Hitchhiker's Guide. I actually think the movie is fine, but I don't love that bit in it.
 
-[00:01:12] Will: The movie, the movie in a world where there weren't fifty million other adaptations of Hitchhiker's Guide to the Galaxy, that movie would be great.
+[00:01:12] Will: The movie in a world where there weren't fifty million other adaptations of Hitchhiker's Guide to the Galaxy, that movie would be great.
 
 [00:01:12] Adam: Yes,
 
@@ -50,7 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:01:12] Will: Oh yeah, yeah, yeah. He was involved right up until the point of his untimely, early and tragic demise.
 
-[00:01:39] Adam: You know, one of the things, one of the nice things about knowing Neil Gaiman, who's a good friend of mine, is the things he gets. I get to hear him tell me about other people I admire, like he was good friends with Adams and just talks about him being the sweetest guy alive.
+[00:01:39] Adam: One of the things, one of the nice things about knowing Neil Gaiman, who's a good friend of mine, is the things he gets. I get to hear him tell me about other people I admire, like he was good friends with Adams and just talks about him being the sweetest guy alive.
 
 [00:01:54] Will: He wrote a biography of Adams that was the first thing I read by Neil Gaiman when I was probably 14. So that would have been in like 1988 or '89.
 
@@ -60,11 +60,11 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:01:54] Adam: I have never listened to them. I've read all the books twice, but I've never listened to the radio plays.
 
-[00:02:23] Will: So it's you realize, like the the the the gist of the whole thing is that Douglas they were writing those literally they were writing pages at the end of episodes as the beginnings of of those episodes were being recorded on the soundstage. So yeah, so like they they were
+[00:02:23] Will: So it's you realize, like the gist of the whole thing is that Douglas they were writing those literally they were writing pages at the end of episodes as the beginnings of those episodes were being recorded on the soundstage. So yeah, so like they were
 
 [00:02:23] Adam: That sounds about like broadcast television.
 
-[00:02:41] Will: Yeah, yeah, and and then the books came out of the plays, but he fixed the stuff in the books that he didn't like in the plays because it was all the last minute, and he's like, " Oh, yeah, this would be a much better resolution for this." Ah, and then they did audio books of the books,
+[00:02:41] Will: Yeah, yeah, and then the books came out of the plays, but he fixed the stuff in the books that he didn't like in the plays because it was all the last minute, and he's like, " Oh, yeah, this would be a much better resolution for this." Ah, and then they did audio books of the books,
 
 [00:02:53] Adam: right? That were different.
 
@@ -86,7 +86,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:03:46] Norm: Yeah, could have been soured maybe.
 
-[00:03:46] Adam: It could be. Could be. But you know, I realize though, it's it's nice to get that other side of the man because you realize that maybe he reserves his ire for suits, not for fans.
+[00:03:46] Adam: It could be. Could be. But I realize though, it's nice to get that other side of the man because you realize that maybe he reserves his ire for suits, not for fans.
 
 [00:03:58] Will: I would like to. That's what I want to believe.
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:04:40] Adam: My loss is your gain.
 
-[00:04:40] Will: They they look a lot like the Oxo.
+[00:04:40] Will: They look a lot like the Oxo.
 
 [00:04:40] Adam: Yeah.
 
@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:04:40] Norm: So when you were looking for them, was it because of the lid had that certain?
 
-[00:04:49] Adam: It was it was a combination of the rectangular, tall, clear. Here we go, so people can see it. Clear plastic container with the framed white lid in top, and this is you look at Alien, and there they are. They're all pouring themselves cereal. And stuff right out of stuff like this.
+[00:04:49] Adam: It was a combination of the rectangular, tall, clear. Here we go, so people can see it. Clear plastic container with the framed white lid in top, and this is you look at Alien, and there they are. They're all pouring themselves cereal. And stuff right out of stuff like this.
 
 [00:05:06] Norm: You two can have breakfast like a space trucker.
 
@@ -136,11 +136,11 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:05:14] Adam: Because internet.
 
-[00:05:14] Will: Yeah, internet. Um, because it got lost in the thousands of emails. Uh, but the question was a good one. Uh, we have talked a lot of times about tools that you should buy when you are starting out and your approach to buying tools. Um, which just to sum up, in case you don't want to go back and listen to the episode, which you should, what seemed to be get the tools for the stuff you are working on right now. Don't spend a lot of money on stuff that you are not going to use frequently. If it's something you are going to keep forever, then get something good.
+[00:05:14] Will: Yeah, internet. Because it got lost in the thousands of emails. But the question was a good one. We have talked a lot of times about tools that you should buy when you are starting out and your approach to buying tools. Which just to sum up, in case you don't want to go back and listen to the episode, which you should, what seemed to be get the tools for the stuff you are working on right now. Don't spend a lot of money on stuff that you are not going to use frequently. If it's something you are going to keep forever, then get something good.
 
 [00:05:14] Norm: Yeah, the good one.
 
-[00:05:49] Adam: And I would add to that that if you if you think you need a tool, go buy the cheapest possible version of it and see if it's at all useful to you. And there are great resources for that. Um. Going to Amazon and sorting by price, eBay sorting by price, or if you just want a 70% guarantee that your tool arrives working, go for Harbor Freight.
+[00:05:49] Adam: And I would add to that that if you think you need a tool, go buy the cheapest possible version of it and see if it's at all useful to you. And there are great resources for that. Going to Amazon and sorting by price, eBay sorting by price, or if you just want a 70% guarantee that your tool arrives working, go for Harbor Freight.
 
 [00:06:10] Will: There you go. That's the ringing endorsement.
 
@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:06:18] Adam: Ah, kitchen tools.
 
-[00:06:18] Will: Yeah, so you know, like I'm of the opinion, and most of the chefs that I've known over the years use a one or two knives, right? So they have a big knife and a small knife.
+[00:06:18] Will: Yeah, so like I'm of the opinion, and most of the chefs that I've known over the years use a one or two knives, right? So they have a big knife and a small knife.
 
 [00:06:18] Adam: Yeah. But knives are so much fun.
 
@@ -162,29 +162,29 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:06:32] Adam: [unclear: honed it], yeah.
 
-[00:06:42] Will: But that's that's a later down the road purchase.
+[00:06:42] Will: But that's a later down the road purchase.
 
 [00:06:44] Norm: Is the question that you approach the tools you have in the kitchen much like you approach the tools you have in the shop?
 
-[00:06:49] Adam: That is a good question. Um,
+[00:06:49] Adam: That is a good question.
 
 [00:06:51] Norm: in terms of you know when you're starting out, get the cheap one that you can learn with.
 
-[00:06:51] Adam: Well, I'd say that the gamut of Quality is a narrower bandwidth than kitchen tools. I mean, you've got some; you can get some really cheapy stuff on some fronts, but like a flour sifter, a flour sifter is a flour sifter,
+[00:06:51] Adam: Well, I'd say that the gamut of Quality is a narrower bandwidth than kitchen tools. I mean, you've got some; you can get some really cheapy stuff on some fronts, but like a flour sifter is a flour sifter,
 
 [00:06:51] Will: right?
 
-[00:06:51] Adam: A colander is a colander is a colander. You know, they're all going to work pretty much the same.
+[00:06:51] Adam: A colander is a colander. They're all going to work pretty much the same.
 
-[00:06:51] Will: Well, and a lot of times on the kitchen stuff, you'll see. Like, I know, for example, America's Test Kitchen, who does great kitchen product reviews. People they have a wonderful testing lab. Um, highly recommend. Like, if you if you need a resource beyond this podcast, which you do if you want to learn how to cook,
+[00:06:51] Will: Well, and a lot of times on the kitchen stuff, you'll see. Like, I know, for example, America's Test Kitchen, who does great kitchen product reviews. People they have a wonderful testing lab. Highly recommend. Like, if you need a resource beyond this podcast, which you do if you want to learn how to cook,
 
 [00:06:51] Adam: yeah,
 
-[00:06:51] Will: then you should subscribe to to Cook's Illustrated, which is the magazine,
+[00:06:51] Will: then you should subscribe to Cook's Illustrated, which is the magazine,
 
 [00:07:29] Adam: which is one of the great magazines ever written. Every time it shows up, I curl up in the bath with it for a good hour and a half and think about stuff to cook.
 
-[00:07:37] Will: It's so it's so good. It makes you just. It's just it's just nice to read about, and it's not a food porny magazine.
+[00:07:37] Will: It's so good. It makes you just. It's just nice to read about, and it's not a food porny magazine.
 
 [00:07:37] Adam: No, no, no. I wish there was—
 
@@ -192,7 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:07:37] Adam: I wish there were other magazines that were written in this format. So, in every issue, there is what like 10 recipes.
 
-[00:07:37] Will: Um, it's somewhere between 8 and like 16, depending on which episode, which issue it is.
+[00:07:37] Will: It's somewhere between 8 and like 16, depending on which episode, which issue it is.
 
 [00:07:37] Adam: So for each recipe, there is two things going on. On one. There's just the recipe. Here's how to make this great brisket. But on the other is like, what, 2,000 words on how they came about understanding that this was the best brisket. They tried four different things along three different avenues and multiple tests. And I tried it with a sauce. I tried it without a sauce. And these are the things that how it tastes.
 
@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:09:09] Norm: this thing’s happened.
 
-[00:09:11] Will: And once you know, for example, their high roast bird turkey technique is a wonderful way to cook a turkey. You start at a really high temperature, and then once you get the outside to the kind of look that you want, you turn the oven way down and just let it go until it reaches the internal temperature you want. So that is a technique that once you learn that, for one thing, you can apply it to beef and to pork and to anything else you want to cook. So, so that's the benefit of reading those other that that that the left page is what
+[00:09:11] Will: And once for example, their high roast bird turkey technique is a wonderful way to cook a turkey. You start at a really high temperature, and then once you get the outside to the kind of look that you want, you turn the oven way down and just let it go until it reaches the internal temperature you want. So that is a technique that once you learn that, for one thing, you can apply it to beef and to pork and to anything else you want to cook. So, so that's the benefit of reading those other that that that the left page is what
 
 [00:09:35] Adam: exactly yes the
 
@@ -222,23 +222,23 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:09:37] Adam: Two things.
 
-[00:09:37] Norm: And does that apply also to the kitchen where you can do most with the essential tools that you have? You do mostly exactly the same thing, but. All the the fancy gadgets that you buy, all they do is maybe reduce the time it takes or the amount of how careful you have to be.
+[00:09:37] Norm: And does that apply also to the kitchen where you can do most with the essential tools that you have? You do mostly exactly the same thing, but. All the fancy gadgets that you buy, all they do is maybe reduce the time it takes or the amount of how careful you have to be.
 
-[00:10:10] Adam: It's um yeah it's it's it's about time management because you really could do almost anything you wanted with a set of measuring spoons, a measuring cup, a few bowls, and some basic utensils
+[00:10:10] Adam: It's um yeah it's about time management because you really could do almost anything you wanted with a set of measuring spoons, a measuring cup, a few bowls, and some basic utensils
 
 [00:10:19] Will: like and like a skillet and a frying pan. and a pot. Yeah, you can do
 
-[00:10:22] Adam: 95% of what you'd need to do with that. Um, and to be clear and to be sure, as you'd expect, my wife and I have bought a lot of kitchen gadgets over the years.
+[00:10:22] Adam: 95% of what you'd need to do with that. And to be clear and to be sure, as you'd expect, my wife and I have bought a lot of kitchen gadgets over the years.
 
 [00:10:22] Will: You have a well equipped kitchen.
 
 [00:10:22] Adam: We do, but we we've also retired and given away a lot of those gadgets. As it turns out, we didn't really need that.
 
-[00:10:22] Will: Like Alton's theory, Alton Brown's theory on this is pretty good. His his thing has always been that you don't buy gadgets that only do one thing. It has to be a multitasker, no unitaskers. Well, which is which is a good approach up to a point.
+[00:10:22] Will: Like Alton's theory, Alton Brown's theory on this is pretty good. His his thing has always been that you don't buy gadgets that only do one thing. It has to be a multitasker, no unitaskers. Well, which is a good approach up to a point.
 
 [00:10:53] Adam: I find among the things that I can't ever have too many of is you can't have too many baking sheets of different sizes
 
-[00:11:01] Will: and with with lips and with—
+[00:11:01] Will: and with lips and with—
 
 [00:11:01] Adam: with lips. Not without. And you can't have too much parchment paper. Boy, that is one that like that changed our lives.
 
@@ -248,9 +248,9 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:11:22] Will: finger cups,
 
-[00:11:23] Adam: finger cups for for creating the mise en place for a recipe. So the way my wife and I cook, she cooks more than I do. She is the much better cook, and so frequently I will be her prep cook. And the way I prep for her is, she'll hand me a recipe, and I will line up every single ingredient in the order in that it's written, and literally down to the butter, and I'll get it to room temperature, and it's all sitting water, pinch of salt. It's all lined up in little bowls, so all she has to do is dunk, dunk, dunk, dunk, dunk, dunk, dunk, and roll.
+[00:11:23] Adam: finger cups for creating the mise en place for a recipe. So the way my wife and I cook, she cooks more than I do. She is the much better cook, and so frequently I will be her prep cook. And the way I prep for her is, she'll hand me a recipe, and I will line up every single ingredient in the order in that it's written, and literally down to the butter, and I'll get it to room temperature, and it's all sitting water, pinch of salt. It's all lined up in little bowls, so all she has to do is dunk, dunk, dunk, dunk, dunk, dunk, dunk, and roll.
 
-[00:11:57] Will: Just to be clear, that's how most restaurants work too. You do all your prep work. The difference is that they have the shared, you know, shared ingredients for all the stuff that they're making in one or two or three stations, but. It lets you work much more efficiently. Like so, I mean, I think the first place to start is a good knife.
+[00:11:57] Will: Just to be clear, that's how most restaurants work too. You do all your prep work. The difference is that they have the shared shared ingredients for all the stuff that they're making in one or two or three stations, but. It lets you work much more efficiently. Like so, I mean, I think the first place to start is a good knife.
 
 [00:12:12] Adam: A good, absolutely, obviously, a good knife, a good frying pan, a good deeper,
 
@@ -260,15 +260,15 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:12:19] Will: a pot.
 
-[00:12:19] Adam: There is no need. We cook a ton, and the the pans that get the most use in our house are the 8 inch and the 14 inch non-stick frying pan. And we buy the cheapest restaurant version for like $15. They last for about a year until one of my kids or some guest in the house uses a metal utensil and scratches the crap out of it, and we toss it in the garbage.
+[00:12:19] Adam: There is no need. We cook a ton, and the pans that get the most use in our house are the 8 inch and the 14 inch non-stick frying pan. And we buy the cheapest restaurant version for like $15. They last for about a year until one of my kids or some guest in the house uses a metal utensil and scratches the crap out of it, and we toss it in the garbage.
 
 [00:12:43] Will: Yeah, even if you don't do that, it eventually it ages out and you start to get bubbles. The one Test Kitchen recommends is a T-fal that's like $20, $18. It's great,
 
-[00:12:52] Adam: and it's it's no need to go any fancier than that for your basic egg frying pan, your meat frying pan, and the stuff.
+[00:12:52] Adam: and it's no need to go any fancier than that for your basic egg frying pan, your meat frying pan, and the stuff.
 
 [00:12:58] Will: The only thing you get by spending more money is a handle that you can put in the oven, which you probably shouldn't do with a non-stick.
 
-[00:13:03] Adam: Well, yes, and you can get. Honestly, when you start to move up in frying pans, a really good seasoned cast iron pan allows you to do to get some much crispier corn breads, and you know, cooking. Thomas Keller has a chicken recipe, or you cook it in the frying pan in the oven, and it's fantastic. And you get a result with that thicker frying pan that you just can't get with.
+[00:13:03] Adam: Well, yes, and you can get. Honestly, when you start to move up in frying pans, a really good seasoned cast iron pan allows you to do to get some much crispier corn breads, and cooking. Thomas Keller has a chicken recipe, or you cook it in the frying pan in the oven, and it's fantastic. And you get a result with that thicker frying pan that you just can't get with.
 
 [00:13:03] Norm: Buy that used, and buy that at at a swapper,
 
@@ -278,13 +278,13 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:13:26] Will: Yeah.
 
-[00:13:26] Adam: That are really really handy. I personally love the the mandolin.
+[00:13:26] Adam: That are really really handy. I personally love the mandolin.
 
 [00:13:37] Will: Oh, see, I
 
 [00:13:38] Adam: I think it’s better for taking off little slices of your finger.
 
-[00:13:40] Will: Oh yeah, you can do major hospital level damage really quickly. See, I put the mandolin on the on the list of things. Like I use it when I make French fries. Almost every other time, it's much faster for me to just chop something with the knife.
+[00:13:40] Will: Oh yeah, you can do major hospital level damage really quickly. See, I put the mandolin on the list of things. Like I use it when I make French fries. Almost every other time, it's much faster for me to just chop something with the knife.
 
 [00:13:55] Adam: I actually, you know what? I went out and I bought a fry cutter.
 
@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:15:15] Will: smoking or shimmering?
 
-[00:15:16] Adam: Uh, no, not smoking, but definitely shimmering. It's hot. Okay, like my candy thermometer doesn't go higher than 400, right? So it starts beeping. When it beeps, I know it's ready. So just around 400 degrees, and I throw in a handful at a time, um, but and then cook them for exactly five minutes.
+[00:15:16] Adam: Uh, no, not smoking, but definitely shimmering. It's hot. Okay, like my candy thermometer doesn't go higher than 400, right? So it starts beeping. When it beeps, I know it's ready. So just around 400 degrees, and I throw in a handful at a time but and then cook them for exactly five minutes.
 
 [00:15:16] Will: Okay,
 
@@ -336,11 +336,11 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:15:41] Adam: Right, right,
 
-[00:15:41] Will: and a peel, and the whole all the stuff that goes with that. If you're not gonna make, if you make pizza once and you're not into it, you will know, and that's that's money and space wasted.
+[00:15:41] Will: and a peel, and the whole all the stuff that goes with that. If you're not gonna make, if you make pizza once and you're not into it, you will know, and that's money and space wasted.
 
 [00:15:41] Adam: Yeah,
 
-[00:15:41] Will: um, like vegetable peelers, a good vegetable peeler. A ceramic blade—it's worth $20 for a vegetable peeler.
+[00:15:41] Will: Like vegetable peelers, a good vegetable peeler. A ceramic blade—it's worth $20 for a vegetable peeler.
 
 [00:16:13] Adam: Totally, totally, totally. Vegetable peelers—you're going to use it more than any other thing. And by the way, go and get the bright one.
 
@@ -352,7 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:16:32] Adam: Oh yeah, yeah, right.
 
-[00:16:34] Will: That thing is amazing. Like your vegetable peeler should be as sharp as every knife in your drawer. It should be a physical threat to your well-being. But yeah, like the pots and pans, get a set of like cheap Revere ware. Um. Uh. What do you call it? Just just pots with the handles.
+[00:16:34] Will: That thing is amazing. Like your vegetable peeler should be as sharp as every knife in your drawer. It should be a physical threat to your well-being. But yeah, like the pots and pans, get a set of like cheap Revere ware. What do you call it? Just just pots with the handles.
 
 [00:16:34] Adam: Yeah.
 
@@ -380,25 +380,25 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:17:23] Will: Cutting boards are great.
 
-[00:17:24] Adam: No cook will ever feel like they've got too many cutting boards. I'm sure we're going to have some write in and say I have too many cutting boards. But frankly, like when we are rolling in our kitchen, and we've seen video of a kitchen on Tested. Um, I've got a bunch of counter spaces, and being able to like give every single person a task. I and Etsy is an amazing resource for some homemade, home laminated chopping blocks that are gorgeous. I bought one recently for not that much with a stainless steel tub in the end, so you can chop, chop, chop, and put it in.
+[00:17:24] Adam: No cook will ever feel like they've got too many cutting boards. I'm sure we're going to have some write in and say I have too many cutting boards. But frankly, like when we are rolling in our kitchen, and we've seen video of a kitchen on Tested. I've got a bunch of counter spaces, and being able to like give every single person a task. I and Etsy is an amazing resource for some homemade, home laminated chopping blocks that are gorgeous. I bought one recently for not that much with a stainless steel tub in the end, so you can chop, chop, chop, and put it in.
 
 [00:17:54] Will: That's great.
 
 [00:17:54] Adam: Yeah,
 
-[00:17:55] Will: I love I love the the thin like it's just like a single layer of that laminate stuff that they like glue together.
+[00:17:55] Will: I love the thin like it's just like a single layer of that laminate stuff that they like glue together.
 
 [00:17:55] Adam: Yeah.
 
-[00:17:55] Will: Um, and you can put it on top like when you're when you're cooking when you're cutting chicken or something like that. You can put it on either on the counter by the sink, which is convenient, or you can put on top of your other cutting board so you don't have to. Wash the chicken every single time.
+[00:17:55] Will: And you can put it on top like when you're cooking when you're cutting chicken or something like that. You can put it on either on the counter by the sink, which is convenient, or you can put on top of your other cutting board so you don't have to. Wash the chicken every single time.
 
 [00:17:55] Norm: You don't want to put meat on the wood,
 
-[00:18:15] Will: right? Well, you know, putting meat on the wood is fine. Don't listen. Have you? You guys should. This is this is in your alley.
+[00:18:15] Will: right? Well putting meat on the wood is fine. Don't listen. Have you? You guys should. This is in your alley.
 
 [00:18:15] Adam: Yeah, it’s true.
 
-[00:18:15] Will: Um, the the meat on the wood. I've just used lemon and salt for years to clean my meat. You've eaten plenty of food off of my meat on wood chopping blocks. No problem.
+[00:18:15] Will: The meat on the wood. I've just used lemon and salt for years to clean my meat. You've eaten plenty of food off of my meat on wood chopping blocks. No problem.
 
 [00:18:29] Norm: No extra arms. How about organizing?
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:18:33] Adam: A big and small. You can never have too many cutting boards.
 
-[00:18:44] Will: Um, a decent chef's knife, a decent paring knife,
+[00:18:44] Will: A decent chef's knife, a decent paring knife,
 
 [00:18:47] Adam: and again, those aren't hard to get good quality ones for
 
@@ -422,7 +422,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:18:50] Adam: Absolutely,
 
-[00:18:50] Will: but but the Victorinox is a lovely, lovely blade. They use it on America's Test Kitchen every week. It works.
+[00:18:50] Will: but the Victorinox is a lovely, lovely blade. They use it on America's Test Kitchen every week. It works.
 
 [00:18:50] Adam: Right.
 
@@ -430,9 +430,9 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:18:50] Adam: Absolutely.
 
-[00:18:50] Norm: Um, care of your care and well.
+[00:18:50] Norm: Care of your care and well.
 
-[00:19:04] Adam: So you you said organization. Yeah, I will say organization is a real bugbear. Because everyone has different amounts of space, a dedicated drawer or a couple of drawers for measuring devices is really, really ideal. Like we have, actually, we have countless numbers of half a cup, quarter cup, three quarters cup nesting. We also have weird sizes, one third cup, two thirds cups, those sort of sizes.
+[00:19:04] Adam: So you said organization. Yeah, I will say organization is a real bugbear. Because everyone has different amounts of space, a dedicated drawer or a couple of drawers for measuring devices is really, really ideal. Like we have, actually, we have countless numbers of half a cup, quarter cup, three quarters cup nesting. We also have weird sizes, one third cup, two thirds cups, those sort of sizes.
 
 [00:19:34] Will: Do you cal? So I started calibrating those when they come in, just to make sure.
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:19:43] Will: Yeah, like the half cup measure was a little bit less or a little bit more. Oops!
 
-[00:19:47] Adam: You know, Julia was working from a recipe for ice cream recently. We bought an ice cream maker.
+[00:19:47] Adam: Julia was working from a recipe for ice cream recently. We bought an ice cream maker.
 
 [00:19:54] Will: Oh, that's dangerous!
 
@@ -470,7 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:20:28] Norm: Will’s anti-toaster oven.
 
-[00:20:28] Will: I think if you're in a in a small kitchen, the toaster oven is a waste of space.
+[00:20:28] Will: I think if you're in a small kitchen, the toaster oven is a waste of space.
 
 [00:20:34] Adam: Oh, I'm not. I'm actually Julie and I have been using this thing so much. We're like, if you had a choice of one thing, this might be it.
 
@@ -488,7 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:21:05] Adam: a digital scale,
 
-[00:21:05] Will: and one is a a great digital thermometer. An instant read digital thermometer will change your life.
+[00:21:05] Will: and one is a great digital thermometer. An instant read digital thermometer will change your life.
 
 [00:21:05] Adam: And that one that folds out, what is that?
 
@@ -518,9 +518,9 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:21:44] Will: Yeah.
 
-[00:21:45] Adam: The the the the thermapens are fantastic. We've got yeah we've got a bunch of them.
+[00:21:45] Adam: The thermapens are fantastic. We've got yeah we've got a bunch of them.
 
-[00:21:49] Will: Um, I mean they they are expensive. It is a lovely gift to give someone who wants to cook in your life. It's like $100. They sometimes do them on sale. Um, it is a tool that will last an entire lifetime.
+[00:21:49] Will: I mean they are expensive. It is a lovely gift to give someone who wants to cook in your life. It's like $100. They sometimes do them on sale. It is a tool that will last an entire lifetime.
 
 [00:22:00] Adam: When you say care, I will say that. Nothing is worse than trying to clean out someone's non-stick frying pan of some slow-cooked scrambled eggs that have been
 
@@ -542,9 +542,9 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:22:33] Will: And she said, if you did that three times, you'd never have to scrape anything off again. which sounds really nice to me.
 
-[00:22:38] Adam: I I think it's worth trying. I just haven't gotten around to it.
+[00:22:38] Adam: I think it's worth trying. I just haven't gotten around to it.
 
-[00:22:41] Will: Um, the uh uh the digital scale,
+[00:22:41] Will: The digital scale,
 
 [00:22:41] Adam: digital scale,
 
@@ -564,11 +564,11 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:22:48] Adam: of that.
 
-[00:23:01] Will: Two pounds is probably two kilograms. Rather is a is a good. This is the one I use most of the time. If you're going to do a lot of meat, then you might want more. And I'm going to go ahead and head off the complaints about the $100 thermometer. If you're cooking a piece of meat, if you buy a nice piece of meat for Thanksgiving or Christmas or whatever, if you buy a $50 turkey, which isn't impossible these days, yeah. If you buy a big giant T-bone roast or or a rib roast or anything that's a nice expensive piece of meat, you're going to have $50 or $60 or $70 worth of meat. And if the $100 thermometer saves you from ruining two of those money that you know you've saved yourself a lot of heartache.
+[00:23:01] Will: Two pounds is probably two kilograms. Rather is a good. This is the one I use most of the time. If you're going to do a lot of meat, then you might want more. And I'm going to go ahead and head off the complaints about the $100 thermometer. If you're cooking a piece of meat, if you buy a nice piece of meat for Thanksgiving or Christmas or whatever, if you buy a $50 turkey, which isn't impossible these days, yeah. If you buy a big giant T-bone roast or a rib roast or anything that's a nice expensive piece of meat, you're going to have $50 or $60 or $70 worth of meat. And if the $100 thermometer saves you from ruining two of those money that you know you've saved yourself a lot of heartache.
 
-[00:23:38] Adam: Yeah, I totally agree. Um, it's also easy. It's it's a brilliant design and really really robust.
+[00:23:38] Adam: Yeah, I totally agree. It's also easy. It's a brilliant design and really really robust.
 
-[00:23:45] Will: You can also get if you if that's too much for you, you can get an instant read thermometer for about $10. It has a dial on it. You calibrate it by putting it in boiling water.
+[00:23:45] Will: You can also get if you if that's too much for you can get an instant read thermometer for about $10. It has a dial on it. You calibrate it by putting it in boiling water.
 
 [00:23:45] Adam: I believe they make one that plugs into the iPhone.
 
@@ -588,17 +588,17 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:23:45] Adam: That’s— that is a very reasonable plan.
 
-[00:24:12] Will: Um, a roasting pan is great. You can get away with the with the aluminum disposable ones from the grocery store when you are first starting out.
+[00:24:12] Will: A roasting pan is great. You can get away with the aluminum disposable ones from the grocery store when you are first starting out.
 
-[00:24:19] Adam: Um, I love the lasagna trays for all sorts of things, from baking and prepping and Pyrex. Yeah,
+[00:24:19] Adam: I love the lasagna trays for all sorts of things, from baking and prepping and Pyrex. Yeah,
 
-[00:24:25] Will: a good Dutch oven is a like we. I got a Le Creuset for Christmas a few 10 years ago. Now it is probably the most used piece of cookware in our house because you can you can sauté stuff in it, and then when you are ready to turn, if you are making chili, you sauté the meat, you brown the meat, you chuck all your vegetables in, and then you just boil it. If you are making a casserole, you can start it up on the on the range, move it into the oven. It's great.
+[00:24:25] Will: a good Dutch oven is a like we. I got a Le Creuset for Christmas a few 10 years ago. Now it is probably the most used piece of cookware in our house because you can sauté stuff in it, and then when you are ready to turn, if you are making chili, you sauté the meat, you brown the meat, you chuck all your vegetables in, and then you just boil it. If you are making a casserole, you can start it up on the range, move it into the oven. It's great.
 
-[00:24:48] Adam: Um, and the
+[00:24:48] Adam: And the
 
 [00:24:49] Will: but you can use the non you don't have to get the ceramic one.
 
-[00:24:49] Adam: That Le Creuset stuff is there is no there is no bullshit about it. It's wonderful, wonderful stuff. It's expensive.
+[00:24:49] Adam: That Le Creuset stuff is there is no bullshit about it. It's wonderful, wonderful stuff. It's expensive.
 
 [00:24:58] Will: The only thing that annoys me about that is that they use it on all the cooking shows, and the cooking shows get new supplies every three months, so it always looks brand new.
 
@@ -618,9 +618,9 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:25:11] Will: It’s a wonderful piece of tool.
 
-[00:25:17] Adam: Um. What else? What else?
+[00:25:17] Adam: What else? What else?
 
-[00:25:20] Will: Uh, we haven't talked about power stuff at all. Like the stand mixer, I think is one of the great traps of the kitchen. You know, your your your your stand mixer is one of those things that everyone thinks, oh, I should get a stand mixer, but it turns out you rarely use a stand mixer
+[00:25:20] Will: We haven't talked about power stuff at all. Like the stand mixer, I think is one of the great traps of the kitchen. You know, your stand mixer is one of those things that everyone thinks, oh, I should get a stand mixer, but it turns out you rarely use a stand mixer
 
 [00:25:34] Adam: unless you're into baking.
 
@@ -632,27 +632,27 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:25:34] Norm: That's like okay.
 
-[00:25:34] Will: They're like $300. If you if you—
+[00:25:34] Will: They're like $300. If you—
 
 [00:25:34] Adam: Costco has a cheaper one,
 
-[00:25:34] Will: so get the good one. If you're going to buy one of those, don't buy the one with the flip top, the the tilt top, because it has a lower lower torque motor, and eventually you'll separate the grease and burn the whole thing up. If you if you make like pizza dough in it, for example,
+[00:25:34] Will: so get the good one. If you're going to buy one of those, don't buy the one with the flip top, the tilt top, because it has a lower lower torque motor, and eventually you'll separate the grease and burn the whole thing up. If you make like pizza dough in it, for example,
 
 [00:25:34] Adam: I see.
 
-[00:25:34] Will: Um, if you or ice cream, if you are um, get the one with the handle that cranks up and lifts the whole motor up. Um, the food processor, food processor is great for making like soups. It's amazing for soups.
+[00:25:34] Will: If you or ice cream, if you are get the one with the handle that cranks up and lifts the whole motor up. The food processor is great for making like soups. It's amazing for soups.
 
 [00:26:14] Adam: That’s what I love the blender for.
 
-[00:26:15] Will: Blender is great for soups. You can do dough in the food processor. You can, you can chop 15 cucumbers in about 35 seconds.
+[00:26:15] Will: Blender is great for soups. You can do dough in the food processor. You can chop 15 cucumbers in about 35 seconds.
 
 [00:26:15] Adam: Yeah.
 
-[00:26:15] Will: Um, we use the food processor a lot, but it took a long time to get there.
+[00:26:15] Will: We use the food processor a lot, but it took a long time to get there.
 
-[00:26:15] Adam: We don't use a food processor nearly as much. We use the um,
+[00:26:15] Adam: We don't use a food processor nearly as much. We use the
 
-[00:26:15] Will: I make pizza sauce and and and like I'll puree tomatoes in the food processor.
+[00:26:15] Will: I make pizza sauce and like I'll puree tomatoes in the food processor.
 
 [00:26:15] Adam: One of the nice things that's happened in the past 10 years is because cooking has become much more of an American sport. Things like the Vitamix have gone down in price.
 
@@ -660,19 +660,19 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:26:15] Adam: And that variable speed Vitamix blender is a masterpiece. I just we use that thing almost every other day.
 
-[00:26:51] Will: See, I've never gotten to the point that I can. We we went food pross. I think I think at some point, you know, like in the early '90s, you go either grunge or rap, right? Oh, we go food processor or blender.
+[00:26:51] Will: See, I've never gotten to the point that I can. We went food pross. I think at some point like in the early '90s, you go either grunge or rap, right? Oh, we go food processor or blender.
 
 [00:27:01] Norm: Do you buy for your blender extra extra vessels?
 
 [00:27:04] Adam: Not yet. Well. We ended up with two for some strange reason. So I use I go back and forth with both vessels. But I'm also very assiduous about cleaning it out very quickly.
 
-[00:27:14] Will: I like the stick blender as a starter because it's $20. Yes, and you can you can fix a lot of crimes with a stick blender.
+[00:27:14] Will: I like the stick blender as a starter because it's $20. Yes, and you can fix a lot of crimes with a stick blender.
 
 [00:27:20] Adam: We have one. We have not yet used it. I just I got it. I got it for Christmas.
 
-[00:27:20] Will: You have a real blender though, so it's a different thing. Yes, like if you don't if you haven't shelled out for a blender, then like it it you can fix gravy if you get lumpy gravy.
+[00:27:20] Will: You have a real blender though, so it's a different thing. Yes, like if you don't if you haven't shelled out for a blender, then like it you can fix gravy if you get lumpy gravy.
 
-[00:27:20] Adam: One of the one of the when is this airing? When are we gonna
+[00:27:20] Adam: One of the when is this airing? When are we gonna
 
 [00:27:34] Will: next week? Probably
 
@@ -692,7 +692,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:27:45] Will: Soups are wonderful.
 
-[00:28:51] Adam: Soups are so good, like a like a cucumber gazpacho and stuff like that. Oh yeah.
+[00:28:51] Adam: Soups are so good, like a cucumber gazpacho and stuff like that. Oh yeah.
 
 [00:28:51] Will: Since it’s 80 degrees outside right now, that sounds really nice,
 
@@ -700,13 +700,13 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:28:51] Will: No,
 
-[00:28:51] Adam: the cookbook. It's a vegetarian cookbook, which honestly, I would give up meat if all my food could taste this good. But more than that, as I said, there are different cookbooks which. Are better and and worse at giving you a high quality product. We've cooked about probably half of the Plenty Cookbook at this point, and not a single thing hasn't come out insanely good.
+[00:28:51] Adam: the cookbook. It's a vegetarian cookbook, which honestly, I would give up meat if all my food could taste this good. But more than that, as I said, there are different cookbooks which. Are better and worse at giving you a high quality product. We've cooked about probably half of the Plenty Cookbook at this point, and not a single thing hasn't come out insanely good.
 
 [00:28:51] Will: Wow!
 
-[00:28:51] Adam: Like not just good, but like the the taste come the taste juxtapositions are like a restaurant quality where you are like there’s a little nut and then a little tang on the top of it instead of like what I make, which is all like it's purple and mushy
+[00:28:51] Adam: Not just good, but the taste come the taste juxtapositions are like a restaurant quality where you are like there’s a little nut and then a little tang on the top of it instead of like what I make, which is all like it's purple and mushy
 
-[00:29:39] Will: salt. Yeah, I can taste salt. Cookbooks are tough, like like especially if you are starting out. I think everybody's parents gave them the Better Homes and Gardens, the Red Checkerboard.
+[00:29:39] Will: salt. Yeah, I can taste salt. Cookbooks are tough, like especially if you are starting out. I think everybody's parents gave them the Better Homes and Gardens, the Red Checkerboard.
 
 [00:29:39] Adam: Yeah, yeah,
 
@@ -720,13 +720,13 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:29:39] Will: new best recipe—
 
-[00:29:39] Adam: You can't go wrong with America's Test Kitchen back issues of Cook's Illustrated. Um, and I sorry, or
+[00:29:39] Adam: You can't go wrong with America's Test Kitchen back issues of Cook's Illustrated. And I sorry, or
 
 [00:30:03] Will: subscribe to their website. They have a website that you can pay like $10 a month and get all the recipes for
 
 [00:30:07] Adam: so good.
 
-[00:30:07] Will: Um, that that stuff. Like, if you want staples, if you want to know how to make meatloaf and spaghetti, and even like hamburgers and stuff like that. They'll they'll kind of walk you through that, and they do it with without a lot of lingo, which I think is really helpful.
+[00:30:07] Will: that that stuff. Like, if you want staples, if you want to know how to make meatloaf and spaghetti, and even like hamburgers and stuff like that. They'll they'll kind of walk you through that, and they do it with without a lot of lingo, which I think is really helpful.
 
 [00:30:18] Adam: Absolutely. Now, at the top end, you could go with Thomas Keller.
 
@@ -734,11 +734,11 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:30:23] Adam: who's incredible at explaining in great detail both the method and the science of what you are doing. So it's not like you have to parse a tremendous amount of like, like I don't know what he means by this. He'll actually tell you. But they're not simple recipes like when his cookbook Ad Hoc at Home, which is supposedly his simple recipes, it's like there’s not a single one of those without 30 ingredients,
 
-[00:30:43] Will: four days, four days of prep. You have to start by going out to the farm and getting the meat fresh from the cow. Crime. Alice Waters' Art of Simple Food or Art of Simple Cooking, I can't remember, is is a it's a it's a classic cookbook. It is the exact opposite of Tom of the Thomas Keller book. It's three, maybe four ingredients per recipe. It's here’s how to poach a piece of salmon, you know, and then there’s a lot of it. It's very Berkeley in a lot of ways,
+[00:30:43] Will: four days of prep. You have to start by going out to the farm and getting the meat fresh from the cow. Crime. Alice Waters' Art of Simple Food or Art of Simple Cooking, I can't remember, is is a it's a classic cookbook. It is the exact opposite of Tom of the Thomas Keller book. It's three, maybe four ingredients per recipe. It's here’s how to poach a piece of salmon and then there’s a lot of it. It's very Berkeley in a lot of ways,
 
 [00:30:43] Adam: yeah.
 
-[00:30:43] Will: But you will you will be able to make very good food very quickly if you follow those recipes. And and she she also advocates like some really simple stuff that's kind of fun, like. planting a little herb garden for yourself that you can put on the windowsill in your kitchen and and stuff like that. It's a lovely cookbook.
+[00:30:43] Will: But you will be able to make very good food very quickly if you follow those recipes. And she also advocates like some really simple stuff that's kind of fun, like. planting a little herb garden for yourself that you can put on the windowsill in your kitchen and stuff like that. It's a lovely cookbook.
 
 [00:31:23] Adam: But we were going back to tools. So, is there anything we haven't covered in tools?
 
@@ -768,7 +768,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:31:53] Will: Okay.
 
-[00:31:53] Adam: On the wolf on the wolf range, it doesn't have a griddle. Oh, I wish it did.
+[00:31:53] Adam: On the wolf range, it doesn't have a griddle. Oh, I wish it did.
 
 [00:31:53] Will: You know the pizza stone, the pizza steel. People have released a version of the steel that you flip over and has a grease tray on it.
 
@@ -786,23 +786,23 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:32:30] Adam: No, little little little round end milling bit there.
 
-[00:32:30] Will: There you go. Um, I'm trying to think if there's anything else.
+[00:32:30] Will: There you go. I'm trying to think if there's anything else.
 
-[00:32:38] Adam: Frying pans, bowls, trays. Uh, yeah, we can't stress the the parchment enough.
+[00:32:38] Adam: Frying pans, bowls, trays. Uh, yeah, we can't stress the parchment enough.
 
 [00:32:45] Will: I almost think the Dutch like if you're gonna if you're only gonna get one thing to cook in,
 
 [00:32:45] Adam: that’s like a gadget.
 
-[00:32:45] Will: Dutch oven is a is a like you you can use the Dutch oven instead of a frying pan instead of a saucepan.
+[00:32:45] Will: Dutch oven is a like you can use the Dutch oven instead of a frying pan instead of a saucepan.
 
 [00:32:45] Adam: This is true.
 
-[00:32:45] Will: Um, it’s big and heavy.
+[00:32:45] Will: It’s big and heavy.
 
-[00:32:45] Adam: If you're gonna do baking, um, double boiler is pretty key.
+[00:32:45] Adam: If you're gonna do baking double boiler is pretty key.
 
-[00:33:01] Will: Or you can just put a glass Pyrex bowl on top of the top of your saucepan. Um, I actually I find that often works better, especially than cheap double boilers, because sometimes cheap double boiler. Has too much contact between the edges of the pan.
+[00:33:01] Will: Or you can just put a glass Pyrex bowl on top of the top of your saucepan. I actually I find that often works better, especially than cheap double boilers, because sometimes cheap double boiler. Has too much contact between the edges of the pan.
 
 [00:33:01] Adam: Oh, and it gets too
 
@@ -810,7 +810,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:33:01] Adam: I will say that there's a gadget I had for a while, which was a deep fryer, which I loved until you use that just a little bit, and all of a sudden, every time you use it, your whole house smells like a deep fryer. So I've actually gone back to just using a frying pan, a deep frying pan.
 
-[00:33:32] Will: I have a deep fryer that lives in the in the in the garage, just so that it doesn't because you know when you it's when all your tool is a hammer,
+[00:33:32] Will: I have a deep fryer that lives in the garage, just so that it doesn't because you know when you it's when all your tool is a hammer,
 
 [00:33:40] Norm: everything you want.
 
@@ -830,7 +830,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:34:00] Adam: It's one cup of flour, one egg, one cup of water. Mix it with chopsticks. You want it lumpy, but more than that, the water that you use that you pour in should be Ice cold. I mean, literally, like you should have a big thing of ice water that you've let sit for half an hour before you pour out your one cup of water, and then mix it in a metal bowl that's sitting in another metal bowl with ice and salt. You want your mixture for tempura to be super cold. It actually helps it adhere to your vegetables or your hot dog, and throw it in again hot oil, like 380. Uh huh. And yeah, these were stunning. This is not my technique. It's Japa Dog in Vancouver. It's one of the greatest roadside hot dogs in history.
 
-[00:34:43] Will: Well, but it's. I mean, that's that that whole thing, like the using the chopsticks. A lot of times, you'll read the recipe and be like, " Ah, I don't. This seems like I'll just use my fork, " and it's not going to be right. Yeah. Like there's when you're first starting out, follow the recipe. Yeah. Follow the the instructions are there for a reason. I can't remember who it was we were talking to, but um, went off one of our one of our chef friends went off on the well. I made this, but I substituted this for this, and I'm like, well, if you're not going to make the recipe, then just just you know. Make your own thing. That's cool. That's awesome. That's great. But don't bitch about the recipe being bad if you went in and didn't follow the recipe.
+[00:34:43] Will: Well, but it's. I mean, that's that that whole thing, like the using the chopsticks. A lot of times, you'll read the recipe and be like, " Ah, I don't. This seems like I'll just use my fork, " and it's not going to be right. Yeah. Like there's when you're first starting out, follow the recipe. Yeah. Follow the instructions are there for a reason. I can't remember who it was we were talking to, but went off one of our chef friends went off on the well. I made this, but I substituted this for this, and I'm like, well, if you're not going to make the recipe, then just just you know. Make your own thing. That's cool. That's awesome. That's great. But don't bitch about the recipe being bad if you went in and didn't follow the recipe.
 
 [00:34:43] Adam: So this is true.
 
@@ -846,7 +846,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:35:31] Adam: Mixing bowls. Non-stick, 8 inch or 10 inch frying pan.
 
-[00:35:31] Will: A stick. Cheap. Cheap frying pan as well is good or or cast iron. That's a good place to use your cast iron.
+[00:35:31] Will: A stick. Cheap. Cheap frying pan as well is good or cast iron. That's a good place to use your cast iron.
 
 [00:35:31] Adam: Good thermometer.
 
@@ -872,13 +872,13 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:35:56] Will: a whisk is good too. But you can use a fork in a pinch.
 
-[00:35:58] Adam: I yeah yeah yeah yeah. But I mean, you can't. I I I wouldn't try and make whipped cream with a fork.
+[00:35:58] Adam: I yeah yeah yeah yeah. But I mean, you can't. I wouldn't try and make whipped cream with a fork.
 
 [00:36:05] Will: Uh yeah, I would just get a siphon and use the that to make whipped cream. It's way easier.
 
 [00:36:05] Adam: A siphon.
 
-[00:36:09] Will: Yeah, you know the the the whipper.
+[00:36:09] Will: Yeah, you know the whipper.
 
 [00:36:11] Adam: Oh, oh no! I like to hand.
 
@@ -890,7 +890,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:36:33] Adam: The line is very. The [unclear: bad] line is very small.
 
-[00:36:36] Will: Um, avoid mixers and food processors and stuff like that when you're starting out. You probably don't need it. By the time you need it, you'll know.
+[00:36:36] Will: Avoid mixers and food processors and stuff like that when you're starting out. You probably don't need it. By the time you need it, you'll know.
 
 [00:36:42] Adam: Yeah. Oh, and can I talk about my least favorite gadget?
 
@@ -912,7 +912,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:36:52] Will: A reamer,
 
-[00:36:52] Adam: the ones that the the
+[00:36:52] Adam: the ones that the
 
 [00:36:52] Will: It spins.
 
@@ -932,7 +932,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:37:28] Norm: Oranges.
 
-[00:37:29] Will: I'm trying to think what else. What other stuff? The stuff that I hate is like the you know the one dumb thing that I should hate that's wonderful. You know those things that you jam into the top of a strawberry to get the the flower part out, the green part. You can just jam it in there. You can do a pint of strawberries in like 10 minutes with that thing. It is super super dumb.
+[00:37:29] Will: I'm trying to think what else. What other stuff? The stuff that I hate is like the you know the one dumb thing that I should hate that's wonderful. You know those things that you jam into the top of a strawberry to get the flower part out, the green part. You can just jam it in there. You can do a pint of strawberries in like 10 minutes with that thing. It is super super dumb.
 
 [00:37:47] Adam: Like a cherry pitter too. I felt like such a loser when I realized how great those were, and I'm sitting there.
 
@@ -992,7 +992,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:38:53] Adam: Between them, so like clam shell between them, holding onto the edges. Clang clang clang clang clang clang. It's loud as. So
 
-[00:39:07] Will: it's it's a big open it's it's the the two open faces facing each other
+[00:39:07] Will: it's a big open it's the two open faces facing each other
 
 [00:39:07] Adam: so it's this interior space bang bang bang bang bang 20 seconds turn it up they'll all be perfectly peeled there's a corollary you have never gotten this to work
 
@@ -1036,13 +1036,13 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:39:54] Will: yep and just let her rip
 
-[00:39:56] Adam: and with it with a toilet brush on the end of a drill and it's just you could see him cycling and the water was brown at first and then it got cleaner and cleaner and cleaner and literally like four minutes they were all perfectly peeled
+[00:39:56] Adam: and with it with a toilet brush on the end of a drill and it's just you could see him cycling and the water was brown at first and then it got cleaner and literally like four minutes they were all perfectly peeled
 
 [00:40:07] Will: it was amazing I'm gonna try it we'll try it
 
 [00:40:09] Adam: totally should try it.
 
-[00:40:10] Will: Um, I think on that note. I think on that note, we're going to.
+[00:40:10] Will: I think on that note. I think on that note, we're going to.
 
 [00:40:10] Adam: Toilet brush is the most and strangest of your kitchen implements, and yet
 
@@ -1062,7 +1062,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:40:23] Adam: one of the easiest things to make really good chicken. It's a significant and notable difference because you are keeping the extremities from drying out. You're making it into a single unified thing, and it's just it's yeah.
 
-[00:40:37] Will: And and it takes 30 seconds, if
+[00:40:37] Will: And it takes 30 seconds, if
 
 [00:40:39] Adam: that. Yeah, there's no mystery to it. It's and there's no technique that's right or wrong. As long as you're trussing it up, you're good.
 
@@ -1070,7 +1070,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:40:45] Adam: Yep.
 
-[00:40:45] Will: Um, I think that's everything. Saucepan,
+[00:40:45] Will: I think that's everything. Saucepan,
 
 [00:40:45] Norm: baking sheet.
 
@@ -1088,19 +1088,19 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:41:19] Adam: That's really good.
 
-[00:41:19] Will: With the complete everything we've made for the last since I started doing this six months ago, and um and you can share them with people via email. It's really easy.
+[00:41:19] Will: With the complete everything we've made for the last since I started doing this six months ago, and you can share them with people via email. It's really easy.
 
 [00:41:19] Adam: I like that.
 
-[00:41:19] Will: It's a it's a and then we just have it. It's on the iPad when you're in the kitchen. The iPad is a surprisingly indestructible kitchen device.
+[00:41:19] Will: It's a and then we just have it. It's on the iPad when you're in the kitchen. The iPad is a surprisingly indestructible kitchen device.
 
-[00:41:35] Adam: I I totally I have a bunch of recipes on Evernote, but I haven't put them together like that. I think that's a great idea. There you go. Maybe we can share some.
+[00:41:35] Adam: I totally I have a bunch of recipes on Evernote, but I haven't put them together like that. I think that's a great idea. There you go. Maybe we can share some.
 
 [00:41:42] Will: Yeah, yeah. I’ll send some over.
 
 [00:41:42] Adam: Okay.
 
-[00:41:42] Will: Um, we'll be back next week with another episode of Still Untitled. I think next week we will have a Planet of the Apes spoiler cast.
+[00:41:42] Will: We'll be back next week with another episode of Still Untitled. I think next week we will have a Planet of the Apes spoiler cast.
 
 [00:41:42] Adam: Yes.
 
@@ -1108,7 +1108,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:41:42] Adam: Bum, bum, bum.
 
-[00:41:42] Will: So um, and then Comic Con the week after that, right? Yeah. Is that right?
+[00:41:42] Will: So and then Comic Con the week after that, right? Yeah. Is that right?
 
 [00:41:42] Adam: I think so.
 

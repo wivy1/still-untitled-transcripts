@@ -32,7 +32,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:01:00] Will: I haven't yet.
 
-[00:01:01] Adam: Still, I cried even more. I I found it even more affecting.
+[00:01:01] Adam: Still, I cried even more. I found it even more affecting.
 
 [00:01:05] Will: I feel really bad because John Wick came out this week and I haven't seen it yet either.
 
@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:01:29] Norm: murder mystery.
 
-[00:01:30] Will: Yeah, but um,
+[00:01:30] Will: Yeah, but
 
 [00:01:31] Norm: but Endgame. Okay, you went to see it. Did you see it in like IMAX or a regular theater?
 
@@ -64,7 +64,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:01:37] Adam: yeah, both times. In fact, yeah, we had to. We saw it at the Alamo Drafthouse the second time, and yeah, we were off to the side.
 
-[00:01:45] Norm: Wow, I'm I'm glad to hear that. People who are watching the box office are are nervous now because the drop off. It's closed its run in some places overseas. I think it's wrapped up its run in China, and so it might not beat Avatar. As the highest-grossing film ever, even though everyone thought it was a foregone conclusion,
+[00:01:45] Norm: Wow, I'm I'm glad to hear that. People who are watching the box office are nervous now because the drop off. It's closed its run in some places overseas. I think it's wrapped up its run in China, and so it might not beat Avatar. As the highest-grossing film ever, even though everyone thought it was a foregone conclusion,
 
 [00:01:45] Will: wow!
 
@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:03:12] Norm: Yeah,
 
-[00:03:13] Will: I I am so excited for like 10 years from now when somebody writes the " How This All Happened" book because if you look at the run from like Civil War, Black Panther, or probably Civil War, Civil War through Ragnarok and Black Panther, all the stuff that came out in the back half of Phase Three, leading up to Endgame and Infinity War, and like they didn't they didn't really mess up. Like, there's no they had a million different teams working on these movies. They were releasing two or three a year, which is like that's ludicrous.
+[00:03:13] Will: I am so excited for like 10 years from now when somebody writes the " How This All Happened" book because if you look at the run from like Civil War, Black Panther, or probably Civil War through Ragnarok and Black Panther, all the stuff that came out in the back half of Phase Three, leading up to Endgame and Infinity War, and like they didn't really mess up. Like, there's no they had a million different teams working on these movies. They were releasing two or three a year, which is like that's ludicrous.
 
 [00:03:43] Adam: It's ludicrous, and then you watch Ragnarok, which we finished last night, and it's like, I love that. My primary question after watching it is, how did a studio get out of this movie's way?
 
@@ -106,13 +106,13 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:04:46] Will: Yeah, we can get Solo two next year.
 
-[00:04:47] Adam: It's an it's an easy thing to screw up.
+[00:04:47] Adam: It's an easy thing to screw up.
 
-[00:04:50] Norm: Well, and and and I. That's a fundamental difference.
+[00:04:50] Norm: Well, and I. That's a fundamental difference.
 
 [00:04:53] Adam: I'm not saying that I know why Lucasfilm screwed up. I don't know if they got in the way or got way too out of the way. Like, and that might not be a knowable thing.
 
-[00:05:01] Norm: I think that with with the Star Wars universe, and it's all under the same umbrella under Disney, right? Although, of course, Marvel has its own executive team, and of course, Lucas has his own executive team. In terms of what the fans expect with the with Marvel, there's a comic universe that the first like six movies were really reverent to,
+[00:05:01] Norm: I think that with the Star Wars universe, and it's all under the same umbrella under Disney, right? Although, of course, Marvel has its own executive team, and of course, Lucas has his own executive team. In terms of what the fans expect with the with Marvel, there's a comic universe that the first like six movies were really reverent to,
 
 [00:05:22] Adam: right?
 
@@ -140,7 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:06:07] Will: Right.
 
-[00:06:08] Adam: Listen, I am just saying, having watched the two within the same week, Ragnarok feels like a little bit slower to to bring you into this like weird, wonderful universe.
+[00:06:08] Adam: Listen, I am just saying, having watched the two within the same week, Ragnarok feels like a little bit slower to bring you into this like weird, wonderful universe.
 
 [00:06:17] Will: Well, but at the same time, Ragnarok opens with Led Zeppelin, which is the thing you've kind of been waiting for from Thor the entire time, and then they play the song again at the end of the movie, and it's so satisfying.
 
@@ -152,7 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:06:30] Unknown speaker: Yeah.
 
-[00:06:30] Adam: So it's Superman standing there getting healed by the sun, but you haven't been drawn in, so it's not affecting you the same way. Whereas Ragnarok, when Thor is following the bolt of lightning into the, you know, all the enemies with
+[00:06:30] Adam: So it's Superman standing there getting healed by the sun, but you haven't been drawn in, so it's not affecting you the same way. Whereas Ragnarok, when Thor is following the bolt of lightning into the all the enemies with
 
 [00:07:11] Will: The melee, yeah.
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:07:17] Norm: he can still let that go.
 
-[00:07:38] Will: Here's here's the thing, though this this version of Akira is now entering its 20th year of development. I think. Well,
+[00:07:38] Will: Here's here's the thing, though this version of Akira is now entering its 20th year of development. I think. Well,
 
 [00:07:43] Adam: and everyone’s been attached at some point:
 
@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:07:51] Adam: Chris Columbus. Chris
 
-[00:07:52] Will: Cunningham. Yeah, not Chris Columbus. But yeah, it's it's like I'll be interested to see if that gets made.
+[00:07:52] Will: Cunningham. Yeah, not Chris Columbus. But yeah, it's like I'll be interested to see if that gets made.
 
 [00:07:59] Adam: Same thing with Snow Crash, right? It's one of these like.
 
@@ -216,11 +216,11 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:08:41] Will: It's probably my least favorite of the Neal Stephenson oeuvre.
 
-[00:08:43] Adam: Well, it's way outside his normal. Dive, and yet I love Reamde. In the same way that, like, Vineland is a great Pynchon novel. Yeah, it's it's it's fun and funny and sweet,
+[00:08:43] Adam: Well, it's way outside his normal. Dive, and yet I love Reamde. In the same way that Vineland is a great Pynchon novel. Yeah, it's fun and funny and sweet,
 
 [00:08:55] Will: and Summerland and Chabon.
 
-[00:08:57] Adam: Right, right, right. It falls outside their normal canon, but it's still really, like, I love. I love.
+[00:08:57] Adam: Right, right, right. It falls outside their normal canon, but it's still really I love. I love.
 
 [00:09:03] Norm: Do you say anything about the plot?
 
@@ -232,9 +232,9 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:09:14] Will: Like,
 
-[00:09:15] Norm: who's it for? Fans of fans of Neal, fans of Seveneves, fans of
+[00:09:15] Norm: who's it for? Fans of Neal, fans of Seveneves, fans of
 
-[00:09:19] Adam: um. So I will say this, and this isn't a spoiler. It actually covers it. So I'm halfway through, and we're already like 25 years in the future.
+[00:09:19] Adam: So I will say this, and this isn't a spoiler. It actually covers it. So I'm halfway through, and we're already like 25 years in the future.
 
 [00:09:28] Will: Of Reamde, Reamde was present day, right?
 
@@ -254,11 +254,11 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:10:06] Adam: Yeah.
 
-[00:10:06] Will: Right. Like yeah, with pattern recognition in that trilogy, the the what the blue ant trilogy or whatever I don't know what people call it.
+[00:10:06] Will: Right. Like yeah, with pattern recognition in that trilogy, the what the blue ant trilogy or whatever I don't know what people call it.
 
 [00:10:15] Adam: All tomorrow's
 
-[00:10:17] Will: no no no Spook Country Spook Country a pattern recognition Spook Country and I can't remember the last one, but I liked it a lot.
+[00:10:17] Will: no no no Spook Country a pattern recognition Spook Country and I can't remember the last one, but I liked it a lot.
 
 [00:10:22] Norm: Hey, all the Marvel films we set five years in the future.
 
@@ -270,25 +270,25 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:10:32] Norm: No, they're going to be having.
 
-[00:10:33] Will: I think I think they probably got it covered.
+[00:10:33] Will: I think they probably got it covered.
 
 [00:10:35] Norm: Well, where do you think the Marvel films can go from here?
 
 [00:10:37] Will: Well, Spider-Man, they're going to go to Europe, I think.
 
-[00:10:39] Norm: Yes, that is that is the next film coming out in a month or half. Thank. Well done, Dad joke.
+[00:10:39] Norm: Yes, that is the next film coming out in a month or half. Thank. Well done, Dad joke.
 
 [00:10:44] Adam: Oh, but I'm actually really excited about Asgardians of the Galaxy.
 
-[00:10:48] Norm: If that becomes, if that Is the the film like
+[00:10:48] Norm: If that becomes, if that Is the film like
 
-[00:10:51] Adam: well? So I so so uh uh gun James Gunn who's back in directing Guardians three has said that Guardians three will deal a lot more with Rocket's backstory and I'm super excited
+[00:10:51] Adam: well? So I so so gun James Gunn who's back in directing Guardians three has said that Guardians three will deal a lot more with Rocket's backstory and I'm super excited
 
 [00:10:51] Norm: yeah
 
 [00:10:51] Adam: because frankly and look we're now going to talk some spoilers like when Rocket and Nebula hold hands in Endgame it affected me that might be one of the most affecting bits and Gunn was saying that Rocket is him that the misfit that Rocket is is the character Gunn most identifies with
 
-[00:11:21] Will: he's he he's a he's a misanthrope who becomes a whatever an anthrop I don't know what the opposite misanthrope is
+[00:11:21] Will: he's he he's a misanthrope who becomes a whatever an anthrop I don't know what the opposite misanthrope is
 
 [00:11:29] Norm: But in terms of escalation right if there if we spent 10 years in 22 films building up to this
 
@@ -308,13 +308,13 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:12:07] Adam: That really sinks in more and more as the films progress, doesn't it?
 
-[00:12:10] Will: So I think, I think that my hope is that they'll spend a few years introducing new characters. Yeah. I mean, they they have mutants and Fantastic Four and some other folks to to integrate and and bring into the world. Wow. And and that gives them an opportunity to tell smaller stake stories.
+[00:12:10] Will: So I think that my hope is that they'll spend a few years introducing new characters. Yeah. I mean, they have mutants and Fantastic Four and some other folks to integrate and bring into the world. Wow. And that gives them an opportunity to tell smaller stake stories.
 
 [00:12:10] Adam: It's true.
 
-[00:12:10] Will: For a while, where they while they build to the next the next the the next 10 years.
+[00:12:10] Will: For a while, where they while they build to the next 10 years.
 
-[00:12:28] Norm: I think it's going to be Peter Parker. I think what they have the luxury of knowing that they can map out a 10 year plan is the the audience grows up with the characters.
+[00:12:28] Norm: I think it's going to be Peter Parker. I think what they have the luxury of knowing that they can map out a 10 year plan is the audience grows up with the characters.
 
 [00:12:39] Adam: I'm really curious if they're going to do a Falcon Captain America film.
 
@@ -336,13 +336,13 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:12:59] Will: Yeah.
 
-[00:13:00] Adam: and then so one of my oldest friends, a screenwriter, was like, " Oh, he's like, it's totally decent. There's no villain, but she's great." I and and I agreed. There isn't really. There is a villain. The
+[00:13:00] Adam: and then so one of my oldest friends, a screenwriter, was like, " Oh, he's like, it's totally decent. There's no villain, but she's great." I and I agreed. There isn't really. There is a villain. The
 
 [00:13:12] Will: villain is the world, kind of.
 
 [00:13:14] Adam: Yeah, and but I thought it was fantastic. I really enjoyed the spit out of it, and I when we in the canon of PG PG-13 movies, choosing one f bomb, hers after she jams and breaks off her the spoiler after she jams her fist into the eye of the villain and snaps off her arm as she says " fuck your mercy."
 
-[00:13:38] Norm: That is such, and and that is a transition from because it's James Cameron who wrote the script, consolidating several of these books, and in the in the manga that villain who's there, he has those tentacles.
+[00:13:38] Norm: That is such, and that is a transition from because it's James Cameron who wrote the script, consolidating several of these books, and in the manga that villain who's there, he has those tentacles.
 
 [00:13:38] Adam: Yeah,
 
@@ -354,7 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:13:38] Adam: Yeah.
 
-[00:13:38] Norm: And for someone, you know, having a robot body like that is nothing. How could she get out of this? And the way he, the way he and Robert Rodriguez brought that scene and and and like scripted the action around it, it is worth seeing.
+[00:13:38] Norm: And for someone having a robot body like that is nothing. How could she get out of this? And the way he and Robert Rodriguez brought that scene and like scripted the action around it is worth seeing.
 
 [00:14:18] Unknown speaker: It was effective.
 
@@ -388,13 +388,13 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:14:53] Adam: Interesting.
 
-[00:14:53] Will: I mean, this is why this is why if you're doing something with weird CG animation like I do for a living,
+[00:14:53] Will: I mean, this is why if you're doing something with weird CG animation like I do for a living,
 
 [00:14:59] Adam: yeah,
 
 [00:15:00] Will: then it's better to do cartoons than real people because you don't get skeeved out.
 
-[00:15:03] Adam: Um. I forgot to mention this. Julia was asking me yesterday, how many Valkyries are cosplaying these days?
+[00:15:03] Adam: I forgot to mention this. Julia was asking me yesterday, how many Valkyries are cosplaying these days?
 
 [00:15:11] Norm: That's a great question.
 
@@ -422,17 +422,17 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:15:55] Adam: Tessa Thompson is so amazing in that film.
 
-[00:15:56] Will: I love the Tessa Thompson scrapper Valkyrie when we first see her when she's. Obviously, hammered can't work her ship. Like you know, it's so good.
+[00:15:56] Will: I love the Tessa Thompson scrapper Valkyrie when we first see her when she's. Obviously, hammered can't work her ship. Like it's so good.
 
 [00:16:00] Unknown speaker: It's such a good moment.
 
-[00:16:07] Adam: You know, one of the problems that movies that try and play with that comedy, real stakes and comedy stakes, have is it's easy to lose track of what stakes I am supposed to care about. And amazingly, Ragnarok does never it never loses which stakes are important and which stakes are jokey. And yet, you know, Jeff Goldblum, while being ludicrous and ridiculous, is still a scary villain. He's still dangerous.
+[00:16:07] Adam: One of the problems that movies that try and play with that comedy, real stakes and comedy stakes, have is it's easy to lose track of what stakes I am supposed to care about. And amazingly, Ragnarok does never it never loses which stakes are important and which stakes are jokey. And yet Jeff Goldblum, while being ludicrous and ridiculous, is still a scary villain. He's still dangerous.
 
-[00:16:31] Will: So there is a great. If you want to know more about Chuck about Thor Ragnarok, there is a great podcast that a friend of the site Chuck Wendig and Anthony Carboni do called Thor Ragnarok Talk, and they break down. I think a minute of or two minutes of each, or maybe it's a five minute chunk of the of of each each episode is only talking about five minutes. They get a guest each week.
+[00:16:31] Will: So there is a great. If you want to know more about Chuck about Thor Ragnarok, there is a great podcast that a friend of the site Chuck Wendig and Anthony Carboni do called Thor Ragnarok Talk, and they break down. I think a minute of or two minutes of each, or maybe it's a five minute chunk of the of each each episode is only talking about five minutes. They get a guest each week.
 
 [00:16:31] Adam: Wow!
 
-[00:16:31] Will: So they bring in like they they they broke in the movie in these little tiny bits,
+[00:16:31] Will: So they bring in like they broke in the movie in these little tiny bits,
 
 [00:16:56] Norm: and they've made a podcast and
 
@@ -454,35 +454,35 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:17:10] Unknown speaker: [unclear: I was the first guest on that podcast / That should be a genre name].
 
-[00:17:13] Will: It's it's it's a lovely podcast. I highly recommend it. Can we jump back to something a minute ago?
+[00:17:13] Will: It's a lovely podcast. I highly recommend it. Can we jump back to something a minute ago?
 
 [00:17:13] Adam: Yeah, by all means.
 
-[00:17:13] Will: So we were talking about Star Wars and how they did massive reshoots on Solo and and Rogue One. Um, I mean, and and I think we all ended up on the same page with Last Jedi. I mean, I I I it is I think my favorite Star Wars movie at this point. But it's interesting to me that they did massive reshoots on Rogue One, and it turned out really well. Like that, I think that movie works on on every like it. It tells a really compelling story at the end. I'm really sad about the way it ends, but it's really the perfect way for that movie to end.
+[00:17:13] Will: So we were talking about Star Wars and how they did massive reshoots on Solo and Rogue One. I mean, and I think we all ended up on the same page with Last Jedi. I mean, I I I it is I think my favorite Star Wars movie at this point. But it's interesting to me that they did massive reshoots on Rogue One, and it turned out really well. Like that, I think that movie works on every like it. It tells a really compelling story at the end. I'm really sad about the way it ends, but it's really the perfect way for that movie to end.
 
 [00:17:46] Adam: So really, yeah, I agree.
 
-[00:17:48] Will: And Solo kind of falls a little flat. Um, but but they had a similar like how do they have a similar like how how do they do it right with one and swing and miss right?
+[00:17:48] Will: And Solo kind of falls a little flat. But they had a similar like how do they have a similar like how how do they do it right with one and swing and miss right?
 
 [00:18:00] Adam: I, this is, I have no idea.
 
-[00:18:01] Will: this is the this is the billion dollar question.
+[00:18:01] Will: this is the billion dollar question.
 
-[00:18:02] Adam: It is the alchemy of movie making. I mean, on one hand, you have, I from what I understand the. From the interviews with him, Tony Gilroy, one of the producers of Rogue One, did was key and instrumental to those reshoots, and he's a an amazing writer and an and actually an amazing director in his own right. Michael Clayton's one of my favorite movies of that genre of I don't even know what you'd call that genre. It's like the Alan Pakula, you know, 1970s Parallax View type films that you know, good thriller. But again, these kind of things, I can only imagine when you fire two people that have already shot most of a movie and you bring in Ron Howard. I I these are things that nobody outside the studio will ever fully know the actual story on. I just resolved myself to knowing that you were never going to know. Obviously, they were trying to make a great movie that stuck, and something didn't quite gel.
+[00:18:02] Adam: It is the alchemy of movie making. I mean, on one hand, you have, I from what I understand the. From the interviews with him, Tony Gilroy, one of the producers of Rogue One, did was key and instrumental to those reshoots, and he's a an amazing writer and an and actually an amazing director in his own right. Michael Clayton's one of my favorite movies of that genre of I don't even know what you'd call that genre. It's like the Alan Pakula 1970s Parallax View type films that good thriller. But again, these kind of things, I can only imagine when you fire two people that have already shot most of a movie and you bring in Ron Howard. I these are things that nobody outside the studio will ever fully know the actual story on. I just resolved myself to knowing that you were never going to know. Obviously, they were trying to make a great movie that stuck, and something didn't quite gel.
 
 [00:19:02] Will: So, on a completely different note, did you read the thing yesterday about Last Crusade and
 
 [00:19:06] Adam: Indiana Jones and Last Crusade
 
-[00:19:07] Will: about the about the screenplay?
+[00:19:07] Will: about the screenplay?
 
 [00:19:09] Adam: No,
 
-[00:19:10] Will: So that movie had rewrites. Gary Whitta, a friend of a friend of the site and Rogue One screenwriter, posted about yesterday. I'll dig out the link and send it to you, so you can put in the show notes, and and you should absolutely read it because it goes through and it it it it compares the original draft that somebody found, yeah, unearthed recently,
+[00:19:10] Will: So that movie had rewrites. Gary Whitta, a friend of the site and Rogue One screenwriter, posted about yesterday. I'll dig out the link and send it to you, so you can put in the show notes, and you should absolutely read it because it goes through and it compares the original draft that somebody found, yeah, unearthed recently,
 
 [00:19:07] Adam: right
 
-[00:19:07] Will: to to the shooting script to what was actually shot, and it it goes through and explains the the beats in a really interesting way, and the way they de escalate like the way that movie escalates over time, so the threat is constantly ramping up versus like originally, for example, in the original script that was written by the credited screenwriter, who I can't remember who it is off the top of my head, they when Indy goes to his dad's house, he finds his housekeeper dead in the house, which immediately sets a tone that this is a life or death peril versus hey, my dad's missing, right? He's gone. He's gone off. He's gone off on on a walkabout. You know, there is there is the brotherhood Brotherhood of the Cruciform Sword was originally. A minion of the Sultan, who's working with the Nazis, so he's just a garden variety bad guy, Nazi Nazi stooge.
+[00:19:07] Will: to the shooting script to what was actually shot, and it goes through and explains the beats in a really interesting way, and the way they de escalate like the way that movie escalates over time, so the threat is constantly ramping up versus like originally, for example, in the original script that was written by the credited screenwriter, who I can't remember who it is off the top of my head, they when Indy goes to his dad's house, he finds his housekeeper dead in the house, which immediately sets a tone that this is a life or death peril versus hey, my dad's missing, right? He's gone. He's gone off. He's gone off on a walkabout. There is the brotherhood Brotherhood of the Cruciform Sword was originally. A minion of the Sultan, who's working with the Nazis, so he's just a garden variety bad guy, Nazi Nazi stooge.
 
 [00:20:23] Adam: Yeah.
 
@@ -494,25 +494,25 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:20:29] Adam: Yeah.
 
-[00:20:30] Will: Um. And it's it's like these tiny, tiny, tiny little changes that made that movie a phenomenally, but like I can't imagine what the movie would have been like as the the way the script was originally described.
+[00:20:30] Will: And it's like these tiny, tiny, tiny little changes that made that movie a phenomenally, but like I can't imagine what the movie would have been like as the way the script was originally described.
 
-[00:20:42] Adam: Fascinating that that kind of unpacking. Um. There's a really great documentary, or no, it was a long form article about the making, and we talked about this on the podcast, the making of the thing.
+[00:20:42] Adam: Fascinating that that kind of unpacking. There's a really great documentary, or no, it was a long form article about the making, and we talked about this on the podcast, the making of the thing.
 
 [00:20:42] Will: Yeah.
 
-[00:20:42] Adam: How having three, two or three months between the interior photography and the exterior up in Alaska, uh, Carpenter basically edited the whole film, saw ways in which he could make it more efficient, changed the shooting script radically because they shot almost exactly the script, and then because of these efficiencies, there's a one character that dies and it's never explained or It's never actually clear who kills them, but it doesn't matter because you're not paying attention.
+[00:20:42] Adam: How having three, two or three months between the interior photography and the exterior up in Alaska Carpenter basically edited the whole film, saw ways in which he could make it more efficient, changed the shooting script radically because they shot almost exactly the script, and then because of these efficiencies, there's a one character that dies and it's never explained or It's never actually clear who kills them, but it doesn't matter because you're not paying attention.
 
 [00:21:16] Will: Who cares? Yeah, that person didn't matter.
 
 [00:21:17] Adam: That's awesome.
 
-[00:21:18] Norm: I mean, that kind of. I mean, we saw a glimpse of it when we went to the Stanley Kubrick exhibit, and you saw the Spartacus script and all his handwritten notes and and all those things.
+[00:21:18] Norm: I mean, that kind of. I mean, we saw a glimpse of it when we went to the Stanley Kubrick exhibit, and you saw the Spartacus script and all his handwritten notes and all those things.
 
 [00:21:27] Will: Oh, wow.
 
 [00:21:27] Norm: And I mean, we would love kind of like a scriptwriter, script editor's commentary would be great.
 
-[00:21:31] Adam: Well, and I mean, with Kubrick, I've come to a a a con. The mythos is that Kubrick was like every frame was drawn carefully, and he shot exactly. I don't think that's the case at all.
+[00:21:31] Adam: Well, and I mean, with Kubrick, I've come to a con. The mythos is that Kubrick was like every frame was drawn carefully, and he shot exactly. I don't think that's the case at all.
 
 [00:21:31] Will: I don't think anything could be like that.
 
@@ -520,7 +520,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:21:47] Will: Yeah.
 
-[00:21:47] Adam: Yeah, I think that Kubrick shot as much as he possibly could, so that when he got into the edit room, he could the film that came out of the edit bay could be what it wanted to be. That he had all the coverage necessary to let the thing unfold in and of itself, and I, it's an amazing. That's a wonderful way to work, but it's very different than the the mythos of the hyper precision.
+[00:21:47] Adam: Yeah, I think that Kubrick shot as much as he possibly could, so that when he got into the edit room, he could the film that came out of the edit bay could be what it wanted to be. That he had all the coverage necessary to let the thing unfold in and of itself, and I, it's an amazing. That's a wonderful way to work, but it's very different than the mythos of the hyper precision.
 
 [00:22:10] Norm: And it just happens that because he has a great eye, every shot that he shot was probably fantastic.
 
@@ -528,7 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:22:10] Norm: and that 's why the cream of the crop is that good.
 
-[00:22:18] Will: Well, and and it's also possible that his process changed from the time he made Spartacus to the time he made Eyes Wide Shut, because that was what 35, 40 years.
+[00:22:18] Will: Well, and it's also possible that his process changed from the time he made Spartacus to the time he made Eyes Wide Shut, because that was what 35, 40 years.
 
 [00:22:18] Adam: By all means.
 
@@ -544,7 +544,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:23:39] Norm: yeah, I know. And you did an incognito, real incognito this time. Tell us about your walk through the convention.
 
-[00:23:49] Adam: Well, I didn't tell people I was hitting the floor. I brought a costume. I brought a costume that I had not worn in public before. Well, actually, I tell a lie. I wore this costume actually in order to in order to go see End Game with Kishore.
+[00:23:49] Adam: Well, I didn't tell people I was hitting the floor. I brought a costume. I brought a costume that I had not worn in public before. Well, actually, I tell a lie. I wore this costume actually in order to go see End Game with Kishore.
 
 [00:24:06] Will: Oh, nice. Okay,
 
@@ -574,7 +574,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:24:40] Norm: Yeah.
 
-[00:24:40] Adam: Like you lose, you could lose a couple of hours of production time with that. And so they they started making cap suits more wearable. And apparently, by Winter Soldier at Civil War, he's like, " Oh, this is super comfortable. I can wear this all day long. I don't need to take it off."
+[00:24:40] Adam: Like you lose, you could lose a couple of hours of production time with that. And so they started making cap suits more wearable. And apparently, by Winter Soldier at Civil War, he's like, " Oh, this is super comfortable. I can wear this all day long. I don't need to take it off."
 
 [00:24:58] Unknown speaker: Oh, that's awesome.
 
@@ -608,7 +608,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:25:40] Will: You need to build some bad costumes. That's that's the only way out of this problem.
 
-[00:25:44] Adam: I think you're you're plausibly right. It was a fun costume to wear. It's a very easy costume to wear. It's super comfortable. It feels really good. I have a pair of big foam boobs inside to actually fill it out, and I'm going to have to add biceps. I noticed in the mirror, I look a little.
+[00:25:44] Adam: I think you're plausibly right. It was a fun costume to wear. It's a very easy costume to wear. It's super comfortable. It feels really good. I have a pair of big foam boobs inside to actually fill it out, and I'm going to have to add biceps. I noticed in the mirror, I look a little.
 
 [00:25:59] Will: So, like your Thor muscle suits, too much.
 
@@ -628,7 +628,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:26:13] Will: What?
 
-[00:26:13] Adam: I I he's too important to me.
+[00:26:13] Adam: I he's too important to me.
 
 [00:26:34] Will: Is this the one? He's the one
 
@@ -662,7 +662,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:27:31] Norm: That's really cool.
 
-[00:27:31] Adam: It was, it was a very fun green room. Very lovely. Nichelle Nichols was there. I also didn't approach her. Again, in the green room is
+[00:27:31] Adam: It was a very fun green room. Very lovely. Nichelle Nichols was there. I also didn't approach her. Again, in the green room is
 
 [00:27:40] Will: it's a private time.
 
@@ -686,7 +686,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:28:17] Will: Oh that's great.
 
-[00:28:17] Adam: That's great. Phenomenal. There was a Hell Girl. There was a Hell Boy. This young woman came up in the what is the the Star Wars dancing character with the two
+[00:28:17] Adam: That's great. Phenomenal. There was a Hell Girl. There was a Hell Boy. This young woman came up in the what is the Star Wars dancing character with the two
 
 [00:28:28] Will: oh like the Twi’lek dancing girl, yeah.
 
@@ -694,7 +694,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:28:40] Will: That's rad.
 
-[00:28:41] Adam: The the the fan love was real and abiding and really made me glow. It was delightful.
+[00:28:41] Adam: The fan love was real and abiding and really made me glow. It was delightful.
 
 [00:28:49] Will: Oh that's so cool.
 
@@ -702,13 +702,13 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:28:56] Will: This is the second year they've done it right.
 
-[00:28:58] Norm: Yeah yeah they they brought in a bunch of cosplayers, Egg Sisters, Jackie Craft. And we all judge cosplay contests and prop building contests, and really great stuff. And the guy who won, like the best prop, made the exoskeleton from Elysium.
+[00:28:58] Norm: Yeah yeah they brought in a bunch of cosplayers, Egg Sisters, Jackie Craft. And we all judge cosplay contests and prop building contests, and really great stuff. And the guy who won, like the best prop, made the exoskeleton from Elysium.
 
 [00:29:16] Adam: Oh yes, yeah, was that an RPF build? Is that the guy who's been doing it on RPF?
 
 [00:29:19] Unknown speaker: I think so.
 
-[00:29:19] Norm: Yeah, and it's one of those things that, like, I don't know anyone who likes the film Elysium.
+[00:29:19] Norm: Yeah, and it's one of those things that I don't know anyone who likes the film Elysium.
 
 [00:29:24] Will: I like the way it looked,
 
@@ -720,11 +720,11 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:29:25] Norm: And the costuming.
 
-[00:29:35] Will: So we didn't talk about the like speaking of props and costuming, like the end. Sorry to add money to my meter. We had to talk. We we haven't talked about the end of Game of Thrones here. I don't think yet.
+[00:29:35] Will: So we didn't talk about the like speaking of props and costuming, like the end. Sorry to add money to my meter. We had to talk. We haven't talked about the end of Game of Thrones here. I don't think yet.
 
 [00:29:45] Adam: And that's a television show, yes,
 
-[00:29:47] Will: I believe so. Yes, on the box office network. But but I mean, there was a lot of kerfuffle about the end of the show.
+[00:29:47] Will: I believe so. Yes, on the box office network. But I mean, there was a lot of kerfuffle about the end of the show.
 
 [00:29:47] Adam: Yeah,
 
@@ -744,7 +744,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:30:09] Norm: Really,
 
-[00:30:09] Will: those things were built. Those dresses and the armor and all that stuff was built to to withstand a level of inspection that would never happen on TV.
+[00:30:09] Will: those things were built. Those dresses and the armor and all that stuff was built to withstand a level of inspection that would never happen on TV.
 
 [00:30:25] Norm: So awesome. So even I know you don't watch the show, Adam.
 
@@ -768,7 +768,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:31:19] Norm: stuff like that. That's the best part, I think, of the season of Game of Thrones.
 
-[00:31:31] Will: I like. I just I look at. I I still I never watched the show really, but I watched. I look at the costumes, and you know that even a dress that like somebody wears for a half a scene and is on screen for three minutes has the most amazing embroidery and bead work that you've ever seen on a on a costume on a piece of costume work. Anyway, sorry, I completely non sequitur there.
+[00:31:31] Will: I like. I just I look at. I still I never watched the show really, but I watched. I look at the costumes, and you know that even a dress that like somebody wears for a half a scene and is on screen for three minutes has the most amazing embroidery and bead work that you've ever seen on a costume on a piece of costume work. Anyway, sorry, I completely non sequitur there.
 
 [00:31:49] Adam: No, that's all right.
 
@@ -776,7 +776,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:31:55] Adam: Yep. Yes. Oh, Olivia Wilde’s directorial debut. Am I correct?
 
-[00:31:59] Norm: Yes, it's out in theaters. It's it's a wide release. You know, and it. Might be in theaters for just a couple more weeks because it didn't do so well for the holiday break, but so highly recommend.
+[00:31:59] Norm: Yes, it's out in theaters. It's a wide release. And it. Might be in theaters for just a couple more weeks because it didn't do so well for the holiday break, but so highly recommend.
 
 [00:32:10] Adam: I'm so glad to hear that the trailer. I loved the trailer. Those two actresses seemed amazing, and what I've been hearing is is is like a super raunchy comedy that's not
 
@@ -784,19 +784,19 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:32:23] Adam: that that that that threads this interesting needle of being both really funny and really true and raunchy and really sweet all at the same time.
 
-[00:32:30] Norm: And that's all true. And I think the the easy pitch was this is super bad, but two girls,
+[00:32:30] Norm: And that's all true. And I think the easy pitch was this is super bad, but two girls,
 
 [00:32:30] Adam: right,
 
-[00:32:30] Norm: right. And and it's even easier,
+[00:32:30] Norm: right. And it's even easier,
 
 [00:32:38] Adam: but I've heard that it’s a little more complex than that. Am I right?
 
-[00:32:39] Norm: It's way more complex. Yeah, and one of the one of the leads is Jonah Hill's sister, even so, like it's very easy to make that comparison as a way to get people in the theaters. I think it's a much better movie than Super Bad, and Super Bad, I think, has some great you know heartfelt moments. But this movie, and you know, I can't relate to the kids in this right. These are 18 year olds in high school, and they're two girls. Like, I don't know what it is. Yeah, makes it true, but it just felt true.
+[00:32:39] Norm: It's way more complex. Yeah, and one of the leads is Jonah Hill's sister, even so, like it's very easy to make that comparison as a way to get people in the theaters. I think it's a much better movie than Super Bad, and Super Bad, I think, has some great you know heartfelt moments. But this movie, and I can't relate to the kids in this right. These are 18 year olds in high school, and they're two girls. Like, I don't know what it is. Yeah, makes it true, but it just felt true.
 
-[00:33:03] Adam: That's awesome. Olivia Wilde's been tweeting about it and saying, you know, get out there if you want more. Look, if there are good movies, it's important that we go see them in the theater to support them because this
+[00:33:03] Adam: That's awesome. Olivia Wilde's been tweeting about it and saying get out there if you want more. Look, if there are good movies, it's important that we go see them in the theater to support them because this
 
-[00:33:17] Will: that's how that's how you get more good movies made. if you want less TV and more movies, go see movies.
+[00:33:17] Will: that's how you get more good movies made. if you want less TV and more movies, go see movies.
 
 [00:33:22] Adam: I read this wonderful defense of Jupiter Ascending that was like, hey, it may be really problematic, but bless the Wachowskis for going out way over their skis to try out stuff like this that's original and different.
 
@@ -812,7 +812,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:33:44] Will: Yeah, non-technical show, huh?
 
-[00:33:45] Norm: that's what happens when we when we don't podcast for a while.
+[00:33:45] Norm: that's what happens when we don't podcast for a while.
 
 [00:33:45] Adam: It's true.
 
@@ -828,7 +828,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:33:57] Will: What's your food strategy? Well, I guess you'll tell us that you won't spoil it because you know.
 
-[00:34:01] Adam: Um. I have no idea.
+[00:34:01] Adam: I have no idea.
 
 [00:34:01] Will: Okay,
 
@@ -868,15 +868,15 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:34:43] Adam: Oh, it's worth. We should put this link in the show notes because
 
-[00:34:47] Will: you give Dick Cheney the hey, I can hook you up with HBO for free deal. You you just just stab him a few times.
+[00:34:47] Will: you give Dick Cheney the hey, I can hook you up with HBO for free deal. You just just stab him a few times.
 
-[00:34:54] Adam: Um, I also got to I also got to hang out with a couple of other Austinites. Although Evan Narcisse reached out to me and he was like, " Hey, I just walked past you taking a bunch of photos with. Fans at the Alamo Drafthouse, and I had been trying to remember who I had met last year, who I knew lived in Austin, that I wanted to hang out with.
+[00:34:54] Adam: I also got to hang out with a couple of other Austinites. Although Evan Narcisse reached out to me and he was like, " Hey, I just walked past you taking a bunch of photos with. Fans at the Alamo Drafthouse, and I had been trying to remember who I had met last year, who I knew lived in Austin, that I wanted to hang out with.
 
 [00:34:54] Will: And it was Evan.
 
 [00:34:54] Adam: And when he texted me, I was like, " Damn it, Evan, it's you! I wanted to hang out." And so, next time I go to Austin, I'll make sure I reach out.
 
-[00:35:23] Will: I I finally saw Vice. Speaking of Cheney,
+[00:35:23] Will: I finally saw Vice. Speaking of Cheney,
 
 [00:35:23] Adam: dude,
 

@@ -34,7 +34,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:01:34] Simone: Really, they're not falling out.
 
-[00:01:37] Adam: No. Well, okay. Here's the thing: if the Apple earbuds work in your ears, then these will work in your ears. If they don't, they won't, or you'll need some special silicone, something or other. But they work on my ears just fine, and yeah, they're awesome. They're they're loud. Their bass response is good. Their pairing between my phone and my computer, once I understood how to make that work, is Relatively trivial. Look, I you know Apple still makes some amazing products, and I don't want to get recommendations for why I should switch to Android or PC. But I do want to spend part of today's podcast complaining about Apple.
+[00:01:37] Adam: No. Well, okay. Here's the thing: if the Apple earbuds work in your ears, then these will work in your ears. If they don't, they won't, or you'll need some special silicone, something or other. But they work on my ears just fine, and yeah, they're awesome. They're loud. Their bass response is good. Their pairing between my phone and my computer, once I understood how to make that work, is Relatively trivial. Look, I you know Apple still makes some amazing products, and I don't want to get recommendations for why I should switch to Android or PC. But I do want to spend part of today's podcast complaining about Apple.
 
 [00:02:15] Simone: Yeah, what are your complaints?
 
@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:04:07] Simone: Yeah, I just AirDrop
 
-[00:04:07] Adam: from a phone to a Mac is is is lovely. But but iTunes itself is like okay. Let me just like I recognize there are all sorts of people will watch this and be like oh I didn't have the same problem. But I just want to point out when I'm listening to a song on my phone and then I turn that phone off, or I'm listening to a podcast or an iBook and I turn my phone off and then I open it up the next day. Why do I have to re navigate through all the menus to get back to the thing I was listening to yesterday?
+[00:04:07] Adam: from a phone to a Mac is is is lovely. But iTunes itself is like okay. Let me just like I recognize there are all sorts of people will watch this and be like oh I didn't have the same problem. But I just want to point out when I'm listening to a song on my phone and then I turn that phone off, or I'm listening to a podcast or an iBook and I turn my phone off and then I open it up the next day. Why do I have to re navigate through all the menus to get back to the thing I was listening to yesterday?
 
 [00:04:42] Norm: Yep.
 
@@ -68,19 +68,19 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:05:16] Norm: Spotify. Spotify.
 
-[00:05:20] Adam: The problem again, the problem is, is I own all this great music. I own some really weird B sides of Peter Gabriel songs that you can't get anywhere else, and iTunes Match doesn't give them to me because you can't, they're not on their catalog. I've got some Bob Seger CDs that aren't and aren't digital because I digitized them. You know, there's there's all sorts of ways in which streaming services don't work for a user like me. And I'm sorry, but I hate the cloud. I don't want all my information up there. I certainly don't feel like it's safe, so I keep it all on my local devices.
+[00:05:20] Adam: The problem again, the problem is, is I own all this great music. I own some really weird B sides of Peter Gabriel songs that you can't get anywhere else, and iTunes Match doesn't give them to me because you can't, they're not on their catalog. I've got some Bob Seger CDs that aren't and aren't digital because I digitized them. There's there's all sorts of ways in which streaming services don't work for a user like me. And I'm sorry, but I hate the cloud. I don't want all my information up there. I certainly don't feel like it's safe, so I keep it all on my local devices.
 
 [00:05:52] Norm: Not just the information, but you're listening. Like they know what you're listening to, and they have to track that to pay the royalties. But like I don't need someone to know that I. I'm listening to this album this many times, and if you look at your like paying history, I did this once exercise. Like I've been subscribing to Spotify since it basically started. I spent like $500 now on Spotify subscriptions, and that's a lot of money. I don't think I would have bought that many albums. I haven't definitely listened to $500 worth of albums.
 
 [00:06:22] Simone: But I feel that considering or like I feel that the music I’m listening to is probably one of the data points that I'm most okay with people having access to.
 
-[00:06:33] Adam: Well, I know. Sure, it doesn't occur to me that that should be something that's that that I feel strongly about being private. But I mean, at the same time, also all sorts of things happens. Like for for a few months, my Hamilton album was censored, so every time someone said shit, I heard like a blank spot in the in the recording. And now, iTunes thinks that I have two copies of Hamilton, and some songs are on one copy, and some songs are in another. So for the last few weeks, it's been impossible for me to listen to Hamilton. In order,
+[00:06:33] Adam: Well, I know. Sure, it doesn't occur to me that that should be something that's that that I feel strongly about being private. But I mean, at the same time, also all sorts of things happens. Like for a few months, my Hamilton album was censored, so every time someone said shit, I heard like a blank spot in the recording. And now, iTunes thinks that I have two copies of Hamilton, and some songs are on one copy, and some songs are in another. So for the last few weeks, it's been impossible for me to listen to Hamilton. In order,
 
-[00:07:07] Norm: oh, because they they stack them right. They combine or take out songs, and That’s no good.
+[00:07:07] Norm: oh, because they stack them right. They combine or take out songs, and That’s no good.
 
 [00:07:11] Adam: I have no idea what the hell is going on. The fact is, is that I I think that I'm relatively smart. I am not a digital native, you know. That's not my generation. But I I having used Macs, having been an Apple guy since the early '90s, I really feel like it shouldn't be this difficult for a user like me to figure out how to put music on his effing phone.
 
-[00:07:33] Norm: You know, Adam. You know how I know you're not a digital native because you use the phrase " digital native."
+[00:07:33] Norm: Adam. You know how I know you're not a digital native because you use the phrase " digital native."
 
 [00:07:33] Adam: Fair enough.
 
@@ -92,17 +92,17 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:07:43] Norm: If you can, I take pride in remembering an era that where I had to tell my parents not to pick up the phone because I was using the internet.
 
-[00:07:53] Adam: Yeah, yeah. My sons, my sons are digital natives. There, there. That's that's the generation. Simone, I think you're pretty close to being a digital.
+[00:07:53] Adam: Yeah, yeah. My sons are digital natives. There. That's the generation. Simone, I think you're pretty close to being a digital.
 
 [00:08:00] Simone: I'm like borderline. I'm born 1990. I feel like it's like it's it's right up there. I mean, I remember a time before having a cell phone and where internet were like the web. Page was loading top bottom.
 
 [00:08:13] Adam: I remember we used to have conversations like, " Dude, last weekend, did you download the new version of of Netscape?"
 
-[00:08:21] Norm: Yeah, this this version lets you turn off downloading images so that you can download web pages faster and click on the images one at a time because that was a consideration. You know, Adam, you mentioned Hamilton. I finally got to see it.
+[00:08:21] Norm: Yeah, this version lets you turn off downloading images so that you can download web pages faster and click on the images one at a time because that was a consideration. Adam, you mentioned Hamilton. I finally got to see it.
 
-[00:08:36] Adam: Ah, tell me, tell me, how did you like it?
+[00:08:36] Adam: Ah, tell me, how did you like it?
 
-[00:08:39] Norm: Last Thursday, it's the San Francisco, the touring version of Hamilton, the Hamilton tour, and and it's the a lot of the cast is actually from the Chicago version of Hamilton. It's exceeded all my expectations.
+[00:08:39] Norm: Last Thursday, it's the San Francisco, the touring version of Hamilton, the Hamilton tour, and it's the a lot of the cast is actually from the Chicago version of Hamilton. It's exceeded all my expectations.
 
 [00:08:55] Simone: Really, and you had really high expectations as anyone who's ever heard anything about Hamilton.
 
@@ -112,7 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:09:28] Norm: And the staging—I mean, you've seen it. The staging is just incredible. The blocking,
 
-[00:09:31] Adam: Hurricane. I I don't ever want to spoil it for anyone, but the staging and you know I've also said this on the podcast. I listened to the album so much before I saw it. I'd worked out most of the blocking in my head,
+[00:09:31] Adam: Hurricane. I don't ever want to spoil it for anyone, but the staging and you know I've also said this on the podcast. I listened to the album so much before I saw it. I'd worked out most of the blocking in my head,
 
 [00:09:31] Norm: right?
 
@@ -124,17 +124,17 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:09:52] Simone: or you're not familiar with the plot.
 
-[00:09:54] Adam: It's so it's it's like an opera. So every word of the musical is on the cast recording. Okay, there's one tiny little bit that's not, but pretty much every last bit of the musical is on the recording, and it's riveting. It's beautiful libretto, full of wonderful history, and yeah, it's a dramatic masterpiece.
+[00:09:54] Adam: It's so it's like an opera. So every word of the musical is on the cast recording. Okay, there's one tiny little bit that's not, but pretty much every last bit of the musical is on the recording, and it's riveting. It's beautiful libretto, full of wonderful history, and yeah, it's a dramatic masterpiece.
 
-[00:10:13] Norm: The other thing is that the the actor who plays Hamilton in the tour is frankly a better singer than Lin Manuel Miranda. It's not Lin Manuel Miranda's voice, but
+[00:10:13] Norm: The other thing is that the actor who plays Hamilton in the tour is frankly a better singer than Lin Manuel Miranda. It's not Lin Manuel Miranda's voice, but
 
 [00:10:26] Adam: right, right, right.
 
-[00:10:27] Norm: Very, it's a very, it's a very talented singer, and brought more to I think the role than I expected.
+[00:10:27] Norm: Very, it's a very talented singer, and brought more to I think the role than I expected.
 
 [00:10:33] Adam: So, did you cry toward the end?
 
-[00:10:36] Norm: So I had leading up to the watching of the show, I did not listen to the cast album for the past month, and before then, I we specifically not listened to the last like quarter and last third because that's the the more emotional parts of it. Yeah. And yeah, yeah, there are definitely lines in the last few songs where it gets very, very emotional for me.
+[00:10:36] Norm: So I had leading up to the watching of the show, I did not listen to the cast album for the past month, and before then, I we specifically not listened to the last like quarter and last third because that's the more emotional parts of it. Yeah. And yeah, yeah, there are definitely lines in the last few songs where it gets very, very emotional for me.
 
 [00:11:02] Adam: Yeah. Did you? Can we talk a spoiler about Hamilton?
 
@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:11:10] Simone: Okay. All listeners who haven't seen Hamilton who plan on doing it, put your fingers in your ears.
 
-[00:11:16] Adam: Um. I really loved the ending, which does not show up in the cast album. When you realize that, um, that his wife is actually that the last second of the play is her seeing him in heaven.
+[00:11:16] Adam: I really loved the ending, which does not show up in the cast album. When you realize that his wife is actually that the last second of the play is her seeing him in heaven.
 
 [00:11:28] Norm: Yes. Yep. Yeah.
 
@@ -172,13 +172,13 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:12:20] Simone: I'm sorry. I'm sorry. They haven't complained about it, but I know that they don't like it.
 
-[00:12:24] Adam: Um, when when MythBusters went on, it was a requirement of our shoot that we not talking talk about vomiting on the flight while on the flight.
+[00:12:24] Adam: When MythBusters went on, it was a requirement of our shoot that we not talking talk about vomiting on the flight while on the flight.
 
-[00:12:33] Simone: Yeah, it's like a difficult press thing for them. I think that there were two people who threw up during our flight out of like 18 people. But like what they say is because I remember talking about it before, and they're like, but we've had flights where nobody's thrown up, and I'm like, that's not very comforting.
+[00:12:33] Simone: Yeah, it's like a difficult press thing for them. I think that there were two people who threw up during our flight out of like 18 people. But what they say is because I remember talking about it before, and they're like, but we've had flights where nobody's thrown up, and I'm like, that's not very comforting.
 
 [00:12:47] Norm: Yeah, to lead with that, yeah.
 
-[00:12:50] Adam: I'll just say this: that even if you throw up, it's still totally fun. the The vomiting does not. It's just like flying in an F-18 Hornet. I can tell you from experience, the vomiting does not detract from the enjoyment.
+[00:12:50] Adam: I'll just say this: that even if you throw up, it's still totally fun. the vomiting does not. It's just like flying in an F-18 Hornet. I can tell you from experience, the vomiting does not detract from the enjoyment.
 
 [00:13:03] Simone: I feel that no, but I I I disagree with you there. No. Not that I did. I mean, I know that maybe you threw up. I did not throw up, but I was because you get to get back in your seat, and I just saw these people sitting there with like their hands on their foreheads and just being like trying to go into their like mental room of sitting on a mountain and not be like trapped on this airplane going up and down.
 
@@ -186,11 +186,11 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:13:22] Simone: Yeah,
 
-[00:13:22] Norm: you you no more no more zero g experience.
+[00:13:22] Norm: you no more zero g experience.
 
 [00:13:28] Simone: No more fun, yeah, because like their experience is that once you start, you're not going to stop. Like you're not going to recover from it.
 
-[00:13:34] Adam: No, that's true. And if you blow chunks into the cabin instead of into your sickness bag, that's that's bad.
+[00:13:34] Adam: No, that's true. And if you blow chunks into the cabin instead of into your sickness bag, that's bad.
 
 [00:13:42] Norm: That's bad for everyone. Yeah. So what was like? I mean, the idea is, it's how many seconds at a time do you get to experience this?
 
@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:14:29] Norm: Did you get lost in the moment, or I mean?
 
-[00:14:31] Simone: No, I think I think it was rougher for for my for my camera guy. Um, but I mean, we did parabolas where he just got to play around as well. Um, but it was I mean it was a shoot where we were just supposed to document my experience rather than do something fancy. So I think it was just me having a having an open experience, but it was such a wild feeling. Like in part because it feels like nothing you've ever felt before. Obviously, you're just like so you're laying down in the airplane. At first, you get heavier and heavier and heavier when when you're going up, and then you just get lighter and lighter and lighter, and you kind of just float up. And and what what blew my mind was that it felt like, It feels like nothing you’ve ever felt before, but at the same time, it felt really natural. I was like, " Yeah, of course, this is a thing we do. We just like float around." Wow. And it just it it actually made me a little bit sad because it was just like, " Yeah, but this is a part of what it's like being human." And then it really isn't.
+[00:14:31] Simone: No, I think it was rougher for my camera guy. But I mean, we did parabolas where he just got to play around as well. But it was I mean it was a shoot where we were just supposed to document my experience rather than do something fancy. So I think it was just me having a having an open experience, but it was such a wild feeling. Like in part because it feels like nothing you've ever felt before. Obviously, you're just like so you're laying down in the airplane. At first, you get heavier and heavier when you're going up, and then you just get lighter and you kind of just float up. And what blew my mind was that it felt like, It feels like nothing you’ve ever felt before, but at the same time, it felt really natural. I was like, " Yeah, of course, this is a thing we do. We just like float around." Wow. And it just it actually made me a little bit sad because it was just like, " Yeah, but this is a part of what it's like being human." And then it really isn't.
 
 [00:15:23] Norm: then once gravity hit, then we're bound
 
@@ -212,9 +212,9 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:15:42] Simone: Oh my god.
 
-[00:15:43] Adam: Um, which meant I had tremendous amount of momentum, and when we did it, we did two moon parabolas at one sixth Earth's gravity, so I got to actually try the astronaut skip, the that specific skip you see the astronauts doing on the moon, which was super cool.
+[00:15:43] Adam: Which meant I had tremendous amount of momentum, and when we did it, we did two moon parabolas at one sixth Earth's gravity, so I got to actually try the astronaut skip, the that specific skip you see the astronauts doing on the moon, which was super cool.
 
-[00:15:59] Simone: Yeah, we get to do so. We did yeah two moon, one Mars. Uh, Mars gravity,
+[00:15:59] Simone: Yeah, we get to do so. We did yeah two moon, one Mars. Mars gravity,
 
 [00:16:07] Adam: [unclear: is that correct / yeah, one third].
 
@@ -222,35 +222,35 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:16:13] Norm: Wow!
 
-[00:16:14] Adam: So that's fantastic that you didn't get nauseous, Simone. That that that speaks to a a very positive idea that you are that you are space ready and you would acclimatize pretty well.
+[00:16:14] Adam: So that's fantastic that you didn't get nauseous, Simone. That that that speaks to a very positive idea that you are space ready and you would acclimatize pretty well.
 
-[00:16:25] Simone: Thank you, Adam. I'll I'll put that on my LinkedIn. Um, but but no, it was actually it's nice because like doing this DIY astronaut um series has really because I do have like I I I pretty often get motion sickness, and now it's totally changed my perspective because now when I get motion sickness, like if I'm in a car or working, I'm like, yeah, this is good. This is like practice. I need to just like power through it, and it's actually made it better in some way because I'm like, whenever I get it, I'm like, yeah, this is good. I need this.
+[00:16:25] Simone: Thank you, Adam. I'll I'll put that on my LinkedIn. But no, it was actually it's nice because like doing this DIY astronaut series has really because I do have like I I I pretty often get motion sickness, and now it's totally changed my perspective because now when I get motion sickness, like if I'm in a car or working, I'm like, yeah, this is good. This is like practice. I need to just like power through it, and it's actually made it better in some way because I'm like, whenever I get it, I'm like, yeah, this is good. I need this.
 
-[00:16:55] Norm: Yeah. Wow. We we got to put you, Simone, in that um NASA VR experience as well. That Adam got to use the ISS one. It's it's. Different because you're not weightless, but it has the same kind of momentum. Like when you grab things, you have, you feel the momentum of weightlessness and fly around that space.
+[00:16:55] Norm: Yeah. Wow. We got to put you, Simone, in that NASA VR experience as well. That Adam got to use the ISS one. It's. Different because you're not weightless, but it has the same kind of momentum. Like when you grab things, you have, you feel the momentum of weightlessness and fly around that space.
 
 [00:17:15] Simone: Yeah, I've heard great things about it. I've had a lot of people recommend it to me.
 
 [00:17:19] Adam: It's really really cool.
 
-[00:17:22] Simone: Adam, but did you did you throw up?
+[00:17:22] Simone: Adam, but did you throw up?
 
 [00:17:26] Adam: Oh yeah,
 
 [00:17:26] Simone: are you not allowed to talk about it?
 
-[00:17:29] Adam: Yeah. And and actually, this is this is the way your body maintains as long as you needed to maintain. We got all the shots that we needed. We were doing slightly more than the average person, number of parabolas, so we got all the shots we needed. We did two at moon's gravity. We did a bunch in zero g. We experimented. We tried out a bunch of different stuff, and then we were like, " Okay, we're done. So let's get some b-roll." And that's when I was like, " Oh, it's happening!" And someone handed me a bag, and I threw up in it. And then I looked down in the bag and realized, " Oh, there's nothing keeping the vomit in this bag. I better close it." God. Because it could drift right out.
+[00:17:29] Adam: Yeah. And actually, this is the way your body maintains as long as you needed to maintain. We got all the shots that we needed. We were doing slightly more than the average person, number of parabolas, so we got all the shots we needed. We did two at moon's gravity. We did a bunch in zero g. We experimented. We tried out a bunch of different stuff, and then we were like, " Okay, we're done. So let's get some b-roll." And that's when I was like, " Oh, it's happening!" And someone handed me a bag, and I threw up in it. And then I looked down in the bag and realized, " Oh, there's nothing keeping the vomit in this bag. I better close it." God. Because it could drift right out.
 
 [00:18:04] Norm: You don't want to pop that bag. That would be bad.
 
-[00:18:06] Adam: No, no. Yeah. The uh, uh. I think if I did it again,
+[00:18:06] Adam: No, no. Yeah. The. I think if I did it again,
 
 [00:18:10] Unknown speaker: Oh, my God.
 
-[00:18:10] Adam: so they gave me scopolamine as an anti-nausea drug when I did it the first time. I think if I ever did it again, that I would probably go with Dramamine, and frankly, maybe even a lozenge of cannabis of a cannabinoid in order to to combat the nausea. But I've found that the that Dramamine works the best for me for seasickness. Like I just don't get seasick as long as I maintain it.
+[00:18:10] Adam: so they gave me scopolamine as an anti-nausea drug when I did it the first time. I think if I ever did it again, that I would probably go with Dramamine, and frankly, maybe even a lozenge of cannabis of a cannabinoid in order to combat the nausea. But I've found that the that Dramamine works the best for me for seasickness. Like I just don't get seasick as long as I maintain it.
 
-[00:18:38] Norm: Yeah, I mean, also makes me appreciate that OK Go video where they have to do that, yeah, for days on end to film the music video. Yeah, because it's like the coordination in that environment while you're feeling maybe nauseous. That's that's a lot of work.
+[00:18:38] Norm: Yeah, I mean, also makes me appreciate that OK Go video where they have to do that, yeah, for days on end to film the music video. Yeah, because it's like the coordination in that environment while you're feeling maybe nauseous. That's a lot of work.
 
-[00:18:53] Simone: Yeah, because it's the same thing. Because I was, I mean, when I did it, it was very freeform. We didn't really have any like shot list of things, and that meant that I could really listen to my body and be like, okay, these is like many spins I can do. But if you're, I mean, if you're doing choreography, you just gotta do it and definitely push beyond that point where you know, like, I'm gonna throw up.
+[00:18:53] Simone: Yeah, because it's the same thing. Because I was, I mean, when I did it was very freeform. We didn't really have any like shot list of things, and that meant that I could really listen to my body and be like, okay, these is like many spins I can do. But if you're, I mean, if you're doing choreography, you just gotta do it and definitely push beyond that point where like, I'm gonna throw up.
 
 [00:19:11] Norm: Yeah.
 
@@ -270,15 +270,15 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:20:01] Simone: Yeah.
 
-[00:20:02] Adam: So people don't know this about me, but I'm totally obsessed with Leonardo da Vinci's notebooks, and I found a seller. An Italian maker of replicas of Leonardo's notebooks, and picked up a unbelievable copy of of the Lycaster, the Codex Leicester, the the the folios that Bill Gates bought for $30 million.
+[00:20:02] Adam: So people don't know this about me, but I'm totally obsessed with Leonardo da Vinci's notebooks, and I found a seller. An Italian maker of replicas of Leonardo's notebooks, and picked up a unbelievable copy of the Lycaster, the Codex Leicester, the folios that Bill Gates bought for $30 million.
 
 [00:20:02] Norm: Wow!
 
 [00:20:28] Simone: Is that handmade?
 
-[00:20:30] Adam: This is they call it paper sculpting, and it is it is I believe a combination of printing and painting. And when we do a, I want to do a video on it on tested when I get back next week because this thing is so beautiful. It's expensive. This is a museum quality replica meant to be displayed in museums, and it's definitely a prized part of my collection of weird historical ephemera.
+[00:20:30] Adam: This is they call it paper sculpting, and it is I believe a combination of printing and painting. And when we do a, I want to do a video on it on tested when I get back next week because this thing is so beautiful. It's expensive. This is a museum quality replica meant to be displayed in museums, and it's definitely a prized part of my collection of weird historical ephemera.
 
-[00:20:55] Norm: Oh, that's cool. I mean, I want to know about how they got the the reference for that, and and also how they age the paper. They're making multiple copies. It also makes me think about. Do you remember that story with the the replica prop maker who made the Indiana Jones notebook? And mailed it, and then it fell out of the package, and then it went to the university that he worked at, and there, and and and because that was what the the package was labeled, like
+[00:20:55] Norm: Oh, that's cool. I mean, I want to know about how they got the reference for that, and also how they age the paper. They're making multiple copies. It also makes me think about. Do you remember that story with the replica prop maker who made the Indiana Jones notebook? And mailed it, and then it fell out of the package, and then it went to the university that he worked at, and there, and because that was what the package was labeled, like
 
 [00:20:55] Adam: yes,
 
@@ -286,11 +286,11 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:21:23] Adam: it's so awesome. I love that stuff.
 
-[00:21:26] Norm: I saw some good Indiana Jones cosplay actually, because this past weekend was at WonderCon. WonderCon, right? The the first big convention we go to, and I was there just for a day, but I could tell that my body was not ready for convention seasons because I got really tired really quickly. It's like it's the the endurance run. Got to got to build up my my my energy.
+[00:21:26] Norm: I saw some good Indiana Jones cosplay actually, because this past weekend was at WonderCon. WonderCon, right? The first big convention we go to, and I was there just for a day, but I could tell that my body was not ready for convention seasons because I got really tired really quickly. It's like it's the endurance run. Got to build up my energy.
 
 [00:21:49] Simone: Like tired in your legs or tired in your brain?
 
-[00:21:51] Norm: A little bit of both, but most mostly my legs. Yeah, yeah. By time like Comic Con comes around, it's like a marathon. So you got to start with the short the short races first. But it was a great convention. I saw some really fun cosplay. Someone there was dressed up as Doctor Strange's Cloak, so just the floating cloak, and they were hidden inside the cape. And I thought that was really clever.
+[00:21:51] Norm: A little bit of both, but most mostly my legs. Yeah, yeah. By time like Comic Con comes around, it's like a marathon. So you got to start with the short races first. But it was a great convention. I saw some really fun cosplay. Someone there was dressed up as Doctor Strange's Cloak, so just the floating cloak, and they were hidden inside the cape. And I thought that was really clever.
 
 [00:22:14] Simone: The one with the asymmetrical cut.
 
@@ -300,19 +300,19 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:22:26] Norm: Yes. Yeah.
 
-[00:22:28] Adam: The the older guy with the little girl—they're so awesome.
+[00:22:28] Adam: The older guy with the little girl—they're so awesome.
 
 [00:22:31] Norm: Yes. Yeah. So a lot of the movie just came out, and definitely I saw three. I think old man Logans, Wolverines, which were very cool.
 
 [00:22:40] Adam: It's opening up a whole. It's opening up a whole new spectrum for older cosplayers.
 
-[00:22:45] Norm: And that's the thing with like it's the diversity and body types and ages. Like, no matter who you are, you can find a character that's going to fit you, or you know, maybe a character that you want to adapt to fit you.
+[00:22:45] Norm: And that's the thing with like it's the diversity and body types and ages. Like, no matter who you are, you can find a character that's going to fit you, or maybe a character that you want to adapt to fit you.
 
 [00:22:56] Adam: Exactly.
 
 [00:22:56] Norm: Yeah.
 
-[00:22:56] Adam: Um. Speaking of cosplay inspiration, after we do this podcast, I am going to go around the corner and watch Ghost in the Shell.
+[00:22:56] Adam: Speaking of cosplay inspiration, after we do this podcast, I am going to go around the corner and watch Ghost in the Shell.
 
 [00:23:07] Norm: Oh. Okay. All right.
 
@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:23:16] Adam: I want one of those clear framed Glock pistols that the major carries.
 
-[00:23:23] Norm: Oh, the the props. Yes, they're very prominent.
+[00:23:23] Norm: Oh, the props. Yes, they're very prominent.
 
 [00:23:26] Simone: Beautiful props. Also, they're like CGI artists must have worked over time.
 
@@ -340,9 +340,9 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:24:55] Adam: Sometimes. Sometimes, some not always, and and the the big boneyard in Tucson actually is where the military parks its old stuff. So no, there is no outlet. They auction stuff off occasionally, and there are some local places that buy that stuff and sell it. But those were all closed over the weekend.
 
-[00:25:11] Norm: Ah, and a lot of those local places. I've walked in a lot of shops that. Repurpose a lot of airplane parts, but they always turn them into like furniture, like propellers that become coffee tables. There's a great one that Kishore and I actually saw, walked into Paris. Ends up being really expensive too when you when you buy something that's then been turned into a piece of art or furniture.
+[00:25:11] Norm: Ah, and a lot of those local places. I've walked in a lot of shops that. Repurpose a lot of airplane parts, but they always turn them into like furniture, like propellers that become coffee tables. There's a great one that Kishore and I actually saw, walked into Paris. Ends up being really expensive too when you buy something that's then been turned into a piece of art or furniture.
 
-[00:25:31] Adam: Yeah. Yeah, but it's beautiful. Like, yeah, it's beautiful stuff. Was when you hold up a piece of an airplane wing, it's always shocking how lightweight it is. I mean, obviously they built optimized for for strength and weight, but it's still intense on a physical level to touch it. What's that?
+[00:25:31] Adam: Yeah. Yeah, but it's beautiful. Like, yeah, it's beautiful stuff. Was when you hold up a piece of an airplane wing, it's always shocking how lightweight it is. I mean, obviously they built optimized for strength and weight, but it's still intense on a physical level to touch it. What's that?
 
 [00:25:49] Simone: You can lift it, like you can actually hold it for a smaller airplane.
 
@@ -360,15 +360,15 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:26:09] Adam: You can have a pilot's license and not have a driver's license.
 
-[00:26:12] Simone: Really? Okay. Yeah. Yeah. Sure. I'm down. I mean, I have like a skipper's degree, so I'm allowed to buy. Like ride big boats or drive big boats, but but yeah, I'm excited. I just got my learner's permit, and I feel that I'm like 16. Everybody just deals with me as a 16 year old because I'm so pumped about being able allowed to like drive a car, even though I have to have like an adult companion.
+[00:26:12] Simone: Really? Okay. Yeah. Yeah. Sure. I'm down. I mean, I have like a skipper's degree, so I'm allowed to buy. Like ride big boats or drive big boats, but yeah, I'm excited. I just got my learner's permit, and I feel that I'm like 16. Everybody just deals with me as a 16 year old because I'm so pumped about being able allowed to like drive a car, even though I have to have like an adult companion.
 
 [00:26:34] Adam: Does that adult have to be above the age of 21? Am I correct about that?
 
 [00:26:37] Simone: I think so. I'm not sure if I have any friends that are below the age of 21.
 
-[00:26:40] Adam: because because honestly, um, uh, thing thing thing two, my son, he's a really excellent driver. I'm sure he'd be happy to teach you.
+[00:26:40] Adam: because honestly thing thing thing two, my son, he's a really excellent driver. I'm sure he'd be happy to teach you.
 
-[00:26:47] Simone: I don't know if my dignity can do that. I mean, as much as I like your kids, uh, I mean, yeah, maybe. I had so many friends who were like really sweet and like Simone. Like, if you want to practice driving, I'll take you. And I I don't know. I just I just need to get it over with. I'm 26. It's about time.
+[00:26:47] Simone: I don't know if my dignity can do that. I mean, as much as I your kids I mean, yeah, maybe. I had so many friends who were like really sweet and Simone. Like, if you want to practice driving, I'll take you. And I I don't know. I just need to get it over with. I'm 26. It's about time.
 
 [00:27:06] Norm: I like that when Simone came into the office with the permit. It's the exact permit that I got like 17 years ago. They still print it on that large rectangular blue sheet of paper. The DMV that that has not changed.
 
@@ -376,21 +376,21 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:27:20] Norm: Yeah.
 
-[00:27:21] Adam: By the way, speaking of speaking of driving milestones, thing two has just enjoyed his first road trip. He's spending the week down his spring break week down in Los Angeles with his girlfriend, and they drove down Route 101 to L.A. a couple days ago.
+[00:27:21] Adam: By the way, speaking of driving milestones, thing two has just enjoyed his first road trip. He's spending the week down his spring break week down in Los Angeles with his girlfriend, and they drove down Route 101 to L.A. a couple days ago.
 
 [00:27:35] Norm: The scenic route.
 
-[00:27:37] Adam: Fantastic. Yes, they stopped at In and Out as you do. They sent us pictures of the trip. It made Mrs. Don't try this. It made Julia and I quite jealous because we love a good road trip. So I think shortly after I get back, we may find a weekend to to just go on a long drive.
+[00:27:37] Adam: Fantastic. Yes, they stopped at In and Out as you do. They sent us pictures of the trip. It made Mrs. Don't try this. It made Julia and I quite jealous because we love a good road trip. So I think shortly after I get back, we may find a weekend to just go on a long drive.
 
 [00:27:53] Simone: Oh, that's nice.
 
-[00:27:54] Norm: What are the first couple things you're going to want to do when you get back in the in the shop, Adam? Are there kits or things that you're going to want to put together?
+[00:27:54] Norm: What are the first couple things you're going to want to do when you get back in the shop, Adam? Are there kits or things that you're going to want to put together?
 
-[00:28:02] Adam: Well, Norm, I bought a I bought a NASA educational EMU suit, which should be not far from where you're sitting in a big box somewhere.
+[00:28:02] Adam: Well, Norm, I bought a NASA educational EMU suit, which should be not far from where you're sitting in a big box somewhere.
 
 [00:28:11] Simone: Oh my god!
 
-[00:28:11] Adam: In the shop, I know. I I cannot wait to open it. I'm going to double check its tracking number today to see if it's arrived.
+[00:28:11] Adam: In the shop, I know. I cannot wait to open it. I'm going to double check its tracking number today to see if it's arrived.
 
 [00:28:11] Simone: Can we help out?
 
@@ -402,15 +402,15 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:28:28] Simone: You have a lot of boxes in here. There's a. You're not only going to be welcomed by us, but also by a bunch of packages.
 
-[00:28:35] Adam: Right, and I have to clean the shop. There's um. You can see that it's in a it's in a bit of a state because I was in furious production before leaving for Brain Candy back in early February. Holy cow! So there's a lot to take care of to just get things back up and running.
+[00:28:35] Adam: Right, and I have to clean the shop. There's. You can see that it's in a bit of a state because I was in furious production before leaving for Brain Candy back in early February. Holy cow! So there's a lot to take care of to just get things back up and running.
 
 [00:28:52] Simone: How many shows have you done in total?
 
-[00:28:56] Adam: Um. Uh. 30. 34. I have six left. So yeah, no, 35 shows, and I have six left.
+[00:28:56] Adam: 30. 34. I have six left. So yeah, no, 35 shows, and I have six left.
 
 [00:29:08] Simone: That is a crazy amount. I don't. Do you like? Ever like feel that your brain? I mean, your you must definitely like confuse the different shows between one another.
 
-[00:29:19] Adam: Oh yeah, no, no, no. I can't remember one theater from the next. I'm terrible about that institutional memory, which blows me away about my crew because, like, my crew will walk in and remember a lot of the folks they're working with in each theater by name.
+[00:29:19] Adam: Oh yeah, no, no, no. I can't remember one theater from the next. I'm terrible about that institutional memory, which blows me away about my crew because my crew will walk in and remember a lot of the folks they're working with in each theater by name.
 
 [00:29:33] Simone: Oh wow!
 
@@ -420,9 +420,9 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:30:10] Adam: Most of that is going into storage. However. Some things are coming back, so I can upgrade them and augment them and embiggen them.
 
-[00:30:20] Norm: Awesome. Well, if that's anything that we can help document and and show. I think a lot of people out there would love to love to check that out.
+[00:30:20] Norm: Awesome. Well, if that's anything that we can help document and show. I think a lot of people out there would love to check that out.
 
-[00:30:28] Adam: Yeah, there's, there's a bunch of stuff I'm going to make more more spectacular and a couple of brand new pieces that we want to put in. I mean, and we're keeping the show the same length. It's just we're packing more and more and more stuff in there.
+[00:30:28] Adam: Yeah, there's, there's a bunch of stuff I'm going to make more more spectacular and a couple of brand new pieces that we want to put in. I mean, and we're keeping the show the same length. It's just we're packing more and more stuff in there.
 
 [00:30:43] Norm: Awesome. Well, we can't wait for you to get back, and I mean, you're we're all on the same coast now, so
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:31:29] Simone: A lot of beautiful footage.
 
-[00:31:29] Adam: I was so blown away by its sensitivity, by its beauty. When, first of all, hearing Joey's voice was fabulous because Joey has a wonderful voice. And then to see him, one of my pet peeves is YouTubers who cut to themselves for too long when they're when they're just doing expository stuff. But when Joey cut to himself, I actually smacked my leg because I was like, " Yes, that's exactly where this belongs. Perfectly done. So beautiful. " I really like. I called him right away and I was like, " Joey, this is just it's a masterpiece. I'm so proud to work with him. "
+[00:31:29] Adam: I was so blown away by its sensitivity, by its beauty. When, first of all, hearing Joey's voice was fabulous because Joey has a wonderful voice. And then to see him, one of my pet peeves is YouTubers who cut to themselves for too long when they're just doing expository stuff. But when Joey cut to himself, I actually smacked my leg because I was like, " Yes, that's exactly where this belongs. Perfectly done. So beautiful. " I really like. I called him right away and I was like, " Joey, this is just it's a masterpiece. I'm so proud to work with him. "
 
 [00:32:09] Norm: Awesome. Yeah, you guys should all watch that. It's On our YouTube channel, and we'll have stuff from WonderCon going out this week. This coming weekend is Monsterpalooza, so it's a special effects conference, and we'll be picking up some model kits. I hope from that as well that we can hopefully paint up. That will be fun. But next time, we're going to take you out of the Phantom Zone, Adam, back to the cave, and it's going to be fun.
 

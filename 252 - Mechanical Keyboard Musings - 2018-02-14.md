@@ -14,9 +14,9 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:00:12] Norm: Could have went a lot of different ways.
 
-[00:00:13] Will: I just, I just left that. I wanted that pause to get all the way pregnant and just wait and wait and wait, and then you broke, and everything. It was everything I dreamed it would be.
+[00:00:13] Will: I just left that. I wanted that pause to get all the way pregnant and just wait and then you broke, and everything. It was everything I dreamed it would be.
 
-[00:00:21] Adam: Do you find that, like, when you're talking to a customer service person who has to finish a script, I find that when they're talking to me, oh, sorry about that. Are we good? Yeah. I find that when a customer service person is saying to me something like, " Well, I'm glad we could help you. That is there any other way in which the excellence that we strive for every day in our company can come to your assistance?" and you're just like, the seconds of my life are ticking away. Please stop talking.
+[00:00:21] Adam: Do you find that when you're talking to a customer service person who has to finish a script, I find that when they're talking to me, oh, sorry about that. Are we good? Yeah. I find that when a customer service person is saying to me something like, " Well, I'm glad we could help you. That is there any other way in which the excellence that we strive for every day in our company can come to your assistance?" and you're just like, the seconds of my life are ticking away. Please stop talking.
 
 [00:00:48] Will: I have a lot more free time than you.
 
@@ -32,7 +32,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:01:05] Norm: Yes, this conversational transaction,
 
-[00:01:07] Adam: and then— look, it's not their fault. I, I, I long ago stopped getting mad at customer service reps because
+[00:01:07] Adam: and then— look, it's not their fault. I long ago stopped getting mad at customer service reps because
 
 [00:01:07] Will: Yeah, I was just.
 
@@ -46,11 +46,11 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:01:34] Adam: Really?
 
-[00:01:29] Will: Yeah. One, you know, Virgin America's frequent flyer program is no more,
+[00:01:29] Will: Yeah. One Virgin America's frequent flyer program is no more,
 
 [00:01:40] Adam: yeah,
 
-[00:01:29] Will: and because of some confusion with me when they did the automatic transfer, it didn't work, and I had to call Alaska and get them to like reinstate my status and all that stuff. And like, I haven't talked to people. I haven't had to talk to customer service on the phone lately because I usually do the chat if that's an option. And and I had a lovely conversation with the person who was on the other end of the the other end of the line. Mm-hmm. Like I didn't have to. She didn't treat me like I was a two year old, which is the thing that makes me crazy when I deal with customer service because their scripts are bad.
+[00:01:29] Will: and because of some confusion with me when they did the automatic transfer, it didn't work, and I had to call Alaska and get them to like reinstate my status and all that stuff. And like, I haven't talked to people. I haven't had to talk to customer service on the phone lately because I usually do the chat if that's an option. And I had a lovely conversation with the person who was on the other end of the line. Mm-hmm. Like I didn't have to. She didn't treat me like I was a two year old, which is the thing that makes me crazy when I deal with customer service because their scripts are bad.
 
 [00:02:08] Adam: Right.
 
@@ -58,7 +58,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:02:10] Adam: You want to fly on a plane? Yes, I want to fly on a plane.
 
-[00:02:16] Will: Yeah, and it was like took six minutes. I was done. Like the the delivery on the is there anything else I can help you with today? Entirely determines whether I'm going to get upset by that or not. Right. Like if it feels obsequious at all, it's just not. It's not it's not, that doesn't. I can't do that.
+[00:02:16] Will: Yeah, and it was like took six minutes. I was done. Like the delivery on the is there anything else I can help you with today? Entirely determines whether I'm going to get upset by that or not. Right. Like if it feels obsequious at all, it's just not. It's not, that doesn't. I can't do that.
 
 [00:02:32] Adam: I know what you mean.
 
@@ -66,7 +66,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:02:32] Adam: Yeah.
 
-[00:02:32] Will: Thank you so much for for for like helping me with my problem.
+[00:02:32] Will: Thank you so much for like helping me with my problem.
 
 [00:02:42] Adam: I find Amex to be regularly excellent to deal with.
 
@@ -80,7 +80,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:02:49] Will: Yeah,
 
-[00:02:49] Norm: like probably most of us have the shipping anxieties, tracking problems, or have had experience where we've had a package not arrive on time or don't know where it is, and we will go through heaven and hell to try to figure something out and get and get really angry about it. But the moment the package arrives at the door, it's like everything's lifted.
+[00:02:49] Norm: like probably most of us have the shipping anxieties, tracking problems, or have had experience where we've had a package not arrive on time or don't know where it is, and we will go through heaven and hell to try to figure something out and get really angry about it. But the moment the package arrives at the door, it's like everything's lifted.
 
 [00:03:22] Adam: Well, so I'm in the middle of this right now. A couple of weeks ago, I ordered two new outdoor nest cameras.
 
@@ -98,17 +98,17 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:03:51] Will: Yeah.
 
-[00:03:51] Adam: But we don't know. Clearly, they don't seem to know. Yeah, it's like it's literally It's literally the equivalent of the text of the yeah yeah
+[00:03:51] Adam: But we don't know. Clearly, they don't seem to know. Yeah, it's like it's literally the equivalent of the text of the yeah yeah
 
 [00:04:00] Will: the emoji.
 
 [00:04:01] Norm: Sometimes we just want more information. I just more information would be fine.
 
-[00:04:06] Will: I was thinking about this the other day as I was sitting looking at an order form, and I was like, " Man, they're charging me $6 for two-day shipping. I don't like this company. I'm not going to buy this. I'm going to go buy it someplace else." And I thought back to like probably the first time I mail-ordered anything with like with my money was when I built my first computer when I was maybe a sophomore in college, right? And at that time, like there was no Amazon. Newegg wasn't a thing. You went to some. you went to some terrible website like with with with like frames.
+[00:04:06] Will: I was thinking about this the other day as I was sitting looking at an order form, and I was like, " Man, they're charging me $6 for two-day shipping. I don't like this company. I'm not going to buy this. I'm going to go buy it someplace else." And I thought back to like probably the first time I mail-ordered anything with like with my money was when I built my first computer when I was maybe a sophomore in college, right? And at that time, like there was no Amazon. Newegg wasn't a thing. You went to some. you went to some terrible website like with like frames.
 
 [00:04:32] Adam: Yeah.
 
-[00:04:32] Will: And from someplace in Kansas, and you put it in your credit card, and you're like, I don't know, this seems really risky. I don't know about this one. And then, like 10 days later, the pieces would trickle in one piece at a time, and like just I’m, I was, I was thinking, I really don't get very many packages that I need that urgently, and now my fucking groceries come in the mail,
+[00:04:32] Will: And from someplace in Kansas, and you put it in your credit card, and you're like, I don't know, this seems really risky. I don't know about this one. And then, like 10 days later, the pieces would trickle in one piece at a time, and like just I’m, I was thinking, I really don't get very many packages that I need that urgently, and now my fucking groceries come in the mail,
 
 [00:04:53] Unknown speaker: Yeah, yeah, yeah,
 
@@ -138,15 +138,15 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:05:35] Will: Oh really? Did it work?
 
-[00:05:36] Adam: I initiated. I don't know, but I initiated a return on it. I was like, I don't need it, and there's. I bought it by mistake. Is one of the choices in the pull down menu. So. Or or missile alert.
+[00:05:36] Adam: I initiated. I don't know, but I initiated a return on it. I was like, I don't need it, and there's. I bought it by mistake. Is one of the choices in the pull down menu. So. Or missile alert.
 
-[00:05:47] Will: I I the other customer service thing I had the other day was my my my Microsoft keyboard. I reviewed it for Tested years ago. But it was one that you saw at the iPad and it folds open and it has a slot to hold the iPad. Right. Right. So You can separate the iPad holder from the keyboard part, so you can put it as far away or as close as you want it to be. And it's it's my all time favorite mobile keyboard. They don't make them anymore, and the batteries died on them all eventually over a long period of time. So I took it apart and I like I called them to see if they honored the warranty, which of course they wouldn't because it's five years old. And I called them to see if I could get a replacement battery and go through the whole the whole process. And they were they were really really nice and super apologetic in saying no, hey, you're boned on this. So then I went to Amazon and I ordered one I ordered one off of Amazon from like their their returns and warehouse deal site or whatever, and they sent completely the wrong thing. And I had another great reaction with interaction with those folks.
+[00:05:47] Will: I the other customer service thing I had the other day was my Microsoft keyboard. I reviewed it for Tested years ago. But it was one that you saw at the iPad and it folds open and it has a slot to hold the iPad. Right. Right. So You can separate the iPad holder from the keyboard part, so you can put it as far away or as close as you want it to be. And it's my all time favorite mobile keyboard. They don't make them anymore, and the batteries died on them all eventually over a long period of time. So I took it apart and I like I called them to see if they honored the warranty, which of course they wouldn't because it's five years old. And I called them to see if I could get a replacement battery and go through the whole process. And they were really really nice and super apologetic in saying no, hey, you're boned on this. So then I went to Amazon and I ordered one off of Amazon from like their returns and warehouse deal site or whatever, and they sent completely the wrong thing. And I had another great reaction with interaction with those folks.
 
 [00:06:36] Adam: But here's a question. Now I'm going to
 
 [00:06:38] Will: yeah, don't look yeah
 
-[00:06:39] Adam: tangential. I'm looking. Sorry everyone, that's that's my compressor.
+[00:06:39] Adam: tangential. I'm looking. Sorry everyone, that's my compressor.
 
 [00:06:44] Will: You had to make the air thicker, didn't you?
 
@@ -158,13 +158,13 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:06:58] Will: It’s, I don't, I, I don't think so.
 
-[00:07:01] Adam: Oh no, it's better than the one that was too thin. That the the its predecessor was actually even worse.
+[00:07:01] Adam: Oh no, it's better than the one that was too thin. That the its predecessor was actually even worse.
 
 [00:07:05] Will: The 12 inch MacBook.
 
 [00:07:06] Adam: No, the same same MacBook. Just the last years.
 
-[00:07:09] Will: This one, this one. If you get one speck of dust in the key, it won't stop working.
+[00:07:09] Will: This one. If you get one speck of dust in the key, it won't stop working.
 
 [00:07:12] Norm: Butterfly switches.
 
@@ -192,7 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:07:40] Norm: and sometimes those things come at odds.
 
-[00:07:47] Adam: Yeah. Do, Have you have you gone down this road?
+[00:07:47] Adam: Yeah. Do, Have you gone down this road?
 
 [00:07:50] Norm: Well, mechanical keyboards, absolutely.
 
@@ -214,7 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:08:12] Will: Well, that's easy to change.
 
-[00:08:14] Adam: Well, that's fine. I'll draw on the little on the little command key. That's fine.
+[00:08:14] Adam: Well, that's fine. I'll draw on the little command key. That's fine.
 
 [00:08:18] Will: God, I would love to have that's that might be my next project. Just take all my keycaps off and get some blank ones that I can just draw the letters on by hand.
 
@@ -224,7 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:08:30] Adam: You could set it up and etch on there.
 
-[00:08:32] Will: I like the idea of like a like a completely like like like a Tom Sachs you know box or like
+[00:08:32] Will: I the idea of like a completely like a Tom Sachs you know box or
 
 [00:08:32] Unknown speaker: yeah,
 
@@ -234,7 +234,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:08:46] Will: Oh yeah, yeah, computer console.
 
-[00:08:47] Adam: I had I never had enough of those for the secret. Control rooms that I was building in all of my playsets, and so I I still have in my Legos too that I that I hand drew onto like a white Lego.
+[00:08:47] Adam: I had I never had enough of those for the secret. Control rooms that I was building in all of my playsets, and so I I still have in my Legos too that I hand drew onto like a white Lego.
 
 [00:09:01] Will: If you with the right pressure, you could have been an evil mad scientist with the with a secret underground lair, couldn't you?
 
@@ -266,7 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:09:37] Will: so the ten keyless is my favorite of the mechanicals. It's what I use at home.
 
-[00:09:41] Adam: Oh, is that, is that, is that the name of a product?
+[00:09:41] Adam: Oh, is that the name of a product?
 
 [00:09:43] Norm: No, no, no, it's the name of a.
 
@@ -280,7 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:09:49] Adam: if it doesn't have the final right hand data entry
 
-[00:09:51] Will: Right. It doesn’t have the numpad. it doesn't have the the surrounding keys around that, but it has It has home end insert and just scroll lock
+[00:09:51] Will: Right. It doesn’t have the numpad. it doesn't have the surrounding keys around that, but it has home end insert and just scroll lock
 
 [00:09:58] Adam: and all that stuff. Command, escape, backspace, and
 
@@ -296,7 +296,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:10:12] Adam: I'm on a couple.
 
-[00:10:14] Will: There's a hole. There's there's a hole that once you go down, It started when Norm and I built. The I got him completely blanking on the name. The the columnar. You want a normal QWERTY layout too? That's the thing
+[00:10:14] Will: There's a hole. There's there's a hole that once you go down, It started when Norm and I built. The I got him completely blanking on the name. The columnar. You want a normal QWERTY layout too? That's the thing
 
 [00:10:14] Adam: yeah. I don’t need the Dvorak.
 
@@ -340,7 +340,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:11:12] Adam: I wanted to feel like an IBM Selectric. That's my favorite. Keyboard.
 
-[00:11:15] Will: We can make that happen. Yeah. I used so when I was at ord when I was at ord camp one of um uh one of the attendees does he's like a keyboard archivist he has all of the keyboards and has done history of the typewriter and has done this he did this amazing presentation about how uh the the keyboard evolved like to figure out why nobody knows why we use QWERTY other than that was the keyboard on early typewriters that became popular
+[00:11:15] Will: We can make that happen. Yeah. I used so when I was at ord when I was at ord camp one of the attendees does he's like a keyboard archivist he has all of the keyboards and has done history of the typewriter and has done this he did this amazing presentation about how the keyboard evolved like to figure out why nobody knows why we use QWERTY other than that was the keyboard on early typewriters that became popular
 
 [00:11:40] Adam: no no no there's a okay
 
@@ -362,7 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:12:00] Adam: Actually, no two people collect. Typewriters.
 
-[00:12:01] Norm: I was going to say, of course you do, is it is it Mister?
+[00:12:01] Norm: I was going to say, of course you do, is it Mister?
 
 [00:12:03] Adam: No, no, no. It’s it’s actually somebody I grew up with in my neighborhood. Berkeley collects has been collecting.
 
@@ -374,15 +374,15 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:12:16] Adam: Yeah.
 
-[00:12:16] Will: Um. He had a PC Junior keyboard that he had rewired with an Arduino to be Bluetoothable to hook up to a uh, uh, phone or or tablet, and like that was the worst keyboard. Like the fact that IBM went from the best the PC keyboard, which is the all-time great, right, to the PC Junior, which is, I think, the worst thing I've ever pressed. Like it's the worst buttons I've ever pressed, and there's 104 of them.
+[00:12:16] Will: He had a PC Junior keyboard that he had rewired with an Arduino to be Bluetoothable to hook up to a phone or tablet, and like that was the worst keyboard. Like the fact that IBM went from the best the PC keyboard, which is the all-time great, right, to the PC Junior, which is, I think, the worst thing I've ever pressed. Like it's the worst buttons I've ever pressed, and there's 104 of them.
 
 [00:12:45] Adam: Wow.
 
-[00:12:16] Will: Um, it was pretty amazing.
+[00:12:16] Will: It was pretty amazing.
 
-[00:12:46] Adam: I I'm all of a sudden I'm seeing the um thumbnail for this podcast of Adam and Norm and Will talk for too long about keyboards.
+[00:12:46] Adam: I I'm all of a sudden I'm seeing the thumbnail for this podcast of Adam and Norm and Will talk for too long about keyboards.
 
-[00:12:54] Will: Yeah, guys keyboards. It's like it's like it's like it's like what's the what's the the numbers TV show where the numbers fly by the woman and then all of a sudden it's just a keyboard. I don't know.
+[00:12:54] Will: Yeah, guys keyboards. It's like what's the numbers TV show where the numbers fly by the woman and then all of a sudden it's just a keyboard. I don't know.
 
 [00:13:04] Norm: It's a meme. Yeah.
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:13:10] Norm: How did that happen?
 
-[00:13:12] Adam: We we we met about five or six years ago and became friends. And he was in town. He was in California. He made it up and down California. Went on a hike. Couple days later with Mayor Garcetti of Los Angeles. And while he was in town, he reached out and said, " Hey, come on by and let's have a drink."
+[00:13:12] Adam: We met about five or six years ago and became friends. And he was in town. He was in California. He made it up and down California. Went on a hike. Couple days later with Mayor Garcetti of Los Angeles. And while he was in town, he reached out and said, " Hey, come on by and let's have a drink."
 
 [00:13:31] Will: Wow.
 
@@ -402,9 +402,9 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:13:33] Will: Oh.
 
-[00:13:33] Adam: We were we were over near his hotel.
+[00:13:33] Adam: We were over near his hotel.
 
-[00:13:36] Will: I was gonna say, I, I don't know what the security is like for the Prime Minister of Canada, but I imagine when he walks into the room and there's just a plate full of guns on the pool table, they might have a little bit of pause. They might have had a problem with that. Yeah, they might they might not be okay with that.
+[00:13:36] Will: I was gonna say, I, I don't know what the security is like for the Prime Minister of Canada, but I imagine when he walks into the room and there's just a plate full of guns on the pool table, they might have a little bit of pause. They might have had a problem with that. Yeah, they might not be okay with that.
 
 [00:13:49] Adam: His detail, his security detail, was very good at staying unseen.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:14:00] Will: Good. Good. Good.
 
-[00:13:57] Adam: It was a lovely, lovely evening. He's a genuinely lovely man, and. a, a, a A real science nerd. I mean, that's the most fun, right? We just literally talked about science nerdy stuff for a couple of hours.
+[00:13:57] Adam: It was a lovely, lovely evening. He's a genuinely lovely man, and. a real science nerd. I mean, that's the most fun, right? We just literally talked about science nerdy stuff for a couple of hours.
 
 [00:14:14] Norm: That's so good. Did he wish he was at the Olympics?
 
@@ -436,11 +436,11 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:14:43] Norm: Yes,
 
-[00:14:43] Adam: and hilariously, it got it got tied up in customs.
+[00:14:43] Adam: and hilariously, it got tied up in customs.
 
 [00:14:48] Norm: Wow, that's all his fault, isn't it?
 
-[00:14:51] Adam: So when I went to see him, I brought another one, but we we we we we laser cut Marcos laser cut a red leaf out of sailcloth and sewed it onto the bag, so he's got a special one, and we serial numbered it. Special, PMO one. So if I ever if I ever give a bag to another prime minister, they get PMO two.
+[00:14:51] Adam: So when I went to see him, I brought another one, but we laser cut Marcos laser cut a red leaf out of sailcloth and sewed it onto the bag, so he's got a special one, and we serial numbered it. Special, PMO one. So if I ever give a bag to another prime minister, they get PMO two.
 
 [00:15:11] Will: Wow, there you go.
 
@@ -450,11 +450,11 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:15:18] Adam: No.
 
-[00:15:19] Will: So this is the first one I've. I I think last time the Olympics were on, we were traveling and I didn't watch anything. Like watching the Olympics in a way when you can just load up an app on your phone or TV
+[00:15:19] Will: So this is the first one I've. I think last time the Olympics were on, we were traveling and I didn't watch anything. Like watching the Olympics in a way when you can just load up an app on your phone or TV
 
 [00:15:29] Adam: Yeah.
 
-[00:15:19] Will: and just watch the thing that you want to watch without any of the other any of the other business.
+[00:15:19] Will: and just watch the thing that you want to watch without any of the other business.
 
 [00:15:33] Adam: We signed up for that, but we haven't done it.
 
@@ -468,7 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:15:36] Will: it's very it's captivating.
 
-[00:15:39] Adam: I I I watch. Sorry, everyone. The noise that's happening is just um uh somebody I've hired to do some machining and he's working in the background. It's fine.
+[00:15:39] Adam: I watch. Sorry, everyone. The noise that's happening is just somebody I've hired to do some machining and he's working in the background. It's fine.
 
 [00:15:39] Norm: Nothing's wrong.
 
@@ -476,9 +476,9 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:15:51] Adam: But I have been watching the high. I've been watching a lot of the snowboard highlights on Deadspin. That's what I've been seeing. Yeah,
 
-[00:15:57] Will: I mean, turns out the highlights are really all I want. Right, I want to watch like the five minutes of the the best and the worst, and the mediocre I can take or leave.
+[00:15:57] Will: I mean, turns out the highlights are really all I want. Right, I want to watch like the five minutes of the best and the worst, and the mediocre I can take or leave.
 
-[00:16:06] Adam: I I came across on one of the sites I came across this morning there were like an ode to ice dancing in pairs or institutionalized face sitting.
+[00:16:06] Adam: I came across on one of the sites I came across this morning there were like an ode to ice dancing in pairs or institutionalized face sitting.
 
 [00:16:21] Norm: That's only one of the technical challenges. There are many.
 
@@ -500,7 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:17:14] Will: They're on the streams.
 
-[00:17:15] Norm: They're on the streams, right? The, the, the athletes themselves are tweeting, you know, mid competition.
+[00:17:15] Norm: They're on the streams, right? The athletes themselves are tweeting mid competition.
 
 [00:17:22] Will: Well, mid airing of the competition, right?
 
@@ -510,7 +510,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:17:29] Norm: That builds interest and builds hype for it.
 
-[00:17:32] Will: It's much like I'm going to go ahead and tell you, like the the only problem complaint I have is that they really, really stack a ton of ads in front of each individual thing. So if you're like bouncing from thing to thing to thing, then you you watch way more ads than you would if you were probably watching just the live feed. But but it's a much more humane viewing experience instead of spending 16 hours watching watching 35 minutes of stuff that I want to see. We watched, you know, we watched biathlon, which I always find fascinating. Like it's
+[00:17:32] Will: It's much like I'm going to go ahead and tell you, like the only problem complaint I have is that they really, really stack a ton of ads in front of each individual thing. So if you're like bouncing from thing to thing, then you watch way more ads than you would if you were probably watching just the live feed. But it's a much more humane viewing experience instead of spending 16 hours watching watching 35 minutes of stuff that I want to see. We watched we watched biathlon, which I always find fascinating. Like it's
 
 [00:17:59] Adam: skiing and shooting, man.
 
@@ -520,7 +520,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:18:08] Will: Of course.
 
-[00:18:08] Adam: and talk about another aspect of this, which is you were talking about the sports commentator talking about historic historical relationships between countries. I listened to a long form interview recently with Ta-Nehisi Coates, and he's taking questions from the audience, and people are asking about about the state of education in America, and he goes, he says, you know, I have a problem with people who do public speaking who are in my position. He said, just because I'm an expert in one aspect of the thing that I have chosen to be an expert in, doesn't mean that I know anything about anything else, and so I don’t want to talk about what I think of the state of education because I'm not an educator and I don't know.
+[00:18:08] Adam: and talk about another aspect of this, which is you were talking about the sports commentator talking about historic historical relationships between countries. I listened to a long form interview recently with Ta-Nehisi Coates, and he's taking questions from the audience, and people are asking about about the state of education in America, and he goes, he says I have a problem with people who do public speaking who are in my position. He said, just because I'm an expert in one aspect of the thing that I have chosen to be an expert in, doesn't mean that I know anything about anything else, and so I don’t want to talk about what I think of the state of education because I'm not an educator and I don't know.
 
 [00:18:59] Will: I have opinions just like you, but they're not. Yeah, that makes total sense.
 
@@ -530,11 +530,11 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:19:02] Adam: okay, I have some, but I am inclined to answer those questions. And hearing him say that, I was like, you know what? He's totally right. And I love the honest approach to that, which is I can speak to the thing that I have devoted my life to extemporaneously for hours. But if you're going to ask me about something else, I'm going to let you know my level of ignorance, and that is a lovely, graceful thing to give to the audience.
 
-[00:19:37] Norm: And while that may be interesting, even for the audience member to know as a as a personal side or as that platform that you're on, the stage then allows it to be taken out of context and amplified.
+[00:19:37] Norm: And while that may be interesting, even for the audience member to know as a personal side or as that platform that you're on, the stage then allows it to be taken out of context and amplified.
 
-[00:19:48] Adam: Well, and and you know, we live in an age now where our internet is nothing but a bunch of like turd blossom Dwight Schrutes out there who's like, I found one opposing case to your argument, therefore you are invalid.
+[00:19:48] Adam: Well, and we live in an age now where our internet is nothing but a bunch of like turd blossom Dwight Schrutes out there who's like, I found one opposing case to your argument, therefore you are invalid.
 
-[00:20:03] Will: My my favorite the favorite the best thing I saw on Twitter today was. Like you know, the Goofs page on IMDb. It was a goof for the Bourne Supremacy.
+[00:20:03] Will: My favorite the best thing I saw on Twitter today was. Like you know, the Goofs page on IMDb. It was a goof for the Bourne Supremacy.
 
 [00:20:03] Unknown speaker: Yeah,
 
@@ -542,7 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:20:03] Unknown speaker: Wow,
 
-[00:20:03] Will: and I am just like, yeah, that's that's the internet. Thanks, guys.
+[00:20:03] Will: and I am just like, yeah, that's the internet. Thanks, guys.
 
 [00:20:03] Adam: Done.
 
@@ -584,13 +584,13 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:21:45] Will: And I'm messing it up, and it's brilliant. But nobody under the age of about 35 is going to have any idea what he's talking about.
 
-[00:21:50] Adam: Neuromancers are so important. I I should reread all three of those.
+[00:21:50] Adam: Neuromancers are so important. I should reread all three of those.
 
-[00:21:54] Will: I would I would go back and reread those. With you.
+[00:21:54] Will: I would go back and reread those. With you.
 
 [00:21:55] Adam: Yeah, I, you know what? I almost want to work my because Gibson's a serial trilogist.
 
-[00:22:01] Will: He yeah, because he did the, he did the, the Neuromancer, Count Zero, and then
+[00:22:01] Will: He yeah, because he did the Neuromancer, Count Zero, and then
 
 [00:22:06] Adam: Mona Lisa Overdrive, and then Virtual Light, Idoru, and All Tomorrow's Parties.
 
@@ -622,13 +622,13 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:22:28] Adam: and it's just a whole bunch of jammers.
 
-[00:22:51] Will: Like there was a thing you could buy. You could buy You could buy cell jammers.
+[00:22:51] Will: Like there was a thing you could buy. You could buy cell jammers.
 
 [00:22:54] Adam: Yep.
 
 [00:22:55] Will: For GSM and GPRS for a while. Yeah, they all went away. A few years ago.
 
-[00:22:57] Adam: Yeah, you can’t. you know, you can’t, FCC makes it totally illegal.
+[00:22:57] Adam: Yeah, you can’t. You can’t, FCC makes it totally illegal.
 
 [00:23:00] Will: Yeah.
 
@@ -640,11 +640,11 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:23:25] Norm: That’s amazing. Wow. A dead spot in The towers.
 
-[00:23:28] Adam: yeah, they can see it when someone turns a jammer on. They can see that that blank spot. I don't know. That strikes me as interesting. I didn't know that that was possible, but yeah, they they found him.
+[00:23:28] Adam: yeah, they can see it when someone turns a jammer on. They can see that that blank spot. I don't know. That strikes me as interesting. I didn't know that that was possible, but yeah, they found him.
 
 [00:23:38] Will: Huh.
 
-[00:23:28] Adam: But I want I want a Pelican case that can jam all the signals.
+[00:23:28] Adam: But I want a Pelican case that can jam all the signals.
 
 [00:23:44] Will: It’s easier to just make a po- spin up a pocket universe and go into that. You'll never get a Pelican. You'll have a Pelican case.
 
@@ -654,11 +654,11 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:23:59] Will: They were.
 
-[00:23:59] Norm: the The rela- the relationship between the two of them.
+[00:23:59] Norm: the rela- the relationship between the two of them.
 
 [00:24:02] Will: Yeah,
 
-[00:23:53] Norm: it's one of the the dogs going to a door, not being able to open it, and then another one opening it. And yes, it's all scripted animated, but
+[00:23:53] Norm: it's one of the dogs going to a door, not being able to open it, and then another one opening it. And yes, it's all scripted animated, but
 
 [00:24:09] Will: It's actually not scripted.
 
@@ -668,7 +668,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:24:12] Norm: Oh, so that's automated.
 
-[00:24:13] Will: Presumably, they know what the they know what the they recognize the doorknob and then know how to open the door, and the other one
+[00:24:13] Will: Presumably, they know what the they recognize the doorknob and then know how to open the door, and the other one
 
 [00:24:19] Adam: tasers tasers got to take care of it, right? You, it's hard to shield a [unclear: can of dog / cannon dog / dog] against a taser isn’t it?
 
@@ -684,7 +684,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:24:39] Adam: Okay.
 
-[00:24:35] Will: If you haven't seen it yet, it's amazing. They had like 250 or 300 drones or some ridiculous number flying in formation with lights on in the night, and they made a bunch of different shapes. And it was it was astounding.
+[00:24:35] Will: If you haven't seen it yet, it's amazing. They had like 250 or 300 drones or some ridiculous number flying in formation with lights on in the night, and they made a bunch of different shapes. And it was astounding.
 
 [00:24:49] Adam: Amazing
 
@@ -728,11 +728,11 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:25:31] Will: Yeah. Well, Intel paid for it. I don’t know who did it.
 
-[00:25:33] Adam: Right. There's a company that's that's been at the forefront of that technology that did a demo at TED two years ago, and their stuff is absolutely remarkable.
+[00:25:33] Adam: Right. There's a company that's been at the forefront of that technology that did a demo at TED two years ago, and their stuff is absolutely remarkable.
 
 [00:25:43] Will: It was transfixing.
 
-[00:25:44] Adam: Yeah, because on a stage, you know, they just had them take off, and you can't even see them, and then they light up, and they're doing circles and designs in the air, and it's
+[00:25:44] Adam: Yeah, because on a stage they just had them take off, and you can't even see them, and then they light up, and they're doing circles and designs in the air, and it's
 
 [00:25:55] Norm: it's where Disney has that the patent to do like basically fireworks with those type of drones because they want to use that at Disneyland, Disney World, not over people, but even close enough away where you can see exactly where you can can see that stuff happen. We're gonna converge these segues because one of the reasons I also wanted to mention the Boston Dynamics and Metalhead episode of Black Mirror, and how Terminator-like they are is because I saw a drone two days ago that just got announced yesterday. As you guys are listening to this, that was the most awesome and scariest drone I've ever seen because of its inability to crash.
 
@@ -748,7 +748,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:26:51] Norm: $2,500, and it will fly and follow you or be in front of you and avoid trees and branches. And we could not get crash. Like playing hide and seek with the drone.
 
-[00:27:01] Will: They were running like the the demo videos. Like one of the demo videos that I saw, my friend Kyle posted him. Starting at the new stadium site down in in the Mission Bay, and running up to the Giant Stadium, and it's like going like it it just tracks him, and it avoids light poles, it avoids It avoids, like power lines, the whole thing, all the way up there on a bicycle, bicycle speed.
+[00:27:01] Will: They were running like the demo videos. Like one of the demo videos that I saw, my friend Kyle posted him. Starting at the new stadium site down in the Mission Bay, and running up to the Giant Stadium, and it's like going like it just tracks him, and it avoids light poles, it avoids, like power lines, the whole thing, all the way up there on a bicycle, bicycle speed.
 
 [00:27:22] Norm: Wow,
 
@@ -804,17 +804,17 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:29:19] Adam: And you are joined with your soulmate, and you live out eternity in a beautiful house with them.
 
-[00:29:24] Will: And and they play a brief clip of what happens to the people who aren't in the good place. Seems sounded really bad. A lot a lot of burning.
+[00:29:24] Will: And they play a brief clip of what happens to the people who aren't in the good place. Seems sounded really bad. A lot of burning.
 
 [00:29:31] Adam: Yeah,
 
-[00:29:24] Will: and and so she's she's pretty committed to not getting kicked out of this place in the beginning. And and it became it's really clear that there’s going to be a brinksmanship thing that goes on as the show. I watched two. Episodes.
+[00:29:24] Will: and so she's pretty committed to not getting kicked out of this place in the beginning. And it became it's really clear that there’s going to be a brinksmanship thing that goes on as the show. I watched two. Episodes.
 
 [00:29:43] Norm: So will next that is this is so fascinating.
 
 [00:29:46] Adam: This really is
 
-[00:29:46] Norm: because because Adam and I both we both binged it
+[00:29:46] Norm: because Adam and I both we both binged it
 
 [00:29:48] Adam: we've been to the other side of the looking glass.
 
@@ -852,7 +852,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:31:18] Will: I felt like every one of those communities probably has somebody who's not supposed to be there to kind of balance things out and keep the whole thing. Even keel.
 
-[00:31:25] Adam: That's really good. I love that idea. That's that's a nifty one. It’s wrong, but it’s awesome.
+[00:31:25] Adam: That's really good. I love that idea. That's a nifty one. It’s wrong, but it’s awesome.
 
 [00:31:30] Unknown speaker: Awesome. Perfect. Okay.
 
@@ -886,9 +886,9 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:32:01] Adam: It's totally interesting.
 
-[00:32:01] Norm: And and and the Adam was compelled by the spoiler to binge it. I was compelled by the reviews and the ravings to binge it.
+[00:32:01] Norm: And the Adam was compelled by the spoiler to binge it. I was compelled by the reviews and the ravings to binge it.
 
-[00:32:10] Adam: And it also it it might be that that is actually also part and parcel of a future spoiler.
+[00:32:10] Adam: And it also it might be that that is actually also part and parcel of a future spoiler.
 
 [00:32:10] Norm: Sure,
 
@@ -904,7 +904,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:32:25] Will: because it’s, this is going to be treacly and awful and touched by an angel.
 
-[00:32:32] Norm: And the the best thing we can say about the show is that they do so many so many unexpected things where you would think that very thing. How can they get legs out of this concept?
+[00:32:32] Norm: And the best thing we can say about the show is that they do so many unexpected things where you would think that very thing. How can they get legs out of this concept?
 
 [00:32:43] Adam: Oh my god!
 
@@ -934,7 +934,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:33:08] Will: I mean, it makes sense you’d want to placate rather than entomb them,
 
-[00:33:10] Adam: and it's it's it's part of a brand new pro. I'll leave it at that. But you, so you've met Janet, the Siri of the Good Place, right? When say Janet, she shows up, she becomes a hu- much more highly developed character, and the best part is, is hell, the bad place also has a Janet, but it's bad Janet, and so bad bad Janet is dressed in black leather, has long blonde hair, and is never not looking at her phone while she talks to you. And so when you go bad Janet, and she shows up, you’re like, Oh, my God. and you go, can you bring me some burgers? And she'll say, Why don't you roll off your mom and do it yourself. I love bad Janet so much. Bad Ja- Janet, and bad Janet
+[00:33:10] Adam: and it's part of a brand new pro. I'll leave it at that. But you, so you've met Janet, the Siri of the Good Place, right? When say Janet, she shows up, she becomes a hu- much more highly developed character, and the best part is, is hell, the bad place also has a Janet, but it's bad Janet, and so bad bad Janet is dressed in black leather, has long blonde hair, and is never not looking at her phone while she talks to you. And so when you go bad Janet, and she shows up, you’re like, Oh, my God. and you go, can you bring me some burgers? And she'll say, Why don't you roll off your mom and do it yourself. I love bad Janet so much. Bad Ja- Janet, and bad Janet
 
 [00:33:57] Will: curse, and she can't do any of the things that she enjoys.
 
@@ -942,7 +942,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:34:00] Will: she can't be an awful person.
 
-[00:34:02] Adam: Yeah, it it it's a beautiful wrinkle, and Danson Danson makes the Danson does the turn. Yeah, I mean, there's a reason that he's like one of the greatest TV actors ever.
+[00:34:02] Adam: Yeah, it it's a beautiful wrinkle, and Danson Danson makes the Danson does the turn. Yeah, I mean, there's a reason that he's like one of the greatest TV actors ever.
 
 [00:34:16] Will: So, is this a redemptive arc? Is this, are we going to see the redemption of you?
 
@@ -956,7 +956,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:34:33] Will: After After listening to you talk to Vince Gilligan about their writing process for Breaking Bad and like the way that they would intentionally dig themselves into holes and then have to figure their way out of it based on like keeping the rules of the world, it's made the way I watched it's completely changed the way I watch TV in a really positive way, and it makes me very excited to go back and watch this now.
 
-[00:34:51] Norm: The show sneaks up on you and is much deeper philosophically than you you know you would think a mainstream audience would want.
+[00:34:51] Norm: The show sneaks up on you and is much deeper philosophically than you know you would think a mainstream audience would want.
 
 [00:34:59] Will: Well, I mean,
 
@@ -964,7 +964,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:35:00] Will: Look, it's There's nuance, like you can make a show that you can make a movie that appeals to small children and to adults, and it works.
 
-[00:35:07] Norm: It's a show that you know cites Kant all the time, and and you know paradoxes,
+[00:35:07] Norm: It's a show that you know cites Kant all the time, and you know paradoxes,
 
 [00:35:12] Adam: all the moral philosophers.
 
@@ -972,11 +972,11 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:35:15] Will: Man, I want to go home and watch the okay.
 
-[00:35:17] Adam: Yeah, I, I still, I still have one episode left of the second season. I, I was watching them as they came out because I was so eager this this spring, or this year. Um, so I have one, I have the last season finale of season two.
+[00:35:17] Adam: Yeah, I, I still have one episode left of the second season. I was watching them as they came out because I was so eager this spring, or this year. So I have one, I have the last season finale of season two.
 
 [00:35:32] Will: Fascinating.
 
-[00:35:17] Adam: Yeah, very exciting, very exciting show. Really beautifully written, and holy hell, Ted Danson's amazing.
+[00:35:17] Adam: Yeah, very exciting show. Really beautifully written, and holy hell, Ted Danson's amazing.
 
 [00:35:38] Will: Ted Danson's always good. I didn't watch the cop show that he was in, but or the detective show, whatever
 
@@ -1022,9 +1022,9 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:36:53] Will: All right. So homework. Yeah, I'm going to read, reread Neuromancer.
 
-[00:36:57] Adam: I'm going to start it again. Yeah, absolutely. It's it's time.
+[00:36:57] Adam: I'm going to start it again. Yeah, absolutely. It's time.
 
-[00:37:00] Will: It's been it's been like look, the internet wasn't really a thing probably the last time I read Neuromancer. So here we are.
+[00:37:00] Will: It's been like look, the internet wasn't really a thing probably the last time I read Neuromancer. So here we are.
 
 [00:37:04] Adam: Count zero. Count zero is the one where the robot is making Joseph Joseph is making Joseph Cornell type sculptures in the satellite.
 
@@ -1032,7 +1032,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:37:04] Adam: That
 
-[00:37:15] Will: that. So my favorite thing about Bill Gibson novels is always his depiction of future art, like the like the description
+[00:37:15] Will: that. So my favorite thing about Bill Gibson novels is always his depiction of future art, like the description
 
 [00:37:22] Adam: of the sandbenders
 
@@ -1040,7 +1040,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:37:29] Adam: totally
 
-[00:37:29] Will: because we could put in a, a
+[00:37:29] Will: because we could put in a
 
 [00:37:30] Adam: as just to explain. Yeah. In one of the books, I can't remember which one it is. This
 
@@ -1060,7 +1060,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:37:48] Adam: Right. So this is these are laptops that they're using, and this one has like silver inlaid with turquoise and and semi precious stones, and it turns out to come from this American Native American. Compound in the Southwest called the Sandbenders that hand cast computer bodies for for putting in your components. And yes, I would love to make a sandbender computer body.
 
-[00:38:11] Will: So I've been thinking about how to cool, like a the ASICs now are small enough that you can you can put them into a thing that doesn't have any airflow or has minimal airflow, and it would be pretty easy to to do that with like a Raspberry Pi or something like that these days. Um, but but like the depiction of the footage, right? The found footage in in pattern recognition, I think the Cayce Pollard one is is fascinating. Like there's just these little clumps of footage, and people are trying to figure out what they mean. And there, it turns out there's just a neurodiverse person in Moscow. Oh, sorry, massive spoilers. Um, anyway, just read the book. It's really good pattern recognition. All of them are good. He has a new book coming out this fall. I got a note.
+[00:38:11] Will: So I've been thinking about how to cool, like a the ASICs now are small enough that you can put them into a thing that doesn't have any airflow or has minimal airflow, and it would be pretty easy to do that with like a Raspberry Pi or something like that these days. But like the depiction of the footage, right? The found footage in pattern recognition, I think the Cayce Pollard one is is fascinating. Like there's just these little clumps of footage, and people are trying to figure out what they mean. And there, it turns out there's just a neurodiverse person in Moscow. Oh, sorry, massive spoilers. Anyway, just read the book. It's really good pattern recognition. All of them are good. He has a new book coming out this fall. I got a note.
 
 [00:38:51] Adam: Does he really?
 

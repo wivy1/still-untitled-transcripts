@@ -56,13 +56,13 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:00:46] Will: Yeah,
 
-[00:00:46] Norm: you you you like have a different relationship with those characters and the way they connect to each other.
+[00:00:46] Norm: you like have a different relationship with those characters and the way they connect to each other.
 
-[00:00:54] Will: I I don't. What was it I used to say at the beginning of this? Is only a test that I said 400 times.
+[00:00:54] Will: I don't. What was it I used to say at the beginning of this? Is only a test that I said 400 times.
 
 [00:00:59] Norm: I don't remember.
 
-[00:01:00] Will: Yeah, it's it's gone now.
+[00:01:00] Will: Yeah, it's gone now.
 
 [00:01:02] Adam: It's really funny how your brain can wipe stuff like that that are so ingrained.
 
@@ -70,7 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:01:08] Will: Yeah,
 
-[00:01:08] Norm: every time, and and in my the desktop that is my head. The moment I know, I'm like every the mouse is hovering over objects, and like I just want to put in the recycle bin. Okay, I'm done in the recycle bin.
+[00:01:08] Norm: every time, and in my the desktop that is my head. The moment I know, I'm like every the mouse is hovering over objects, and like I just want to put in the recycle bin. Okay, I'm done in the recycle bin.
 
 [00:01:18] Will: And next Thursday rolls around. It's right back. I
 
@@ -96,13 +96,13 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:03:02] Unknown speaker (Will or Norm): Yeah,
 
-[00:03:02] Will: because it would be much harder to make it make it look the way it did before.
+[00:03:02] Will: because it would be much harder to make it look the way it did before.
 
 [00:03:05] Adam: That that tiny little drawing would have saved him a half a day on the other end.
 
 [00:03:09] Norm: Oh no.
 
-[00:03:11] Will: Well, so sometimes, like, so I have a box of hard drives in my garage.
+[00:03:11] Will: Well, so sometimes so I have a box of hard drives in my garage.
 
 [00:03:18] Adam: I do too.
 
@@ -130,7 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:04:10] Unknown speaker (Adam or Norm): Have you ever gone back? Yeah, you can’t just.
 
-[00:04:11] Will: No, never. I, in fact, actually at Maker Faire this year, I was really close. Patrick Norton and his friend Ed wanted to do a thermite meltdown of all the hard drives, right? And just stack them all up and pour thermite on them and just turn them into a pile of slag. And we couldn't get permission from the from the San Mateo Fire Department to do it as a display at Maker Faire because they didn't want to light the asphalt on fire again.
+[00:04:11] Will: No, never. I, in fact, actually at Maker Faire this year, I was really close. Patrick Norton and his friend Ed wanted to do a thermite meltdown of all the hard drives, right? And just stack them all up and pour thermite on them and just turn them into a pile of slag. And we couldn't get permission from the San Mateo Fire Department to do it as a display at Maker Faire because they didn't want to light the asphalt on fire again.
 
 [00:04:33] Adam: Yeah, that's a problem.
 
@@ -138,7 +138,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:04:36] Adam: just rent a trench plate.
 
-[00:04:36] Will: But now I'm back out. Now I'm now I'm I don't I don't think I can do it. I don't think I can get rid of the hard drive. I don't need them. The stuff on there is irrelevant at this point.
+[00:04:36] Will: But now I'm back out. Now I'm I don't think I can do it. I don't think I can get rid of the hard drive. I don't need them. The stuff on there is irrelevant at this point.
 
 [00:04:36] Adam: Yeah.
 
@@ -152,17 +152,17 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:05:23] Norm: with the cotton swab heads,
 
-[00:05:24] Will: the the monster arena at the end of the movie,
+[00:05:24] Will: the monster arena at the end of the movie,
 
 [00:05:26] Adam: exactly.
 
-[00:05:26] Norm: Oh, I was thinking the the racers, the podracers.
+[00:05:26] Norm: Oh, I was thinking the racers, the podracers.
 
-[00:05:30] Adam: No, no, no, episode one, episode two was the the all the Jedi fighting in the arena.
+[00:05:30] Adam: No, no, no, episode one, episode two was the all the Jedi fighting in the arena.
 
 [00:05:34] Will: Yeah, it's the J. J. Abrams monsters before J. J. Abrams,
 
-[00:05:36] Adam: sure, exactly. So I built my my friend Mark Siegel and I built the very first architectural model of that arena up at the ranch in the art department, and then the model shop took that and made a bigature. You know, it was like eight feet on eight feet in diameter, all beautifully, just absolutely gorgeous, incredible work. And I had just gotten the Canon Powershot 110.
+[00:05:36] Adam: sure, exactly. So I built my friend Mark Siegel and I built the very first architectural model of that arena up at the ranch in the art department, and then the model shop took that and made a bigature. You know, it was like eight feet on eight feet in diameter, all beautifully, just absolutely gorgeous, incredible work. And I had just gotten the Canon Powershot 110.
 
 [00:05:36] Will: Oh yeah,
 
@@ -170,13 +170,13 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:06:02] Will: 3 megapixel camera. Yeah,
 
-[00:06:04] Adam: dude, you know that was a masterpiece of of engineering and design, and it was precisely the size of a pack of cigarettes.
+[00:06:04] Adam: dude, you know that was a masterpiece of engineering and design, and it was precisely the size of a pack of cigarettes.
 
 [00:06:04] Norm: Digital ELPH,
 
 [00:06:04] Adam: completely on purpose, I'm sure.
 
-[00:06:14] Will: Oh, like the the I had the Pentax Optio S1 or something, which was
+[00:06:14] Will: Oh, like the I had the Pentax Optio S1 or something, which was
 
 [00:06:14] Adam: Same thing.
 
@@ -204,11 +204,11 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:06:54] Norm: unleash a virus circa 1999.
 
-[00:06:57] Will: One of the things that I did that I'm really happy with is I went through all of like the the more recent hard drives, all the SATA drives, and pulled. Like I just asterisk dot jpeg and asterisk dot png and pulled all the images off of them and chucked them in Google Photos.
+[00:06:57] Will: One of the things that I did that I'm really happy with is I went through all of like the more recent hard drives, all the SATA drives, and pulled. Like I just asterisk dot jpeg and asterisk dot png and pulled all the images off of them and chucked them in Google Photos.
 
 [00:07:10] Norm: [unclear: All your PDF / All your TPH] downloads.
 
-[00:07:10] Will: Hey, mm hmm. Yeah. no, I didn't do that special folder, Norm. But yeah, it's it's it's amazing because it Google Photos pulls the EXIF data,
+[00:07:10] Will: Hey, mm hmm. Yeah. no, I didn't do that special folder, Norm. But yeah, it's amazing because it Google Photos pulls the EXIF data,
 
 [00:07:12] Adam: right?
 
@@ -224,13 +224,13 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:07:46] Adam: Fascinating.
 
-[00:07:46] Will: Um, and yeah, it's it's it's neat. It's it's fun stuff. Like it was hard to back up in the late '90s, early 2000s.
+[00:07:46] Will: And yeah, it's neat. It's fun stuff. Like it was hard to back up in the late '90s, early 2000s.
 
 [00:07:52] Adam: had to really be committed.
 
 [00:07:53] Will: Yeah.
 
-[00:07:54] Adam: Um. So I just I was in L. A. Last week.
+[00:07:54] Adam: So I just I was in L. A. Last week.
 
 [00:07:57] Will: Yeah,
 
@@ -240,7 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:08:35] Norm: Is it similar to the upfronts where there's a stage and then you can sit in the stage?
 
-[00:08:39] Adam: Yeah. So actually, everybody can picture the stage we were on because it's the room in which the Golden Globes happen. Oh, this is this is the this is the Beverly Hilton. It's actually a fairly small room when you consider the the crazy volume of famous people that have been drunk in that room.
+[00:08:39] Adam: Yeah. So actually, everybody can picture the stage we were on because it's the room in which the Golden Globes happen. Oh, this is the Beverly Hilton. It's actually a fairly small room when you consider the crazy volume of famous people that have been drunk in that room.
 
 [00:08:55] Will: Yeah, I was going to say, somebody hammered at this too, or not so much.
 
@@ -250,13 +250,13 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:09:01] Adam: But so we get to the also the Beverly Hilton is one of my favorite hotels. Yeah. Great old Hollywood. Yeah, it’s not quite cool. Just I love that hotel.
 
-[00:09:09] Will: It's a it's a weird hotel.
+[00:09:09] Will: It's a weird hotel.
 
 [00:09:11] Norm: Great sign. Yep.
 
 [00:09:12] Will: Yeah.
 
-[00:09:13] Adam: Um, they get a good pool, good burger down by the pool, good food.
+[00:09:13] Adam: They get a good pool, good burger down by the pool, good food.
 
 [00:09:16] Will: Yeah. Like you, like if you get a call, I always wanted to get a call at the pool, so somebody will bring a wired phone out to you.
 
@@ -268,17 +268,17 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:09:25] Norm: Oh man.
 
-[00:09:25] Adam: Um, but uh, it was so awesome. The the the, I keep wanting to say kids, and I get they are kids. They're MythBusters. They they did spectacularly.
+[00:09:25] Adam: But it was so awesome. The, I keep wanting to say kids, and I get they are kids. They're MythBusters. They did spectacularly.
 
 [00:09:37] Will: Did you do like a did you do a demo on stage with them?
 
-[00:09:40] Adam: No, no, no, no, no. Okay. Uh, we just sat on stage, took some questions. We showed a we showed a trailer that Discovery cut for the show, just sort of like you know a commercial. Uh, and that was great because most of them hadn't seen any footage from the show, and some of it was like from like three days before.
+[00:09:40] Adam: No, no, no, no, no. Okay. We just sat on stage, took some questions. We showed a trailer that Discovery cut for the show, just sort of like you know a commercial. And that was great because most of them hadn't seen any footage from the show, and some of it was like from like three days before.
 
 [00:09:40] Norm: Oh wow!
 
 [00:09:40] Will: Oh wow!
 
-[00:09:40] Adam: That's how that's how up to the minute this was, uh, and. Several reporters asked questions of each kid. Like, okay, down the line, telling you this, this, this, and again, they were they were fantastic. They spoke in sound bites.
+[00:09:40] Adam: That's how up to the minute this was and. Several reporters asked questions of each kid. Like, okay, down the line, telling you this, and again, they were fantastic. They spoke in sound bites.
 
 [00:10:10] Unknown speaker (Will or Adam): Oh, that’s so good.
 
@@ -320,13 +320,13 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:11:55] Adam: Yeah,
 
-[00:11:55] Will: I mean, they're they're small. They're kids.
+[00:11:55] Will: I mean, they're small. They're kids.
 
 [00:11:55] Adam: Yeah,
 
 [00:11:55] Will: and it's a lot. It is a lot.
 
-[00:12:00] Adam: It's a lot. Their personalities are still forming. All the myelination is still happening in their brains, and you know our culture is so fame obsessed. Yeah, you know, it's it's it's a complicated soup of stuff that goes on, and I'm you know we are all on the production working really hard to contextualize this as just it's just a thing you're doing for the summer. It's it's I hate it when Simon Cowell. Did I say this already?
+[00:12:00] Adam: It's a lot. Their personalities are still forming. All the myelination is still happening in their brains, and you know our culture is so fame obsessed. Yeah it's a complicated soup of stuff that goes on, and I'm you know we are all on the production working really hard to contextualize this as just it's just a thing you're doing for the summer. It's I hate it when Simon Cowell. Did I say this already?
 
 [00:12:00] Norm: No,
 
@@ -342,9 +342,9 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:12:41] Norm: Yeah,
 
-[00:12:41] Adam: it's it's a fork in the road.
+[00:12:41] Adam: it's a fork in the road.
 
-[00:12:45] Will: Well, there there are decisions,
+[00:12:45] Will: Well, there are decisions,
 
 [00:12:45] Adam: sure,
 
@@ -354,7 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:12:55] Adam: Actually, or
 
-[00:12:56] Norm: your your spouse are even giving birth.
+[00:12:56] Norm: your spouse are even giving birth.
 
 [00:12:58] Will: That's one of the moments.
 
@@ -362,9 +362,9 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:13:00] Will: Yeah, but there's no decision there. You just you're just hoping everything goes well, and there to wave the flag, man.
 
-[00:13:05] Adam: This is um, so this is actually one of my favorite quotes. There's a book called Letters to a Young Poet, Rainer Maria Rilke, the poet. This is early 20th century, I think. Like, yeah, very early 20th century. He was reached out to by a young poet for advice, and they corresponded. And there's a book of I think 20 of Rilke's letters to the young poet, and they're amazing.
+[00:13:05] Adam: This is so this is actually one of my favorite quotes. There's a book called Letters to a Young Poet, Rainer Maria Rilke, the poet. This is early 20th century, I think. Like, yeah, very early 20th century. He was reached out to by a young poet for advice, and they corresponded. And there's a book of I think 20 of Rilke's letters to the young poet, and they're amazing.
 
-[00:13:30] Will: But that's that's awesome.
+[00:13:30] Will: But that's awesome.
 
 [00:13:32] Adam: He's incredibly generous, and at one point, his correspondent is saying that he's very sad about this thing that happened, and it was difficult. And Rilke makes this wonderful thing, which has been a guiding light for me ever since I read it, and it is. He says, " It is really vital. I'm going to butcher this quote." And there's multiple translations of Rilke, but the one there's a cover which I'll make sure we post below. That is my favorite translation of this book, and it's to me, it's I've read them all, and it's really important that you get this translation
 
@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:15:36] Will: If you blow it, then I'm going to have to go and be back on that other talent show back in the U.K.
 
-[00:15:42] Adam: I I I got to. There was a season. With Kristen Bowersox, the American Idol season with the Kristen Bowersox was one was the season that my kids and my wife and I all watched religiously, and I managed to get tickets to the finale.
+[00:15:42] Adam: I got to. There was a season. With Kristen Bowersox, the American Idol season with the Kristen Bowersox was one was the season that my kids and my wife and I all watched religiously, and I managed to get tickets to the finale.
 
 [00:15:42] Will: Oh, nice! You went to a finale of an American Idol.
 
@@ -396,7 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:16:13] Norm: I was primed. I was there. Yeah, first season of American Idol, Justin Kelly. [unclear: I was Luke Selvion / bluecellvision].
 
-[00:16:19] Will: Okay, I didn't know if you were like if you were like off
+[00:16:19] Will: Okay, I didn't know if you were like off
 
 [00:16:23] Norm: Season one Survivor.
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:16:25] Adam: Lee DeWyze is the name of the guy who won that year. I'm remembering Kristen Bowersox because I think I they were both amazing. Yeah, and I slightly preferred her, but he won because teenage girls.
 
-[00:16:35] Will: Well, so the thing the thing about the thing about American Idol back then I don't think American Idol's even on anymore. But the thing about American Idol back then
+[00:16:35] Will: Well, so the thing about American Idol back then I don't think American Idol's even on anymore. But the thing about American Idol back then
 
 [00:16:41] Adam: it just came back.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:16:57] Adam: Right.
 
-[00:16:42] Will: and everybody watched American. It's it's music that none of them would have admitted to listening to, but the the drama of watching those people judge those kids and and the kids come out and belt it out, sometimes fall on their faces, was such that people couldn't look away.
+[00:16:42] Will: and everybody watched American. It's music that none of them would have admitted to listening to, but the drama of watching those people judge those kids and the kids come out and belt it out, sometimes fall on their faces, was such that people couldn't look away.
 
 [00:17:12] Adam: Yeah,
 
@@ -432,7 +432,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:17:22] Will: Okay.
 
-[00:17:22] Adam: Um, it's something around there, at any rate. Um, what happened? We we staged this entire. Charade, where we knew the season finale was the following week. What what night did American Idol air on?
+[00:17:22] Adam: It's something around there, at any rate. What happened? We staged this entire. Charade, where we knew the season finale was the following week. What night did American Idol air on?
 
 [00:17:49] Will: Thursday, right?
 
@@ -474,9 +474,9 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:18:50] Will: yeah. The Nokia is where we went to your show. You were you performed there.
 
-[00:18:52] Adam: Yeah, but they they they blocked off a good portion of it, so we didn't have to fill 8,000 seats. That was very very nice of them. So we're at the Biltmore and we're hanging out, and the afternoon comes, and the finale doesn't air for two hours, so we're just walking downtown looking for shoes for thing one.
+[00:18:52] Adam: Yeah, but they blocked off a good portion of it, so we didn't have to fill 8,000 seats. That was very very nice of them. So we're at the Biltmore and we're hanging out, and the afternoon comes, and the finale doesn't air for two hours, so we're just walking downtown looking for shoes for thing one.
 
-[00:19:13] Norm: It was it was live. It was live.
+[00:19:13] Norm: It was live. It was live.
 
 [00:19:15] Adam: Yeah. And thing two looks over and goes, Dad, Julia, I think that's the line for American Idol, and I was like, Oh my god, you're right! Holy cow!
 
@@ -522,7 +522,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:20:18] Norm: So, what I'm talking about is I got obsessed yesterday with this list the Ringer put out, where their editorial team compiled the best 100 episodes of television, most important episodes of television, for one reason or another. And you can qualify those in all sorts of ways, from favorites to greatest to impactful in the history of television. Right, television being at this. Point
 
-[00:20:40] Will: like the one, the one, the most watched episode, or yeah,
+[00:20:40] Will: like the one, the most watched episode, or yeah,
 
 [00:20:42] Norm: right, right, over six years old.
 
@@ -576,15 +576,15 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:22:01] Will: Yeah.
 
-[00:22:01] Norm: yeah, yeah. But with the with enough preparation, the the the basis.
+[00:22:01] Norm: yeah, yeah. But with the with enough preparation, the basis.
 
-[00:22:05] Adam: The first person I want on the team is Will Wheaton. I don't know. I like. I feel like he has this wonderful encyclopedic memory and a tremendous gut. Like Will's gut reaction to stuff is always like a hot take that I want to know about.
+[00:22:05] Adam: The first person I want on the team is Will Wheaton. I don't know. I. I feel like he has this wonderful encyclopedic memory and a tremendous gut. Like Will's gut reaction to stuff is always like a hot take that I want to know about.
 
-[00:22:19] Will: So, so you have to have somebody who's willing to traffic cop, right? Right. Somebody who's who's willing to cut somebody off if they're talking too much, if they're if they're commanding the conversation. You need a
+[00:22:19] Will: So, so you have to have somebody who's willing to traffic cop, right? Right. Somebody who's who's willing to cut somebody off if they're talking too much, if they're commanding the conversation. You need a
 
 [00:22:28] Adam: moderator that can move it along. Absolutely,
 
-[00:22:30] Will: you need you need somebody with deep knowledge.
+[00:22:30] Will: you need somebody with deep knowledge.
 
 [00:22:32] Adam: So clearly, John Hodgman should moderate this panel.
 
@@ -594,9 +594,9 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:22:35] Norm: entertainment value.
 
-[00:22:40] Adam: That was that was the loveliest thing about becoming friends with Hodgman was I remember him and my wife and I eating at a restaurant, and towards the end of the meal, all three of us were like, " It's delightful to to spend time with someone who takes television as seriously as we do."
+[00:22:40] Adam: That was the loveliest thing about becoming friends with Hodgman was I remember him and my wife and I eating at a restaurant, and towards the end of the meal, all three of us were like, " It's delightful to to spend time with someone who takes television as seriously as we do."
 
-[00:22:55] Will: Wow. Well, so then you also need somebody who's willing to [unclear: start the pop / 13 years ago] You need somebody who's going to be kind of a pain in the ass and who's going to make the the principal decision. Yeah,
+[00:22:55] Will: Wow. Well, so then you also need somebody who's willing to [unclear: start the pop / 13 years ago] You need somebody who's going to be kind of a pain in the ass and who's going to make the principal decision. Yeah,
 
 [00:23:05] Adam: you you need a couple of you. I I think you'd want a couple of like really professional critics.
 
@@ -604,7 +604,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:23:05] Adam: people who write constantly about this. Somebody from Deadline or something like that,
 
-[00:23:14] Will: or somebody who has like like. Karina Longworth would be great for film if you're doing film stuff.
+[00:23:14] Will: or somebody who has like. Karina Longworth would be great for film if you're doing film stuff.
 
 [00:23:20] Adam: Oh my god! Yeah, totally.
 
@@ -614,13 +614,13 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:23:24] Norm: Yeah, Patton Oswalt I think would fit in there.
 
-[00:23:26] Adam: Oh yeah, yeah, yeah. Oh my gosh! This is this is this is this is a nifty idea. I want to pitch this
+[00:23:26] Adam: Oh yeah, yeah, yeah. Oh my gosh! This is a nifty idea. I want to pitch this
 
-[00:23:33] Will: patent pending. You know, do something. Nobody else can steal this idea.
+[00:23:33] Will: patent pending. Do something. Nobody else can steal this idea.
 
 [00:23:37] Adam: Okay, so okay, what's the list?
 
-[00:23:39] Norm: All right, top 10 list. Number one, and and
+[00:23:39] Norm: All right, top 10 list. Number one, and
 
 [00:23:41] Will: oh, should we guess what the first one is first?
 
@@ -642,7 +642,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:24:05] Unknown speaker (Adam or Norm): Yes.
 
-[00:24:05] Adam: Spoiler. That is that is
+[00:24:05] Adam: Spoiler. That is
 
 [00:24:15] Norm: it is the big
 
@@ -692,7 +692,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:25:31] Will: I mean, you could argue that 90210 did that. 10 years, 15 years before,
 
-[00:25:34] Norm: and then the OC begat, you know, Laguna Beach begat the Kardashians.
+[00:25:34] Norm: and then the OC begat Laguna Beach begat the Kardashians.
 
 [00:25:38] Unknown speaker (Adam or Will): The OC was the second breath of more than anything. Yeah, it
 
@@ -702,7 +702,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:25:41] Adam: right. Like that was
 
-[00:25:45] Will: it's the Aaron Spelling, Aaron Spelling teen drama. But but but they didn't do it. It wasn't saccharin. They did really good music, like shockingly good music for the time.
+[00:25:45] Will: it's the Aaron Spelling teen drama. But they didn't do it. It wasn't saccharin. They did really good music, like shockingly good music for the time.
 
 [00:25:56] Norm: And I think it was one of the first that had those the music highly integrated, the pop music.
 
@@ -756,11 +756,11 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:26:56] Norm: and just like the Lost finale.
 
-[00:27:00] Will: So, like the the idea of the capsule episode being the one that they pick is really interesting. Because, like, I think my favorite like TNG episode is the Lower Decks one, where they didn't have production budget for an episode. They just took four they took four relatively unknown actors and put them in second.
+[00:27:00] Will: So, like the idea of the capsule episode being the one that they pick is really interesting. Because I think my favorite like TNG episode is the Lower Decks one, where they didn't have production budget for an episode. They just took four they took four relatively unknown actors and put them in second.
 
 [00:27:14] Adam: Oh, I don't remember this one.
 
-[00:27:15] Will: So they they they focused on people who work. Yeah, it's like red shirts, yeah, basically. They focus on people who work work in different parts of the ship, and it's very good.
+[00:27:15] Will: So they focused on people who work. Yeah, it's like red shirts, yeah, basically. They focus on people who work work in different parts of the ship, and it's very good.
 
 [00:27:22] Adam: When is Redshirts being made into a movie? John Scalzi.
 
@@ -768,7 +768,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:27:27] Norm: The last thing I heard
 
-[00:27:28] Will: it's it's it's super hard sci-fi.
+[00:27:28] Will: it's super hard sci-fi.
 
 [00:27:30] Adam: Glad he's got a new one because I went through all of his. Everything a couple summers ago.
 
@@ -780,7 +780,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:27:40] Adam: Yeah, oh, WorldCon's in San Jose.
 
-[00:27:41] Norm: It's in San Jose. It's traveling around the world, made its way into San Jose. The Hugo Awards will be there. You know, it's a nerdy ass, nerdy convention.
+[00:27:41] Norm: It's in San Jose. It's traveling around the world, made its way into San Jose. The Hugo Awards will be there. It's a nerdy ass, nerdy convention.
 
 [00:27:50] Adam: Yeah, fascinating. Yeah. Oh, when is it?
 
@@ -820,11 +820,11 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:28:26] Will: She says that to him.
 
-[00:28:27] Norm: and she they they. They transcribe out the Sue Hawk speech, the monologue she gives, and I remember watching this on television and reading it gave me chills because this was live. It's a guy on the campfire, yeah, and she does this intense, like, bitter monologue against Richard Hatch
+[00:28:27] Norm: and she they. They transcribe out the Sue Hawk speech, the monologue she gives, and I remember watching this on television and reading it gave me chills because this was live. It's a guy on the campfire, yeah, and she does this intense bitter monologue against Richard Hatch
 
 [00:28:44] Adam: about how he double crossed her,
 
-[00:28:46] Norm: right? About like you know, like she. This is about Mother Nature, and you're the snake, and you went after the prey, and at the end, it's about the snake eating the rat, and like, and it's all [unclear: exuberantius / superannious], and
+[00:28:46] Norm: right? About like like she. This is about Mother Nature, and you're the snake, and you went after the prey, and at the end, it's about the snake eating the rat, and like, and it's all [unclear: exuberantius / superannious] and
 
 [00:28:58] Will: it's so like that show has has drafted on that moment for 20 years,
 
@@ -856,7 +856,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:30:00] Will: I know. I know.
 
-[00:30:02] Norm: It's it's the big stringer bell moment. Is all I'll say. I won't spoil it for you. This Idris Elba, one of his most iconic roles, a stringer bell, the drug dealer in The Wire, and it's him coming to confrontation with Omar, who's the other big character.
+[00:30:02] Norm: It's the big stringer bell moment. Is all I'll say. I won't spoil it for you. This Idris Elba, one of his most iconic roles, a stringer bell, the drug dealer in The Wire, and it's him coming to confrontation with Omar, who's the other big character.
 
 [00:30:18] Will: This is season three.
 
@@ -884,7 +884,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:30:32] Norm: and the right moment in time, and with internet,
 
-[00:30:39] Adam: when the the last time we saw him do stand up, he was like, " Man, that sketch has just ruined my life." He's like, " I walk down the street with my kids, and people keep calling. Maybe you could refrain from calling me bitch in front of my kids."
+[00:30:39] Adam: when the last time we saw him do stand up, he was like, " Man, that sketch has just ruined my life." He's like, " I walk down the street with my kids, and people keep calling. Maybe you could refrain from calling me bitch in front of my kids."
 
 [00:30:52] Will: Yeah, it's like the Eddie Murphy bit when he when he starts at the beginning of I can't remember which of the of the stand up specials, but he's like, " If you expect me to put on the buckwheat win, you are going to be really disappointed." Take your kids and get the fuck out right now.
 
@@ -908,19 +908,19 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:31:56] Will: Which one is that?
 
-[00:31:56] Norm: The Cary Fukunaga. I mean, he directed the whole season, but it's the the
+[00:31:56] Norm: The Cary Fukunaga. I mean, he directed the whole season, but it's the
 
 [00:31:59] Will: tracking shot.
 
 [00:31:59] Norm: Yeah, that one's unbelievable.
 
-[00:32:02] Will: Which which True Detective season one?
+[00:32:02] Will: Which True Detective season one?
 
 [00:32:04] Adam: Yeah, no, I know.
 
 [00:32:05] Will: Biker gang.
 
-[00:32:05] Norm: It's the one where they go into the into like the the the the projects,
+[00:32:05] Norm: It's the one where they go into the into like the projects,
 
 [00:32:10] Adam: Ah, okay.
 
@@ -982,7 +982,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:33:39] Will: going to be the episode? Oh, yeah, this is
 
-[00:33:41] Norm: the episode. That's the reason, right? You have this incredible fan base that withheld and and it wouldn't exist today.
+[00:33:41] Norm: the episode. That's the reason, right? You have this incredible fan base that withheld and it wouldn't exist today.
 
 [00:33:48] Adam: So they're talking
 
@@ -994,7 +994,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:34:01] Will: the Joanie and Chachi's wedding of this generation.
 
-[00:34:04] Norm: Number two is Mad Men. So, Adam, do you want to guess which episode? Which one would you would you identify?
+[00:34:04] Norm: Number two is Mad Men. So, Adam, do you want to guess which episode? Which one would you identify?
 
 [00:34:10] Adam: Let's just say if it's not the finale,
 
@@ -1008,7 +1008,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:34:21] Adam: one of my favorite episodes is where Bobby, the comedian's wife, and Don get in a car accident, and Elisabeth Moss takes care of her. That's some of the best writing, acting that I can think of in that show.
 
-[00:34:35] Will: Oh, is it? Is it the one where Elisabeth Moss and and and Jon Hamm
+[00:34:35] Will: Oh, is it? Is it the one where Elisabeth Moss and Jon Hamm
 
 [00:34:35] Adam: Have the fight?
 
@@ -1030,9 +1030,9 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:34:54] Norm: and also, it's when they're working late. It's also well, the death of the original John Draper's wife.
 
-[00:35:01] Will: Right. Well, and she misses something important too. Isn't isn't she missing like her like her boyfriend's over for dinner or something? Like there's an important thing. Her family's riding her ass because they want her to be there for something important. She's like, I have to work. I'm a working. That's what I do.
+[00:35:01] Will: Right. Well, and she misses something important too. Isn't isn't she missing like her boyfriend's over for dinner or something? Like there's an important thing. Her family's riding her ass because they want her to be there for something important. She's like, I have to work. I'm a working. That's what I do.
 
-[00:35:13] Adam: I'll tell you something really. I met I met a friend of a friend of mine directed that episode.
+[00:35:13] Adam: I'll tell you something really. I met a friend of mine directed that episode.
 
 [00:35:13] Norm: Okay.
 
@@ -1044,11 +1044,11 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:35:42] Norm: And that that whole episode is just putting them in the room.
 
-[00:35:44] Will: It's a capsule episode again. It's like it's it's and it's the essence of what that show is: is this relationship between these two people? And
+[00:35:44] Will: It's a capsule episode again. It's like it's and it's the essence of what that show is: is this relationship between these two people? And
 
 [00:35:51] Adam: the two of them are so amazing. I mean, the two of them are so incredible, and also getting to watch there is like three different scenes throughout the series between Don and Joan, like the two alpha sharks just talking to each other, and it's just. But that that episode of Suitcases,
 
-[00:36:11] Will: the episode when she's negotiating the the transaction with was it the car dealer when when when when he's like don't when he tells her not to sleep with the car dealer, and he she already has. That's
+[00:36:11] Will: the episode when she's negotiating the transaction with was it the car dealer when he's like don't when he tells her not to sleep with the car dealer, and he she already has. That's
 
 [00:36:23] Norm: brutal. Oh yeah,
 
@@ -1060,7 +1060,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:36:25] Norm: she. Yeah,
 
-[00:36:26] Adam: that that that freshly made me angry. Oh my god, that whole business. Joan really, and I was sad that Bruce Greenwood didn't understand Joan's need to make her own way. I I thought he was a shitbird for leaving at the end. Spoiler,
+[00:36:26] Adam: that that that freshly made me angry. Oh my god, that whole business. Joan really, and I was sad that Bruce Greenwood didn't understand Joan's need to make her own way. I thought he was a shitbird for leaving at the end. Spoiler,
 
 [00:36:41] Will: yeah.
 
@@ -1082,7 +1082,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:36:51] Will: pilot is it the one where they just did a lot of stuff and then nothing happened in the end. It's
 
-[00:36:55] Adam: not. It's not the [unclear: Paco line / Paco lied]. That this is the the the there's one bad capsule episode from the first season. [unclear: Paolo lied]. No, it's terrible. It's not a great one.
+[00:36:55] Adam: not. It's not the [unclear: Paco line / Paco lied] That this is the there's one bad capsule episode from the first season. [unclear: Paolo lied] No, it's terrible. It's not a great one.
 
 [00:37:06] Norm: It's the constant with Desmond and Penny. Yeah, and the time traveling episode.
 
@@ -1098,7 +1098,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:37:20] Adam: It's such a crazy solid pilot.
 
-[00:37:22] Will: It's it's it's the. I only watched the first season of Lost, and then I was like, nope. Oh, which makes me—I know a bad person. You
+[00:37:22] Will: It's the. I only watched the first season of Lost, and then I was like, nope. Oh, which makes me—I know a bad person. You
 
 [00:37:29] Adam: have a lot to look forward to.
 
@@ -1126,9 +1126,9 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:38:01] Adam: they watchable when you do that?
 
-[00:38:02] Will: I don't, I don't know, but like, yeah, I would watch a fan. I would watch a fan edit of like the the 20 episodes of Lost that I need to see. Anyway,
+[00:38:02] Will: I don't know, but like, yeah, I would watch a fan. I would watch a fan edit of like the 20 episodes of Lost that I need to see. Anyway,
 
-[00:38:12] Adam: probably more than 20. Actually, more than 20. Okay, but it's stunning. It's stunning. It's and there are some, yeah, there are some really magical and amazing things moments in that in that series that I still treasure. Yeah. Okay,
+[00:38:12] Adam: probably more than 20. Actually, more than 20. Okay, but it's stunning. It's stunning. It's and there are some, yeah, there are some really magical and amazing things moments in that series that I still treasure. Yeah. Okay,
 
 [00:38:25] Will: so what? What? And
 
@@ -1140,7 +1140,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:38:34] Will: pilots.
 
-[00:38:35] Norm: Oh yeah, yeah, yeah. I gotta and we find that list. It's it's on The Ringer. The great thing is they have like audio clips and video clips of the episodes to trigger your memory.
+[00:38:35] Norm: Oh yeah, yeah, yeah. I gotta and we find that list. It's on The Ringer. The great thing is they have like audio clips and video clips of the episodes to trigger your memory.
 
 [00:38:43] Adam: Oh nice
 
@@ -1166,7 +1166,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:39:12] Will: anything Mary Tyler Moore show
 
-[00:39:14] Adam: or the the the Happy Days racism episode.
+[00:39:14] Adam: or the Happy Days racism episode.
 
 [00:39:17] Norm: No, not not there.
 
@@ -1200,13 +1200,13 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:40:09] Adam: It is has a achiever level of perfection as a short story.
 
-[00:40:13] Norm: And and you know what? I'm sorry, it was in the title thing all along. My mind always is in the 20th century. These are all 21st century. All since 2000.
+[00:40:13] Norm: And you know what? I'm sorry, it was in the title thing all along. My mind always is in the 20th century. These are all 21st century. All since 2000.
 
 [00:40:13] Adam: Oh,
 
 [00:40:13] Norm: yeah. So which really narrows.
 
-[00:40:23] Will: Oh, well, that narrows the scope. So then, so then there's your lead. It's the history of television. You got to do them all. Yeah. There
+[00:40:23] Will: Oh, well, that narrows the scope. So then there's your lead. It's the history of television. You got to do them all. Yeah. There
 
 [00:40:30] Norm: you go. Yeah. Now, now we have the challenge.
 
@@ -1222,7 +1222,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:40:55] Norm: Yeah.
 
-[00:40:47] Adam: and that would be part of the the cool thing is both listening to them and shutting them out because you've got to. Anyone who's
+[00:40:47] Adam: and that would be part of the cool thing is both listening to them and shutting them out because you've got to. Anyone who's
 
 [00:41:03] Norm: done that kind of list before, at the end of it, even when you think you've placed everything, you take one step back and you realize, uh oh, it's just backwards. Something's wrong.
 
@@ -1266,7 +1266,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:42:25] Norm: Oh yeah.
 
-[00:42:28] Will: Um. Look, I. I would watch that conversation. People would. People would like that. The if you give it, if you give it the room to breathe, people will like the conversation will be fascinating. And you break it up into a like a 10-episode podcast series.
+[00:42:28] Will: Look, I. I would watch that conversation. People would. People would like that. The if you give it the room to breathe, people will like the conversation will be fascinating. And you break it up into a like a 10-episode podcast series.
 
 [00:42:42] Adam: Wow, I'm going to think about it. I'm slightly overwhelmed by the idea, but it sounds really cool.
 
@@ -1274,7 +1274,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:42:47] Norm: just
 
-[00:42:48] Will: think of how broken you'll be by the end of that, and and the kind of weird shit everybody will be excited about at the end of the list.
+[00:42:48] Will: think of how broken you'll be by the end of that, and the kind of weird shit everybody will be excited about at the end of the list.
 
 [00:42:53] Norm: I'm gonna add to the list of ideas have come up on Still Untitled that we are still developing.
 
@@ -1320,11 +1320,11 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:43:56] Adam: Yeah.
 
-[00:43:56] Norm: Yeah. War one. He's he's.
+[00:43:56] Norm: Yeah. War one. He's.
 
-[00:43:58] Will: I I still like the the the surprising pairings. You know the the movies that are surprising pairings. So like Deep Impact and Armageddon, but like I don't know the Core and Armageddon. That's those are bad examples, but you know what I mean. When you take like two movies that are related, but it's kind of like you have to figure out what the connection is.
+[00:43:58] Will: I still like the surprising pairings. You know the movies that are surprising pairings. So like Deep Impact and Armageddon, but like I don't know the Core and Armageddon. That's those are bad examples, but you know what I mean. When you take like two movies that are related, but it's kind of like you have to figure out what the connection is.
 
-[00:44:17] Norm: Absolutely. You know, I heard recently as as a good pairing is Lost in Translation and Her.
+[00:44:17] Norm: Absolutely. I heard recently as a good pairing is Lost in Translation and Her.
 
 [00:44:23] Will: Oh yeah, that would be great.
 
@@ -1340,7 +1340,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:44:31] Will: Oh, fascinating. Yeah. That's a good one.
 
-[00:44:32] Adam: Um. Oh, that's really cool. I had another thought, and it totally left because that idea was really nifty. Yeah. Um. The odd pairings. No, I lost it.
+[00:44:32] Adam: Oh, that's really cool. I had another thought, and it totally left because that idea was really nifty. Yeah. The odd pairings. No, I lost it.
 
 [00:44:42] Will: God, I had I used to have a I have a list of good ones someplace I can't remember what they are I think I have them in my head.
 

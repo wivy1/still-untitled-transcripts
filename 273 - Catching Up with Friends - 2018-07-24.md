@@ -16,7 +16,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:00:12] Adam: Now that you've had your upgrade.
 
-[00:00:14] Simone: Yeah. I mean, it was. I feel like in some way was a downgrade. I feel a little bit shittier than I was before, but still, I have titanium plates and mesh and screws, and I mean, I have emergency hardware in case I'm in in the situation where I really need some screws. I can just pop them out of my head.
+[00:00:14] Simone: Yeah. I mean, it was. I feel like in some way was a downgrade. I feel a little bit shittier than I was before, but still, I have titanium plates and mesh and screws, and I mean, I have emergency hardware in case I'm in the situation where I really need some screws. I can just pop them out of my head.
 
 [00:00:14] Adam: Wow.
 
@@ -34,7 +34,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:00:45] Adam: I. It's months.
 
-[00:00:46] Norm: Months. It definitely it's been months since before Adam started production on on Junior.
+[00:00:46] Norm: Months. It definitely it's been months since before Adam started production on Junior.
 
 [00:00:51] Adam: Right. That's two months ago. Yeah.
 
@@ -62,9 +62,9 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:01:11] Simone: Pull it out of there. Yeah.
 
-[00:01:19] Norm: It occurs to me now that we probably it was it was a mad rush packing for this, but that's something we could have packed because as we're recording this today is on the 20th. That's 49th anniversary of the moon landing.
+[00:01:19] Norm: It occurs to me now that we probably it was a mad rush packing for this, but that's something we could have packed because as we're recording this today is on the 20th. That's 49th anniversary of the moon landing.
 
-[00:01:32] Adam: The moon landing. Um, and and uh, I totally forgot what I was going to say. I had a... I actually had a point, and I totally lost it. Sorry,
+[00:01:32] Adam: The moon landing. And I totally forgot what I was going to say. I had a... I actually had a point, and I totally lost it. Sorry,
 
 [00:01:41] Simone: We were talking about sweat.
 
@@ -82,19 +82,19 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:02:13] Simone: Adam, are you okay? Do you need a glass of water?
 
-[00:02:15] Adam: I only got four and a half hours of sleep and a nap somewhere in the middle. But again, like, not only did I get to see all the people that I love here at Comic Con, and they came in many different shifts and waves, but also they brought friends, and I got to introduce you and Diana last night to my friend astronaut Cady Coleman.
+[00:02:15] Adam: I only got four and a half hours of sleep and a nap somewhere in the middle. But again not only did I get to see all the people that I love here at Comic Con, and they came in many different shifts and waves, but also they brought friends, and I got to introduce you and Diana last night to my friend astronaut Cady Coleman.
 
-[00:02:33] Simone: Yeah, she was. I don't know. I never. I mean, I don't let myself get starstruck very often, except for when it comes to astronauts. I just have this. I, I just, you know, you get that feeling when you're like, if you started a cult, I would join it in a second. Like, here's my application. Because they're just such, I don't know. They're just great people.
+[00:02:33] Simone: Yeah, she was. I don't know. I never. I mean, I don't let myself get starstruck very often, except for when it comes to astronauts. I just have this. I just you get that feeling when you're like, if you started a cult, I would join it in a second. Like, here's my application. Because they're just such, I don't know. They're just great people.
 
 [00:02:55] Adam: There's a grace and a quietude to all the astronauts that I have met and am friends with that I find really remarkable.
 
 [00:03:03] Simone: Because they have every opportunity to not be humble. And they are all very humble.
 
-[00:03:07] Norm: they are the most the most humble people
+[00:03:07] Norm: they are the most humble people
 
 [00:03:09] Simone: humble by choice
 
-[00:03:10] Norm: yeah uh huh and they know their importance their place in in history
+[00:03:10] Norm: yeah uh huh and they know their importance their place in history
 
 [00:03:10] Adam: yeah
 
@@ -110,11 +110,11 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:03:44] Simone: Yeah.
 
-[00:03:44] Norm: not just at conventions  hang out it's uh it's it's like a fraternity
+[00:03:44] Norm: not just at conventions hang out it's like a fraternity
 
 [00:03:52] Adam: I think that that's exactly what it is I think that I I don't think that Chris is interested in becoming the greatest guitarist in the world I think he's really interested in the personal exploration and the social aspect of music I mean actually haven't spoken to him about it so I'm speaking for him without Without knowing his stance on it, but given how much I know he values community and working with the people around him, it strikes me that he exhibits that value with the desire to play music with his friends.
 
-[00:04:18] Simone: But I feel like they're also—they must have. That was one of the things we talked to to Cady about. Just because they must share so many random issues, and like meeting as an astronaut, meeting other astronauts must be like, oh my god, this thing that happened to me. Yeah.
+[00:04:18] Simone: But I feel like they're also—they must have. That was one of the things we talked to Cady about. Just because they must share so many random issues, and like meeting as an astronaut, meeting other astronauts must be like, oh my god, this thing that happened to me. Yeah.
 
 [00:04:18] Adam: The shit only they understand.
 
@@ -146,7 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:05:59] Unknown speaker: I did.
 
-[00:05:59] Adam: Let's. Let that let that exist in fan fiction all around the world. So, hey, speaking of fan fiction, what is this thing? Have you seen some stuff here at Comic Con that's blown your mind? How have the costumes and the people been?
+[00:05:59] Adam: Let's. Let that exist in fan fiction all around the world. So, hey, speaking of fan fiction, what is this thing? Have you seen some stuff here at Comic Con that's blown your mind? How have the costumes and the people been?
 
 [00:06:15] Simone: Blow my mind, too soon, Adam. No, I haven't been walking around that much. I mean, I haven't been to the convention center yet,
 
@@ -160,13 +160,13 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:06:15] Adam: yeah, yeah,
 
-[00:06:15] Simone: in in that way. I mean, it's a lot of cute kids. and you’re like, way to go.
+[00:06:15] Simone: in that way. I mean, it's a lot of cute kids. and you’re like, way to go.
 
 [00:06:48] Adam: I love the kids in a superhero costume,
 
 [00:06:50] Simone: yeah, and the supportive parents. That's the best one. The supportive parents who build a costume that matches their kids, and they're just like, yeah.
 
-[00:06:58] Adam: I saw a Wonder Woman and a little girl Wonder Woman and a little boy Aquaman, like, and they weren't doing anything except like arguing in the street. But it was so like just like a family might do, but it was super cute. Right? Like, no, you have to go this way. I don't. I know. It's like all little Wonder Woman.
+[00:06:58] Adam: I saw a Wonder Woman and a little girl Wonder Woman and a little boy Aquaman and they weren't doing anything except like arguing in the street. But it was so just like a family might do, but it was super cute. Right? Like, no, you have to go this way. I don't. I know. It's like all little Wonder Woman.
 
 [00:07:15] Simone: Aquaman, you have great responsibilities.
 
@@ -186,9 +186,9 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:07:40] Norm: Yeah.
 
-[00:07:40] Adam: So have you noticed? Because I have, I have done my cosplay walk, but I was staring through a sweat-soaked visor that was foggy, so I couldn't see much of anything. Is has a single costume stood out? No,
+[00:07:40] Adam: So have you noticed? Because I have done my cosplay walk, but I was staring through a sweat-soaked visor that was foggy, so I couldn't see much of anything. Is has a single costume stood out? No,
 
-[00:08:03] Norm: no. I thought it would be Deadpool this year again because the movie came out, and there's a lot of Deadpool presence in general. Like, but not there's nothing. And maybe it speaks a way for Saturday. Saturday is the crazy costume day, and it's going to be the crazy, most packed day on the floor. And I'll have to keep an eye out for for trends. Yeah, not. I think it's a little more mellow this year, and I like that. Yeah, I like Comic Con just being a little more mellow. People just enjoying themselves.
+[00:08:03] Norm: no. I thought it would be Deadpool this year again because the movie came out, and there's a lot of Deadpool presence in general. Like, but not there's nothing. And maybe it speaks a way for Saturday. Saturday is the crazy costume day, and it's going to be the crazy, most packed day on the floor. And I'll have to keep an eye out for trends. Yeah, not. I think it's a little more mellow this year, and I like that. Yeah, I like Comic Con just being a little more mellow. People just enjoying themselves.
 
 [00:08:28] Adam: It's also more mellow for us. We haven't overscheduled this year. Yeah, we've had space. But normally, on every day, I'm going from about seven a.m. till about one in the morning, and it's like I can do that. But it's really nice that we're not doing that. That there's like a few hours here and there between these things.
 
@@ -218,7 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:09:08] Simone: Oh man.
 
-[00:09:09] Norm: Yeah. I'm then curious why, in his pressure suit, the the viewport isn't shifted.
+[00:09:09] Norm: Yeah. I'm then curious why, in his pressure suit, the viewport isn't shifted.
 
 [00:09:15] Adam: It shifted. That's why
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:09:42] Simone: No.
 
-[00:09:42] Adam: But I was at the prop store of London booth, looking very closely at a full size Terminator they had, and you know, like I'm in my helmet and I bump up against the glass, and this guy goes, " Adam," and I'm like, " How did you guess?" And he's like, " Well, I saw you staring intently at the Terminator, and then I saw the detailing in your costume,
+[00:09:42] Adam: But I was at the prop store of London booth, looking very closely at a full size Terminator they had, and like I'm in my helmet and I bump up against the glass, and this guy goes, " Adam," and I'm like, " How did you guess?" And he's like, " Well, I saw you staring intently at the Terminator, and then I saw the detailing in your costume,
 
 [00:09:56] Simone: Oh, man.
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:10:27] Simone: Yeah,
 
-[00:10:27] Adam: and there are pictures of him walking out to the plane, and he's walking all hunched over because it wouldn't allow him to stand up. It was a B.F. Goodrich. He convinced B.F. Goodrich. Let's see, Wiley Post was a pilot in 1934. Most of the planes were made of wood, and he flew this wooden plane for a millionaire that he worked for, and surmised he knew everyone knew you couldn't fly above a certain altitude, like you know 20,000 plus feet, because you there's not enough oxygen, you suffocate. And he thought, well, what if I brought my own atmosphere? He thought wooden planes can't be pressurized because they're too weak. But what if I brought my own atmosphere? He got B.F. Goodrich to make him this anthropomorphic rubber bladder. That he encased in fabric material with stitching. What he called a good God, I can't believe I'm forgetting the the term. It's basically holding on to the bladder with a net so that it can only expand so much. And then he flew hundreds of miles at like 45,000 feet
+[00:10:27] Adam: and there are pictures of him walking out to the plane, and he's walking all hunched over because it wouldn't allow him to stand up. It was a B.F. Goodrich. He convinced B.F. Goodrich. Let's see, Wiley Post was a pilot in 1934. Most of the planes were made of wood, and he flew this wooden plane for a millionaire that he worked for, and surmised he knew everyone knew you couldn't fly above a certain altitude, like you know 20,000 plus feet, because you there's not enough oxygen, you suffocate. And he thought, well, what if I brought my own atmosphere? He thought wooden planes can't be pressurized because they're too weak. But what if I brought my own atmosphere? He got B.F. Goodrich to make him this anthropomorphic rubber bladder. That he encased in fabric material with stitching. What he called a good God, I can't believe I'm forgetting the term. It's basically holding on to the bladder with a net so that it can only expand so much. And then he flew hundreds of miles at like 45,000 feet
 
 [00:10:27] Simone: Oh, wow.
 
@@ -278,7 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:10:27] Simone: With a one eye.
 
-[00:10:27] Adam: and he could he could yeah at a one eye and he could adjust the temperature because he had two air feeds into his helmet, one directly from the outside, so that was kind of cold, and then another that was wrapped around one of the one of the parts of the engine, so he could heat the air with a needle valve.
+[00:10:27] Adam: and he could yeah at a one eye and he could adjust the temperature because he had two air feeds into his helmet, one directly from the outside, so that was kind of cold, and then another that was wrapped around one of the parts of the engine, so he could heat the air with a needle valve.
 
 [00:10:27] Norm: Wow.
 
@@ -340,21 +340,21 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:13:34] Norm: Right. Right.
 
-[00:13:34] Adam: And that's that was really exciting because you don't know, you know, you're making a thing, you don't know how it's going to go until you start seeing the footage, and you're like, oh, this flavor is, and it feels familiar, and yet it's really new, and it, and again, seeing these six kids, I'm so inspired by them every day, and to get to to get to show them to the world and the world to them.
+[00:13:34] Adam: And that's that was really exciting because you don't know you're making a thing, you don't know how it's going to go until you start seeing the footage, and you're like, oh, this flavor is, and it feels familiar, and yet it's really new, and it, and again, seeing these six kids, I'm so inspired by them every day, and to get to show them to the world and the world to them.
 
 [00:14:00] Simone: I'm just really stoked, like having visited set a few times, like yeah, getting to see footage because you just—I mean, I'm just seeing all of you guys working and the kids and stuff like that. It's yeah, it's excited to see, exciting to see the translation.
 
-[00:14:13] Adam: And they're they're just becoming more and more awesome on camera every single day. Like we're just getting more, you know, more genuine awesomeness from them.
+[00:14:13] Adam: And they're just becoming more and more awesome on camera every single day. Like we're just getting more more genuine awesomeness from them.
 
 [00:14:22] Norm: Yeah, yeah. I know you're still in production for that. for a couple of months.
 
 [00:14:24] Adam: Oh yeah, I'll be back. I'll be back the day after tomorrow, Monday. I'll be back on Monday.
 
-[00:14:24] Norm: Wow. The other thing that we, by the time you listen to this, have revealed is a tested project, and we can finally talk about it. Back in January when we we visited New Zealand, it was a return trip to visit Weta workshop, and this time, in addition to covering some of the the things that the the products they make and the movies they've worked on, we're able to do something with them,
+[00:14:24] Norm: Wow. The other thing that we, by the time you listen to this, have revealed is a tested project, and we can finally talk about it. Back in January when we visited New Zealand, it was a return trip to visit Weta workshop, and this time, in addition to covering some of the things that the products they make and the movies they've worked on, we're able to do something with them,
 
 [00:14:29] Adam: yeah,
 
-[00:14:29] Norm: collaborate with them, and it's an idea that you came up with. I would say not too not too much far before we left.
+[00:14:29] Norm: collaborate with them, and it's an idea that you came up with. I would say not too much far before we left.
 
 [00:15:00] Adam: Well, the idea was we were going to go to Weta. We're going to cover all the different things that Weta does, and they're great at that. But we already did that, so how do we create a framework in which to show what they do without just rehashing what we did before? So I thought, let's make a short movie.
 
@@ -366,11 +366,11 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:15:24] Simone: The Big one.
 
-[00:15:25] Adam: Yes, because the movie that it's from, Excalibur, is super important to both Peter Jackson and Richard Taylor. And I thought, well, let's make the armor. Let me fight a monster. They could make a monster. We could do a prosthetic. We could have some blood effects, some fight choreography. We do some propage and some knife making, and that's exactly what we did. And Peter Jackson and Richard Taylor are in it, and they play themselves, and they're hilarious. It is, it is such a surreal and amazing thing. And Norman, Joey, and I were, I mean, directing this thing together in the middle of. This public park in the middle of Wellington, where they're like, oh yeah, over there's where Frodo was hiding from the Ringwraith, and the first shot from Lord of the Rings.
+[00:15:25] Adam: Yes, because the movie that it's from, Excalibur, is super important to both Peter Jackson and Richard Taylor. And I thought, well, let's make the armor. Let me fight a monster. They could make a monster. We could do a prosthetic. We could have some blood effects, some fight choreography. We do some propage and some knife making, and that's exactly what we did. And Peter Jackson and Richard Taylor are in it, and they play themselves, and they're hilarious. It is such a surreal and amazing thing. And Norman, Joey, and I were, I mean, directing this thing together in the middle of. This public park in the middle of Wellington, where they're like, oh yeah, over there's where Frodo was hiding from the Ringwraith, and the first shot from Lord of the Rings.
 
 [00:16:05] Simone: Oh man!
 
-[00:16:06] Norm: Well, that list of things that you talked about, you know, having the armor, having a monster, having a fight of some kind, a prosthetic, that's essentially what we left the United States with—a story outline, you know, a few phone calls between them to see if could it be possible.
+[00:16:06] Norm: Well, that list of things that you talked about having the armor, having a monster, having a fight of some kind, a prosthetic, that's essentially what we left the United States with—a story outline, you know, a few phone calls between them to see if could it be possible.
 
 [00:16:06] Adam: Yeah.
 
@@ -382,9 +382,9 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:16:39] Adam: And Joey just got to go pick the camera that shot the hobbit.
 
-[00:16:42] Norm: Go go scout the location. It's a it's a little bit of the things that you would have to do to make a film, and we did one for a film about two and a half minutes long.
+[00:16:42] Norm: Go go scout the location. It's a little bit of the things that you would have to do to make a film, and we did one for a film about two and a half minutes long.
 
-[00:16:51] Adam: But and everyone you're talking to is like our son, our our our stunt our monster. Was played like every orc in all the movies, and a guy who the monster kills also played a bunch of orcs and elves and hobbits and background characters. Like this, these movies were part of lives of all the people we knew and know in Wellington for the last 20 years. So everyone has amazing stories about it.
+[00:16:51] Adam: But and everyone you're talking to is like our son, our stunt our monster. Was played like every orc in all the movies, and a guy who the monster kills also played a bunch of orcs and elves and hobbits and background characters. Like this, these movies were part of lives of all the people we knew and know in Wellington for the last 20 years. So everyone has amazing stories about it.
 
 [00:17:14] Norm: Yeah,
 
@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:17:24] Unknown speaker: Yes.
 
-[00:17:26] Adam: That's why Richard Taylor is the moderator because he was he was he made this all he helped us really put this all together and made it happen. Yeah.
+[00:17:26] Adam: That's why Richard Taylor is the moderator because he was he made this all he helped us really put this all together and made it happen. Yeah.
 
 [00:17:34] Simone: That's Exciting.
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:17:39] Norm: Yeah.
 
-[00:17:39] Adam: And that's why the that's why the parties are like. Throwing a party last night and going to the Weta tonight is like how you catch up.
+[00:17:39] Adam: And that's why the parties are like. Throwing a party last night and going to the Weta tonight is like how you catch up.
 
 [00:17:59] Norm: They're social events. They're literally—it's not a place to get hammered. It's a place to literally just catch up. It's like the summer camp.
 
@@ -434,7 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:18:39] Adam: 80 feet.
 
-[00:18:39] Norm: Yeah, it's it's 60 to 80 feet. I did not know that.
+[00:18:39] Norm: Yeah, it's 60 to 80 feet. I did not know that.
 
 [00:18:57] Simone: Does it still count as a miniature then?
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:19:10] Adam: So it's a bigature.
 
-[00:19:12] Norm: Yep. Yep. Side Show Collectibles has like over 200 new statues. It's one of those things like I can never, I can you know I can afford to buy one if I wanted to, but like I go here just to look at them. Like this is like the sculpture garden for pop culture. Where I'm like, that's the most beautiful Wolverine I've seen.
+[00:19:12] Norm: Yep. Yep. Side Show Collectibles has like over 200 new statues. It's one of those things like I can never, I can you know I can afford to buy one if I wanted to, but I go here just to look at them. Like this is like the sculpture garden for pop culture. Where I'm like, that's the most beautiful Wolverine I've seen.
 
 [00:19:28] Adam: You brought one of my favorite pop culture sculptors to the party last night, Jason Freeny.
 
@@ -466,7 +466,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:20:01] Adam: [unclear: I think the contribution / I did a Titan contribution] to Fon Davis's ship.
 
-[00:20:03] Norm: The the the theme for this year is Star Wars, and they're building half dozen, basically Star Wars inspired wheelchairs that are fully decked out.
+[00:20:03] Norm: The theme for this year is Star Wars, and they're building half dozen, basically Star Wars inspired wheelchairs that are fully decked out.
 
 [00:20:03] Adam: Yeah,
 
@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:20:21] Adam: Yeah, totally.
 
-[00:20:22] Norm: So you you have to watch the video when that comes out. But I'm looking for that's like going to be one of the big highlights of Comic Con this year.
+[00:20:22] Norm: So you have to watch the video when that comes out. But I'm looking for that's like going to be one of the big highlights of Comic Con this year.
 
 [00:20:27] Adam: You have do you have a secret plan you're looking to implement while you're here, or you're just along for the ride and looking for some wonderful distraction?
 
@@ -486,7 +486,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:20:34] Adam: Good.
 
-[00:20:34] Simone: I mean, I'm just excited, like having spent one and a half months at home and moping and just being out, feeling some sort of normalcy. Not that Comic Con is normalcy, but but just I don't know,
+[00:20:34] Simone: I mean, I'm just excited, like having spent one and a half months at home and moping and just being out, feeling some sort of normalcy. Not that Comic Con is normalcy, but just I don't know,
 
 [00:20:49] Adam: hanging out with your friends.
 

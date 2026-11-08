@@ -28,7 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:00:59] Adam: No, I can't either.
 
-[00:01:00] Will: It is it is. I watched it again to make sure.
+[00:01:00] Will: It is. I watched it again to make sure.
 
 [00:01:00] Adam: Okay.
 
@@ -76,11 +76,11 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:01:47] Norm: I can't help but notice there's something sitting on this table. I want to talk about.
 
-[00:01:51] Will: It's it's yeah. It's the robot from Paddington too.
+[00:01:51] Will: It's yeah. It's the robot from Paddington too.
 
 [00:01:53] Norm: No, it’s.
 
-[00:01:54] Adam: um that’s that’s that’s Cain. He is the villain from RoboCop two.
+[00:01:54] Adam: That’s Cain. He is the villain from RoboCop two.
 
 [00:01:54] Unknown speaker (Will or Adam): The best RoboCop.
 
@@ -88,7 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:01:54] Will: It’s lovely.
 
-[00:01:54] Adam: and when I got it's all resin, right? Or sorry when when Phil gave it to me, it was almost all just resin, and it didn't stand on its own because the resin's just not strong enough. This this is a puppet in which it's a stop motion puppet in which every joint is pretty much visible, but there is, there is over 200 parts in this. So when I first got it, I actually paid one of the machinists from Tippett's studio to build parts of the legs so it could stand on its own, and that got it about 80% there. And then over the last couple of weeks, I brought in Brett Foxwell, a wonderful machinist who also works at Tippett.
+[00:01:54] Adam: and when I got it's all resin, right? Or sorry when Phil gave it to me, it was almost all just resin, and it didn't stand on its own because the resin's just not strong enough. This is a puppet in which it's a stop motion puppet in which every joint is pretty much visible, but there is over 200 parts in this. So when I first got it, I actually paid one of the machinists from Tippett's studio to build parts of the legs so it could stand on its own, and that got it about 80% there. And then over the last couple of weeks, I brought in Brett Foxwell, a wonderful machinist who also works at Tippett.
 
 [00:02:48] Norm: He made the armatures for the Force Awakens. Puppets, Dejarik
 
@@ -112,7 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:03:17] Norm: Oh, you’re going to machine them?
 
-[00:03:18] Adam: Yeah. My, My goal is eventually someday for him to be as much metal and aluminum as possible.
+[00:03:18] Adam: Yeah. My goal is eventually someday for him to be as much metal and aluminum as possible.
 
 [00:03:25] Norm: So that is a like you're talking about 200 parts.
 
@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:03:32] Adam: by piece.
 
-[00:03:33] Will: by piece. I I want. I think it might be instructive for people who don't know.
+[00:03:33] Will: by piece. I want. I think it might be instructive for people who don't know.
 
 [00:03:33] Adam: Yeah.
 
@@ -144,15 +144,15 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:04:13] Adam: he's uncopyable.
 
-[00:04:13] Will: I mean, which which is evidenced by the fact that when people at Phil's shop made a casting for you and presumably some other folks, like you had to do work on it to get, you know, [unclear: it had to be brought / it had to be prop] to stand up and stuff like that. It's a it's a difficult replication.
+[00:04:13] Will: I mean, which is evidenced by the fact that when people at Phil's shop made a casting for you and presumably some other folks, like you had to do work on it to get [unclear: it had to be brought / it had to be prop] to stand up and stuff like that. It's a difficult replication.
 
-[00:04:30] Adam: The machinists that put this together, it was months and months and months of work for a team of people to put together the I think five or six puppets that they made for the film. One of them is in Peter Jackson's collection.
+[00:04:30] Adam: The machinists that put this together, it was months and months of work for a team of people to put together the I think five or six puppets that they made for the film. One of them is in Peter Jackson's collection.
 
 [00:04:43] Norm: We saw it on the shelf. Yeah, yeah.
 
 [00:04:43] Will: it's cool.
 
-[00:04:45] Adam: Yeah, and I have to tell you, like, to actually handle it and move the real thing—if you've never held an armature, this is instructive. If you've never held an animation armature, the the thing is, is it's meant to have a Kind of a perfect amount of resistance, without any bounce back, so that the animator can sensitively place each joint in place. Which means that a well-tuned animation armature feels like this real joy to manipulate. And Cain is like off the charts.
+[00:04:45] Adam: Yeah, and I have to tell you to actually handle it and move the real thing—if you've never held an armature, this is instructive. If you've never held an animation armature, the thing is, is it's meant to have a Kind of a perfect amount of resistance, without any bounce back, so that the animator can sensitively place each joint in place. Which means that a well-tuned animation armature feels like this real joy to manipulate. And Cain is like off the charts.
 
 [00:05:14] Norm: Well, and they have to be tuned regularly because you
 
@@ -166,19 +166,19 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:05:36] Adam: Did I just say perfect old tunage?
 
-[00:05:38] Will: I mean, look, perfect old tunage is the name of my grateful dead cover band. Yeah, so you know, sorry, Paul and Storm.
+[00:05:38] Will: I mean, look, perfect old tunage is the name of my grateful dead cover band. Yeah, so sorry, Paul and Storm.
 
 [00:05:44] Norm: What a project.
 
-[00:05:46] Will: I mean, the thing that I was amazed by when we first started talking about stop motion years ago, I think at Fon Davis's studio, was how each the further you get from the anchor point. The the more relaxed each joint gets, so that so that you can adjust a finger without also moving the arm
+[00:05:46] Will: I mean, the thing that I was amazed by when we first started talking about stop motion years ago, I think at Fon Davis's studio, was how each the further you get from the anchor point. The more relaxed each joint gets, so that you can adjust a finger without also moving the arm
 
 [00:05:46] Adam: Right, right.
 
 [00:05:46] Will: and and so on and so like it's it's incredible. It's an incredible, incredible thing. This and the canes like this Cain. I mean, it'll look cool in the video, but it looks even better up close. So I hope.
 
-[00:06:10] Adam: I remember being when the movie came out, like doing searches to find out the toys from this. And Hot Toys was supposed to do a version of this. A figure came out a couple years ago, which I have in my collection, and it's lovely. But but this is really this is one of the best pieces in my whole collection, and you know I love Phil. I I owe him I owe him a deep life debt. Someday he will call upon me, Adam.
+[00:06:10] Adam: I remember being when the movie came out, like doing searches to find out the toys from this. And Hot Toys was supposed to do a version of this. A figure came out a couple years ago, which I have in my collection, and it's lovely. But this is really this is one of the best pieces in my whole collection, and you know I love Phil. I owe him a deep life debt. Someday he will call upon me, Adam.
 
-[00:06:40] Norm: You know it's funny. Well, Last time I visited Phil, he was doing his most recent Kickstarter for Mad God, and they were doing some puppets, and he is work still working on Mad God, and which is a stop motion short film. Unending, many parts
+[00:06:40] Norm: It's funny. Well, Last time I visited Phil, he was doing his most recent Kickstarter for Mad God, and they were doing some puppets, and he is work still working on Mad God, and which is a stop motion short film. Unending, many parts
 
 [00:06:54] Adam: been doing for like 20 years. It's amazing
 
@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:06:56] Adam: yeah.
 
-[00:06:56] Norm: And he was working on armatures. He was taking apart armatures from these sixth scale dolls he had bought from China, where it's it's not like the hot toys where they're like ball joints on on on plastic, yeah, yeah, but it was like silicone dolls with metal armatures
+[00:06:56] Norm: And he was working on armatures. He was taking apart armatures from these sixth scale dolls he had bought from China, where it's not like the hot toys where they're like ball joints on plastic, yeah, yeah, but it was like silicone dolls with metal armatures
 
 [00:06:56] Adam: Oh my gosh!
 
@@ -194,11 +194,11 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:07:17] Adam: No, no,
 
-[00:07:17] Norm: that you could get for like $70 or $80, and these like musculature, you know, big like Arnold Schwarzenegger type body types, Yes. and he would just take the heads off and put you know like Minotaur heads or something on them.
+[00:07:17] Norm: that you could get for like $70 or $80, and these like musculature big like Arnold Schwarzenegger type body types, Yes. and he would just take the heads off and put you know like Minotaur heads or something on them.
 
 [00:07:28] Will: My favorite thing when we went to that first Mad God video, we went over there to see was like walking through Phil's graveyard of toys and potential Mad, Mad, Mad God set and costume and creature design stuff. It was incredible.
 
-[00:07:42] Adam: Well, and it you know Jamie and I used to talk about this in light of the of the kind of builds that would come out of his shop. Every shop. Every single shop, whether it's in your closet or in a case or in a building or a room, is a philosophy about how to work, and the things that are kept in that shop inform what then later comes out of that shop. And yeah, I being having been in Phil's space many times and seeing the graveyard, there's a type of shopping that he does with his mind, with his with his aesthetic through that graveyard. That's really important to projects like Mad God, and it's really exciting to watch them grow out of this, you know, labeled boxes of things like long sliders and little balls and
+[00:07:42] Adam: Well, and it you know Jamie and I used to talk about this in light of the kind of builds that would come out of his shop. Every shop. Every single shop, whether it's in your closet or in a case or in a building or a room, is a philosophy about how to work, and the things that are kept in that shop inform what then later comes out of that shop. And yeah, I being having been in Phil's space many times and seeing the graveyard, there's a type of shopping that he does with his mind, with his aesthetic through that graveyard. That's really important to projects like Mad God, and it's really exciting to watch them grow out of this labeled boxes of things like long sliders and little balls and
 
 [00:08:28] Will: like scaffold rusted scaffoldings. And yeah,
 
@@ -218,7 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:08:48] Will: Okay,
 
-[00:08:51] Norm: what what a nice. I mean. It is a show that does not. It starts off with a premise, and I know we talked about the show a bunch. It starts off with a premise, but does not stick just with that one premise.
+[00:08:51] Norm: what a nice. I mean. It is a show that does not. It starts off with a premise, and I know we talked about the show a bunch. It starts off with a premise, but does not stick just with that one premise.
 
 [00:09:00] Adam: No, we’re now on, we're now on a third premise.
 
@@ -228,7 +228,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:09:02] Will: one premise a season. Okay, I got it.
 
-[00:09:04] Adam: Yeah. What what what what else did you guys want to talk?
+[00:09:04] Adam: Yeah. What else did you guys want to talk?
 
 [00:09:09] Norm: Oh well, yes. Will
 
@@ -244,15 +244,15 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:09:24] Adam: Frank Oz, new to Twitter, is slaying at Twitter.
 
-[00:09:27] Will: I I love like new celebs, like famous people new to Twitter is almost always entertaining or terrible, one or the other.
+[00:09:27] Will: I love like new celebs, like famous people new to Twitter is almost always entertaining or terrible, one or the other.
 
 [00:09:33] Norm: What do you think? Do you think they find that they're surprising engagements, like that they don't they aren't as connected because a lot of times people like Frank Oz or even someone like Phil Tippett, they don't necessarily work. They they're in their studios or doing their work. They're in L. A. Or whatever. But when they go to a convention and get one one on one time with fans, you know it changes their perception of how their own work is perceived.
 
-[00:09:55] Adam: Sure, absolutely, and and and people like you know people like us who have been on Twitter for a long time, we we play within the ethos of Twitter.
+[00:09:55] Adam: Sure, absolutely, and people like you know people like us who have been on Twitter for a long time, we play within the ethos of Twitter.
 
 [00:10:04] Will: There's a game, yeah.
 
-[00:10:05] Adam: You like, you retweet, you quote, you talk about, you you know, it's all that kind of stuff. So when a new celebrity shows up and they don't they don't quite get it.
+[00:10:05] Adam: You like, you retweet, you quote, you talk about it's all that kind of stuff. So when a new celebrity shows up and they don't quite get it.
 
 [00:10:16] Will: Oh, it's really good
 
@@ -260,15 +260,15 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:10:16] Will: Yeah.
 
-[00:10:16] Adam: But so what they do, like, so what I mean by not getting it is that like what Frank's been doing in posting stories and posting quotes about what it's like to work with Jim and with the other Muppeteers and stories from movies that he directed and movies that he's been in, he is elevating and changing Twitter a bit, like every new arrival, and saying maybe these are the stories that people are interested in. The answer is yes, we are. It's really exciting to see something totally different. show up. Oh, yeah.
+[00:10:16] Adam: But so what they do so what I mean by not getting it is that like what Frank's been doing in posting stories and posting quotes about what it's like to work with Jim and with the other Muppeteers and stories from movies that he directed and movies that he's been in, he is elevating and changing Twitter a bit, like every new arrival, and saying maybe these are the stories that people are interested in. The answer is yes, we are. It's really exciting to see something totally different. show up. Oh, yeah.
 
 [00:10:43] Norm: Thank God for 280 characters.
 
-[00:10:46] Will: So, what? A couple nights ago, he started tweeting. It's the second or third time I've seen him do this since he since he came on Twitter. Which I assume was for the Dark Crystal re release. Maybe I don't know why he's why he's suddenly on Twitter. Like I don't know why you in 2018 look up and are like, man, I should really get get a Twitter account finally. It's time.
+[00:10:46] Will: So, what? A couple nights ago, he started tweeting. It's the second or third time I've seen him do this since he came on Twitter. Which I assume was for the Dark Crystal re release. Maybe I don't know why he's suddenly on Twitter. Like I don't know why you in 2018 look up and are like, man, I should really get get a Twitter account finally. It's time.
 
-[00:11:02] Adam: I I haven't asked him, but I will. Maybe I will.
+[00:11:02] Adam: I haven't asked him, but I will. Maybe I will.
 
-[00:11:07] Will: I wouldn't. I probably wouldn't actually. But hey, yeah, but but yeah. So he started tweeting about this magic show in New York that I think is a Broadway
+[00:11:07] Will: I wouldn't. I probably wouldn't actually. But hey, yeah, but yeah. So he started tweeting about this magic show in New York that I think is a Broadway
 
 [00:11:15] Adam: in and of itself. It's off Broadway.
 
@@ -280,25 +280,25 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:11:32] Adam: Well, he's. I don't. I'm not sure if I'm correct in saying this, but he's a magician that hates magic.
 
-[00:11:38] Norm: I think, I think… hates the routines, or hates the…
+[00:11:38] Norm: I think… hates the routines, or hates the…
 
 [00:11:41] Adam: he doesn't like the. He wants magic to be something. More essential and more pure, and that sounds like a terrible lead-in to something that's going to be pretentious. But
 
 [00:11:53] Will: Penn and Teller hate love magic, but hate magicians. I think
 
-[00:11:56] Adam: so. There's there is a little in the in the same way that Penn and Teller were a left turn for magic, and they really push magic in a new direction. I think I Derek is the same kind of amazing A new direction. In and of itself, is a 70 minute show with six magic tricks in it.
+[00:11:56] Adam: so. There's there is a little in the same way that Penn and Teller were a left turn for magic, and they really push magic in a new direction. I think I Derek is the same kind of amazing A new direction. In and of itself, is a 70 minute show with six magic tricks in it.
 
 [00:11:56] Will: Wow!
 
 [00:11:56] Adam: And every one of them is the likes of which you haven't seen.
 
-[00:11:56] Will: You’re you’re
+[00:11:56] Will: You’re
 
 [00:12:21] Norm: is it storytelling?
 
 [00:12:22] Will: Breathless.
 
-[00:12:23] Adam: I am. I actually got a little choked up when I when I started to talk about the framework of it. 70 minutes, six magic tricks. I've seen it three times now. It played for the longest time at the Geffen in L. A. , then it moved off Broadway where it's been repeatedly extended, and it's playing through August
+[00:12:23] Adam: I am. I actually got a little choked up when I started to talk about the framework of it. 70 minutes, six magic tricks. I've seen it three times now. It played for the longest time at the Geffen in L. A. , then it moved off Broadway where it's been repeatedly extended, and it's playing through August
 
 [00:12:23] Will: Something.
 
@@ -320,7 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:13:08] Will: Wow.
 
-[00:13:08] Adam: And they've talked, and so this is a show. It's not just like they wrote it and put it up, and now it's been running. They are always working on it. They're always refining it and tightening it, and thinking about its overall trajectory. And I have to say, it's really like what's happening off Broadway is so much different and even deeper and stranger and cooler than the than the Geffen show.
+[00:13:08] Adam: And they've talked, and so this is a show. It's not just like they wrote it and put it up, and now it's been running. They are always working on it. They're always refining it and tightening it, and thinking about its overall trajectory. And I have to say, it's really like what's happening off Broadway is so much different and even deeper and stranger and cooler than the Geffen show.
 
 [00:13:41] Will: People describe it as a spiritual experience. Like people come out of it and seem kind of shook.
 
@@ -336,17 +336,17 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:14:08] Norm: But in the essence, like it's reading someone's mind.
 
-[00:14:10] Adam: And look, I I suspect that you know I could find out. There's a couple, you know probably ask Derek. Can he tell me? But I don't want to ask him.
+[00:14:10] Adam: And look, I I suspect that you know I could find out. There's a couple probably ask Derek. Can he tell me? But I don't want to ask him.
 
 [00:14:10] Will: No,
 
-[00:14:10] Adam: I like this is Julia Sweeney once said, " Magic is all us atheists have left." Um, and I, you know, atheist is a I say agnostic. It's more scientifically pure, I think.
+[00:14:10] Adam: I like this is Julia Sweeney once said, " Magic is all us atheists have left." and I atheist is a I say agnostic. It's more scientifically pure, I think.
 
 [00:14:10] Will: Yeah,
 
 [00:14:10] Adam: but yes, you sit in that theater and you watch that show happen, and some it's something remarkable, and it's only could happen in that room.
 
-[00:14:37] Will: So the first place I heard about this show was somebody I think South by or Sundance was presenting something and kind of ripped off the initial the initial walking in the theater experience.
+[00:14:37] Will: So the first place I heard about this show was somebody I think South by or Sundance was presenting something and kind of ripped off the initial walking in the theater experience.
 
 [00:14:48] Adam: So I, Yeah, so. When you walk into Derek's,
 
@@ -368,7 +368,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:15:10] Will: actually. But Yeah,
 
-[00:15:11] Adam: at Sundance, and they they basically copied this whole framework of the entry into into Derek's show in for this opening at Sundance, and it was shitty. And they were it was a dumb move on that on that part, and it was sad.
+[00:15:11] Adam: at Sundance, and they basically copied this whole framework of the entry into into Derek's show in for this opening at Sundance, and it was shitty. And they were it was a dumb move on that part, and it was sad.
 
 [00:15:29] Norm: But when you say six magic tricks in 70 minutes, it means that the seven the construction of the 70 minutes is is the like the performance. It's not just the six tricks.
 
@@ -384,7 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:16:03] Will: yeah. It's not. It's not. It isn't that much,
 
-[00:16:06] Norm: but the story behind each trick, as they're executing, you know, as they're communicating with the audience, that's the fun part.
+[00:16:06] Norm: but the story behind each trick, as they're executing as they're communicating with the audience, that's the fun part.
 
 [00:16:11] Adam: This is one guy on a small stage telling some autobiographical stories within a framework that is like every good story a universal, a set of universal truths about what it is to be a person and to to realize who you are and and what you are.
 
@@ -402,7 +402,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:17:33] Will: How in the hell does he?
 
-[00:17:34] Adam: Okay, I’ve I’ve seen him do it right in front of me, and it's mind-bending. and He's a he's truly a beautiful card mechanic, as well as. A deeply thoughtful storyteller, and so the DelGaudio Shuffle is something you can see on YouTube. You can see people doing it. You can see how remarkable it really is. You can you can purchase, I think, a guide on how to on how to do it. I don't want to know how it's done. And he had another previous run at the Geffen, which was another kind of unmagic show. But Derek is a major. Like, he’s a disclosure. He's a friend of mine. Went out to dinner last time I was in New York and saw the show along with a Carbonaro from the Carbonaro Effect. Okay. And like, it's just it's such a refreshing bit of theater that's totally unique. Let's just say that it's a refreshing bit of theater that's completely unique.
+[00:17:34] Adam: Okay, I’ve I’ve seen him do it right in front of me, and it's mind-bending. and He's a he's truly a beautiful card mechanic, as well as. A deeply thoughtful storyteller, and so the DelGaudio Shuffle is something you can see on YouTube. You can see people doing it. You can see how remarkable it really is. You can purchase, I think, a guide on how to do it. I don't want to know how it's done. And he had another previous run at the Geffen, which was another kind of unmagic show. But Derek is a major. Like, he’s a disclosure. He's a friend of mine. Went out to dinner last time I was in New York and saw the show along with a Carbonaro from the Carbonaro Effect. Okay. And like, it's just it's such a refreshing bit of theater that's totally unique. Let's just say that it's a refreshing bit of theater that's completely unique.
 
 [00:18:28] Will: Currently scheduled to end in August.
 
@@ -432,7 +432,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:18:49] Adam: Yes,
 
-[00:18:49] Norm: and we we all love Westworld, the TV show,
+[00:18:49] Norm: and we all love Westworld, the TV show,
 
 [00:18:49] Unknown speaker: Mm-hmm.
 
@@ -460,7 +460,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:19:19] Norm: They found a ghost town, I guess, outside of Austin and bus people there, hundreds of people, and had like 100 actors in costume with a 400 page script for two hours that did a immersive theater experience in the spirit of Westworld.
 
-[00:19:38] Will: Okay, so I did an escape room in LA that was an off brand knockoff Westworld escape room, yeah, and having real actors behaving like the robots do in Westworld, I found to be profoundly disturbing. Like, like
+[00:19:38] Will: Okay, so I did an escape room in LA that was an off brand knockoff Westworld escape room, yeah, and having real actors behaving like the robots do in Westworld, I found to be profoundly disturbing. Like
 
 [00:19:50] Norm: yes, because you as a person know that they’re real actors.
 
@@ -468,7 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:19:54] Norm: And yet they're inviting you to treat them not as like
 
-[00:19:56] Will: non-human, and it was it was incredibly discomfiting
+[00:19:56] Will: non-human, and it was incredibly discomfiting
 
 [00:20:00] Norm: because you have empathy.
 
@@ -488,7 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:20:27] Adam: that. It creeps me the hell out.
 
-[00:20:29] Will: Yeah, I I I stopped watching the show. I I didn't get to the end of the show.
+[00:20:29] Will: Yeah, I I I stopped watching the show. I didn't get to the end of the show.
 
 [00:20:33] Adam: Oh, really?
 
@@ -502,7 +502,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:20:53] Will: The second season was so long. It felt like two.
 
-[00:20:55] Adam: But you know, anything that exposes the world to Evan Rachel Wood and her incredible acting, I'm. We've been fans of hers since she was a genius on Once and Again. She's in, just an unbelievable talent, and actually, the entire cast of that James Marsden and and
+[00:20:55] Adam: But you know, anything that exposes the world to Evan Rachel Wood and her incredible acting, I'm. We've been fans of hers since she was a genius on Once and Again. She's in, just an unbelievable talent, and actually, the entire cast of that James Marsden and
 
 [00:21:15] Will: Thandie Newton,
 
@@ -512,13 +512,13 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:21:17] Adam: she's my favorite character on that show.
 
-[00:21:21] Will: I, I, I have no like the performances are incredible. Yeah, like the show just made me feel really, really bad about humanity in general.
+[00:21:21] Will: I have no like the performances are incredible. Yeah, like the show just made me feel really, really bad about humanity in general.
 
 [00:21:21] Adam: Oh, completely, that’s.
 
 [00:21:21] Will: That's why I stopped.
 
-[00:21:31] Adam: Yeah, that’s, it’s. Oh, and and Jeffrey Wright, Jeffrey Wright is one of those actors who is like, holy cow, what an amazing! I mean, he got his big break in Basquiat, Julian Schnabel’s film about the artist Basquiat, and it's that's an incredible film. That's really amazing, and Jeffrey Wright was I showed up in one of the Bond, a couple of Bond films, Felix.
+[00:21:31] Adam: Yeah, that’s, it’s. Oh, and Jeffrey Wright is one of those actors who is like, holy cow, what an amazing! I mean, he got his big break in Basquiat, Julian Schnabel’s film about the artist Basquiat, and it's that's an incredible film. That's really amazing, and Jeffrey Wright was I showed up in one of the Bond, a couple of Bond films, Felix.
 
 [00:21:52] Will: Um.
 
@@ -532,7 +532,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:21:58] Adam: I haven't seen those.
 
-[00:21:59] Will: No, they’re they like like battle royale, but a little slower.
+[00:21:59] Will: No, they’re they like battle royale, but a little slower.
 
 [00:22:03] Adam: Yeah, I'm looking forward to the second season of Westworld. I'm looking forward to some comeuppance from the bots.
 
@@ -550,13 +550,13 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:22:45] Norm: serialized Yeah. the week, the wait,
 
-[00:22:46] Will: right? Well, you need you need to think about it, right? Like if you think about if if if they had dropped 23 episodes of Lost at one time, you wouldn't have had that that week. To digest and think about and run through all the potential outcomes.
+[00:22:46] Will: right? Well, you need to think about it, right? Like if you think about if they had dropped 23 episodes of Lost at one time, you wouldn't have had that that week. To digest and think about and run through all the potential outcomes.
 
-[00:22:58] Adam: You’ve talked about this. Yeah, you, you. I don’t like bingeing. you have held to watching shows like that one night, one in.
+[00:22:58] Adam: You’ve talked about this. Yeah, you. I don’t like bingeing. you have held to watching shows like that one night, one in.
 
 [00:23:03] Will: I've given up on it. At this point, it's all, look, I watched six episodes of The Good Place at once.
 
-[00:23:07] Norm: But, but they're saying like specifically communities like in Reddit had, were so engaged with the show that most of the plot twists and turns that came out of the show were already predicted in one form or another.
+[00:23:07] Norm: But they're saying like specifically communities like in Reddit had, were so engaged with the show that most of the plot twists and turns that came out of the show were already predicted in one form or another.
 
 [00:23:18] Adam: Oh, sure.
 
@@ -564,17 +564,17 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:23:21] Adam: Yeah.
 
-[00:23:21] Norm: And the, the, uh, the broader media outside of those communities already know of the communities and then spread like the theories like wildfire. You know, your Entertainment Weeklys, your varieties, all tap into the communities.
+[00:23:21] Norm: And the broader media outside of those communities already know of the communities and then spread like the theories like wildfire. You know, your Entertainment Weeklys, your varieties, all tap into the communities.
 
 [00:23:33] Will: The podcasts and stuff that spring up.
 
-[00:23:35] Norm: They, they do Westworld Space Forum.
+[00:23:35] Norm: They do Westworld Space Forum.
 
 [00:23:37] Adam: Yeah.
 
 [00:23:37] Norm: And they, and find all the theories and that if you choose to engage with the show, you will maybe have a likely chance of getting spoiled. So being cognizant of that, they say that they're going to do something different with season two where they're going to embrace that.
 
-[00:23:53] Adam: Oh, so that the, the, excuse me, the trajectory of the show might Be altered by the fan engagement?
+[00:23:53] Adam: Oh, so that the, excuse me, the trajectory of the show might Be altered by the fan engagement?
 
 [00:23:59] Norm: They are not being specific about it.
 
@@ -598,11 +598,11 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:24:18] Will: Well, I wasn't thinking about that, but okay.
 
-[00:24:21] Norm: Oh yes, and a lot of a lot of not so good stuff out there.
+[00:24:21] Norm: Oh yes, and a lot of not so good stuff out there.
 
 [00:24:23] Will: Remember when you woke up this morning? That was three years ago.
 
-[00:24:26] Adam: That was that was the opening of Patton Oswalt's last comedy special, where he gets up on stage and he goes, " Oh, how about that?" And there's a confused pause from the audience, and he goes, " Oh, you guys haven't checked Twitter in the last few minutes?" And there’s this like gasp, and he goes, " Doesn't it suck that we live in a world where that's possible? Like every minute could be like, oh, you don't know about the shit that's just hit the fan?
+[00:24:26] Adam: That was the opening of Patton Oswalt's last comedy special, where he gets up on stage and he goes, " Oh, how about that?" And there's a confused pause from the audience, and he goes, " Oh, you guys haven't checked Twitter in the last few minutes?" And there’s this like gasp, and he goes, " Doesn't it suck that we live in a world where that's possible? Like every minute could be like, oh, you don't know about the shit that's just hit the fan?
 
 [00:24:51] Will: Yeah. Oh yeah.
 
@@ -630,13 +630,13 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:25:22] Norm: Can’t muster the energy.
 
-[00:25:23] Will: It's it's hard. Like it's a hard show. I don't know that I would have stuck with it if I hadn't been a. I'm a. I love the books. Richard Richard Morgan's books are really good, even though they're a little misogynist and like where they are now versus where they were when they were written. Yeah. Um. I I don't I don't know that they stuck the landing with Altered Carbon, but I enjoyed watching it for set design and world and and if nothing else, and it hits some real hard high sci high like hard science fiction concepts that are that you don't often see in TV outside of stuff like The Expanse.
+[00:25:23] Will: It's hard. Like it's a hard show. I don't know that I would have stuck with it if I hadn't been a. I'm a. I love the books. Richard Richard Morgan's books are really good, even though they're a little misogynist and like where they are now versus where they were when they were written. Yeah. I don't know that they stuck the landing with Altered Carbon, but I enjoyed watching it for set design and world and if nothing else, and it hits some real hard high sci high like hard science fiction concepts that are that you don't often see in TV outside of stuff like The Expanse.
 
-[00:25:54] Adam: Um. The the the lead actor Joel.
+[00:25:54] Adam: The lead actor Joel.
 
 [00:25:57] Norm: Kinnaman,
 
-[00:25:57] Adam: Kinnaman. Yeah, I wanted to say Edgerton, Kinnaman. Um, one of my favorite voices in Hollywood right now.
+[00:25:57] Adam: Kinnaman. Yeah, I wanted to say Edgerton, Kinnaman. One of my favorite voices in Hollywood right now.
 
 [00:26:03] Will: He's got a good. He's got a. He's got a real face for acting, Like he's got a Karl Urban kind of like very unique look.
 
@@ -646,11 +646,11 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:26:24] Adam: I don't think so.
 
-[00:26:24] Will: Um, you're Kovatch. So, the other guy who plays. So the setup of the show is that you can be your your consciousness is is fungible. You can be beamed from body to body,
+[00:26:24] Will: You're Kovatch. So, the other guy who plays. So the setup of the show is that you can be your consciousness is is fungible. You can be beamed from body to body,
 
 [00:26:35] Adam: uploadable to new body,
 
-[00:26:36] Will: and it's about class warfare. Like the. Right. ultimately, the the whole thing is about the the old people who have had started out with a lot of money were able to transfer from body to body, while the poor is when they run out their first body just get dumped into long term storage, and um the young Takeshi on the planet he grew up on, I like that actor a lot.
+[00:26:36] Will: and it's about class warfare. Like the. Right. ultimately, the whole thing is about the old people who have had started out with a lot of money were able to transfer from body to body, while the poor is when they run out their first body just get dumped into long term storage, and the young Takeshi on the planet he grew up on, I like that actor a lot.
 
 [00:26:36] Adam: Oh, okay.
 
@@ -662,15 +662,15 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:27:02] Norm: One of the. Yeah. Japanese actors.
 
-[00:27:03] Will: Um, it's a like I I think not a knock against um what what's his name? Sorry, Norm.
+[00:27:03] Will: It's a like I I think not a knock against what what's his name? Sorry, Norm.
 
 [00:27:09] Norm: Joel Kinnaman.
 
-[00:27:10] Will: Joel Kinnaman. Yeah, but but
+[00:27:10] Will: Joel Kinnaman. Yeah, but
 
 [00:27:11] Norm: RoboCop.
 
-[00:27:12] Adam: Uh, The Killing.
+[00:27:12] Adam: The Killing.
 
 [00:27:13] Will: Oh. Okay.
 
@@ -678,7 +678,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:27:14] Norm: House of Cards.
 
-[00:27:15] Will: Yeah, yeah. Um. Anyway, yeah, it's I I
+[00:27:15] Will: Yeah, yeah. Anyway, yeah, it's I I
 
 [00:27:18] Adam: what is he in House of Cards? So that I've missed the last couple of seasons?
 
@@ -694,13 +694,13 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:27:28] Will: Like it's interesting. I don't know. I don't know. Like if you're if the first episode grabs you, keep going. You'll be rewarded. If not, the final the last couple episodes are both problematic and really, really incredibly well done, which is it's thought provoking, I guess.
 
-[00:27:40] Adam: Um and in the uh, uh, uh next podcast I want to say we're going to talk about uh we're going to talk about Frank Oz's film Muppet Guys Talking. I’m just giving a shout-out.
+[00:27:40] Adam: And in the next podcast I want to say we're going to talk about we're going to talk about Frank Oz's film Muppet Guys Talking. I’m just giving a shout-out.
 
 [00:27:49] Will: We can see it now?
 
 [00:27:50] Norm: Documentaries.
 
-[00:27:51] Adam: Not quite yet. Um, but. Yeah, maybe I haven't seen it yet. I I I had multiple opportunities. I've just been in the wrong city each time an opportunity has presented itself.
+[00:27:51] Adam: Not quite yet. But. Yeah, maybe I haven't seen it yet. I had multiple opportunities. I've just been in the wrong city each time an opportunity has presented itself.
 
 [00:28:03] Norm: Love a good documentary.
 
@@ -718,9 +718,9 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:28:19] Adam: Ish.
 
-[00:28:19] Norm: Ish. Ish. of course, of course.
+[00:28:19] Norm: Ish. Ish. of course.
 
-[00:28:25] Will: I’m, I’m very excited about watching Last Jedi again. I I I saw it three times in theaters. I didn’t, yeah, I thought it was probably okay, but I’m I’ve been thinking, it's been in the back of my head rattling around.
+[00:28:25] Will: I’m very excited about watching Last Jedi again. I saw it three times in theaters. I didn’t, yeah, I thought it was probably okay, but I’m I’ve been thinking, it's been in the back of my head rattling around.
 
 [00:28:35] Adam: Awesome.
 
@@ -730,7 +730,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:28:35] Will: And you should go watch Paddington too.
 
-[00:28:38] Adam: Paddington two. We're gonna we're gonna bracket this podcast with Paddington two.
+[00:28:38] Adam: Paddington two. We're gonna bracket this podcast with Paddington two.
 
 [00:28:43] Will: Yeah.
 

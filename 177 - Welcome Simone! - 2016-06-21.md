@@ -42,17 +42,17 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:01:36] Adam: Yatch.
 
-[00:01:36] Simone: It doesn't. Yeah. On when when I was on a show, I saw the transcript that they had to pronounce my name was Y-E-T-C-H. Yeah. Yatch.
+[00:01:36] Simone: It doesn't. Yeah. On when I was on a show, I saw the transcript that they had to pronounce my name was Y-E-T-C-H. Yeah. Yatch.
 
 [00:01:43] Adam: Yeah. Yatch.
 
 [00:01:44] Norm: Okay.
 
-[00:01:44] Adam: Like Y-Schwa-T-C-H. Schwa is the verbal sound of like. The uh, it's that kind of. It's not a long a, short a. It's like this kind of uh.
+[00:01:44] Adam: Like Y-Schwa-T-C-H. Schwa is the verbal sound of like. The it's that kind of. It's not a long a, short a. It's like this kind of.
 
 [00:01:55] Norm: Yes, that's a little bit linguistics. Yes,
 
-[00:01:57] Simone: yes. My my name is uh.
+[00:01:57] Simone: yes. My name is.
 
 [00:02:00] Adam: Yuch.
 
@@ -128,17 +128,17 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:03:12] Simone: Yeah, because it was just it's just not the perfect workshop space. It is very crammed.
 
-[00:03:17] Adam: I have been getting uh since on Twitter. I've been asking people to share pictures of their home workspaces. I've been getting some amazingly tiny workspaces, like a full sorting workspace inside of a closet and not a walk-in closet.
+[00:03:17] Adam: I have been getting since on Twitter. I've been asking people to share pictures of their home workspaces. I've been getting some amazingly tiny workspaces, like a full sorting workspace inside of a closet and not a walk-in closet.
 
 [00:03:32] Norm: It's end to end. I mean, and it's. I mean, we often talk about makers, kind of grouped by where they make,
 
 [00:03:39] Adam: right?
 
-[00:03:39] Norm: Right, and the type, and and the their workshop is their philosophy, and it's beautiful. A lot of those workspaces.
+[00:03:39] Norm: Right, and the type, and the their workshop is their philosophy, and it's beautiful. A lot of those workspaces.
 
 [00:03:46] Adam: Well, it's a developing philosophy, right? It changes over the years. I am sure the way you organize your space has changed over the years as you've. Gotten to understand yourself better.
 
-[00:03:55] Simone: I've been kind of a workshop nomad, so I haven't had like my own workshop. Even the one I had in Stockholm, it was one of my friend's workshops, and I just tapped into that environment. But I really look forward to having it. But I mean, maybe that's the new thing, you know, with like mini housing or what's what's it called?
+[00:03:55] Simone: I've been kind of a workshop nomad, so I haven't had like my own workshop. Even the one I had in Stockholm, it was one of my friend's workshops, and I just tapped into that environment. But I really look forward to having it. But I mean, maybe that's the new thing with like mini housing or what's what's it called?
 
 [00:04:08] Norm: The tiny living.
 
@@ -178,9 +178,9 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:05:37] Simone: A couple of blocks, yeah. I was right in the Mission, and I was working at a hardware company. So I am not. I mean, I my my specialty has become building shitty robots, and I started working with hardware or like just building stuff with hardware about two and a half years ago. I just got an Arduino board, and it was like love at first blink. I just loved it, so I started teaching myself about it, and then after about six months, I got a A job as like a maker in residence at a company here in San Francisco. So I moved here from Sweden, and then I moved back after a year. And I was just like, I don't know what to do with my life. I was so I just a typical, typical like 25 year old. What am I supposed to do? How do I find purpose? And I moved back home to Sweden, and I try to cut back on all of my costs so I could free up as much time as possible to spend on the things I found interesting. And that was when like the Queen of Shitty Robots was born because I just started building useless machines because I thought it was a lot of fun. It was a good learning process, and I think like when you take out the necessity of having to build something useful, you just have a lot more freedom. Like if you set out to do something shitty or something useless, you can't really fail, or like failing is accidentally building something useful.
 
-[00:06:48] Adam: Well, but what you're also doing, I feel like, is you're telling an elaborate joke, and and it's like a it's a it's a special form of comedy because it's a long form joke that exists on more than a verbal level.
+[00:06:48] Adam: Well, but what you're also doing, I feel like, is you're telling an elaborate joke, and it's like a it's a special form of comedy because it's a long form joke that exists on more than a verbal level.
 
-[00:07:02] Simone: Maybe, yeah. I mean, I think I think overall. I mean, a lot of people. It's funny when you do this because it really everything that I say about what I do is kind of an afterthought. Because I just started doing it because I was like aimlessly, like, oh, this is fun. This is a good idea.
+[00:07:02] Simone: Maybe, yeah. I mean, I think overall. I mean, a lot of people. It's funny when you do this because it really everything that I say about what I do is kind of an afterthought. Because I just started doing it because I was like aimlessly oh, this is fun. This is a good idea.
 
 [00:07:17] Adam: It's the same for me.
 
@@ -190,19 +190,19 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:07:27] Simone: You're an afterthoughtishian.
 
-[00:07:29] Adam: Well, like I think that I think that everybody is because you can't be surgical about how you plot things out. You can only kind of invest your energy in the thing that is interesting, fascinating, obsessing you at the moment.
+[00:07:29] Adam: Well, like I think that everybody is because you can't be surgical about how you plot things out. You can only kind of invest your energy in the thing that is interesting, fascinating, obsessing you at the moment.
 
-[00:07:42] Simone: Yeah, and I kind of live by the by the by the philosophy of like if I find something interesting, there are probably other people who find it interesting too, and I don't really tax myself with having to have a goal or a purpose with what I do.
+[00:07:42] Simone: Yeah, and I kind of live by the philosophy of like if I find something interesting, there are probably other people who find it interesting too, and I don't really tax myself with having to have a goal or a purpose with what I do.
 
-[00:07:55] Adam: Well, so I said to you when we were first talking on the phone, I love how subversive your jokes are, your your shitty machines, and what I mean is, there's a there's an aspect to them where You both love the technology, and you're showing its limits and how how your ambivalence towards the technology at the same time.
+[00:07:55] Adam: Well, so I said to you when we were first talking on the phone, I love how subversive your jokes are, your shitty machines, and what I mean is, there's a there's an aspect to them where You both love the technology, and you're showing its limits and how how your ambivalence towards the technology at the same time.
 
 [00:08:14] Simone: Yeah, it's both the possibilities and the limits. I mean, I had a lot of people comment, and they're like, " All of your machines are just like different versions of the same like rotary motion." And I think it's, I mean, that's in some way, I'm like, " Whoa, that's great!" Because just showing like with a tiny thing, you can do all these different things.
 
 [00:08:30] Adam: Yeah.
 
-[00:08:30] Simone: And I think overall, like, I mean, I just want to show. I mean, this is also just an afterthought, but I think it's really nice showing like different things you can do with technology, different fun things you can do with very little means and low-level technology.
+[00:08:30] Simone: And I think overall I mean, I just want to show. I mean, this is also just an afterthought, but I think it's really nice showing like different things you can do with technology, different fun things you can do with very little means and low-level technology.
 
-[00:08:41] Norm: And it brings a different amount of delight for everyone, like like the internet commenting robot you did, where it's the head rolling on the keyboard. I think that one might be my favorite. And on the meta level, you're responding to them with the machine.
+[00:08:41] Norm: And it brings a different amount of delight for everyone, like the internet commenting robot you did, where it's the head rolling on the keyboard. I think that one might be my favorite. And on the meta level, you're responding to them with the machine.
 
 [00:08:55] Simone: Yeah, I would. Yeah, so whenever somebody's trolling on my YouTube channel or on Twitter, I just like drag my hand over the keyboard, and I'm just like, " Yeah, here's the commenting robot coming in."
 
@@ -240,17 +240,17 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:10:13] Adam: Ah, Cancun. Yeah. Okay.
 
-[00:10:14] Simone: Okay. Ninth Mission and 19th. Yeah. Yeah. It was. Uh. It was a glorious experience. Good reunion of me and my burrito friend.
+[00:10:14] Simone: Okay. Ninth Mission and 19th. Yeah. Yeah. It was. It was a glorious experience. Good reunion of me and my burrito friend.
 
 [00:10:23] Adam: I am a fan of. I'm particularly a fan of. El Farolito.
 
-[00:10:27] Norm: I know. Did you have to think about that? Because we we we gave it away earlier.
+[00:10:27] Norm: I know. Did you have to think about that? Because we gave it away earlier.
 
-[00:10:30] Adam: We did. We did. We did a whole thing where we didn't reveal my favorite burrito in San Francisco. That's okay. But now it's it's official.
+[00:10:30] Adam: We did. We did. We did a whole thing where we didn't reveal my favorite burrito in San Francisco. That's okay. But now it's official.
 
 [00:10:35] Simone: It's out there. It's out there.
 
-[00:10:36] Adam: Their their their salsa verde, is insane, and it's on 24th in Mission.
+[00:10:36] Adam: Their salsa verde, is insane, and it's on 24th in Mission.
 
 [00:10:42] Simone: I know, but the line is always so long.
 
@@ -270,11 +270,11 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:11:02] Norm: There's that. I think it's what was in the first category.
 
-[00:11:05] Adam: Well, I also love um Papalote.
+[00:11:05] Adam: Well, I also love Papalote.
 
 [00:11:08] Simone: Yeah, but it's like hipster burrito.
 
-[00:11:10] Adam: It is, except that they're. I I get what you mean, and it's funny because I've lived in the Mission since long before Papalote, so I still think of them as that new burrito place, even though they've been there for 18 years.
+[00:11:10] Adam: It is, except that they're. I get what you mean, and it's funny because I've lived in the Mission since long before Papalote, so I still think of them as that new burrito place, even though they've been there for 18 years.
 
 [00:11:20] Simone: Oh wow!
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:13:12] Norm: I'll have to try it.
 
-[00:13:12] Simone: Yeah, we should we should go there.
+[00:13:12] Simone: Yeah, we should go there.
 
 [00:13:14] Adam: I was very dubious, and now we order from there almost once a week.
 
@@ -346,7 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:13:20] Simone: So on this episode, sushi and burritos.
 
-[00:13:23] Adam: Like you were asking if we have a thing we talk about for each podcast, and sometimes we allocate and we we we set it out, but a good portion of the time it's by the seat of our pants.
+[00:13:23] Adam: Like you were asking if we have a thing we talk about for each podcast, and sometimes we allocate and we set it out, but a good portion of the time it's by the seat of our pants.
 
 [00:13:32] Norm: Yes, and then someone tries to rein it in. Okay, rein it back in. Okay, rein it back in.
 
@@ -398,7 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:15:23] Adam: and then he went back to New York, and he's been working on the Colbert Report with Colbert for a long time. And he's like, " I used to work for you," and I'm like, " Oh my God, yeah, I used to sing at the right spot. Wow, that's amazing. It's like totally worlds collide." Anyway, how did the appearance go? How do you? It airs this week.
 
-[00:15:38] Simone: Yeah, it airs this week. I think it went well. So my main thing, like, I don't. I mean, of course, I can get nervous for interviews as well, but the main nervousness is around because I was demoing four machines, and I think whenever you do, like, I mean, it's not live, but it's live on tape,
+[00:15:38] Simone: Yeah, it airs this week. I think it went well. So my main thing, like, I don't. I mean, of course, I can get nervous for interviews as well, but the main nervousness is around because I was demoing four machines, and I think whenever you do I mean, it's not live, but it's live on tape,
 
 [00:15:53] Adam: yeah.
 
@@ -406,11 +406,11 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:16:11] Norm: Failed in the wrong way.
 
-[00:16:12] Simone: It just failed in the wrong way, and that's like the shittiest robot is the one that doesn't start because it's just so. Boring, and that's always like a nervousness of mine. So I was just, I was just kept on like going through all the machines, making sure that everything was plugged in correctly, everything was working, everything was lubricated in the perfect way. But everything worked in its non-working way, and I think it was a lot of fun. Yeah, it's like as soon as you get on, you just stop being nervous. And there, I mean, it's like when you're when you're doing something with as an experienced talk show host as Stephen Colbert, it's like you're sharing the burden of making it fun.
+[00:16:12] Simone: It just failed in the wrong way, and that's like the shittiest robot is the one that doesn't start because it's just so. Boring, and that's always like a nervousness of mine. So I was just kept on like going through all the machines, making sure that everything was plugged in correctly, everything was working, everything was lubricated in the perfect way. But everything worked in its non-working way, and I think it was a lot of fun. Yeah, it's like as soon as you get on, you just stop being nervous. And there, I mean, it's like when you're doing something with as an experienced talk show host as Stephen Colbert, it's like you're sharing the burden of making it fun.
 
 [00:16:46] Adam: Yeah,
 
-[00:16:46] Simone: it's not just on you. And I mean, it's I mean, it's his responsibility as well. So you can just kind of be like, okay, you're in good hands.
+[00:16:46] Simone: it's not just on you. And I mean, it's his responsibility as well. So you can just kind of be like, okay, you're in good hands.
 
 [00:16:51] Norm: Yeah. Was it live? You got one take, and that was it.
 
@@ -428,13 +428,13 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:17:25] Adam: Yes, I do remember this.
 
-[00:17:27] Norm: And and he inter he I had an interaction with him that was that that aired, where he came up to me and he asked me, like if I knew what character he was, and I was very confused. And it was and I took a picture of him. It was only after the fact that we pieced it together.
+[00:17:27] Norm: And he inter he I had an interaction with him that was that that aired, where he came up to me and he asked me, like if I knew what character he was, and I was very confused. And it was and I took a picture of him. It was only after the fact that we pieced it together.
 
 [00:17:43] Adam: Amazing.
 
 [00:17:44] Simone: So you realized that it was him.
 
-[00:17:45] Norm: Not that moment. Not until not until much later. Until I looked through the photo,
+[00:17:45] Norm: Not that moment. Not until much later. Until I looked through the photo,
 
 [00:17:49] Adam: fabulous,
 
@@ -442,7 +442,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:17:53] Simone: and you
 
-[00:17:53] Norm: and it was it was Colbert.
+[00:17:53] Norm: and it was Colbert.
 
 [00:17:55] Simone: Oh wow!
 
@@ -462,9 +462,9 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:19:39] Simone: Do you have a giveaway, though?
 
-[00:19:41] Adam: Um, I don't generally get nervous in front of people. I sometimes get nervous about the stakes. Like, you know, I wanted to do a really good job when I spoke at TED this year, so that was a different kind of anxiety. Do I have a giveaway? I don't know if I have a giveaway.
+[00:19:41] Adam: I don't generally get nervous in front of people. I sometimes get nervous about the stakes. Like I wanted to do a really good job when I spoke at TED this year, so that was a different kind of anxiety. Do I have a giveaway? I don't know if I have a giveaway.
 
-[00:20:03] Simone: Does your Does your because like I get my face gets really red if I get nervous, and but that that can be solved with makeup. But then my hands start shaking, and that's the worst thing, especially when you're doing hardware demos because you have to like actually interact with the machines, and then you're just like. And I always like avoid like. Drinking water. If I do, I take both hands and I drink like a child.
+[00:20:03] Simone: Does your because like I get my face gets really red if I get nervous, and but that that can be solved with makeup. But then my hands start shaking, and that's the worst thing, especially when you're doing hardware demos because you have to like actually interact with the machines, and then you're just like. And I always like avoid like. Drinking water. If I do, I take both hands and I drink like a child.
 
 [00:20:23] Adam: Right.
 
@@ -480,11 +480,11 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:20:43] Norm: Well, one second to the audience in real time, like you time is moving much slower for you on stage than the audience.
 
-[00:20:50] Adam: Well, and you know, I found it the first time I did David Letterman. I it felt in the end when you get married, everyone always tells you you don't remember your wedding day, and it's true. It's really hard to remember because there's so much crap going on, and it moves like at such the freight train speed. You will find that it's like you finish the day, you're like, wow, what just happened? And I felt that on Letterman, and then I started thinking about. I realized when it's moving fast for me, for him. David's been doing this so long that it's moving incredibly slowly to him, and more than that, he's listening to everything that I'm saying, and also building jokes based on the things that I'm saying. And he can see those jokes coming from a mile away and kind of pluck them and deliver them. And Colbert is is the same. And the more you do it, the more it slows down for you.
+[00:20:50] Adam: Well, and I found it the first time I did David Letterman. I it felt in the end when you get married, everyone always tells you don't remember your wedding day, and it's true. It's really hard to remember because there's so much crap going on, and it moves like at such the freight train speed. You will find that it's like you finish the day, you're like, wow, what just happened? And I felt that on Letterman, and then I started thinking about. I realized when it's moving fast for me, for him. David's been doing this so long that it's moving incredibly slowly to him, and more than that, he's listening to everything that I'm saying, and also building jokes based on the things that I'm saying. And he can see those jokes coming from a mile away and kind of pluck them and deliver them. And Colbert is is the same. And the more you do it, the more it slows down for you.
 
 [00:21:38] Simone: But is it slowing down for you now? Like when you're on stage,
 
-[00:21:40] Adam: it does. It is slow. It does, and and yet yet there are still times when I lose my train of thought. That happens in the middle of a question. I tend to I can tend to ramble, and if I'm rambling and I start to get self conscious about it, I'll just go. I may be rambling, and that that's like one of the mechanisms in which I you know transparency is my.
+[00:21:40] Adam: it does. It is slow. It does, and yet yet there are still times when I lose my train of thought. That happens in the middle of a question. I tend to I can tend to ramble, and if I'm rambling and I start to get self conscious about it, I'll just go. I may be rambling, and that that's like one of the mechanisms in which I you know transparency is my.
 
 [00:22:00] Norm: Your brain is very malleable, and I think it trains itself over time. I don't know if I've mentioned this, but when chatting with people on camera, I found that I have no track of time. You know how long things have gone, but at around exactly the six minute. Mark, the person's name comes back to me, and I know that's the six-minute mark. And I know I have two more questions, and that's it to get to around eight minutes.
 
@@ -498,7 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:22:30] Simone: six minutes.
 
-[00:22:31] Adam: You know, it's um at TED this year. There are some talks I do where it's way off the cuff, like at Maker Faire, and there's other talks I do like TED where it's a heavily workshopped piece until I feel like it's this really polished thing. And at TED, when I was doing my talk, which was 14 minutes long, two and a half minutes in, I had this thought like I'm a little ahead of my material, like I'm over anticipating, and I want to be like on that kind of talk. I want to be right on top of the material. I want it to feel, from an improvisational standpoint, like it's really fresh. And I realized that with any talk that I've rehearsed, I always feel like that two minutes in. Like that's one of my mechanisms. Two minutes in, I feel like I'm ahead of the material, so it's time to just slow down and let the material come a little more naturally.
+[00:22:31] Adam: It's at TED this year. There are some talks I do where it's way off the cuff, like at Maker Faire, and there's other talks I do like TED where it's a heavily workshopped piece until I feel like it's this really polished thing. And at TED, when I was doing my talk, which was 14 minutes long, two and a half minutes in, I had this thought like I'm a little ahead of my material, like I'm over anticipating, and I want to be like on that kind of talk. I want to be right on top of the material. I want it to feel, from an improvisational standpoint, like it's really fresh. And I realized that with any talk that I've rehearsed, I always feel like that two minutes in. Like that's one of my mechanisms. Two minutes in, I feel like I'm ahead of the material, so it's time to just slow down and let the material come a little more naturally.
 
 [00:23:16] Norm: Yeah,
 
@@ -520,9 +520,9 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:24:00] Adam: I'm super excited. I don't think either of us has any idea how that's going to go, and that's kind of great. We have not done a lot of planning.
 
-[00:24:08] Simone: It's going to go well. Oh, I feel I feel very good about it.
+[00:24:08] Simone: It's going to go well. Oh, I feel very good about it.
 
-[00:24:12] Adam: I just, I mean, like I don't know what direction it's going to go in. That's where I, that's where I get.
+[00:24:12] Adam: I just, I mean, like I don't know what direction it's going to go in. That's where I get.
 
 [00:24:16] Simone: But that's a good part of it because I think, yeah, also you don't want to get too much ahead of yourself. I mean, and plan.
 
@@ -544,15 +544,15 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:25:43] Adam: that's a great way to put it.
 
-[00:25:45] Simone: Yeah, because I mean, you are you're you're building it, and you're learning so much about the project. And I think that's why. I mean, I start building at a very early stage, so I have an idea. I maybe do a sketch, and then I start building, and then you just learn so much about the project that you wouldn't be able to anticipate.
+[00:25:45] Simone: Yeah, because I mean, you are you're building it, and you're learning so much about the project. And I think that's why. I mean, I start building at a very early stage, so I have an idea. I maybe do a sketch, and then I start building, and then you just learn so much about the project that you wouldn't be able to anticipate.
 
-[00:26:01] Adam: Right, and that's what I I love that type of normalization of because it's not like, well, you know, I'm sure you get this question of like, " Wow, Simone, you're doing so great! How did you get to? How did you get here? And of course, the question implies that your life is a linear drive to this moment.
+[00:26:01] Adam: Right, and that's what I I love that type of normalization of because it's not like, well I'm sure you get this question of like, " Wow, Simone, you're doing so great! How did you get to? How did you get here? And of course, the question implies that your life is a linear drive to this moment.
 
 [00:26:21] Simone: But that's the thing; I've been kind of surprised because I mean, I'm really happy with where I'm at now, and it all seems like the steps I've done a lot of very random things that, in some way, directly or indirectly, led up to this. But you can kind of see how a lot of like the different things I've done in my life have contributed into some way in what I'm doing right now.
 
 [00:26:40] Adam: Right. But it wasn't an overall plan you wrote down when you were 12.
 
-[00:26:43] Simone: And it's like always, I see it kind of like when yeah, but when I was 12, I kind of had. I mean, I had like five year plans for my life. Or when I was 16, I was like, this is this is how it's all going to go down. And then I realized, I mean, that's just not how it works. And now I've just seen it. I mean, you're just skipping from one stone to another, and you're like, oh, that seems like an interesting place, and you try that, and then you're like, oh, all these other stones opened up. Maybe I can jump there. And I think, yeah, it's definitely not linear or planned or anything like that.
+[00:26:43] Simone: And it's like always, I see it kind of like when yeah, but when I was 12, I kind of had. I mean, I had like five year plans for my life. Or when I was 16, I was like, this is how it's all going to go down. And then I realized, I mean, that's just not how it works. And now I've just seen it. I mean, you're just skipping from one stone to another, and you're like, oh, that seems like an interesting place, and you try that, and then you're like, oh, all these other stones opened up. Maybe I can jump there. And I think, yeah, it's definitely not linear or planned or anything like that.
 
 [00:27:08] Adam: And that's good. And that's okay.
 
@@ -572,7 +572,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:27:35] Adam: we all are.
 
-[00:27:36] Simone: But still, it's yeah, it's it's really. I think you're if you have a plan, you're excluding a lot of amazing opportunities.
+[00:27:36] Simone: But still, it's yeah, it's really. I think you're if you have a plan, you're excluding a lot of amazing opportunities.
 
 [00:27:43] Adam: Well, if you have a plan that you're rigidly adhering to,
 
@@ -606,7 +606,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:28:44] Simone: Oh, wow.
 
-[00:28:44] Adam: moved to the United States to the Dakotas in like 1906, and you know, he was one of the Norwegian bachelor farmers that Garrison Keillor talks about on Prairie Home Companion, and grew up with a healthy sort of racist disdain for Swedes. And
+[00:28:44] Adam: moved to the United States to the Dakotas in like 1906, and he was one of the Norwegian bachelor farmers that Garrison Keillor talks about on Prairie Home Companion, and grew up with a healthy sort of racist disdain for Swedes. And
 
 [00:29:04] Simone: healthy
 
@@ -614,7 +614,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:29:08] Simone: right? Right. Right.
 
-[00:29:08] Adam: And apparently went back and visited Norway in his in his middle age, so this would be the 1940s or '50s. And apparently, discovered at that point he was like speaking Norwegian because he grew up speaking Norwegian, and he's like going around Norway speaking to everybody like what he remembers from when he was 10 years old, and he's very proud that he can speak the language. It turns out a day and a half in that actually he speaks Swedish.
+[00:29:08] Adam: And apparently went back and visited Norway in his middle age, so this would be the 1940s or '50s. And apparently, discovered at that point he was like speaking Norwegian because he grew up speaking Norwegian, and he's like going around Norway speaking to everybody like what he remembers from when he was 10 years old, and he's very proud that he can speak the language. It turns out a day and a half in that actually he speaks Swedish.
 
 [00:29:37] Simone: No.
 
@@ -634,7 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:30:14] Simone: Burn.
 
-[00:30:14] Adam: I don't mean that. well. He was a he was a surgeon. He was actually my grandfather was one of the pioneers of breast cancer surgery in the '40s and the '50s. And my mom actually remembers. I mean, he was very much a Norwegian father. Like when my mom was first pregnant, he was like, " Yes, my dear, it's exactly what I expected of you."
+[00:30:14] Adam: I don't mean that. well. He was a surgeon. He was actually my grandfather was one of the pioneers of breast cancer surgery in the '40s and the '50s. And my mom actually remembers. I mean, he was very much a Norwegian father. Like when my mom was first pregnant, he was like, " Yes, my dear, it's exactly what I expected of you."
 
 [00:30:37] Norm: Wow,
 
@@ -642,7 +642,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:30:40] Simone: to have a child to
 
-[00:30:41] Adam: hearing about his first grandchild being born. But but my mom remembers going with him to the hospital when she was like 9 or 10 and discovering that my grandfather had this tremendously awesome bedside manner, super great with people and charismatic, and all of this side of him she had never seen. It's just not at home. She was absolutely livid. How did we get on this subject?
+[00:30:41] Adam: hearing about his first grandchild being born. But my mom remembers going with him to the hospital when she was like 9 or 10 and discovering that my grandfather had this tremendously awesome bedside manner, super great with people and charismatic, and all of this side of him she had never seen. It's just not at home. She was absolutely livid. How did we get on this subject?
 
 [00:31:03] Norm: I don't know. You had a story.
 
@@ -668,13 +668,13 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:31:38] Simone: I think it's Sold out though.
 
-[00:31:40] Norm: Wow. Maybe maybe we'll film it film it or something.
+[00:31:40] Norm: Wow. Maybe maybe we'll film it or something.
 
 [00:31:43] Simone: Yeah, it'll be fun. I really look forward to it.
 
 [00:31:46] Norm: Yes,
 
-[00:31:47] Adam: that's really cool. I'm actually, and again, this will help you guys place this in time. I'm interviewing Mary Roach on stage tonight. Yeah, I don't know if you're familiar with her writing, but she's she's a good friend, and she's amazing.
+[00:31:47] Adam: that's really cool. I'm actually, and again, this will help you guys place this in time. I'm interviewing Mary Roach on stage tonight. Yeah, I don't know if you're familiar with her writing, but she's a good friend, and she's amazing.
 
 [00:31:58] Simone: Good stuff.
 
@@ -682,9 +682,9 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:32:01] Unknown speaker: All right.
 
-[00:32:01] Adam: Is there anything to to tell the kids about Tested this week?
+[00:32:01] Adam: Is there anything to tell the kids about Tested this week?
 
-[00:32:04] Norm: On the site this week, depending on when this episode goes up. Uh, we may have some BattleBots stuff coming on the site
+[00:32:04] Norm: On the site this week, depending on when this episode goes up. We may have some BattleBots stuff coming on the site
 
 [00:32:13] Unknown speaker: Oh, nice. Oh my God.
 
@@ -694,9 +694,9 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:32:17] Unknown speaker: No problem.
 
-[00:32:17] Norm: Yes. Okay. So this week, uh, we're gonna have some BattleBots stuff going up on the site this week
+[00:32:17] Norm: Yes. Okay. So this week we're gonna have some BattleBots stuff going up on the site this week
 
-[00:32:23] Adam: because I very specifically tested was at BattleBots for the for the recording of the most recent season. I was a guest judge on two of the episodes. Yeah, was super fun.
+[00:32:23] Adam: because I very specifically tested was at BattleBots for the recording of the most recent season. I was a guest judge on two of the episodes. Yeah, was super fun.
 
 [00:32:32] Norm: When the next season happens, we gotta get you there.
 

@@ -22,11 +22,11 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:00:25] Adam: Ron Perlman. Well,
 
-[00:00:26] Will: does he wear does he wear prosthetic hands in those movies?
+[00:00:26] Will: does he wear prosthetic hands in those movies?
 
 [00:00:28] Adam: No, he doesn't wear prosthetic hands. His hands just have makeup on. He has a prosthetic arm piece.
 
-[00:00:33] Norm: Has the the arm piece.
+[00:00:33] Norm: Has the arm piece.
 
 [00:00:34] Adam: Right, right. I guess that is prosthetic. But Ron Perlman's only like six one or six two. He's not a giant.
 
@@ -34,13 +34,13 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:00:40] Adam: I know. I met him at Comic Con last year. He's
 
-[00:00:44] Will: Was he, he was there for Pacific Rim, I guess.
+[00:00:44] Will: Was he was there for Pacific Rim, I guess.
 
 [00:00:46] Adam: Yeah, and like many actors, he's got a giant head.
 
 [00:00:46] Will: Right,
 
-[00:00:46] Adam: right. I mean, he's he's he fills a lot of space.
+[00:00:46] Adam: right. I mean, he's he fills a lot of space.
 
 [00:00:53] Norm: What Entourage says, you need the big head.
 
@@ -64,7 +64,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:01:13] Will: think he makes that gun look good.
 
-[00:01:15] Adam: He does, man. And this is this is one of the real ones from the movie. It's hard rubber.
+[00:01:15] Adam: He does, man. And this is one of the real ones from the movie. It's hard rubber.
 
 [00:01:18] Will: Oh, this is an actual film used prop.
 
@@ -74,9 +74,9 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:01:27] Adam: Yes. No. That's the only. That's yeah.
 
-[00:01:29] Will: Like, you. I'm not man enough to hold this in the in the up way. Much less the.
+[00:01:29] Will: Like, you. I'm not man enough to hold this in the up way. Much less the.
 
-[00:01:35] Adam: My son was my son was challenging me just to hold it out for a while.
+[00:01:35] Adam: My son was challenging me just to hold it out for a while.
 
 [00:01:39] Will: Just just straight out.
 
@@ -86,11 +86,11 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:01:44] Norm: It’s a tiny cricket.
 
-[00:01:46] Adam: I want to find I want to find one that's in between. I want every size of Samaritan there could be.
+[00:01:46] Adam: I want to find one that's in between. I want every size of Samaritan there could be.
 
 [00:01:50] Will: My arm's starting to shake pretty good now.
 
-[00:01:52] Norm: Well, with with 3D printing.
+[00:01:52] Norm: Well, with 3D printing.
 
 [00:01:53] Will: See what you don't see is that there's a somebody off camera that took it, and I'm just shaking my hand just a little bit.
 
@@ -116,7 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:02:27] Will: Okay.
 
-[00:02:27] Adam: And it was it was crazy
+[00:02:27] Adam: And it was crazy
 
 [00:02:41] Will: where we did the omelet video
 
@@ -148,7 +148,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:03:37] Will: Okay, that's good.
 
-[00:03:37] Adam: This is it's it's for a school, so the trick is to have the goal is to have fun, and the goal was totally achieved.
+[00:03:37] Adam: This is it's for a school, so the trick is to have the goal is to have fun, and the goal was totally achieved.
 
 [00:03:43] Norm: And you use heated plates?
 
@@ -156,19 +156,19 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:03:47] Will: Okay, paper plates.
 
-[00:03:48] Adam: You know, on Top Chef, temperature is the the judges are told to ignore temperature because the food will never get to them at the right heat.
+[00:03:48] Adam: On Top Chef, temperature is the judges are told to ignore temperature because the food will never get to them at the right heat.
 
 [00:03:48] Norm: Right,
 
 [00:03:48] Adam: with all the camera coverage and everything. Yeah,
 
-[00:03:57] Will: that's that's brutal. Like that. That is such a key aspect of the eating.
+[00:03:57] Will: that's brutal. Like that. That is such a key aspect of the eating.
 
 [00:04:03] Norm: But what was the joke?
 
 [00:04:04] Will: Yeah. Oh, there was a joke.
 
-[00:04:05] Adam: So there was a quiz that was there was a quiz, and one of the questions was what? And here's it's an interesting question. You might not know it. I didn't. What is the oldest recipe? What is the what is what is the product that you can make with the oldest recorded recipe in history? What is the cooked food product?
+[00:04:05] Adam: So there was a quiz that was there was a quiz, and one of the questions was what? And here's it's an interesting question. You might not know it. I didn't. What is the oldest recipe? What is the product that you can make with the oldest recorded recipe in history? What is the cooked food product?
 
 [00:04:26] Will: Probably beer, right?
 
@@ -188,7 +188,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:04:35] Will: But they didn't. They didn't have recipe. They just said chuck the food in the fire for a little bit and then get it out before it lights on.
 
-[00:04:40] Adam: Right. Wait. Wait. Wait. Wait. Wait. I'm I'm I'm I'm giving away the joke. Hold on. Earlier, the question was the
+[00:04:40] Adam: Right. Wait. Wait. Wait. Wait. Wait. I'm giving away the joke. Hold on. Earlier, the question was the
 
 [00:04:46] Will: aristocrats.
 
@@ -218,7 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:05:17] Will: See, that's good. That's good. See how it works. Yeah, it works out. It all comes together.
 
-[00:05:17] Adam: You know, you got a good callback in there. Yeah. Yeah. Woohoo!
+[00:05:17] Adam: You got a good callback in there. Yeah. Yeah. Woohoo!
 
 [00:05:26] Will: Did you get a big cheer from that?
 
@@ -232,7 +232,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:05:30] Adam: Nope.
 
-[00:05:30] Will: Okay. That's probably best. No. When I think about the the dinner of the jokes, that's funny.
+[00:05:30] Will: Okay. That's probably best. No. When I think about the dinner of the jokes, that's funny.
 
 [00:05:37] Adam: I think so too.
 
@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:05:56] Will: God, it's got to weigh a ton too.
 
-[00:05:57] Adam: It it it's pretty close to this weight.
+[00:05:57] Adam: It it's pretty close to this weight.
 
 [00:05:57] Will: Okay.
 
@@ -258,9 +258,9 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:06:12] Will: You'd still smash your foot.
 
-[00:06:13] Adam: Yeah, man, you you never believe this was rubber, but I still would like to machine one out of aluminum.
+[00:06:13] Adam: Yeah, man, you never believe this was rubber, but I still would like to machine one out of aluminum.
 
-[00:06:18] Will: That is a that is a tough machine job.
+[00:06:18] Will: That is a tough machine job.
 
 [00:06:20] Adam: It's just it's a lot of work.
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:06:29] Will: What caliber bullet is the? It's like bigger than a 50 cal.
 
-[00:06:33] Adam: Yeah, we can measure it. I've got some other bullets over there, but it's it's a lot.
+[00:06:33] Adam: Yeah, we can measure it. I've got some other bullets over there, but it's a lot.
 
 [00:06:38] Will: That's something for the folks at home.
 
@@ -286,7 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:06:49] Will: quad rotor, octa rotor,
 
-[00:06:49] Adam: flying cameras, flying cameras.
+[00:06:49] Adam: flying cameras.
 
 [00:06:53] Will: Let’s say, call them aerial jib replacements.
 
@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:07:07] Norm: I have those.
 
-[00:07:07] Adam: And those are those are fine.
+[00:07:07] Adam: And those are fine.
 
 [00:07:10] Norm: They’re fun.
 
@@ -318,15 +318,15 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:07:16] Will: Yes,
 
-[00:07:17] Adam: that's that's a problem.
+[00:07:17] Adam: that's a problem.
 
 [00:07:18] Will: They’re good for terrorizing the dog, though.
 
-[00:07:19] Adam: They're certainly good for terrorizing the dog. Um, but um, we on MythBusters are always seeking to get the most production value we can, and we only have a three-person camera crew: Scott Sorensen, our A-camera; Willie Nail, our second camera and high-speed operator; and Duncan Clark, our second camera and high-speed operator. Um, and all three of these guys are just super, super dedicated. They’re like eat, sleep, and breathe cameras, and it's a really amazing team. They get a lot. Imagine that it's everything.
+[00:07:19] Adam: They're certainly good for terrorizing the dog. But we on MythBusters are always seeking to get the most production value we can, and we only have a three-person camera crew: Scott Sorensen, our A-camera; Willie Nail, our second camera and high-speed operator; and Duncan Clark, our second camera and high-speed operator. And all three of these guys are just super, super dedicated. They’re like eat, sleep, and breathe cameras, and it's a really amazing team. They get a lot. Imagine that it's everything.
 
-[00:07:46] Will: Three people seems like not a lot of people for the amount of, and not just for the amount, but for the the one-off nature of a lot of the stuff that you guys are shooting. The fact that you get one chance to blow up the cement truck, right?
+[00:07:46] Will: Three people seems like not a lot of people for the amount of, and not just for the amount, but for the one-off nature of a lot of the stuff that you guys are shooting. The fact that you get one chance to blow up the cement truck, right?
 
-[00:07:58] Adam: I mean, and the the simple fact is, the number of times they get the shot when there was only one chance to get it.
+[00:07:58] Adam: I mean, and the simple fact is, the number of times they get the shot when there was only one chance to get it.
 
 [00:08:04] Will: It's all of them, I assume.
 
@@ -334,11 +334,11 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:08:10] Will: It's amazing in 10 years, 200 episodes.
 
-[00:08:12] Adam: Yeah, it's pretty pretty amazing. Um, and Duncan, uh, his father is actually a a cameraman. Uh, I can't remember his father's name, but his father is a IMAX cameraman and has been for many many years.
+[00:08:12] Adam: Yeah, it's pretty pretty amazing. And Duncan his father is actually a cameraman. I can't remember his father's name, but his father is a IMAX cameraman and has been for many many years.
 
 [00:08:26] Norm: Wow, yeah, that's heavy duty,
 
-[00:08:27] Adam: heavy heavy duty. So Duncan's legacy and Duncan's particular bailiwick is quad rotors, and then now he's actually purchased a five foot diameter octo rotor that has, I think, all told, it’s 17 pounds when it's loaded with the camera, but it can handle a a 5D Mark three. Yeah, I think you could even put an FS700 on it if you if you dared.
+[00:08:27] Adam: heavy heavy duty. So Duncan's legacy and Duncan's particular bailiwick is quad rotors, and then now he's actually purchased a five foot diameter octo rotor that has, I think, all told, it’s 17 pounds when it's loaded with the camera, but it can handle a 5D Mark three. Yeah, I think you could even put an FS700 on it if you dared.
 
 [00:08:53] Norm: So he
 
@@ -348,15 +348,15 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:08:56] Adam: Yeah, he uses video and transmitter, and it's totally good enough for 1,000 feet.
 
-[00:09:02] Will: Did he buy something off the shelf, or did he did he put it together himself?
+[00:09:02] Will: Did he buy something off the shelf, or did he put it together himself?
 
 [00:09:05] Adam: He put it together himself from multiple components. So he bought the gimbal rig for the camera, which is a stabilizing gimbal rig. Which,
 
 [00:09:05] Norm: yes.
 
-[00:09:05] Adam: So this is all by way of talking about the the the
+[00:09:05] Adam: So this is all by way of talking about the
 
-[00:09:16] Norm: Phantom. Yes, the DJI Phantom. So we have a mutual friend now. On Tested, we reviewed. We've been testing quadrotors. DJI is the Chinese company that makes a consumer-friendly quadrotor slash drone. It's called the Phantom. They also make like the the high-end multi-rotor, the big ones.
+[00:09:16] Norm: Phantom. Yes, the DJI Phantom. So we have a mutual friend now. On Tested, we reviewed. We've been testing quadrotors. DJI is the Chinese company that makes a consumer-friendly quadrotor slash drone. It's called the Phantom. They also make like the high-end multi-rotor, the big ones.
 
 [00:09:37] Will: I think what they do as a company, like the main thing that they've done, is gimbal mounts for like news helicopters, though, right?
 
@@ -370,7 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:10:11] Norm: $200 for a two-axis gimbal,
 
-[00:10:12] Adam: for a two-axis gimbal, and it's like $300 for a three-axis gimbal. But they they make these all the way up to professional rigs. There is a thing called a Movi M O V I. Yeah, V I.
+[00:10:12] Adam: for a two-axis gimbal, and it's like $300 for a three-axis gimbal. But they make these all the way up to professional rigs. There is a thing called a Movi M O V I. Yeah, V I.
 
 [00:10:22] Will: We saw it at NAB
 
@@ -388,9 +388,9 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:10:33] Will: And then some doodle posted thing on Instructables.
 
-[00:10:35] Adam: Well, yeah, and you can literally, basically, it almost eliminates the need for a Steadicam because with this thing, you can run down the street, up and down, and the up and down is the only thing that will yeah. You'll see everything else will remain perfectly stable on a very very. Tight vibrational rig. Uh, metric. I mean, when Duncan loads up his octocopter, you can't see any camera shake at all,
+[00:10:35] Adam: Well, yeah, and you can literally, basically, it almost eliminates the need for a Steadicam because with this thing, you can run down the street, up and down, and the up and down is the only thing that will yeah. You'll see everything else will remain perfectly stable on a very very. Tight vibrational rig. Metric. I mean, when Duncan loads up his octocopter, you can't see any camera shake at all,
 
-[00:10:59] Norm: right? And that's that's talking about three axis stabilization, translation movement, vertical movement is still there. It's only a matter of time when you get that stabilized,
+[00:10:59] Norm: right? And that's talking about three axis stabilization, translation movement, vertical movement is still there. It's only a matter of time when you get that stabilized,
 
 [00:10:59] Adam: yeah.
 
@@ -400,15 +400,15 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:11:41] Will: So that means 1080p and
 
-[00:11:42] Adam: yes, but it means it means it means that everything we use falls into that category except for the GoPros.
+[00:11:42] Adam: yes, but it means that everything we use falls into that category except for the GoPros.
 
 [00:11:42] Will: Okay,
 
-[00:11:42] Adam: the GoPros are 1080p, but they're not quite broadcast quality. So you You have to. We have to limit in the edit sometimes the number of GoPro shots we have.
+[00:11:42] Adam: the GoPros are 1080p, but they're not quite broadcast quality. So you have to. We have to limit in the edit sometimes the number of GoPro shots we have.
 
-[00:11:59] Will: And I assume, I assume you guys probably have an exception. Like you probably have an unusual contract because I bet most people aren't allowed to use GoPros. It's just because of the stuff that you do.
+[00:11:59] Will: And I assume you guys probably have an exception. Like you probably have an unusual contract because I bet most people aren't allowed to use GoPros. It's just because of the stuff that you do.
 
-[00:12:07] Adam: I don't. I have no idea what what is. And frankly, I might be getting the actual terms wrong. I just know that Discovery requires our production company to deliver a certain percentage of footage being in the fullest broadcast HD.
+[00:12:07] Adam: I don't. I have no idea what is. And frankly, I might be getting the actual terms wrong. I just know that Discovery requires our production company to deliver a certain percentage of footage being in the fullest broadcast HD.
 
 [00:12:19] Norm: That's really funny because movies have no such requirement. If a director wants to film a movie, I saw this movie, The Raid Two, over the weekend.
 
@@ -424,21 +424,21 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:12:42] Norm: the pocket Cinema Cam,
 
-[00:12:43] Adam: the pocket Cinema Cam. We have three or four of them in some really bulletproof housings that are just covered everywhere with. 1/4-20 and 3/8-16 tapped holes. They're fantastic cameras from broadcast quality standpoint. They're not great in low light, and their audio is terrible. But they're beautiful. Plus they they take our they take all of our different lenses. Yes, right. So we have a lens package that all works with those guys.
+[00:12:43] Adam: the pocket Cinema Cam. We have three or four of them in some really bulletproof housings that are just covered everywhere with. 1/4-20 and 3/8-16 tapped holes. They're fantastic cameras from broadcast quality standpoint. They're not great in low light, and their audio is terrible. But they're beautiful. Plus they take our they take all of our different lenses. Yes, right. So we have a lens package that all works with those guys.
 
 [00:13:09] Norm: Yeah, they're a micro four thirds camera mount. Blackmagic had a Cinema Cam from two years ago, and this is the pocket version, $1,000, and you can shoot in ProRes or RAW, basically.
 
-[00:13:18] Will: So it's basically three times the price of of the high end GoPro three, but in a real camera with again bad audio.
+[00:13:18] Will: So it's basically three times the price of the high end GoPro three, but in a real camera with again bad audio.
 
 [00:13:21] Unknown speaker: Yeah. Mm-hmm.
 
-[00:13:24] Adam: Well, the fact is, is that one of the things we're doing this season that you'll start to see next year is we're filming we're we're filming some. I want to say this in the broadest way possible, so as not to giving anything away, but there are certain things we're doing in a more cinematic style, and the Blackmagics with the real what do you call it prime glass on it. You know, a nice 85 1.2 gives us that real cinematic look, and that's just that's where the Blackmagic exceeds almost any other camera we could use, except for you know DSLRs, which frankly we have used a few times on the show, but it's a real pain in the ass from a from a editing chain standpoint.
+[00:13:24] Adam: Well, the fact is, is that one of the things we're doing this season that you'll start to see next year is we're filming some. I want to say this in the broadest way possible, so as not to giving anything away, but there are certain things we're doing in a more cinematic style, and the Blackmagics with the real what do you call it prime glass on it. You know, a nice 85 1.2 gives us that real cinematic look, and that's just that's where the Blackmagic exceeds almost any other camera we could use, except for you know DSLRs, which frankly we have used a few times on the show, but it's a real pain in the ass from a editing chain standpoint.
 
 [00:13:24] Norm: Yes,
 
 [00:13:24] Adam: the Blackmagic is actually the easiest camera for our editing chain.
 
-[00:14:06] Will: Yeah, well, because it outputs it outputs editor-ready
+[00:14:06] Will: Yeah, well, because it outputs editor-ready
 
 [00:14:06] Adam: yeah,
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:14:11] Unknown speaker: I'm not going to ask why.
 
-[00:14:11] Adam: I know it's just because it's it's Dunk Dunk Duke or Duky, and I am like I can't believe you let Duky be your nickname. And he's like, it happens.
+[00:14:11] Adam: I know it's just because it's Dunk Dunk Duke or Duky, and I am like I can't believe you let Duky be your nickname. And he's like, it happens.
 
 [00:14:11] Unknown speaker: I like Will Nail a lot.
 
@@ -456,7 +456,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:14:46] Will: Does he have novelty facial hair.
 
-[00:14:48] Adam: He has novelty facial hair, and there are some cuts in the in the new season where you'll actually see Willie operating. And if you do, he often gives a little point to the camera because he's so awesome.
+[00:14:48] Adam: He has novelty facial hair, and there are some cuts in the new season where you'll actually see Willie operating. And if you do, he often gives a little point to the camera because he's so awesome.
 
 [00:14:57] Norm: Nice. Nice, that's smooth.
 
@@ -472,11 +472,11 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:15:09] Will: Oh,
 
-[00:15:10] Adam: he used to have a little plane. We lost that one in Utah in the in the Monument Valley.
+[00:15:10] Adam: he used to have a little plane. We lost that one in Utah in the Monument Valley.
 
 [00:15:16] Will: Oh,
 
-[00:15:17] Adam: in the in the in the in the yeah, he was flying it down the river that we were on.
+[00:15:17] Adam: in the yeah, he was flying it down the river that we were on.
 
 [00:15:21] Will: Yeah.
 
@@ -504,7 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:15:45] Norm: Okay.
 
-[00:15:46] Adam: And you know, there's just ways in which they're they're very expensive cameras. I mean, the lenses alone are between like start at like $15,000. But you know, when people say, " Oh yeah, you could shoot a movie with this thing," the fact is is that if left to their own devices, even though these cameras are heavy and expensive, cameramen prefer them because they because the cameraman can zoom and iris and focus all as fast as this is the camera is built for that. It is built to be able to do all those things at once as fast as humanly possible.
+[00:15:46] Adam: And there's just ways in which they're very expensive cameras. I mean, the lenses alone are between like start at like $15,000. But you know, when people say, " Oh yeah, you could shoot a movie with this thing," the fact is is that if left to their own devices, even though these cameras are heavy and expensive, cameramen prefer them because they because the cameraman can zoom and iris and focus all as fast as this is the camera is built for that. It is built to be able to do all those things at once as fast as humanly possible.
 
 [00:16:23] Will: For when we go, sometimes we'll get demos for cameras from different vendors, and they'll say, " Look, we look at we have the smoothest auto zoom you've ever seen." I was like, " They're never going to use it. This is something that no one is ever going to use."
 
@@ -544,7 +544,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:17:22] Will: Oh yeah,
 
-[00:17:23] Adam: which had this wonderful feature that if you brought the metadata onto the screen to see things and you didn't remove it, it recorded on a fucking tape.
+[00:17:23] Adam: which had this wonderful feature that if you brought the metadata onto the screen to see things and you didn't remove it recorded on a fucking tape.
 
 [00:17:33] Will: So I'll tell you a secret about those little clamshell recorders.
 
@@ -564,7 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:18:12] Will: That that stuff has been like yeah. Anyway,
 
-[00:18:14] Adam: so from that, but but over the so that was where we shot the we shot the pilots on three of those Sony's, and that was just you know moving them around and stuff like that. Then
+[00:18:14] Adam: so from that, but over the so that was where we shot the pilots on three of those Sony's, and that was just you know moving them around and stuff like that. Then
 
 [00:18:24] Will: Did you have a high speed then or no?
 
@@ -588,15 +588,15 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:19:30] Norm: Sync it up.
 
-[00:19:31] Adam: Yeah. Actually, the little Bluetooth thing he uses, the little dongle, it just literally straps right to the top of the Sony in the. Okay. I think in the the microphone mount or that utility mount that they call it.
+[00:19:31] Adam: Yeah. Actually, the little Bluetooth thing he uses, the little dongle, it just literally straps right to the top of the Sony in the. Okay. I think in the microphone mount or that utility mount that they call it.
 
 [00:19:31] Will: So then the rest.
 
 [00:19:31] Adam: But the GoPro was a mind. The GoPro was mind blowing when it first came out.
 
-[00:19:47] Norm: Yeah. What were the—what were the technologies in those 10 years where, like, the camera guy ran? We got this thing now. We got to try it before the GoPro. Did you guys experiment with anything else?
+[00:19:47] Norm: Yeah. What were the technologies in those 10 years where the camera guy ran? We got this thing now. We got to try it before the GoPro. Did you guys experiment with anything else?
 
-[00:19:56] Adam: There wasn't many. I mean, we we we got a better high speed camera at one point, but then somewhere, and I really can't remember the timeline. The Phantom was a big expense. We bought it new, and it was well over $100,000.
+[00:19:56] Adam: There wasn't many. I mean, we got a better high speed camera at one point, but then somewhere, and I really can't remember the timeline. The Phantom was a big expense. We bought it new, and it was well over $100,000.
 
 [00:20:07] Norm: This is the Phantom high speed camera.
 
@@ -612,9 +612,9 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:20:34] Will: Yeah, well, like adding viewfinders to high speed cameras was a big deal when that happened.
 
-[00:20:39] Adam: It was it was a significant improvement in our ability to cover stuff because before that, I mean, we even had like the cameraman looking through a cardboard tube. Like literally parallax, right? To try and follow something that was blowing up while moving through the wall.
+[00:20:39] Adam: It was a significant improvement in our ability to cover stuff because before that, I mean, we even had like the cameraman looking through a cardboard tube. Like literally parallax, right? To try and follow something that was blowing up while moving through the wall.
 
-[00:20:53] Will: Well. That's how. That's how, like the that Sherlock Holmes movie that famously used the Phantom high speed cameras to do the you know to do the the
+[00:20:53] Will: Well. That's how. That's how, like the that Sherlock Holmes movie that famously used the Phantom high speed cameras to do the you know to do the
 
 [00:20:53] Adam: Right, the fight scenes.
 
@@ -634,7 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:21:17] Will: What?
 
-[00:21:19] Adam: Okay, so which even which even using the highest end hard drive they have bolted to the top took something like 25 minutes to download that shot.
+[00:21:19] Adam: Okay, so which even using the highest end hard drive they have bolted to the top took something like 25 minutes to download that shot.
 
 [00:21:27] Will: 73,000 frames a second is going to be two two thousandths the speed or something like that 20 thousandths the speed.
 
@@ -660,13 +660,13 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:22:19] Adam: No, it's really good.
 
-[00:22:19] Will: Yeah. I mean, we we tested that edgertronic, and to get 720p out of that, it was like
+[00:22:19] Will: Yeah. I mean, we tested that edgertronic, and to get 720p out of that, it was like
 
 [00:22:24] Norm: 700,
 
 [00:22:24] Will: 700.
 
-[00:22:25] Adam: And so, what what the camera does when you want to go higher frame rate than 7,000 is it chops the frame to save some pixels. So the point of which, yes, you can shoot 100,000, 100,000 frames per second, but at that point, you are shooting this little tiny square in the middle of your...
+[00:22:25] Adam: And so, what the camera does when you want to go higher frame rate than 7,000 is it chops the frame to save some pixels. So the point of which, yes, you can shoot 100,000, 100,000 frames per second, but at that point, you are shooting this little tiny square in the middle of your...
 
 [00:22:40] Will: It’s a postage stamp.
 
@@ -694,9 +694,9 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:23:19] Adam: But it's a lot less than destroying a Sony H C three for six fifteen hundred.
 
-[00:23:23] Will: Yeah. So and and the neat thing about it is even when the camera gets destroyed, usually the SD card inside will be fine, so you can still get you know. Have you destroyed any cards?
+[00:23:23] Will: Yeah. So and the neat thing about it is even when the camera gets destroyed, usually the SD card inside will be fine, so you can still get you know. Have you destroyed any cards?
 
-[00:23:31] Adam: We have corrupted a a few cards. I know that they've had trouble with that, and that's always hard.
+[00:23:31] Adam: We have corrupted a few cards. I know that they've had trouble with that, and that's always hard.
 
 [00:23:39] Norm: As long as the card doesn't run out of space.
 
@@ -712,11 +712,11 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:23:50] Will: Oh, my bad.
 
-[00:23:53] Adam: But the the the latest thing that that has been really exciting has been uh has been the Blackmagics and Duncan's octocopter.
+[00:23:53] Adam: But the latest thing that that has been really exciting has been the Blackmagics and Duncan's octocopter.
 
 [00:24:02] Norm: So before for aerial footage, did you guys have to rent helicopters?
 
-[00:24:06] Adam: We've rented helicopters for certain shoots, like the second rocket car episode. We rented a helicopter with with an operator, and that camera guy, man, you talk to him; he filmed everything in Hollywood. And the guy can drive his helicopter
+[00:24:06] Adam: We've rented helicopters for certain shoots, like the second rocket car episode. We rented a helicopter with an operator, and that camera guy, man, you talk to him; he filmed everything in Hollywood. And the guy can drive his helicopter
 
 [00:24:20] Will: while shooting.
 
@@ -740,13 +740,13 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:25:39] Norm: Reception. If it loses the trans, you can turn off the transmitter when it's 1,000 feet away, and then 800, 700 meters away, and it will come back. Well, so it will hover 20 meters.
 
-[00:25:49] Adam: It comes back to where where it knows you are.
+[00:25:49] Adam: It comes back to where it knows you are.
 
 [00:25:51] Will: Yeah,
 
 [00:25:51] Adam: that's freaking cool.
 
-[00:25:53] Will: The the amazing thing about that though is that you know when we posted that video and we posted the article, people immediately came out and said, " Well, you know, the hobbyists, the guys who have been doing this for five years now and have been building their own, like Duncan and I, yeah, we're like, look, this is nothing. This is two years old. You can go out and you can put on a pair of goggles. You can fly 60 kilometers away. You can come back and and get first person video the whole way.
+[00:25:53] Will: The amazing thing about that though is that you know when we posted that video and we posted the article, people immediately came out and said, " Well, you know, the hobbyists, the guys who have been doing this for five years now and have been building their own, like Duncan and I, yeah, we're like, look, this is nothing. This is two years old. You can go out and you can put on a pair of goggles. You can fly 60 kilometers away. You can come back and and get first person video the whole way.
 
 [00:25:53] Norm: Right.
 
@@ -760,7 +760,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:26:19] Adam: Got this beautiful transmitter that transmits really clear video from really far away. And usually because when we're using the helicopter, we're in wide open spaces which are ideal for that kind of transmission range. But he sits there with these black goggles on, and he's moving his head. And I'm like, Ray Charles, how's the shot going?
 
-[00:26:43] Norm: So there are in the hobbyist community for for for multirotors and flying by video.
+[00:26:43] Norm: So there are in the hobbyist community for multirotors and flying by video.
 
 [00:26:43] Adam: Yeah,
 
@@ -778,13 +778,13 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:26:58] Norm: And so there are competitions and events where people you'll see a row of people on lawn chairs, and they all have the goggles, and they're all watching one person do stunts and fly, and they're seeing all the same thing, and they're all at the same time moving their head and going, " Ooh, that was a cool stunt."
 
-[00:27:26] Adam: You know, the other thing that's happening that's really cool about this multirotor camera platform stuff is that the parts. I mean, Duncan didn't buy. But he his first quad rotor was an off the shelf kit. The second was that kit with a bunch of higher end add ons, carbon fiber, anodized aluminum stuff made super lightweight. This third one is almost entirely Frankenstein by him from kit parts from all over the world. And and but just what I was going to say is that because of that, you end up with these standardizations that people are using one inch carbon fiber tubing for the long arms and these these anodized aluminum clamps. That the the the the the scale of production has increased to a certain degree where you can buy these tinker toy parts for really low prices and do some beautiful constructions.
+[00:27:26] Adam: You know, the other thing that's happening that's really cool about this multirotor camera platform stuff is that the parts. I mean, Duncan didn't buy. But he his first quad rotor was an off the shelf kit. The second was that kit with a bunch of higher end add ons, carbon fiber, anodized aluminum stuff made super lightweight. This third one is almost entirely Frankenstein by him from kit parts from all over the world. And but just what I was going to say is that because of that, you end up with these standardizations that people are using one inch carbon fiber tubing for the long arms and these these anodized aluminum clamps. That the scale of production has increased to a certain degree where you can buy these tinker toy parts for really low prices and do some beautiful constructions.
 
-[00:28:18] Will: Well, the thing the thing that's interesting to me is it reminds me a lot of of not the first wave of PC building in the '80s, but the second wave, you know, post Tom's Hardware, where there became there as as people realized that there was a market for people for people who wanted to instead of going to Dell or Gateway or I guess Dell and Gateway were kind of it back then. And build a PC off the shelf.
+[00:28:18] Will: Well, the thing that's interesting to me is it reminds me a lot of not the first wave of PC building in the '80s, but the second wave post Tom's Hardware, where there became there as people realized that there was a market for people who wanted to instead of going to Dell or Gateway or I guess Dell and Gateway were kind of it back then. And build a PC off the shelf.
 
 [00:28:18] Adam: Right.
 
-[00:28:18] Will: They'd go instead to little screwdriver shops or mail order places and say, " Okay, I want to get this motherboard and this video card and this hard drive and this, and get exactly the computer I want." And because this this this is kind of grown up from the base, and people are buying the same parts to keep to keep prices down, it seems like a lot of that same thing is happening with the with the quad rotors or multi rotor aircraft.
+[00:28:18] Will: They'd go instead to little screwdriver shops or mail order places and say, " Okay, I want to get this motherboard and this video card and this hard drive and this, and get exactly the computer I want." And because this is kind of grown up from the base, and people are buying the same parts to keep prices down, it seems like a lot of that same thing is happening with the quad rotors or multi rotor aircraft.
 
 [00:28:59] Adam: Right. Right. Right.
 
@@ -792,7 +792,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:29:00] Will: Yeah.
 
-[00:29:00] Norm: Not a lot in the cities. A lot of people in Hawaii, for example. There's this great photo of this guy. Um, a friend Eric from DJI shared it with us. He, a guy, who was photographer on his kayak, and he had a Phantom, Phantom One, not even the Phantom, without no remote viewing or anything. And he thought something was near him, so he launched it up, aimed the camera down, took a photo, and there's a whale, and you could see
+[00:29:00] Norm: Not a lot in the cities. A lot of people in Hawaii, for example. There's this great photo of this guy. A friend Eric from DJI shared it with us. He, a guy, who was photographer on his kayak, and he had a Phantom, Phantom One, not even the Phantom, without no remote viewing or anything. And he thought something was near him, so he launched it up, aimed the camera down, took a photo, and there's a whale, and you could see
 
 [00:29:30] Will: It’s a gray whale like 20 feet away that he couldn't see,
 
@@ -808,11 +808,11 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:29:39] Adam: It's very exciting.
 
-[00:29:40] Will: Oh, it's amazing, and and as with any new technology, is a great potential for evil and great potential for good, right? The reaction as we've flown it around has been really interesting. We get a real mix of people who are very interested in it, and you guys may not see this because you kind of, I assume, you're off in the desert and stuff.
+[00:29:40] Will: Oh, it's amazing, and as with any new technology, is a great potential for evil and great potential for good, right? The reaction as we've flown it around has been really interesting. We get a real mix of people who are very interested in it, and you guys may not see this because you kind of, I assume, you're off in the desert and stuff.
 
 [00:29:40] Adam: Yeah, yeah, yeah.
 
-[00:29:40] Will: But like, if we take if we go to a park and launch it from a park and fly around for a little bit, usually a couple people come over and ask ask questions or like, what is what you know, what is this, what what does it do, how much does it cost, where can I get it, but then some people are super suspicious immediately,
+[00:29:40] Will: But like, if we take if we go to a park and launch it from a park and fly around for a little bit, usually a couple people come over and ask ask questions or like, what is what you know, what is this, what does it do, how much does it cost, where can I get it, but then some people are super suspicious immediately,
 
 [00:29:40] Adam: Really?
 
@@ -834,7 +834,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:30:30] Adam: That’s premium content, but the only members are Will and Norm.
 
-[00:30:33] Will: Yeah, exactly. Norm not going to the room. Adam stays out here. Um.
+[00:30:33] Will: Yeah, exactly. Norm not going to the room. Adam stays out here.
 
 [00:30:38] Adam: We should do an article on Duncan's octocopter.
 
@@ -864,11 +864,11 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:30:53] Will: It's crazy.
 
-[00:30:53] Adam: He's he's really good. He's gotten to be a really good pilot, and really, it's not just teaching yourself piloting; it's also teaching yourself camera work. So, in a film, right? There is like every time you are filming something, you have to think about the fact that how do I say this? In the beginning, you get a camera and you take a picture, and you think that represents the thing you are taking a picture of, but it doesn't necessarily. And the photographer learns that every picture is a story, and that you are composing to tell a story to your brain about this thing, either to limit what you can see or increase what you see. And then, when you are filming something that's moving. Specifically, a doco style show like ours, scripted reality, is the category. Your shots have to tell a story, and that's been a learning curve for Duncan. Right? I mean, he's you know, it's an important thing that everybody, every cameraman, has to learn. Is what is the story I'm telling of this? I'm not just shooting a building from above. Am I zooming out from the door? Are we circling the building? If we are, then we need one type of circle, not not a compound circle, because the audience doesn't know what to do with that kind of shot. Right. So it it ends up being like working with the editors to know here's the kind of thing we want to get, and you know, now we're getting this beautiful footage. But it's it's it's like the new technology. You not only need to learn how to pilot it, and also to pilot and take pictures, but take pictures that you can use in the edit as as the final piece.
+[00:30:53] Adam: He's really good. He's gotten to be a really good pilot, and really, it's not just teaching yourself piloting; it's also teaching yourself camera work. So, in a film, right? There is like every time you are filming something, you have to think about the fact that how do I say this? In the beginning, you get a camera and you take a picture, and you think that represents the thing you are taking a picture of, but it doesn't necessarily. And the photographer learns that every picture is a story, and that you are composing to tell a story to your brain about this thing, either to limit what you can see or increase what you see. And then, when you are filming something that's moving. Specifically, a doco style show like ours, scripted reality, is the category. Your shots have to tell a story, and that's been a learning curve for Duncan. Right? I mean, he's it's an important thing that everybody, every cameraman, has to learn. Is what is the story I'm telling of this? I'm not just shooting a building from above. Am I zooming out from the door? Are we circling the building? If we are, then we need one type of circle, not not a compound circle, because the audience doesn't know what to do with that kind of shot. Right. So it ends up being like working with the editors to know here's the kind of thing we want to get, and now we're getting this beautiful footage. But it's like the new technology. You not only need to learn how to pilot it, and also to pilot and take pictures, but take pictures that you can use in the edit as the final piece.
 
-[00:32:23] Will: Well, and I know a lot of times when when people use this kind of these kind of rotors or even like traditional jibs, there'll be one person operating the jib. There's another person operating the camera at the end of the jib, so they have a whole plan. With the quadrotor, you don't necessarily have that.
+[00:32:23] Will: Well, and I know a lot of times when people use this kind of these kind of rotors or even like traditional jibs, there'll be one person operating the jib. There's another person operating the camera at the end of the jib, so they have a whole plan. With the quadrotor, you don't necessarily have that.
 
-[00:32:36] Adam: You don't necessarily have that, but it might be a good idea to be able to do that. Yeah. Have a separate operator as well as a flyer, so that you know, because when he's flying it, he is literally, you know, I am panning and tilting the camera at the same time as moving the quadrotor.
+[00:32:36] Adam: You don't necessarily have that, but it might be a good idea to be able to do that. Yeah. Have a separate operator as well as a flyer, so that because when he's flying it, he is literally I am panning and tilting the camera at the same time as moving the quadrotor.
 
 [00:32:51] Will: Does he do the one with the like four sticks, or does he have the?
 
@@ -880,7 +880,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:32:56] Will: Does he slave the camera to his head? To his head?
 
-[00:32:58] Adam: No, he's got the sticks on a on a on a transmitter, and there are things he's planning to also do, like add some. He's been talking about adding some extensions to the transmitter to make it a little more. I mean, the fact is, you know, you can do radical things with these tiny movements of your hand, and you know, in film, they often add extenders to the arms so that it's less radical. You know, you have more of an ability to to gently make movements.
+[00:32:58] Adam: No, he's got the sticks on a transmitter, and there are things he's planning to also do, like add some. He's been talking about adding some extensions to the transmitter to make it a little more. I mean, the fact is you can do radical things with these tiny movements of your hand, and in film, they often add extenders to the arms so that it's less radical. You have more of an ability to gently make movements.
 
 [00:33:24] Will: Puppetry.
 
@@ -888,7 +888,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:33:26] Norm: Wow.
 
-[00:33:26] Will: Fantastic. Um. So I guess that'll do it for us today.
+[00:33:26] Will: Fantastic. So I guess that'll do it for us today.
 
 [00:33:29] Adam: I think that was a productive talk.
 
@@ -900,15 +900,15 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:33:36] Adam: We talked about guns.
 
-[00:33:37] Will: Yeah. Exactly. Um. As always, if you want to support the show, rate us on iTunes, like us on YouTube,
+[00:33:37] Will: Yeah. Exactly. As always, if you want to support the show, rate us on iTunes, like us on YouTube,
 
 [00:33:44] Adam: Rate us highly.
 
-[00:33:45] Will: You can you can give us negative ratings. We like we accept negative feedback too.
+[00:33:45] Will: You can give us negative ratings. We like we accept negative feedback too.
 
 [00:33:48] Adam: It’s true. We do.
 
-[00:33:48] Will: We we we delete all those. But you know, and we're back next Tuesday with another edition of Still Entitled. See you guys later.
+[00:33:48] Will: We delete all those. But and we're back next Tuesday with another edition of Still Entitled. See you guys later.
 
 [00:33:55] Adam: Bye everybody.
 

@@ -22,17 +22,17 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:00:11] Kayte Sabicer: It's going pretty okay. I mean, not much has been going on with me lately.
 
-[00:00:18] Adam: Um, I, I, I, I, I wanted to start by celebrating a lovely thing that happened. Uh, the new issue of Cinefex came out, and it includes an article on Solo, the Han Solo film. And in it is a in it is a model maker's dream, which is Kayte Sabicer is in a picture working on one of the Dejarik chess pieces from Solo.
+[00:00:18] Adam: I wanted to start by celebrating a lovely thing that happened. The new issue of Cinefex came out, and it includes an article on Solo, the Han Solo film. And in it is a model maker's dream, which is Kayte Sabicer is in a picture working on one of the Dejarik chess pieces from Solo.
 
 [00:00:43] Kayte Sabicer: Yes. Mister Big is in my hands.
 
-[00:00:45] Norm: That's like a rite of passage for for filmmakers and people who work in the effects business, isn't it?
+[00:00:45] Norm: That's like a rite of passage for filmmakers and people who work in the effects business, isn't it?
 
 [00:00:50] Kayte Sabicer: Oh, totally. Well, and it's it's always great when it's a complete surprise. Basically, I always said, " Oh, I want to look at this new, um, Cinefex. It just came out." And you said, " Oh, I have a copy."
 
 [00:00:59] Norm: Did you have no rumblings at all?
 
-[00:01:01] Kayte Sabicer: No, no. I I thought. I just want to see who they covered. I had no expectations about myself.
+[00:01:01] Kayte Sabicer: No, no. I thought. I just want to see who they covered. I had no expectations about myself.
 
 [00:01:07] Norm: I think you said you might know some people who work there
 
@@ -40,37 +40,37 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:01:09] Norm: because you have friends who work at Lucas.
 
-[00:01:10] Kayte Sabicer: Yeah, yeah, uh, and yeah, it was just me looking through the pictures, and I just audibly like just started screeching. Everyone goes, " Are you okay? What happened? What happened?"
+[00:01:10] Kayte Sabicer: Yeah, yeah and yeah, it was just me looking through the pictures, and I just audibly like just started screeching. Everyone goes, " Are you okay? What happened? What happened?"
 
-[00:01:20] Adam: Well, when I came in yesterday, you were holding it like up, like a "Ah!" Like you're holding it up. I got a secret. Um, I you and this is not your first time in Cinefex.
+[00:01:20] Adam: Well, when I came in yesterday, you were holding it like up, like a "Ah!" Like you're holding it up. I got a secret. I you and this is not your first time in Cinefex.
 
 [00:01:30] Kayte Sabicer: Actually, it is not. No, I had another surprise one while I was working on the Tumbler for Dark Knight Rises. There is a photo of my friend Jonathan and I both hard at work on it, but I like this picture better.
 
 [00:01:43] Unknown speaker (Norm or Adam then Kayte Sabicer then Norm): [unclear: Yeah, I mean, yes / Yeah. Yes. I mean / I mean, yes].
 
-[00:01:44] Norm: thinking from an, uh, editorial perspective, the magazine lots of text. If you’ve never picked up a Cinefex, it's a it's a interesting form factor. I think these days they cover maybe four or five films per issue. They go deep dives, and yeah, you have your before after VFX shots. They love the green screen and what it looks like before and after celebrating the the people in that department, but they also love. Photos of people working on the practical effects, right? Because
+[00:01:44] Norm: thinking from an editorial perspective, the magazine lots of text. If you’ve never picked up a Cinefex, it's a interesting form factor. I think these days they cover maybe four or five films per issue. They go deep dives, and yeah, you have your before after VFX shots. They love the green screen and what it looks like before and after celebrating the people in that department, but they also love. Photos of people working on the practical effects, right? Because
 
 [00:02:11] Adam: and I, I literally grew up on Cinefex, looking at people, and then later on having the wonderful grace to work with and for some of those people that I grew up seeing in the pages of Cinefex.
 
-[00:02:25] Kayte Sabicer: Yeah, it's such a great way to form your idols and actually even be informed of this process. Because I mean, as a kid, it's not always like straightforward. I wasn't aware that model making was a thing until you start to see these behind the scenes. Or if you've ever seen Movie Magic, the old TV show, ah, I mean, there's an episode of Phil Tippett on that one that just changed my life. So yeah, this is that it was it was very very cool.
+[00:02:25] Kayte Sabicer: Yeah, it's such a great way to form your idols and actually even be informed of this process. Because I mean, as a kid, it's not always like straightforward. I wasn't aware that model making was a thing until you start to see these behind the scenes. Or if you've ever seen Movie Magic, the old TV show, ah, I mean, there's an episode of Phil Tippett on that one that just changed my life. So yeah, this is that it was very very cool.
 
-[00:02:50] Norm: It gives you a sense of also the scale of of miniatures and how the things that you see on a big screen actually looked in person.
+[00:02:50] Norm: It gives you a sense of also the scale of miniatures and how the things that you see on a big screen actually looked in person.
 
 [00:02:58] Adam: When you're holding on to Mr. Big, and he looks pretty complete. But are you doing the model shop reach in that photo?
 
-[00:03:03] Kayte Sabicer: I was just about to say. I am very proud to say that I 100% was working on him at that moment. I was, I think, I was tightening his knee joint, um, because he actually has a gorgeous, gorgeous armature ball and socket, fully machined by Brett Foxwell, who's just a super talented.
+[00:03:03] Kayte Sabicer: I was just about to say. I am very proud to say that I 100% was working on him at that moment. I was, I think, I was tightening his knee joint because he actually has a gorgeous, gorgeous armature ball and socket, fully machined by Brett Foxwell, who's just a super talented.
 
 [00:03:21] Adam: machinist. He's done work with me here in the shop.
 
-[00:03:23] Kayte Sabicer: Yeah, yeah, he's great. And so somebody actually came in while I happened to be working on him, so it was not the fake, like, okay, just you know, act like you're pointing at something and just smile, like I was working on him.
+[00:03:23] Kayte Sabicer: Yeah, yeah, he's great. And so somebody actually came in while I happened to be working on him, so it was not the fake okay, just act like you're pointing at something and just smile, like I was working on him.
 
-[00:03:34] Adam: There's an early Cinefex, and I can't remember what movie it is in, but somebody at ILM is working on like a rebel cruiser, and they're holding in in their hands a rivet gun and a blowtorch. Um, here's something about Cinefex that I'm going to say I think publicly for maybe the first time I've ever seen, which is [unclear: as big block must.] So Cinefex comes out quarterly.
+[00:03:34] Adam: There's an early Cinefex, and I can't remember what movie it is in, but somebody at ILM is working on like a rebel cruiser, and they're holding in their hands a rivet gun and a blowtorch. Here's something about Cinefex that I'm going to say I think publicly for maybe the first time I've ever seen, which is [unclear: as big block must.] So Cinefex comes out quarterly.
 
 [00:04:03] Norm: Yeah.
 
 [00:04:03] Kayte Sabicer: Yes.
 
-[00:04:03] Adam: Uh, So some of the movies it's covering have already come out. Some of them are about to come out, and some of them are maybe a month or more away from coming out. That's fairly regular. Um, and the movies it covers are often some of the biggest effects-driven movies, which means it's the tentpole films of those studios. And those tentpole films, as you and I have talked about on the podcast many times, have a whole mini industries until the films come out, analyzing the trailers and what the plot will be, and what the points will be, and who the villain is, and what these scenes will be. And yet, Cinefex comes out and chronicles the entire plot of the movies that it covers. The spoilers in Cinefex are so egregious. It literally, I can't believe that. Well, now I'm saying it for the first time. Websites that are interested in film spoilers of upcoming tentpole blockbusters, go get yourself some Cinefex because they're all there.
+[00:04:03] Adam: So some of the movies it's covering have already come out. Some of them are about to come out, and some of them are maybe a month or more away from coming out. That's fairly regular. And the movies it covers are often some of the biggest effects-driven movies, which means it's the tentpole films of those studios. And those tentpole films, as you and I have talked about on the podcast many times, have a whole mini industries until the films come out, analyzing the trailers and what the plot will be, and what the points will be, and who the villain is, and what these scenes will be. And yet, Cinefex comes out and chronicles the entire plot of the movies that it covers. The spoilers in Cinefex are so egregious. It literally, I can't believe that. Well, now I'm saying it for the first time. Websites that are interested in film spoilers of upcoming tentpole blockbusters, go get yourself some Cinefex because they're all there.
 
 [00:04:56] Norm: Right, right. It's like I don't know how it gets past. The marketing, but good for them. And same with some of the art books.
 
@@ -82,13 +82,13 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:05:04] Kayte Sabicer: Secrets out! Secrets out!
 
-[00:05:04] Norm: It's because they're based in the UK. They can get away with it. Maybe I don't know. Uh, but even when you look at the art books, you know the story of how films get made. We sometimes get behind the scenes stories with, um, directors' interviews, commentary. But sometimes the authors, like the journalists at Cinefex or the people writing the art books, the exposure they get to the film is in that moment of time, and it may be different. Like they'll show, tell stories of scenes that we never see,
+[00:05:04] Norm: It's because they're based in the UK. They can get away with it. Maybe I don't know. But even when you look at the art books, you know the story of how films get made. We sometimes get behind the scenes stories with directors' interviews, commentary. But sometimes the authors, like the journalists at Cinefex or the people writing the art books, the exposure they get to the film is in that moment of time, and it may be different. Like they'll show, tell stories of scenes that we never see,
 
 [00:05:32] Adam: right?
 
 [00:05:32] Norm: Because they were deleted scenes or characters that you know they saw an effect that was being worked on that never made the film. So you get wonderful like movies, stories behind the movies as well.
 
-[00:05:43] Adam: Also, Cinefex, we've talked about it on the podcast, but it's been a few years. Um, you can now buy Cinefex digitally,
+[00:05:43] Adam: Also, Cinefex, we've talked about it on the podcast, but it's been a few years. You can now buy Cinefex digitally,
 
 [00:05:50] Kayte Sabicer: Yes.
 
@@ -112,7 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:06:55] Adam: The most as specific as you can possibly imagine—that's where Cinefex goes.
 
-[00:06:59] Kayte Sabicer: Well, and I've encountered a lot of people in the industry who treat things like trade secrets too. So sometimes you'll work with people. Who have great knowledge and insight, but you don't get access to any of that because they don't they don't want to share it. So sometimes this is a way of like getting in there and feeling like you're hearing the secrets.
+[00:06:59] Kayte Sabicer: Well, and I've encountered a lot of people in the industry who treat things like trade secrets too. So sometimes you'll work with people. Who have great knowledge and insight, but you don't get access to any of that because they don't want to share it. So sometimes this is a way of like getting in there and feeling like you're hearing the secrets.
 
 [00:07:17] Unknown speaker (Adam or Norm): Exactly,
 
@@ -120,13 +120,13 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:07:21] Kayte Sabicer: Right.
 
-[00:07:22] Norm: for people working in the industry, and a something that can still appeal to the mass market because if you watch, you know, Avengers or Solo, and, uh, I think you're educated enough at this point. And it's, I think a lot of what we do on Tested has follows the model of what Cinefex has been doing for so many years, decades.
+[00:07:22] Norm: for people working in the industry, and a something that can still appeal to the mass market because if you watch Avengers or Solo, and I think you're educated enough at this point. And it's, I think a lot of what we do on Tested has follows the model of what Cinefex has been doing for so many years, decades.
 
-[00:07:42] Adam: Well, and you're somewhat educated, but boy, you know, sitting and reading through an entire article of Cinefex is it's a deep dive, and it's deeper than you think.
+[00:07:42] Adam: Well, and you're somewhat educated, but boy sitting and reading through an entire article of Cinefex is it's a deep dive, and it's deeper than you think.
 
 [00:07:51] Norm: They’re not afraid to have it all out there,
 
-[00:07:52] Adam: not not at all. Um, I, I a few years ago, I successfully completed a complete set of Cinefex.
+[00:07:52] Adam: not not at all. I a few years ago, I successfully completed a complete set of Cinefex.
 
 [00:08:01] Kayte Sabicer: Whoa!
 
@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:08:46] Kayte Sabicer: Actually, someone the other day just said to me, " Oh, you know, one day I was walking down the street and I just [unclear: found a box of those magazines that you were just talking about / found a box of those magazines that you were just talking about, and I was like, oh my God, I’m going to]. Like like tons of them. Not recent though; they were all like the old ones from like the '70s and '80s. And I was just like, 'Where are they?'"
 
-[00:09:01] Adam: Actually, as an aside, Freddie's over at my storage space. I, I'll have to find it. I have when I completed my collection, I ended up with a bunch of doubles because I had to buy some lots. I'll bring in my doubles later on this week, so you guys can sift through them and have them because I think I have about 30 30 issues that are that are doubled up.
+[00:09:01] Adam: Actually, as an aside, Freddie's over at my storage space. I, I'll have to find it. I have when I completed my collection, I ended up with a bunch of doubles because I had to buy some lots. I'll bring in my doubles later on this week, so you guys can sift through them and have them because I think I have about 30 30 issues that are doubled up.
 
 [00:09:20] Kayte Sabicer: Holy moly!
 
@@ -152,7 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:09:23] Kayte Sabicer: I'll just take a vacation week, just look at Cinefex the whole time.
 
-[00:09:27] Adam: It's I. It really like, way back before I was doing television, I worked for Lucasfilm, and they started to send me out to do public speaking on behalf of Lucasfilm. I mentioned to the PR department that I was potentially good at it, and in 2000, they sent me to the Breckenridge, Colorado Film Festival, and in this, uh, in this small auditorium, I, I I built a slide deck with with actual slides and a slide projector from Lucasfilm Archives, and I built a talk, and then I took questions from the audience, and this is I'm like. A 30-year-old model maker, right? 33-year-old model maker. I don't, and yet, because I had read every single episode of Cine—every single issue of Cinefex, I had this ability to put these pieces together for the audience to really help them understand the arc of, uh, how some of the effects that we're using today are still some of the oldest effects that anyone's used in film.
+[00:09:27] Adam: It's I. It really like, way back before I was doing television, I worked for Lucasfilm, and they started to send me out to do public speaking on behalf of Lucasfilm. I mentioned to the PR department that I was potentially good at it, and in 2000, they sent me to the Breckenridge, Colorado Film Festival, and in this small auditorium, I, I I built a slide deck with actual slides and a slide projector from Lucasfilm Archives, and I built a talk, and then I took questions from the audience, and this is I'm like. A 30-year-old model maker, right? 33-year-old model maker. I don't, and yet, because I had read every single episode of Cine—every single issue of Cinefex, I had this ability to put these pieces together for the audience to really help them understand the arc of how some of the effects that we're using today are still some of the oldest effects that anyone's used in film.
 
 [00:10:33] Norm: Yeah,
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:10:48] Norm: What else is new, Adam?
 
-[00:10:49] Adam: Well, speaking of autographs, we had we had quite a renowned guest in the shop yesterday, and I tweeted about it, and he Instagrammed about it. We had, um, Jack White of the White Stripes fame, uh, maker extraordinaire, uh, an upholsterer, and, uh, all-around maker. Enthusiast and a wonderful, uh, patron of design.
+[00:10:49] Adam: Well, speaking of autographs, we had quite a renowned guest in the shop yesterday, and I tweeted about it, and he Instagrammed about it. We had Jack White of the White Stripes fame maker extraordinaire an upholsterer, and all-around maker. Enthusiast and a wonderful patron of design.
 
 [00:11:09] Kayte Sabicer: Yes,
 
@@ -182,27 +182,27 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:11:22] Kayte Sabicer: It was a lovely day. Yeah.
 
-[00:11:24] Norm: You hadn't seen him since, uh, you did that video with him at Third Man Records.
+[00:11:24] Norm: You hadn't seen him since you did that video with him at Third Man Records.
 
-[00:11:28] Adam: I, I think, yeah. So, Tested went to Third Man Records and recorded last year's Premium Members' gift there in their in their studio, cut it on an actual record lathe, and printed it in their facility.
+[00:11:28] Adam: I think, yeah. So, Tested went to Third Man Records and recorded last year's Premium Members' gift there in their studio, cut it on an actual record lathe, and printed it in their facility.
 
 [00:11:38] Norm: Yeah,
 
 [00:11:39] Adam: and, uh, yeah, that was, I think, the last time I'd seen him.
 
-[00:11:42] Norm: Uh, you, I don't know if you can tell us you relayed a story of lessons you learned there, paying off in things you were doing on on MythBusters Junior.
+[00:11:42] Norm: You, I don't know if you can tell us you relayed a story of lessons you learned there, paying off in things you were doing on MythBusters Junior.
 
 [00:11:51] Adam: Wait, explain
 
-[00:11:51] Norm: the the microphone.
+[00:11:51] Norm: the microphone.
 
-[00:11:53] Adam: Oh yes, no. So, uh, we're doing we did an episode on MythBusters Junior about a sound, and I wanted the audience. I, I wanted the audience to have as physical a connection to the the the chain of recording sound that we had on the show, and I didn't. I I was able to use a microphone that I learned about in Third Man, which was a ribbon microphone, which is this absolutely infinitesimally thin ribbon of metal used to transmit the signal of sound into the recording device, uh, and we used that on the Third Man recording, and I used it on MythBusters Junior.
+[00:11:53] Adam: Oh yes, no. So we're doing we did an episode on MythBusters Junior about a sound, and I wanted the audience. I wanted the audience to have as physical a connection to the chain of recording sound that we had on the show, and I didn't. I was able to use a microphone that I learned about in Third Man, which was a ribbon microphone, which is this absolutely infinitesimally thin ribbon of metal used to transmit the signal of sound into the recording device and we used that on the Third Man recording, and I used it on MythBusters Junior.
 
-[00:12:33] Norm: That was awesome. I could tell he was he was pleased that that bit came to fruition.
+[00:12:33] Norm: That was awesome. I could tell he was pleased that that bit came to fruition.
 
-[00:12:37] Adam: Well, I mean, one of the things that's great about Jack is the people around him are all they're all just as geeky and just as deeply invested in the product and the making and the process as he is, and that's that's our connection as as as makers.
+[00:12:37] Adam: Well, I mean, one of the things that's great about Jack is the people around him are all they're all just as geeky and just as deeply invested in the product and the making and the process as he is, and that's our connection as makers.
 
-[00:12:53] Norm: He without going into specific what you guys are talking about, uh, his people definitely acknowledge that when you you were talking, it brings out. His obsessions.
+[00:12:53] Norm: He without going into specific what you guys are talking about his people definitely acknowledge that when you were talking, it brings out. His obsessions.
 
 [00:13:03] Adam: Oh, really?
 
@@ -212,25 +212,25 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:13:09] Norm: Like they're like, oh, we didn't know you. He was interested in that and this and that, and it just came naturally in that conversation.
 
-[00:13:15] Kayte Sabicer: I was pleasantly surprised. Um, he mentioned he, uh, is sort of a connoisseur of old photo booths, and I I have a deep interest, but I my knowledge is seriously lacking. But he talked about a booth he has that just sounds perfectly amazing to me, um, and it like prints out the actual old photo in the frame with the old process like from the 1930s. I want to say.
+[00:13:15] Kayte Sabicer: I was pleasantly surprised. He mentioned he is sort of a connoisseur of old photo booths, and I I have a deep interest, but I my knowledge is seriously lacking. But he talked about a booth he has that just sounds perfectly amazing to me and it like prints out the actual old photo in the frame with the old process like from the 1930s. I want to say.
 
 [00:13:40] Adam: yeah. Well, I mean, so there's a famous photo of Robert Johnson with a cigarette hanging out of his mouth, and what Jack told us was that was taken in this very specific type of photo booth that he's got the one of the earliest examples of it, has it up and running.
 
-[00:13:54] Kayte Sabicer: That is amazing. I would love to see that someday. Um,
+[00:13:54] Kayte Sabicer: That is amazing. I would love to see that someday.
 
-[00:13:58] Adam: Just a delightful visit from an awesome maker, and I I I got to sit backstage and watch him perform last night. Was really that's that's also awesome. Like talk to a maker and then go watch him hold court at the Bill Graham Civic Auditorium for an incredibly wonderful, grateful crowd. And holy hell, do he and his band put on a show!
+[00:13:58] Adam: Just a delightful visit from an awesome maker, and I I I got to sit backstage and watch him perform last night. Was really that's also awesome. Like talk to a maker and then go watch him hold court at the Bill Graham Civic Auditorium for an incredibly wonderful, grateful crowd. And holy hell, do he and his band put on a show!
 
 [00:14:16] Kayte Sabicer: Now they
 
-[00:14:17] Adam: is this going up today? Uh,
+[00:14:17] Adam: is this going up today?
 
 [00:14:18] Norm: No, a couple of days later.
 
-[00:14:20] Adam: All right, sorry. This this the concert's already happened in the past. Yeah, you lose.
+[00:14:20] Adam: All right, sorry. This the concert's already happened in the past. Yeah, you lose.
 
-[00:14:23] Kayte Sabicer: They utilize the new process, uh, at their shows, right, where, um, they make you put your cell phone in a magnetic bag.
+[00:14:23] Kayte Sabicer: They utilize the new process at their shows, right, where they make you put your cell phone in a magnetic bag.
 
-[00:14:30] Adam: Oh, yep. Um,
+[00:14:30] Adam: Oh, yep.
 
 [00:14:31] Kayte Sabicer: Okay. And so if you while you're in the venue, you cannot access your phone, but if you go out into the hallway, you can unlock it and access your phone.
 
@@ -258,7 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:15:22] Norm: Hmm.
 
-[00:15:23] Adam: And it's whole band. I mean, everyone's I I wrote this morning and said my crew had hearts coming out of their eyes after you guys left. And he said mine too. Um, yeah, that's, uh, It's lovely. I love cross disciplining and talking to people who are good at what they do in ways that are very different than mine because I feel like there's always commonalities when you've gone down the path of trying to be excellent at something.
+[00:15:23] Adam: And it's whole band. I mean, everyone's I I wrote this morning and said my crew had hearts coming out of their eyes after you guys left. And he said mine too. Um, yeah, that's It's lovely. I love cross disciplining and talking to people who are good at what they do in ways that are very different than mine because I feel like there's always commonalities when you've gone down the path of trying to be excellent at something.
 
 [00:15:46] Kayte Sabicer: Totally.
 
@@ -268,29 +268,29 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:16:58] Norm: Yeah, yeah.
 
-[00:16:59] Adam: So I'm working on a. I don't know if we're revealing the title just yet, so I won't reveal the title. But I'm working on a book about things I've learned in my life of making, and I'm interviewing a lot of wonderful people for this. And so I'm having initially we broke out all these chapters, and I figured, oh, well, this person's interview would be good for this chapter, and this person's interview would be good for that chapter. And I threw almost all of that specificity out because as I'm talking to these makers, the conversations are ranging so far and wide. You know, it's like we're talking about failure, we're talking about iteration, we're talking about workshop and workplace design, uh, we're talking about frustration, all those things that we have to that we have to get past to to make anything. And I mean making and obviously, as I've said, you know, dance, poetry, screwing caps onto toothpaste tubes, if that's your kink.
+[00:16:59] Adam: So I'm working on a. I don't know if we're revealing the title just yet, so I won't reveal the title. But I'm working on a book about things I've learned in my life of making, and I'm interviewing a lot of wonderful people for this. And so I'm having initially we broke out all these chapters, and I figured, oh, well, this person's interview would be good for this chapter, and this person's interview would be good for that chapter. And I threw almost all of that specificity out because as I'm talking to these makers, the conversations are ranging so far and wide. It's like we're talking about failure, we're talking about iteration, we're talking about workshop and workplace design we're talking about frustration, all those things that we have to get past to make anything. And I mean making and obviously, as I've said dance, poetry, screwing caps onto toothpaste tubes, if that's your kink.
 
 [00:17:45] Norm: Yeah. Some of these people, you have long, great relationships with, some are new friends of yours. Is it just as easy to jump into a conversation? Do you prompt them? Like, how do you get them? To to jive in in that moment.
 
-[00:17:58] Adam: So, interviewing people is something I've done a lot of. I did it on the talking room. I do it here at City Arts and Lectures, and in San Francisco at the Commonwealth Club. Uh, and it's never easy for me. I always find interviewing to be, uh, stressful because I want to have another question right away. And as people are talking, I'm coming up with other questions. [unclear: So I’m furiously writing while trying to listen / So I’m furiously writing them and I’m like, okay, I’m going to do this, I’m going to do this, I’m going, while trying to listen], while trying to think of the next question. Because my terror is they'll finish and I'll go, huh, cool.
+[00:17:58] Adam: So, interviewing people is something I've done a lot of. I did it on the talking room. I do it here at City Arts and Lectures, and in San Francisco at the Commonwealth Club. And it's never easy for me. I always find interviewing to be stressful because I want to have another question right away. And as people are talking, I'm coming up with other questions. [unclear: So I’m furiously writing while trying to listen / So I’m furiously writing them and I’m like, okay, I’m going to do this, I’m going to do this, I’m going, while trying to listen] while trying to think of the next question. Because my terror is they'll finish and I'll go, huh, cool.
 
 [00:18:30] Norm: And that three seconds will feel like an eternity,
 
-[00:18:33] Adam: an absolute eternity. And they're just thinking, what an idiot. This book, however, um, it is talking about my favorite subject about making stuff. And if you know, I'm not an expert in anything that I in any specific thing that I do, but I think I am an expert in thinking about. the the the box that it all goes in, from a creative, uh, and, uh, execution standpoint, and I love I love learning from other people about what their process is like.
+[00:18:33] Adam: an absolute eternity. And they're just thinking, what an idiot. This book, however it is talking about my favorite subject about making stuff. And if you know, I'm not an expert in anything that I in any specific thing that I do, but I think I am an expert in thinking about. the box that it all goes in, from a creative and execution standpoint, and I love learning from other people about what their process is like.
 
 [00:19:05] Kayte Sabicer: Totally, I love to surround myself with people who know things I don't, because I can only gain things from that relationship. You know what I mean? And hopefully, it'll be a two way street.
 
-[00:19:14] Adam: So let me ask you, Kayte. Um, here's a question I've been asking everybody for the book.
+[00:19:14] Adam: So let me ask you, Kayte. Here's a question I've been asking everybody for the book.
 
 [00:19:18] Kayte Sabicer: Okay.
 
 [00:19:18] Adam: What was your first shop? What was your first shop like?
 
-[00:19:21] Kayte Sabicer: My first shop. I mean, my like professionally, because I I grew up with, uh, both of my grand my grandfathers were carpenters.
+[00:19:21] Kayte Sabicer: My first shop. I mean, my like professionally, because I I grew up with both of my grand my grandfathers were carpenters.
 
 [00:19:29] Adam: Oh.
 
-[00:19:29] Kayte Sabicer: And my dad wasn't necessarily a carpenter, but I spent I was a tomboy, so I spent my evenings and weekends with him in the garage and building clubhouses and birdhouses and anything I could, you know, ramps for RC cars and just all that. So that was that was my shop. That was my house. That's where I like to be.
+[00:19:29] Kayte Sabicer: And my dad wasn't necessarily a carpenter, but I spent I was a tomboy, so I spent my evenings and weekends with him in the garage and building clubhouses and birdhouses and anything I could, you know, ramps for RC cars and just all that. So that was my shop. That was my house. That's where I like to be.
 
 [00:19:49] Adam: You've always had access to a makerspace.
 
@@ -298,25 +298,25 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:19:51] Adam: Okay. So then, the first shop that you set up for yourself, either in an apartment or on a desk, or
 
-[00:19:56] Kayte Sabicer: that would have been, uh, I, I got my first house, uh, and I turned the garage into. I do stained glass as well on the side, and so I custom built a workbench that would be just the right height for me to stand at. For I like measured like, okay, if I reach this far, because I need to be able to put the right amount of pressure for a cut.
+[00:19:56] Kayte Sabicer: that would have been I, I got my first house and I turned the garage into. I do stained glass as well on the side, and so I custom built a workbench that would be just the right height for me to stand at. For I like measured like, okay, if I reach this far, because I need to be able to put the right amount of pressure for a cut.
 
 [00:20:16] Adam: Yeah.
 
-[00:20:16] Kayte Sabicer: Uh, and and I surfaced it. I noticed that you had a worktop like this as as well, with this layer of, um, plastic material.
+[00:20:16] Kayte Sabicer: And I surfaced it. I noticed that you had a worktop like this as well, with this layer of plastic material.
 
 [00:20:25] Adam: Self healing.
 
-[00:20:26] Kayte Sabicer: Yes, so that as the, um, glass would slip and gouge the surface, it wouldn't create anything sharp that would scratch the next round. And if it got too uneven, I could iron it smooth. So it was just all about like making this space work exactly for me. And it got to a point where that desk was no longer viable anymore. I came up with new solutions.
+[00:20:26] Kayte Sabicer: Yes, so that as the glass would slip and gouge the surface, it wouldn't create anything sharp that would scratch the next round. And if it got too uneven, I could iron it smooth. So it was just all about like making this space work exactly for me. And it got to a point where that desk was no longer viable anymore. I came up with new solutions.
 
 [00:20:46] Adam: Well, why wasn't it no? Why was it no longer viable? You, basically, did you wear it out or did your techniques change?
 
 [00:20:51] Kayte Sabicer: My techniques changed, and I built it for how I thought I was going to use it, and then. As I used it, I discovered you know it would be better if it were longer this way. Or if it wasn't as deep, I noticed I made it a little too deep. One side of it wasn't being utilized enough, so I started redesigning.
 
-[00:21:07] Adam: It's funny, as you said, I made it just deep enough, and I thought, oh, this measurement is easy with a tape measure. You can put your arm out and going, yeah, that's comfortable. But this one, I've gotten that my welding table there is too deep, and I've been thinking, uh, the top weighs like 200 pounds, and it's so tiring to think about changing that. After, I've toyed with just plasma cutting off the front foot, but yeah, depth of the workbench is really really important.
+[00:21:07] Adam: It's funny, as you said, I made it just deep enough, and I thought, oh, this measurement is easy with a tape measure. You can put your arm out and going, yeah, that's comfortable. But this one, I've gotten that my welding table there is too deep, and I've been thinking the top weighs like 200 pounds, and it's so tiring to think about changing that. After, I've toyed with just plasma cutting off the front foot, but yeah, depth of the workbench is really really important.
 
-[00:21:30] Kayte Sabicer: And then I, I ended up moving away from stained glass a little more, and I set up, uh, I started renting a studio space closer to where I work and everything, and I got an amazing drafting table from Phil Tippett. He was like, here, take this, and as his daughter described it, it's pre-stained with red wine and frustration. So it was it was exactly everything I wanted. So now, and by then, I knew exactly what I need. I need storage for this. I needed ways to store glue and paint. So it it was a It was great that by the time I did that, I had learned all the things I needed.
+[00:21:30] Kayte Sabicer: And then I, I ended up moving away from stained glass a little more, and I set up I started renting a studio space closer to where I work and everything, and I got an amazing drafting table from Phil Tippett. He was like, here, take this, and as his daughter described it, it's pre-stained with red wine and frustration. So it was exactly everything I wanted. So now, and by then, I knew exactly what I need. I need storage for this. I needed ways to store glue and paint. So it was a It was great that by the time I did that, I had learned all the things I needed.
 
-[00:22:04] Adam: That's that process of watching the watcher, of monitoring your own usage patterns. Yes, it's it's constantly ongoing, isn't it?
+[00:22:04] Adam: That's that process of watching the watcher, of monitoring your own usage patterns. Yes, it's constantly ongoing, isn't it?
 
 [00:22:13] Kayte Sabicer: It is 100%. Every time I think I get a handle on it, I mean, I, I'm sure you see that because I'm seeing you. I come in and I go, " Oh, this shop is perfect and it's perfectly organized," and yet I'll come in days and you'll have changed a bunch of things, and I'm thought, " Well, that wasn't necessary, was it?" Until I go, " Oh, no, this is much better. I didn't even know it could be better."
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:22:54] Kayte Sabicer: Always.
 
-[00:22:54] Adam: There is, you know, the the hardest part about categorizing stuff in a shop are the one offs.
+[00:22:54] Adam: There is, you know, the hardest part about categorizing stuff in a shop are the one offs.
 
 [00:23:00] Kayte Sabicer: Right. Right.
 
@@ -356,7 +356,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:24:56] Kayte Sabicer: I'm not quite sure I understand why that is, because then it just looks like a mess. But whatever.
 
-[00:25:01] Unknown speaker (Adam, or Kayte Sabicer and Adam): But for modelers, for modelers, that’s fantastic, yeah.
+[00:25:01] Unknown speaker (Adam, or Kayte Sabicer and Adam): But for modelers, that’s fantastic, yeah.
 
 [00:25:03] Norm: you don't lose X-ray vision.
 
@@ -366,15 +366,15 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:25:27] Kayte Sabicer: I will find out.
 
-[00:25:29] Adam: I have been shopping at Urban Ore for 30 years. I will tell you, I was working at Berkeley Rep in 1992, and my friend Michael Frassinelli brought in an opaque projector. You know, you know what that is.
+[00:25:29] Adam: I have been shopping at Urban Ore for 30 years. I will tell you, I was working at Berkeley Rep in 1992, and my friend Michael Frassinelli brought in an opaque projector. You know what that is.
 
 [00:25:43] Kayte Sabicer: I believe so.
 
-[00:25:43] Adam: So it's a it's a reflective projector. So you can put a piece of magazine art in it and project it on a wall.
+[00:25:43] Adam: So it's a reflective projector. So you can put a piece of magazine art in it and project it on a wall.
 
 [00:25:49] Unknown speaker (Adam or Kayte Sabicer): [unclear: Yes, yes, yes / Yes, yes, yes, yes, yes].
 
-[00:25:49] Adam: And so for for model making, it can be just transferring something from this to a wall can be really complicated.
+[00:25:49] Adam: And so for model making, it can be just transferring something from this to a wall can be really complicated.
 
 [00:25:57] Kayte Sabicer: I've done that many times. It's so helpful.
 
@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:27:07] Adam: In the end, my father had one and he gave it to me, and I still have it. It's here in the shop.
 
-[00:27:16] Kayte Sabicer: I had a great one from my grandfather. Same thing where he was like, " You do art? Maybe you can use this," and I loved it. But I noticed that it was a little terrifying because of the the bulb that it was using.
+[00:27:16] Kayte Sabicer: I had a great one from my grandfather. Same thing where he was like, " You do art? Maybe you can use this," and I loved it. But I noticed that it was a little terrifying because of the bulb that it was using.
 
 [00:27:28] Adam: Like a 150 watt bulb in a metal box.
 
@@ -408,17 +408,17 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:27:36] Adam: Well, it's an Easy-Bake Oven.
 
-[00:27:37] Kayte Sabicer: Oh yeah, it would start to curl for sure. Like you had to you had to keep a firm eye on that and unplug it as soon as you were done.
+[00:27:37] Kayte Sabicer: Oh yeah, it would start to curl for sure. Like you had to keep a firm eye on that and unplug it as soon as you were done.
 
-[00:27:43] Adam: But just in case, it sounds like a primitive tool. We we used this exactly that tool, an opaque projector, to transfer blueprint drawings on Star Wars from the set to making miniatures that were six feet tall.
+[00:27:43] Adam: But just in case, it sounds like a primitive tool. We used this exactly that tool, an opaque projector, to transfer blueprint drawings on Star Wars from the set to making miniatures that were six feet tall.
 
-[00:27:56] Kayte Sabicer: That's perfect. Yeah, we used to do that. I I went to a specialty fine arts high school, and so we were constantly having to do. Paintings and especially paint from photographs, and so we would just have we had a hallway. You would just set up your photograph there and project it all the way on the wall, whatever size you needed, and go from there.
+[00:27:56] Kayte Sabicer: That's perfect. Yeah, we used to do that. I went to a specialty fine arts high school, and so we were constantly having to do. Paintings and especially paint from photographs, and so we would just have we had a hallway. You would just set up your photograph there and project it all the way on the wall, whatever size you needed, and go from there.
 
-[00:28:13] Adam: My dad's my dad's technique, and he did a lot of painting from photographs. He liked using. I get the idea. He liked using other people's. Sorry, the word escapes me. Wow.
+[00:28:13] Adam: My dad's technique, and he did a lot of painting from photographs. He liked using. I get the idea. He liked using other people's. Sorry, the word escapes me. Wow.
 
 [00:28:27] Kayte Sabicer: Composition.
 
-[00:28:28] Adam: No, no, no, no! Just the the formal layout.
+[00:28:28] Adam: No, no, no, no! Just the formal layout.
 
 [00:28:31] Unknown speaker (Adam or Kayte Sabicer): [unclear: Okay / Oh, okay].
 
@@ -440,7 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:29:16] Adam: Ah, and I love Johnny so much.
 
-[00:29:17] Norm: When we went to Weta now two years ago, he he showed us he was just a guy in their in their sculpting department, and I think they were working on Ghost in the Shell at that point. We were doing interviews there, and goes, " Oh, I want to show you something, Adam." And he had this thing in their sculpting. It's a room like this is a physical sculpting department, and on the in the back of the room, he pulled out this maze, and and right around that time is right after you had finished your hedge maze for The Shining, and this was a miniature maze that Johnny had made for the board game Labyrinth. It was a labyrinth maze.
+[00:29:17] Norm: When we went to Weta now two years ago, he showed us he was just a guy in their sculpting department, and I think they were working on Ghost in the Shell at that point. We were doing interviews there, and goes, " Oh, I want to show you something, Adam." And he had this thing in their sculpting. It's a room like this is a physical sculpting department, and on the in the back of the room, he pulled out this maze, and right around that time is right after you had finished your hedge maze for The Shining, and this was a miniature maze that Johnny had made for the board game Labyrinth. It was a labyrinth maze.
 
 [00:29:53] Kayte Sabicer: Whoa!
 
@@ -464,7 +464,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:30:38] Adam: Yeah.
 
-[00:30:38] Norm: It cheap cheaper than the model making paint house paint. Wow. And now he's he's launching a crowdfunding campaign because these are going to be manufactured kits for people.
+[00:30:38] Norm: It cheap cheaper than the model making paint house paint. Wow. And now he's launching a crowdfunding campaign because these are going to be manufactured kits for people.
 
 [00:30:50] Kayte Sabicer: Wait for the full 20 foot long one?
 
@@ -492,9 +492,9 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:31:44] Norm: Yeah,
 
-[00:31:44] Kayte Sabicer: I I definitely respond to that in people. I just like to stand back and be like, you are doing exactly what you need to be doing right now.
+[00:31:44] Kayte Sabicer: I definitely respond to that in people. I just like to stand back and be like, you are doing exactly what you need to be doing right now.
 
-[00:31:51] Adam: And it's it's it's invigorating and inspiring to be around that kind of energy.
+[00:31:51] Adam: And it's invigorating and inspiring to be around that kind of energy.
 
 [00:31:56] Kayte Sabicer: Definitely.
 
@@ -526,7 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:32:39] Norm: and his first project was 3D printing and a helmet for you, Adam. And he goes through all. I mean, it's 100 plus hours of printing. So it's
 
-[00:32:50] Adam: he's been sending me updates, and yeah, I'm so glad that Darrell is on the team because he's so prolific. I said this in the tweet. He makes me a little jealous of how of how much he turns around.
+[00:32:50] Adam: he's been sending me updates, and yeah, I'm so glad that Darrell is on the team because he's so prolific. I said this in the tweet. He makes me a little jealous of how much he turns around.
 
 [00:33:03] Kayte Sabicer: Right, his helmets and masks are mind blowing. Yeah, I just can't believe it, and they're so complex. And have you seen when he posts something where it's like. Oh, I got 50 hours in, and then it failed.
 
@@ -540,7 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:33:17] Kayte Sabicer: I wasn't even involved, but I'm very upset right now.
 
-[00:33:19] Adam: I can imagine that, like, if you stayed in his house in his guest room, you'd just be hearing all night long the sound of
+[00:33:19] Adam: I can imagine that if you stayed in his house in his guest room, you'd just be hearing all night long the sound of
 
 [00:33:26] Norm: it's a song, right? The songs of the machine.
 
@@ -548,7 +548,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:33:30] Adam: Some friends of mine were given for their wedding a bread maker, which sounded like the coolest thing in the world. But what the bread maker does is it mixes and rises the dough itself all autonomously, and they thought that sounded great until the middle of the first night they ran the bread machine. They turned it on, and they like three hours later they're woken up to this [unclear imitation: oh yeah, what, oh yeah, what, oh] this terrible sound.
 
-[00:33:54] Kayte Sabicer: Yes, my my mom used to use a bread maker, and it was like it was a weird experience.
+[00:33:54] Kayte Sabicer: Yes, my mom used to use a bread maker, and it was like it was a weird experience.
 
 [00:33:58] Adam: It's an impressive weird because you wake up in the middle of the night, like I don't know what that could be.
 

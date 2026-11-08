@@ -32,7 +32,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:01:32] Will: Just one way though.
 
-[00:01:33] Adam: Yeah, it's um that that's how I that's the rough estimation. There still might be another another couple of trips before the year is out.
+[00:01:33] Adam: Yeah, it's that that's how I that's the rough estimation. There still might be another another couple of trips before the year is out.
 
 [00:01:41] Norm: But we promise today is not about travel.
 
@@ -48,17 +48,17 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:01:51] Unknown: I said it too.
 
-[00:01:51] Will: but your your talk about your trip to the Arctic. I was I heard it in practice, and I was almost in tears during the real thing. It was absolutely lovely,
+[00:01:51] Will: but your talk about your trip to the Arctic. I was I heard it in practice, and I was almost in tears during the real thing. It was absolutely lovely,
 
 [00:02:05] Unknown speaker: hilarious.
 
-[00:02:05] Adam: I can't wait to, uh, to separate it out and to put it up.
+[00:02:05] Adam: I can't wait to separate it out and to put it up.
 
 [00:02:05] Norm: Yeah,
 
 [00:02:05] Adam: so that people can see it
 
-[00:02:11] Will: It was it was so so so well done. Totally, not the rest of the show wasn't also awesome, but
+[00:02:11] Will: It was so so so well done. Totally, not the rest of the show wasn't also awesome, but
 
 [00:02:11] Norm: garbage.
 
@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:02:25] Will: It's okay. Hold on, I don’t know which one was you.
 
-[00:02:28] Adam: I, I broke them. You turned me down. Okay,
+[00:02:28] Adam: I broke them. You turned me down. Okay,
 
 [00:02:31] Norm: I heard you spent daylight savings time, an extra hour. You spent at knolling Lego.
 
@@ -82,29 +82,29 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:02:42] Will: The Beatles’ Yellow Submarine.
 
-[00:02:43] Adam: Yeah, really. I got it on. I I had I I had it pre-ordered, or we've been watching it for a few weeks. Anyway, I got two sets. I got one so that I can build it at home with my wife, Mrs. Don't try this, um, and one that I can build here on Tested. Maybe you and I can build it together.
+[00:02:43] Adam: Yeah, really. I got it on. I had it pre-ordered, or we've been watching it for a few weeks. Anyway, I got two sets. I got one so that I can build it at home with my wife, Mrs. Don't try this and one that I can build here on Tested. Maybe you and I can build it together.
 
-[00:03:00] Norm: You know what? In the time between you showing me that set. Here at the cave and me setting up the podcast, I ordered it already. It's that's the that's the curse of Lego having a VIP account, and I had enough VIP points.
+[00:03:00] Norm: You know what? In the time between you showing me that set. Here at the cave and me setting up the podcast, I ordered it already. It's that's the curse of Lego having a VIP account, and I had enough VIP points.
 
 [00:03:00] Unknown: Oh, you just logged in.
 
-[00:03:12] Adam: It is a it is a beautiful Lego kit. I will tell you that when you knoll it, it has some interesting features. Which is, I'm used to Legos almost always being bilaterally symmetrical, which means the number counts for little parts is always like two, four, six, eight, 12.
+[00:03:12] Adam: It is a beautiful Lego kit. I will tell you that when you knoll it has some interesting features. Which is, I'm used to Legos almost always being bilaterally symmetrical, which means the number counts for little parts is always like two, four, six, eight, 12.
 
 [00:03:25] Norm: Yep.
 
-[00:03:26] Adam: This there's lots of threes and fives in this one because it's like a it's like a calico. It's the yellow submarine, so there's all different colors.
+[00:03:26] Adam: This there's lots of threes and fives in this one because it's like a calico. It's the yellow submarine, so there's all different colors.
 
 [00:03:34] Will: I can't wait to build
 
 [00:03:33] Norm: The thing that bugs me the most about pre-sorting is not the number how few sometimes of a certain piece. I love it when there are like 30 like one piece
 
-[00:03:43] Will: like the Death Star, the Star Destroyer, Super Star Destroyer. When we had dozens and dozens and dozens. When
+[00:03:43] Will: like the Death Star, the Star Destroyer, Super Star Destroyer. When we had dozens and dozens. When
 
 [00:03:47] Norm: your pile is of four or seven, yeah, as opposed to 30, you have a lot of small piles to make, and you can't stack them your way.
 
 [00:03:54] Will: I like the small piles. The small piles are very soothing. to me.
 
-[00:03:57] Adam: We um we uh I'll tweet this in a few minutes, but um Mrs. Julia and I. This is us at the table last night.
+[00:03:57] Adam: We I'll tweet this in a few minutes, but Mrs. Julia and I. This is us at the table last night.
 
 [00:04:05] Norm: Oh, you need a good surface for that.
 
@@ -124,11 +124,11 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:04:23] Norm: sushi chef.
 
-[00:04:24] Will: Actually, you're playing a customer ordering food and you're trying to get specific sets. So it works kind of like a game like Rummy where you have to get say threes and twos or or you know you're making melds or streaks. But each type of sushi has a different scoring goal. So for example, in order to score sashimi, you need three pieces of sashimi. In order to score nigiri, you just need one. But if you want to double it, you can put some wasabi on it, and it ends up being this really fast to learn, but kind of deep, uh, German style board game. That's that's actually quite good.
+[00:04:24] Will: Actually, you're playing a customer ordering food and you're trying to get specific sets. So it works kind of like a game like Rummy where you have to get say threes and twos or you know you're making melds or streaks. But each type of sushi has a different scoring goal. So for example, in order to score sashimi, you need three pieces of sashimi. In order to score nigiri, you just need one. But if you want to double it, you can put some wasabi on it, and it ends up being this really fast to learn, but kind of deep German style board game. That's actually quite good.
 
 [00:04:54] Norm: I like saying Sue Sushi Chef.
 
-[00:04:57] Adam: I'm I'm trying to think of like Sue sees
+[00:04:57] Adam: I'm trying to think of like Sue sees
 
 [00:04:59] Will: sushi chef
 
@@ -140,7 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:05:06] Norm: Sushi chef, sea shoes.
 
-[00:05:08] Adam: You know what the most difficult tongue twister of all is, and this is disputed. I mean, you know, because it’s subjective.
+[00:05:08] Adam: You know what the most difficult tongue twister of all is, and this is disputed. I mean because it’s subjective.
 
 [00:05:12] Will: Betty bought some butter, but she said [unclear: the spreader butter better than the butter. I’m like the butter better / this butter’s bitter, bitter, bitter, bitter, bitter, bitter, bitter / this butter’s better, better, better, better, better, better, better],
 
@@ -148,7 +148,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:05:24] Will: That’s an auctioneering practice.
 
-[00:05:24] Adam: No, this is um uh uh uh the sixth sick sheik’s sixth sheep's sick.
+[00:05:24] Adam: No, this is the sixth sick sheik’s sixth sheep's sick.
 
 [00:05:32] Will: Well, I guess we have a show title now.
 
@@ -156,7 +156,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:05:37] Will: Buffalo, Buffalo, Buffalo, Buffalo, Buffalo.
 
-[00:05:39] Adam: You know New York. You need New York. You know you need unique New York. Every now and then, you can hear Stephen Colbert run through vocal exercises for verbal clarity,
+[00:05:39] Adam: New York. You need New York. You know you need unique New York. Every now and then, you can hear Stephen Colbert run through vocal exercises for verbal clarity,
 
 [00:05:49] Norm: enunciation,
 
@@ -178,13 +178,13 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:06:06] Norm: The adversary
 
-[00:06:06] Adam: and, uh, Norm watched it. I have not, so I am up to episode five. You've watched episode one and two.
+[00:06:06] Adam: and Norm watched it. I have not, so I am up to episode five. You've watched episode one and two.
 
 [00:06:17] Will: Yeah,
 
-[00:06:18] Norm: yes. Let's set up the premise. Let's set up the, the context of what this show is. Why people are excited about it.
+[00:06:18] Norm: yes. Let's set up the premise. Let's set up the context of what this show is. Why people are excited about it.
 
-[00:06:24] Adam: It is based on a legendary film, uh, direct, written, and directed by author Michael Crichton, one of two films he ever directed.
+[00:06:24] Adam: It is based on a legendary film direct, written, and directed by author Michael Crichton, one of two films he ever directed.
 
 [00:06:31] Will: Right, of the Andromeda Strain
 
@@ -194,15 +194,15 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:06:35] Norm: It's very much a proto Jurassic Park.
 
-[00:06:37] Adam: Absolutely, uh, the original film starred Yul Brynner and Richard Benjamin, um, and it was about an amusement park that was the Old West, peopled by robots.
+[00:06:37] Adam: Absolutely the original film starred Yul Brynner and Richard Benjamin and it was about an amusement park that was the Old West, peopled by robots.
 
 [00:06:37] Norm: Yes,
 
-[00:06:37] Adam: Um, and one of the robots goes rogue, and it's a it's a long chase film.
+[00:06:37] Adam: And one of the robots goes rogue, and it's a long chase film.
 
-[00:06:55] Norm: It is the original Terminator. uh, there are many hallmarks of this. In addition to being a proto Jurassic Park, it is basically a rogue robot hunting down these two guests. Um, and also, it had the first use of, I believe, digitally altered, um, computer altered imagery.
+[00:06:55] Norm: It is the original Terminator. There are many hallmarks of this. In addition to being a proto Jurassic Park, it is basically a rogue robot hunting down these two guests. And also, it had the first use of, I believe, digitally altered computer altered imagery.
 
-[00:07:11] Adam: It did. It is the very first film to utilize, uh. It is agreed that it's the first film to use CG in the film.
+[00:07:11] Adam: It did. It is the very first film to utilize. It is agreed that it's the first film to use CG in the film.
 
 [00:07:17] Norm: Yeah, not not computer models, but computer altered imagery in the vision of Yul Brynner. His pixelized view.
 
@@ -224,7 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:07:44] Will: today's trivia minute is brought to you by.
 
-[00:07:47] Adam: So so anyway so this is the original film is effectively a long termin-, you're right it's the proto Terminator um, and it's thrilling it's great Yul Brynner is terrifying as a robot cowboy murder as a murderous robot. Robot cowboy
+[00:07:47] Adam: So so anyway so this is the original film is effectively a long termin-, you're right it's the proto Terminator and it's thrilling it's great Yul Brynner is terrifying as a robot cowboy murder as a murderous robot. Robot cowboy
 
 [00:08:01] Norm: who doesn't have to do much but say draw
 
@@ -232,13 +232,13 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:08:01] Norm: and be met and be imposing which also pulls upon his role in the Magnificent Seven. For that gunslinger persona.
 
-[00:08:11] Will: So, so for me though, the old the original movie is more. It's it's almost as if a robot amusement park met like one of the old west kind of tourist destinations it’s like Tombstone or Central City or something like that. It it there's no, they aren't trying to make a realistic experience. They're trying to make a a real world. They're trying to make a they're trying to make an amusement park ride. Whereas the modern incarnation of Westworld feels much more
+[00:08:11] Will: So, so for me though, the old the original movie is more. It's almost as if a robot amusement park met like one of the old west kind of tourist destinations it’s like Tombstone or Central City or something like that. It there's no, they aren't trying to make a realistic experience. They're trying to make a real world. They're trying to make a they're trying to make an amusement park ride. Whereas the modern incarnation of Westworld feels much more
 
 [00:08:37] Norm: fully immersive.
 
-[00:08:38] Will: It it it actually feels like a like one of the open world video games that are very popular now, like GTA or or or Skyrim or something like that.
+[00:08:38] Will: It actually feels like a like one of the open world video games that are very popular now, like GTA or Skyrim or something like that.
 
-[00:08:46] Adam: So, go ahead [unclear: Norm / Don]. Aside from the time travel aspect of Terminator, any film in which you have a human acting robot is a is a chance to play with all levels of allegory in terms of what it means to be conscious, what it means to be a person, and how we view the other. Blade Runner is, I think, one of the more sophisticated. Explorations of that, in terms of it being, I think it can be viewed as a racial allegory. It can be viewed as a Christian allegory, religious allegory. It can be viewed as a Buddhist allegory about what is consciousness. And I am actually thrilled because Westworld seems to be rolling up its sleeves and diving about as deep into this iconography as I can possibly imagine.
+[00:08:46] Adam: So, go ahead [unclear: Norm / Don] Aside from the time travel aspect of Terminator, any film in which you have a human acting robot is a chance to play with all levels of allegory in terms of what it means to be conscious, what it means to be a person, and how we view the other. Blade Runner is, I think, one of the more sophisticated. Explorations of that, in terms of it being, I think it can be viewed as a racial allegory. It can be viewed as a Christian allegory, religious allegory. It can be viewed as a Buddhist allegory about what is consciousness. And I am actually thrilled because Westworld seems to be rolling up its sleeves and diving about as deep into this iconography as I can possibly imagine.
 
 [00:09:28] Norm: So the show, the modern show, HBO's show, created by Jonathan Nolan and Lisa Joy, who writing partners, I believe also they're married. Jonathan
 
@@ -274,13 +274,13 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:10:11] Unknown speaker: Wow, really?
 
-[00:10:11] Norm: They had to do reshoots, um, shot a lot in Utah, so on location.
+[00:10:11] Norm: They had to do reshoots shot a lot in Utah, so on location.
 
-[00:10:18] Adam: I can tell you, it's I recognize. I've been, I've stood in many of the locations that it was shot when we filmed Duct Tape Canyon, because if you want to film that type of landscape, you can't go to the Grand Canyon. It's incredibly protected, um, and you just you're not allowed to hurt that landscape at all, which is great. Um, Moab, Utah, which is, uh, where we filmed Duct Tape Canyon, and it's Monument Valley and some really some of the most beautiful scenery I've ever seen in my whole life. Uh, and yeah, I've stood in several of the main locations in the [unclear: in] Westworld.
+[00:10:18] Adam: I can tell you, it's I recognize. I've been, I've stood in many of the locations that it was shot when we filmed Duct Tape Canyon, because if you want to film that type of landscape, you can't go to the Grand Canyon. It's incredibly protected and you just you're not allowed to hurt that landscape at all, which is great. Moab, Utah, which is where we filmed Duct Tape Canyon, and it's Monument Valley and some really some of the most beautiful scenery I've ever seen in my whole life. And yeah, I've stood in several of the main locations in the [unclear: in] Westworld.
 
-[00:10:49] Norm: so the money shows like it's it's an idea the the conceit of a a immersive amusement park like run by robots. You could do that on a network show. You could do it on basic cable, but they put money on this, [unclear same-position phrase: “and so it's a it's a grand scale” / “Simpsons did it. It's a grand scale”] with. We're not in spoiler territory yet, but can we say the one big thematic difference between this show and the movie in that who the protagonists are?
+[00:10:49] Norm: so the money shows like it's an idea the conceit of a immersive amusement park like run by robots. You could do that on a network show. You could do it on basic cable, but they put money on this, [unclear same-position phrase: “and so it's a it's a grand scale” / “Simpsons did it. It's a grand scale”] with. We're not in spoiler territory yet, but can we say the one big thematic difference between this show and the movie in that who the protagonists are?
 
-[00:11:16] Will: I I don't I don't I don't know entirely that well. From what I've seen so far, that's not clear.
+[00:11:16] Will: I don't know entirely that well. From what I've seen so far, that's not clear.
 
 [00:11:21] Adam: Will, you’re in episode two. You're still kind of figuring. They're still introducing main themes, like even main basic themes at that point.
 
@@ -292,9 +292,9 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:11:46] Adam: Oh, absolutely,
 
-[00:11:47] Norm: and that the robots are as much have as much agency and as much story on them as the the humans.
+[00:11:47] Norm: and that the robots are as much have as much agency and as much story on them as the humans.
 
-[00:11:54] Will: So the so the three the three main groups are the creators of the park.
+[00:11:54] Will: So the three main groups are the creators of the park.
 
 [00:11:54] Norm: Yep,
 
@@ -302,7 +302,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:11:54] Adam: The guests.
 
-[00:11:54] Will: which is presented as an incredibly expensive, you know,
+[00:11:54] Will: which is presented as an incredibly expensive
 
 [00:11:54] Adam: Yeah.
 
@@ -314,19 +314,19 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:12:26] Adam: Oh, is that what they've said? So
 
-[00:12:27] Will: with inflation, that's like that's like going to Disney World.
+[00:12:27] Will: with inflation, that's like going to Disney World.
 
-[00:12:29] Adam: Before we dive too down this rabbit hole, I want to say from the from the front top line down, the casting is one of the just a phenomenal cast.
+[00:12:29] Adam: Before we dive too down this rabbit hole, I want to say from the front top line down, the casting is one of the just a phenomenal cast.
 
 [00:12:29] Will: Oh,
 
-[00:12:29] Adam: Ed Harris as as as right now seems the villain is amazing. Anthony Hopkins giving master classes in acting just constantly. Evan Rachel Wood, who I've been a fan of since since the amazing series with Sela Ward and Billy Campbell once and again, where she plays a young girl and you see her going up through middle school into early high school. Phenomenal actress. Back then, in fact, one of the showrunners of that show was asked what his one of his favorite takeaways of making Once and Again was, and he said, " I'll get to say later on that I worked early on with Evan Rachel Wood. She went on to star in the movie Thirteen, which is another masterpiece. She's an incredible actress, and even by episode two, you you haven’t seen there’s, there’s so much range she brings to this role. She's an incredible performer, and she's described this in interviews as acting Olympics.
+[00:12:29] Adam: Ed Harris as right now seems the villain is amazing. Anthony Hopkins giving master classes in acting just constantly. Evan Rachel Wood, who I've been a fan of since since the amazing series with Sela Ward and Billy Campbell once and again, where she plays a young girl and you see her going up through middle school into early high school. Phenomenal actress. Back then, in fact, one of the showrunners of that show was asked what his one of his favorite takeaways of making Once and Again was, and he said, " I'll get to say later on that I worked early on with Evan Rachel Wood. She went on to star in the movie Thirteen, which is another masterpiece. She's an incredible actress, and even by episode two, you you haven’t seen there’s, there’s so much range she brings to this role. She's an incredible performer, and she's described this in interviews as acting Olympics.
 
-[00:13:33] Will: I was going to say, like just watching the first episode, which features a couple of so the the park goes through loops. The third the third set of characters are the hosts, the robots
+[00:13:33] Will: I was going to say, like just watching the first episode, which features a couple of so the park goes through loops. The third set of characters are the hosts, the robots
 
 [00:13:33] Adam: Right.
 
-[00:13:33] Will: that that make the city the the the city run. And the first episode does a good job of setting up the rules. You know, guests can't hurt other guests; they can do whatever they want to the robots.
+[00:13:33] Will: that that make the city run. And the first episode does a good job of setting up the rules. Guests can't hurt other guests; they can do whatever they want to the robots.
 
 [00:13:51] Adam: Literally, they literally are not able to hurt other guests.
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:13:56] Unknown speaker: right. Yeah,
 
-[00:13:57] Will: and presumably. you’re, you know, they say you are not you are not able to hurt anybody. You are not supposed to, right?
+[00:13:57] Will: and presumably. you’re they say you are not able to hurt anybody. You are not supposed to, right?
 
 [00:13:57] Adam: Yeah,
 
@@ -350,51 +350,51 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:14:19] Will: like including.
 
-[00:14:20] Adam: And if you want to, if you want to think on that one, like if you have a world populated by very realistic robots and you can do whatever you want, how how the the show has a fairly dim view of humanity because what the guests do to the hosts is appalling.
+[00:14:20] Adam: And if you want to think on that one, like if you have a world populated by very realistic robots and you can do whatever you want, how how the show has a fairly dim view of humanity because what the guests do to the hosts is appalling.
 
-[00:14:37] Will: Well, so so I am I am friends with a lot of game developers, and this is a thing. I think, as people who played a lot of video games, Norm and I probably have a different perspective on this than you.
+[00:14:37] Will: Well, so so I am friends with a lot of game developers, and this is a thing. I think, as people who played a lot of video games, Norm and I probably have a different perspective on this than you.
 
 [00:14:48] Adam: Yes,
 
-[00:14:49] Will: because what they've essentially done is put human faces on what are typically viewed as kind of thin characters of of non-player characters in video games, right?
+[00:14:49] Will: because what they've essentially done is put human faces on what are typically viewed as kind of thin characters of non-player characters in video games, right?
 
 [00:14:49] Adam: Right, right,
 
 [00:14:49] Will: and The behavior that say Ed Harris exhibits in the first episode of the show, and even even going forward for what I've seen so far, is exactly the kind of stuff that players do in games like World of Warcraft and Skyrim, and without even without without any kind of thought or consequence.
 
-[00:15:15] Norm: We're moving into spoiler territory as we talk about that character, but you're right. I think the, I, I think the producers, the showrunners, the writers of the show have have been very forthcoming in saying that they look to video games as as their as their bible and and how and it's relatable. It's how the viewers of the show can relate, and and it's the first thing people talk about when they talk about, oh my god, this is just like that video game, where this is I've never thought of the video game characters like this, thinking those things to a logical extreme.
+[00:15:15] Norm: We're moving into spoiler territory as we talk about that character, but you're right. I think the, I, I think the producers, the showrunners, the writers of the show have have been very forthcoming in saying that they look to video games as their bible and how and it's relatable. It's how the viewers of the show can relate, and it's the first thing people talk about when they talk about, oh my god, this is just like that video game, where this is I've never thought of the video game characters like this, thinking those things to a logical extreme.
 
 [00:15:45] Will: To to be clear, when you're when you're playing a game like Grand Theft Auto,
 
 [00:15:45] Adam: right?
 
-[00:15:45] Will: You know, you walk around. It's probably a bad example because I don't think they actually do this in GTA, but in a lot of open world games, the non-player characters will have loops that they run through.
+[00:15:45] Will: You walk around. It's probably a bad example because I don't think they actually do this in GTA, but in a lot of open world games, the non-player characters will have loops that they run through.
 
 [00:15:45] Adam: Right.
 
-[00:15:45] Will: So they they have a series of activities that they do every day. They have dialogue interactions with other non-player characters.
+[00:15:45] Will: So they have a series of activities that they do every day. They have dialogue interactions with other non-player characters.
 
 [00:15:45] Adam: Right. They and you can interrupt these loops and join in, and
 
-[00:16:07] Will: yeah, they can trigger quests. They can approach you and try to get you to trigger a quest. And literally, the only difference between GTA and Westworld in that at that level of conception is that you know GTA happens in 2D on a screen, and Westworld is happens in the real world with with robots.
+[00:16:07] Will: yeah, they can trigger quests. They can approach you and try to get you to trigger a quest. And literally, the only difference between GTA and Westworld in that at that level of conception is that you know GTA happens in 2D on a screen, and Westworld is happens in the real world with robots.
 
 [00:16:07] Adam: Yep.
 
-[00:16:07] Will: Um. And it made me profoundly uncomfortable after playing those games.
+[00:16:07] Will: And it made me profoundly uncomfortable after playing those games.
 
-[00:16:26] Adam: Yeah. No, I can totally imagine. Um. Also, by the uh, another main actor that's in the show is Jeffrey Wright.
+[00:16:26] Adam: Yeah. No, I can totally imagine. Also, by the another main actor that's in the show is Jeffrey Wright.
 
 [00:16:33] Norm: Yeah.
 
-[00:16:33] Adam: Um. Who got his first big start as Basquiat in an amazing Julian Schnabel film, which is actually incredible.
+[00:16:33] Adam: Who got his first big start as Basquiat in an amazing Julian Schnabel film, which is actually incredible.
 
-[00:16:40] Norm: You may recognize him also in the Bond films, the most recent Bond, who plays Felix. Uh. He also 
+[00:16:40] Norm: You may recognize him also in the Bond films, the most recent Bond, who plays Felix. He also
 
 [00:16:43] Adam: Okay.
 
 [00:16:40] Norm: in Source Code plays a very similar computer scientist with the glasses.
 
-[00:16:50] Adam: He's wonderful. He's an actor. I think of I put him in a category with Oliver Platt as a truly, really rounded, amazing character actor who's never fully gotten there to. It's never really hit it. Big. I think of them both as as slightly under recognized by Hollywood.
+[00:16:50] Adam: He's wonderful. He's an actor. I think of I put him in a category with Oliver Platt as a truly, really rounded, amazing character actor who's never fully gotten there to. It's never really hit it. Big. I think of them both as slightly under recognized by Hollywood.
 
 [00:17:07] Will: Thandie Newton.
 
@@ -404,19 +404,19 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:17:13] Norm: Everyone who plays every host.
 
-[00:17:15] Adam: Okay, I'd like to move into spoiler territory. Let's do it. Okay, so we're now. If you if you want to watch, want to want to watch it fresh, go right ahead and turn off the podcast right now. I think we'll try and move somewhat linearly through episodes.
+[00:17:15] Adam: Okay, I'd like to move into spoiler territory. Let's do it. Okay, so we're now. If you want to watch it fresh, go right ahead and turn off the podcast right now. I think we'll try and move somewhat linearly through episodes.
 
-[00:17:31] Will: Yeah, let’s do it. I don't think you're going to lose a whole lot. Like I don't. I feel like this is more about characters and and setting than plot.
+[00:17:31] Will: Yeah, let’s do it. I don't think you're going to lose a whole lot. Like I don't. I feel like this is more about characters and setting than plot.
 
-[00:17:38] Adam: So one of the one of the things that I find really invigorating about this show on the broad general level is you're right. The characters are in three buckets: people who run the park, the visitors, and the hosts, who are the robots. And you spend a lot of time in only two of those worlds. You spend a lot of time in the background of the park, on the underside of it, in the mechanics, and then you spend a lot of time in the park. But you know nothing of what the actual "Quote unquote, real world looks like as far as episode five goes, and probably episode six.
+[00:17:38] Adam: So one of the things that I find really invigorating about this show on the broad general level is you're right. The characters are in three buckets: people who run the park, the visitors, and the hosts, who are the robots. And you spend a lot of time in only two of those worlds. You spend a lot of time in the background of the park, on the underside of it, in the mechanics, and then you spend a lot of time in the park. But you know nothing of what the actual "Quote unquote, real world looks like as far as episode five goes, and probably episode six.
 
-[00:18:05] Norm: They just allude to it. They say there is no, there is no, there is no poverty, there is no sickness.
+[00:18:05] Norm: They just allude to it. They say there is no poverty, there is no sickness.
 
 [00:18:11] Adam: It's a world of plenty.
 
 [00:18:12] Norm: It's a world of plenty, which is why this world of fantasy needs to exist.
 
-[00:18:15] Will: And you get tiny glimpses at the at the technology available. For example, in the second episode, when they introduce two visitors, they go through the outfitting phase. They show you the futuristic white plastic sci-fi rooms with the clothes, and then they go into a bar, and all of a sudden the bar is a train, and the train is about to arrive at the station.
+[00:18:15] Will: And you get tiny glimpses at the technology available. For example, in the second episode, when they introduce two visitors, they go through the outfitting phase. They show you the futuristic white plastic sci-fi rooms with the clothes, and then they go into a bar, and all of a sudden the bar is a train, and the train is about to arrive at the station.
 
 [00:18:34] Adam: It’s a pretty cool, kind of Disney-fied magic trick.
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:20:13] Norm: But there's also a third difference. There’s nudity, and then there’s sexy, and then there's sexualizing. And this does nudity for storytelling.
 
-[00:20:20] Adam: This does nudity without sexualizing it, and and it's not sexy, and that's dis, and that's jarring to see. Well, Thandie Newton has entire scenes in which she is completely naked, and there's also there's there's dicks in this movie like all over the place. There's you haven't even seen nothing.
+[00:20:20] Adam: This does nudity without sexualizing it, and it's not sexy, and that's dis, and that's jarring to see. Well, Thandie Newton has entire scenes in which she is completely naked, and there's also there's there's dicks in this movie like all over the place. There's you haven't even seen nothing.
 
 [00:20:20] Will: All the well,
 
@@ -506,15 +506,15 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:23:04] Will: yeah,
 
-[00:23:04] Adam: in order to make sure they knew precisely how the whole how the whole series would lay out
+[00:23:04] Adam: in order to make sure they knew precisely how the whole series would lay out
 
 [00:23:19] Will: of the whole thing, okay,
 
-[00:23:20] Adam: Right. Right? And they didn't want to get into a situation or a perceived situation like Lost, the way people perceive Lost went, where you know bounced back and forth between a science fiction show and a soap opera, et cetera, et cetera. I mean, all the complaints,
+[00:23:20] Adam: Right. Right? And they didn't want to get into a situation or a perceived situation like Lost, the way people perceive Lost went, where you know bounced back and forth between a science fiction show and a soap opera, et cetera. I mean, all the complaints,
 
 [00:23:34] Will: everything that goes on for a long time and isn’t of a fixed length to begin with. So,
 
-[00:23:37] Adam: have they said how many how many episodes they're planning to make?
+[00:23:37] Adam: have they said how many episodes they're planning to make?
 
 [00:23:40] Norm: I believe this season is 10 or 12 episodes, but the season two has not been greenlit yet
 
@@ -528,21 +528,21 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:23:51] Will: yeah.
 
-[00:23:51] Norm: And HBO did come in and stop production a year and a half ago at around episode six, so they did reshoots, but everything after. After episode six. Has their renewed focus in in their story.
+[00:23:51] Norm: And HBO did come in and stop production a year and a half ago at around episode six, so they did reshoots, but everything after. After episode six. Has their renewed focus in their story.
 
-[00:24:04] Adam: So this is it. I'm fascinated because I remember when the first press came out, I thought, uh oh, you know, sounds like it could be a nightmare.
+[00:24:04] Adam: So this is it. I'm fascinated because I remember when the first press came out, I thought, uh oh sounds like it could be a nightmare.
 
 [00:24:04] Norm: right?
 
-[00:24:04] Adam: And then, honestly, I'm on episode five, and I've loved every bit of it. Now, Julia, my wife, and I are are watching it. I'm watching it again with her.
+[00:24:04] Adam: And then, honestly, I'm on episode five, and I've loved every bit of it. Now, Julia, my wife, and I are watching it. I'm watching it again with her.
 
-[00:24:20] Norm: It's dense. It is a dense show, not just in the dialogue and the scenes. Every piece of dialogue seems like it matters, but also in the edits, the way they edit it, and even just the just the the allegories. The the piano playing robot is
+[00:24:20] Norm: It's dense. It is a dense show, not just in the dialogue and the scenes. Every piece of dialogue seems like it matters, but also in the edits, the way they edit it, and even just the allegories. The piano playing robot is
 
-[00:24:36] Adam: the piano playing robot, the player piano, the player piano that plays without a program. I mean, all these all of these wonderful wonderful bits. The way that you get to see the characters go through their loops, and you see that while you see the same loop repeatedly in many different scenarios, it's always a little bit different.
+[00:24:36] Adam: the piano playing robot, the player piano that plays without a program. I mean, all these all of these wonderful wonderful bits. The way that you get to see the characters go through their loops, and you see that while you see the same loop repeatedly in many different scenarios, it's always a little bit different.
 
 [00:24:55] Will: That's the incredible acting [unclear: chat]. Like, how do you how how does Evan Rachel Wood bump into the drop the can? At the same place in the same time. I mean,
 
-[00:25:02] Adam: oh, so let me actually. I'll give you one that's going to be a little bit of a spoiler for you, but with Thandie Newton, there's a there's a sequence later on. I think it's episode three or
+[00:25:02] Adam: oh, so let me actually. I'll give you one that's going to be a little bit of a spoiler for you, but with Thandie Newton, there's a sequence later on. I think it's episode three or
 
 [00:25:02] Unknown: four. Four,
 
@@ -554,11 +554,11 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:25:33] Norm: And the fact that
 
-[00:25:34] Will: And it’s the same lines. The amazing thing is she's delivering the same lines with different with different intonation and different body language.
+[00:25:34] Will: And it’s the same lines. The amazing thing is she's delivering the same lines with different intonation and different body language.
 
 [00:25:34] Adam: Yeah.
 
-[00:25:34] Will: And it's it's astounding to watch.
+[00:25:34] Will: And it's astounding to watch.
 
 [00:25:34] Unknown: It’s wonderful.
 
@@ -592,9 +592,9 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:26:46] Unknown: Wow. Oh yeah,
 
-[00:26:46] Norm: and and then she realizes that you know it's futile. because like.
+[00:26:46] Norm: and then she realizes that you know it's futile. because like.
 
-[00:26:46] Will: I’ve been here before. So, so I mean, the, the, like at the core of it, this is about dehumanizing people and free will, right? The humans, the humans are clearly the monsters,
+[00:26:46] Will: I’ve been here before. So, so I mean, the, like at the core of it, this is about dehumanizing people and free will, right? The humans are clearly the monsters,
 
 [00:27:06] Adam: right?
 
@@ -602,15 +602,15 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:27:10] Unknown: Yeah, this is the, yeah. Yeah,
 
-[00:27:11] Will: and then, and then the question is, are the robots in a position that they're going to develop free will and and presumably
+[00:27:11] Will: and then the question is, are the robots in a position that they're going to develop free will and presumably
 
 [00:27:11] Norm: Consciousness, yeah.
 
 [00:27:19] Will: go on a murderous rampage? And it seems like that's inevitable if it's a a if it's a one season show.
 
-[00:27:24] Norm: I think that's that's the point. Like they want to show the progress of these robots in two different ways: Thandie Newton, probably a violent revolution, and then for Dolores a more self realizing revolution in terms of how they liberate themselves.
+[00:27:24] Norm: I think that's the point. Like they want to show the progress of these robots in two different ways: Thandie Newton, probably a violent revolution, and then for Dolores a more self realizing revolution in terms of how they liberate themselves.
 
-[00:27:35] Adam: And Dolores, to be clear, is Evan Rachel Wood, and she's ostensibly the star of the show. She is the she is the narrative linchpin that that that joins all the different narratives together so far.
+[00:27:35] Adam: And Dolores, to be clear, is Evan Rachel Wood, and she's ostensibly the star of the show. She is the narrative linchpin that that that joins all the different narratives together so far.
 
 [00:27:45] Will: With anyone else, with any other production side, I would say, yeah, that's absolutely going to be true. Oh, it could change. But HBO has a really long history of putting somebody on the poster and putting them front and center, and then killing them off the end of the first season.
 
@@ -618,7 +618,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:28:24] Will: oh, were you traveling? I hadn't heard.
 
-[00:28:25] Adam: And I so you know you finish five episodes, you've got this sort of whole melange in your head of of what happened, and then you re I rewatched the first episode and I was like, holy cow! I can't believe how much territory they cover in this one 58 minute episode,
+[00:28:25] Adam: And I so you know you finish five episodes, you've got this sort of whole melange in your head of what happened, and then you re I rewatched the first episode and I was like, holy cow! I can't believe how much territory they cover in this one 58 minute episode,
 
 [00:28:42] Norm: and they do it.
 
@@ -628,7 +628,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:28:49] Adam: right?
 
-[00:28:49] Norm: When they they walking through the guest orientation process, the way that you can just onboard information,
+[00:28:49] Norm: When they walking through the guest orientation process, the way that you can just onboard information,
 
 [00:28:49] Adam: yeah.
 
@@ -676,7 +676,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:30:19] Norm: To digest,
 
-[00:30:19] Will: At least. so I can think about it and then roll back and watch the like. If I if if there is like like the second episode, I'd watch the first. I'd watched it before. I watched it again last night. I am gonna go back and pick some certain bits of that Mm-hmm. Because I want to see like the the the interaction between. I can't remember the programmer's name, but he's the he's from Hunger. He's the guy from Hunger Games. He played Beetee in Hunger Games.
+[00:30:19] Will: At least. so I can think about it and then roll back and watch the like. If I if there is like the second episode, I'd watch the first. I'd watched it before. I watched it again last night. I am gonna go back and pick some certain bits of that Mm-hmm. Because I want to see like the interaction between. I can't remember the programmer's name, but he's the he's from Hunger. He's the guy from Hunger Games. He played Beetee in Hunger Games.
 
 [00:30:40] Adam: Yeah. Yeah, he's one of the Hemsworths. He's right.
 
@@ -694,7 +694,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:30:52] Adam: That's great.
 
-[00:30:52] Will: So. So it's um he he has he pulls Evan Rachel Wood off by herself and and something like clearly foreshadows that something is up with what's happening with her and what he's done
+[00:30:52] Will: So. So it's he has he pulls Evan Rachel Wood off by herself and something like clearly foreshadows that something is up with what's happening with her and what he's done
 
 [00:31:13] Adam: oh Jeffrey Wright yeah
 
@@ -702,7 +702,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:31:14] Adam: Bernard.
 
-[00:31:14] Will: She, he pulls he pulls her out and does the whole the, uh, debrief by himself
+[00:31:14] Will: She, he pulls her out and does the whole the debrief by himself
 
 [00:31:14] Unknown: Yep.
 
@@ -710,7 +710,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:31:23] Norm: yeah
 
-[00:31:24] Will: and um at the end he tells her to erase all memory of that of that conversation
+[00:31:24] Will: and at the end he tells her to erase all memory of that conversation
 
 [00:31:24] Adam: Mm-hmm.
 
@@ -736,7 +736,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:31:52] Will: Anthony Hopkins really a robot
 
-[00:31:53] Norm: no well no we'll have a whole separate podcast about whether spoilers and discussions like what what the relationship between the viewer and the storytellers are when the storytellers also read the comments like that's a whole deep thing um so the prevailing theory And it's been widely—it's like 50-50, 46, 43 right now. Is that
+[00:31:53] Norm: no well no we'll have a whole separate podcast about whether spoilers and discussions like what the relationship between the viewer and the storytellers are when the storytellers also read the comments like that's a whole deep thing so the prevailing theory And it's been widely—it's like 50-50, 46, 43 right now. Is that
 
 [00:32:10] Will: that's too real,
 
@@ -756,7 +756,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:32:19] Will: Speaking of 46, 43,
 
-[00:32:21] Norm: is that the storyline that you just got introduced to? William and Logan is actually set 30 years ago, and their interactions with Dolores are in the past, and and that one of them becomes the Man in Black.
+[00:32:21] Norm: is that the storyline that you just got introduced to? William and Logan is actually set 30 years ago, and their interactions with Dolores are in the past, and that one of them becomes the Man in Black.
 
 [00:32:36] Will: That’s—
 
@@ -770,7 +770,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:32:42] Will: Yeah.
 
-[00:32:42] Norm: it's a distinctly different logo than the show logo, the modern day logo, which you see with Anthony Hopkins and and Bernard. And in reshoots, the most compelling evidence is that HBO actually went back and. Redid those scenes to change the logo.
+[00:32:42] Norm: it's a distinctly different logo than the show logo, the modern day logo, which you see with Anthony Hopkins and Bernard. And in reshoots, the most compelling evidence is that HBO actually went back and. Redid those scenes to change the logo.
 
 [00:32:42] Will: Whoa!
 
@@ -826,7 +826,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:34:55] Norm: Which is dramatically interesting and also his connection with Dolores.
 
-[00:34:57] Adam: However, but that's the story of of Breaking Bad. So they might have actually done the opposite. They might take you on a separate reverse arc.
+[00:34:57] Adam: However, but that's the story of Breaking Bad. So they might have actually done the opposite. They might take you on a separate reverse arc.
 
 [00:35:04] Norm: Here's my theory.
 
@@ -862,7 +862,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:36:10] Unknown speaker: what?
 
-[00:36:12] Norm: And you have Rodrigo Santoro, who's a who's a host robot. He's the the the bandit.
+[00:36:12] Norm: And you have Rodrigo Santoro, who's a host robot. He's the bandit.
 
 [00:36:12] Will: Mm-hmm.
 
@@ -874,7 +874,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:36:23] Adam: Wow, interesting.
 
-[00:36:25] Will: I don’t, I want to know, I want to know who has to clean out the robots.
+[00:36:25] Will: I don’t, I want to know who has to clean out the robots.
 
 [00:36:25] Norm: Ew. One final theory.
 
@@ -942,11 +942,11 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:38:20] Will: Oh, it’s pretty fucked up.
 
-[00:38:20] Adam: Shush! Stop! It’s um, but anyway, he’s, he’s dressed precisely.
+[00:38:20] Adam: Shush! Stop! It’s but anyway, he’s dressed precisely.
 
 [00:38:25] Norm: You chose the red pill.
 
-[00:38:29] Adam: So, I think that I have gone. Yeah, I think I've gone through all the the the stuff I wanted to talk about.
+[00:38:29] Adam: So, I think that I have gone. Yeah, I think I've gone through all the stuff I wanted to talk about.
 
 [00:38:35] Will: It's how fucked up do you have to be to go hang out with past you?
 
@@ -954,7 +954,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:38:39] Adam: It's called having kids, man.
 
-[00:38:41] Norm: If you’re into Westworld. EW does a great weekly interview right after the show airs with the showrunners, where they give you little bits of insights, tidbits about their decision making, and specifically about this scene where why would Anthony Hopkins keep a version of his family as a kid? It was his favorite memory. It's it's like looking at an old photograph, and if you could have a conversation of yourself and the old photograph.
+[00:38:41] Norm: If you’re into Westworld. EW does a great weekly interview right after the show airs with the showrunners, where they give you little bits of insights, tidbits about their decision making, and specifically about this scene where why would Anthony Hopkins keep a version of his family as a kid? It was his favorite memory. It's like looking at an old photograph, and if you could have a conversation of yourself and the old photograph.
 
 [00:39:01] Will: like Robert Downey Jr. in Civil War,
 
@@ -964,7 +964,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:39:12] Norm: And what would you learn about yourself in that process?
 
-[00:39:14] Adam: Maybe, yeah, um, so. Therein lies the end of our Westworld spoiler cast.
+[00:39:14] Adam: Maybe, yeah so. Therein lies the end of our Westworld spoiler cast.
 
 [00:39:14] Norm: Part one.
 
@@ -974,7 +974,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:39:24] Adam: Let's let's let's keep checking in.
 
-[00:39:25] Norm: If you want more, um, our friend Annalee Newitz does a weekly podcast, also discussing Westworld on Ars Technica.
+[00:39:25] Norm: If you want more our friend Annalee Newitz does a weekly podcast, also discussing Westworld on Ars Technica.
 
 [00:39:32] Adam: We gotta have Annalee on this podcast.
 
@@ -992,15 +992,15 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:39:39] Will: Laura Hudson's also doing a really good recap series on Vulture. Is the other good one? Is the one I like.
 
-[00:39:43] Adam: It's exciting and it's lovely to be diving deep into a show this with this much complexity and and and a different take than I see in a lot of normal television.
+[00:39:43] Adam: It's exciting and it's lovely to be diving deep into a show this with this much complexity and a different take than I see in a lot of normal television.
 
 [00:39:54] Will: I usually don't participate in this side. Yeah. No. Usually I come in late.
 
 [00:39:58] Adam: Me absolutely. I’m the same.
 
-[00:39:59] Will: I I still haven't watched Lost. Don't tell Lloyd. The, uh, the, uh, is there anything else? Anything else on TV new this fall that you guys have watched that's been good?
+[00:39:59] Will: I still haven't watched Lost. Don't tell Lloyd. The is there anything else? Anything else on TV new this fall that you guys have watched that's been good?
 
-[00:40:13] Adam: I watched, uh, I, I watched again the Netflix special Ali Wong Baby Cobra, which is comedian Asian American comedian Ali Wong did her her her special her first comedy special. She's been stand up comedian for 15 years
+[00:40:13] Adam: I watched I, I watched again the Netflix special Ali Wong Baby Cobra, which is comedian Asian American comedian Ali Wong did her her her special her first comedy special. She's been stand up comedian for 15 years
 
 [00:40:28] Norm: from San Francisco.
 
@@ -1008,21 +1008,21 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:40:32] Will: holy hell,
 
-[00:40:33] Adam: it's it's a real tour de force.
+[00:40:33] Adam: it's a real tour de force.
 
 [00:40:35] Unknown: [unclear speaker/wording/order: Norm “Amazing, I relate”; Adam “Yeah, it’s a real tour de force”; Norm “It is went to high school here, and yeah” / Norm “Amazing. I relate. She’s like right about my age”].
 
-[00:40:40] Adam: It is filthy. It is filthy, filthy, filthy. I mean, not safe for anything. Um, it's it's really impressive. I watched it a second time while I was traveling. I really dug it. Um, I've been watching tons of Samantha Bee. She's been my spirit animal during this during this election. Um, and also, you know what? I want to give a shout out. Seth Meyers has like his talk show has been sitting there under the radar, kind of going in the background.
+[00:40:40] Adam: It is filthy. It is filthy, filthy, filthy. I mean, not safe for anything. It's really impressive. I watched it a second time while I was traveling. I really dug it. I've been watching tons of Samantha Bee. She's been my spirit animal during this election. And also, you know what? I want to give a shout out. Seth Meyers has like his talk show has been sitting there under the radar, kind of going in the background.
 
 [00:41:07] Will: That's what happens with late night.
 
-[00:41:08] Adam: It does, but he has bumped up with this segment on his talk show called " A Closer Look." That, um, has done its own kind of examination in a field crowded with John Oliver and The Daily Show and Samantha Bee and everybody else. Seth has really carved out this lovely, uh, bit of, uh, real comedic and yet, uh, deep examination into the election process, which I'm enjoying.
+[00:41:08] Adam: It does, but he has bumped up with this segment on his talk show called " A Closer Look." That has done its own kind of examination in a field crowded with John Oliver and The Daily Show and Samantha Bee and everybody else. Seth has really carved out this lovely bit of real comedic and yet deep examination into the election process, which I'm enjoying.
 
 [00:41:31] Will: You can see the through line from that to like the thing that he used to do, Amy Poehler, the really bit.
 
 [00:41:31] Adam: Yeah,
 
-[00:41:31] Will: that was the increasing, but, but this is a little bit more real and it’s quite good.
+[00:41:31] Will: that was the increasing, but this is a little bit more real and it’s quite good.
 
 [00:41:40] Adam: And I fully get that I'm exhibiting my full politics by talking about the very people that I'm watching, and so be it.
 
@@ -1032,9 +1032,9 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:41:53] Adam: your vote matters.
 
-[00:41:54] Will: Yeah. All right. Thanks, guys. Uh, Norm, anything on site? Anything good?
+[00:41:54] Will: Yeah. All right. Thanks, guys. Norm, anything on site? Anything good?
 
-[00:41:57] Norm: Yeah, uh, we have some footage finally from our trip to Australia. I think we can say we visited Peter Jackson's amazing prop collection, and we’ll have some videos.
+[00:41:57] Norm: Yeah we have some footage finally from our trip to Australia. I think we can say we visited Peter Jackson's amazing prop collection, and we’ll have some videos.
 
 [00:42:07] Adam: Peter Jackson has one of the world's most impressive collection of movie props and memorabilia, and we got to look at a few. Really amazing pieces. Yeah,
 

@@ -42,15 +42,15 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:02:04] Norm: dancing.
 
-[00:02:05] Adam: Yeah, and then this band, the band, the Plasmatics.
+[00:02:05] Adam: Yeah, and then this band, the Plasmatics.
 
 [00:02:10] Danica: Spasmatics.
 
-[00:02:10] Adam: Spasmatics. Sorry, this Spasmatics, um, did an amazing like. That was over an hour.
+[00:02:10] Adam: Spasmatics. Sorry, this Spasmatics did an amazing like. That was over an hour.
 
-[00:02:19] Norm: They're they're a cover band, but it was like the best take on the Revenge of the Nerds band at the end. In terms of their, and they had so much energy.
+[00:02:19] Norm: They're a cover band, but it was like the best take on the Revenge of the Nerds band at the end. In terms of their, and they had so much energy.
 
-[00:02:32] Adam: Their covers were fantastic. They were tight as a drum. Here's here's this is they saved the best for the second to last, which seemed to be their closing song. They did Prince. Hmm. Um. When doves cry, right?
+[00:02:32] Adam: Their covers were fantastic. They were tight as a drum. Here's here's this is they saved the best for the second to last, which seemed to be their closing song. They did Prince. Hmm. When doves cry, right?
 
 [00:02:46] Danica: No, no. Oh, was it? Let's go crazy.
 
@@ -58,9 +58,9 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:03:05] Norm: Yeah, it was endless fun. Well,
 
-[00:03:11] Danica: so that was the end of the the set.
+[00:03:11] Danica: so that was the end of the set.
 
-[00:03:13] Norm: Yes, and and then
+[00:03:13] Norm: Yes, and then
 
 [00:03:14] Danica: and then they went off stage.
 
@@ -68,7 +68,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:03:19] Danica: What was the mashup?
 
-[00:03:21] Adam: Well, so we were like, we were sitting there, and we were like, what are they? What are they going to top? Let's go crazy with because we're all like soaked all the way through, and we're disgusting, and we want we want something else. But of course, what could they possibly follow?
+[00:03:21] Adam: Well, so we were like, we were sitting there, and we were like, what are they? What are they going to top? Let's go crazy with because we're all like soaked all the way through, and we're disgusting, and we want something else. But of course, what could they possibly follow?
 
 [00:03:35] Danica: that was the perfect end.
 
@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:03:37] Danica: The right
 
-[00:03:38] Adam: and true. You know, I was like, I think I suggested something they could have sung. I was like, I was like, they could choose something nostalgic but awesome, like Aerosmith, and start to mess with that. No, they made a left hand turn into such awesome territory of goodwill and love.
+[00:03:38] Adam: and true. I was like, I think I suggested something they could have sung. I was like, they could choose something nostalgic but awesome, like Aerosmith, and start to mess with that. No, they made a left hand turn into such awesome territory of goodwill and love.
 
 [00:03:56] Danica: Well, I'm trying to remember what was mashed up with, but it. Started off? Did it start off there? They did. It was this dramatic start off of a whole new world.
 
@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:04:25] Adam: Yeah, what it was mashed up because they did because they started that with the Aladdin song for like a minute and a half.
 
-[00:04:29] Norm: Yeah, it was it was the whole first chorus.
+[00:04:29] Norm: Yeah, it was the whole first chorus.
 
 [00:04:31] Adam: Let's see here.
 
@@ -134,7 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:05:25] Danica: All this is happening while we're waiting for the photo booth, which was its own magical experience.
 
-[00:05:29] Adam: Syfy had a they had the Syfy Nerd HQ party had a a bullet time photo booth. I had not seen that.
+[00:05:29] Adam: Syfy had a they had the Syfy Nerd HQ party had a bullet time photo booth. I had not seen that.
 
 [00:05:36] Norm: It was an array of cameras, DSLRs, all set up not to capture a animation, but a it was a single moment.
 
@@ -166,13 +166,13 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:06:42] Norm: Yeah.
 
-[00:06:43] Adam: I was already working at Industrial Light Magic when it came out, and I started in '98. I remember because I took Grant and I took Grant Imahara on a day date because we were we were like Matrix buds, and we went to see it for our third time each.
+[00:06:43] Adam: I was already working at Industrial Light Magic when it came out, and I started in '98. I remember because I took Grant and I took Grant Imahara on a day date because we were like Matrix buds, and we went to see it for our third time each.
 
 [00:06:55] Danica: Oh.
 
 [00:06:57] Norm: Easier than putting a rocket on a camera, which is like how they always their analogy. We wanted to get this moment in time. We're gonna put a camera on a rocket, and instead, this is a array of cameras.
 
-[00:07:06] Adam: I'll tell you something really funny about the Bullet Time rig. Is I ended up befriending and knowing the guys that actually hand built that rig for that film, and you know it was there was so much groundbreaking stuff in that movie. But one of the things that they did not expect in the Bullet Time rig, so they bought off the shelf, off the shelf DSLRs, 1999 DSLRs, and they were shooting on film. It wasn't digital
+[00:07:06] Adam: I'll tell you something really funny about the Bullet Time rig. Is I ended up befriending and knowing the guys that actually hand built that rig for that film, and you know it was there was so much groundbreaking stuff in that movie. But one of the things that they did not expect in the Bullet Time rig, so they bought off the shelf DSLRs, 1999 DSLRs, and they were shooting on film. It wasn't digital
 
 [00:07:32] Norm: Mm.
 
@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:08:42] Norm: I think so.
 
-[00:08:42] Adam: Zach always throws the the dance party. That is going to be the dance party you want to be going to. It's really fun.
+[00:08:42] Adam: Zach always throws the dance party. That is going to be the dance party you want to be going to. It's really fun.
 
 [00:08:59] Danica: He's an excellent host.
 
@@ -240,13 +240,13 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:09:17] Adam: and it's always been the best dance party. Like I have had so much fun. I have multiple times been dancing and had people tell me, " Oh, last night you were dancing in front of Doc. You were dancing right next to Doctor Who." And I was like, " Oh, cool! I thought that young English gentleman seemed like a nice guy." And last night was no exception.
 
-[00:09:35] Norm: No, it was a Doctor Who companion, and and the cast of Arrow, and the Expanse, and Iron Fist, and they were all hanging out.
+[00:09:35] Norm: No, it was a Doctor Who companion, and the cast of Arrow, and the Expanse, and Iron Fist, and they were all hanging out.
 
 [00:09:44] Adam: Yeah, worlds are colliding. A very sweet guy, a professional football player for the Atlanta Falcons, if I remember correctly, came up to me, and he was this giant professional athlete, man, mountain, and he was like, " I'm a professional athlete, but I am such a science fanboy, and I love your show, man." And he like grabbed my hand and his Giant hand, and we talked for a bit. He was super sweet, super awesome. He's been playing for the NFL for 11 seasons.
 
 [00:09:44] Norm: Oh my god!
 
-[00:09:44] Adam: Yeah, no, this this was hardcore.
+[00:09:44] Adam: Yeah, no, this was hardcore.
 
 [00:09:44] Norm: Get out of there while you can.
 
@@ -258,7 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:10:33] Norm: The party is top of mind, but it's been quite a week. Also at Comic Con, you had a panel before the party with some special guests. I thought it was a really great panel. We'll have the video, of course, on the site soon enough. But yeah, great audience questions.
 
-[00:10:51] Adam: Audience questions were phenomenal. So it's always like an interesting conversation with the audience when I do my panel at Comic Con. Yesterday, I brought two friends: Aaron Douglas, who played Chief on Battlestar Galactica, and Wes Chatham, who plays Amos on on. The Expanse, and we didn't even get to this. Wes Chatham plays. I love the whole. Sorry, I love the whole cast of The Expanse. They are awesome. They are family like all of the people I know from Battlestar Galactica. They are like a deeply connected television show family. But when Wes Chatham auditioned for the part of Amos, he didn't know who he was reading for, but he had read the books, and his his favorite character was Amos. So he got to play a character he had already identified with in books he loved before he auditioned for the show, based on them
+[00:10:51] Adam: Audience questions were phenomenal. So it's always like an interesting conversation with the audience when I do my panel at Comic Con. Yesterday, I brought two friends: Aaron Douglas, who played Chief on Battlestar Galactica, and Wes Chatham, who plays Amos on. The Expanse, and we didn't even get to this. Wes Chatham plays. I love the whole. Sorry, I love the whole cast of The Expanse. They are awesome. They are family like all of the people I know from Battlestar Galactica. They are like a deeply connected television show family. But when Wes Chatham auditioned for the part of Amos, he didn't know who he was reading for, but he had read the books, and his his favorite character was Amos. So he got to play a character he had already identified with in books he loved before he auditioned for the show, based on them
 
 [00:11:44] Danica: so sweet.
 
@@ -268,11 +268,11 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:11:46] Danica: especially because he's such a sweetheart. Like the idea that you would have that kind of satisfaction unexpectedly—that that joy—that's great.
 
-[00:11:55] Adam: You feel this, like yeah, he's lovely, and so we we talked a little bit. We talked briefly, the three of us, because I was asking them about how costume informs character, and they talked. Oh, totally! You put on that spacesuit, you put on that gear, and it's the shoes. Yeah,
+[00:11:55] Adam: You feel this, like yeah, he's lovely, and so we talked a little bit. We talked briefly, the three of us, because I was asking them about how costume informs character, and they talked. Oh, totally! You put on that spacesuit, you put on that gear, and it's the shoes. Yeah,
 
 [00:11:55] Norm: This is true.
 
-[00:12:10] Danica: Aaron Douglas's comment about the shoes—that the shoes that he had in his closet for. Eight years or whatever, he pulls them out and he's right back in that same character.
+[00:12:10] Danica: Aaron Douglas's comment about the shoes—that he had in his closet for. Eight years or whatever, he pulls them out and he's right back in that same character.
 
 [00:12:19] Adam: Totally,
 
@@ -284,7 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:12:27] Adam: Oogie Boogie. He was dressed as a full size Oogie Boogie, and it was an amazing, amazing costume.
 
-[00:12:32] Norm: And and when the panel started, so the panel's a packed room. There were more people outside waiting to get into the panel than in the panel. Oogie Boogie was sitting in the back, and my eyes went immediately to him because the canvas that he had picked for the sack, and it was
+[00:12:32] Norm: And when the panel started, so the panel's a packed room. There were more people outside waiting to get into the panel than in the panel. Oogie Boogie was sitting in the back, and my eyes went immediately to him because the canvas that he had picked for the sack, and it was
 
 [00:12:48] Adam: perfect. He had little weird arms. The Oogie Boogie had
 
@@ -302,13 +302,13 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:13:05] Norm: And you could see the concentric rings inside his Oogie Boogie, and what a great idea!
 
-[00:13:10] Adam: How it’s so delightful to find out that like that. What you know, he was he was inspired. Inspired and guided by some of our stuff, we put up on the site. Yeah, that's great.
+[00:13:10] Adam: How it’s so delightful to find out that like that. What you know, he was inspired. Inspired and guided by some of our stuff, we put up on the site. Yeah, that's great.
 
 [00:13:19] Danica: I also like that he felt screwed over that you hadn't figured that stuff out for the bears first.
 
-[00:13:28] Adam: The questions from the audience were some of the best questions we've ever had, and it's not because they were like super intriguing question. It was just like it was all geared towards cosplay and and making stuff. I think there was two MythBuster questions. Not that I don't mind MythBuster questions, but it's just it's interesting to see what people are are wanting to talk about, and it gives you it gives you some perspective on what they're finding interesting. And I just there's so much saturation of. I mean, you guys are watching Tested right now, but each time I hear out on the street someone's watching, oh, I'm watching all the stuff you do on Tested, which I heard like a thousand times yesterday is so gratifying.
+[00:13:28] Adam: The questions from the audience were some of the best questions we've ever had, and it's not because they were like super intriguing question. It was just like it was all geared towards cosplay and making stuff. I think there was two MythBuster questions. Not that I don't mind MythBuster questions, but it's just it's interesting to see what people are wanting to talk about, and it gives you some perspective on what they're finding interesting. And I just there's so much saturation of. I mean, you guys are watching Tested right now, but each time I hear out on the street someone's watching, oh, I'm watching all the stuff you do on Tested, which I heard like a thousand times yesterday is so gratifying.
 
-[00:14:07] Norm: And then the other shout I want to give is to the guy who wore the the Mandalorian armor,
+[00:14:07] Norm: And then the other shout I want to give is to the guy who wore the Mandalorian armor,
 
 [00:14:13] Adam: yes,
 
@@ -326,7 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:14:34] Danica: Yeah.
 
-[00:14:35] Adam: Like, and they're all Velcroed to his armor, so he's like, pull one off, pull one off, and I tore one off. Put it back on. It was great.
+[00:14:35] Adam: Like, and they're all Velcroed to his armor, so he's like, pull one off, and I tore one off. Put it back on. It was great.
 
 [00:14:44] Norm: Yeah, armor—a good theme for not only the panel but also the big incognito you had this year.
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:15:03] Norm: Oh, God.
 
-[00:15:03] Adam: and we all went to Cornwall, England. We stayed in St Ives and drove over to Terry's shop every morning for a week. Terry is, of course. You don't know this, but Terry English, master armorer, he's made armor for a bazillion movies, from the Harry Potter films and Excalibur, most famously for me. And Terry led us into a shop, and we filmed a whole bunch of videos about how to make armor, how Terry makes armor, the history of his creation, and then together he he let me assist him in making my all-time dream suit of armor.
+[00:15:03] Adam: and we all went to Cornwall, England. We stayed in St Ives and drove over to Terry's shop every morning for a week. Terry is, of course. You don't know this, but Terry English, master armorer, he's made armor for a bazillion movies, from the Harry Potter films and Excalibur, most famously for me. And Terry led us into a shop, and we filmed a whole bunch of videos about how to make armor, how Terry makes armor, the history of his creation, and then together he let me assist him in making my all-time dream suit of armor.
 
 [00:15:44] Norm: It was the learning process. Anyone who's watched the video of you with Peter Lyon at Weta being almost apprentice for a day to make a sword, this was that over the span of 10 days almost.
 
@@ -356,7 +356,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:16:03] Unknown speaker: [unclear: my hotel was in St. On].
 
-[00:16:05] Norm: We were we were in the south of England, spending over a week there to document this apprenticeship.
+[00:16:05] Norm: We were in the south of England, spending over a week there to document this apprenticeship.
 
 [00:16:14] Adam: It was really, really crazy fun.
 
@@ -370,9 +370,9 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:16:22] Norm: Then we have a lot of stories from that. This is not the podcast stuff about that, but just to say that you guys can look forward to tested members can look forward to a whole series of this armor build, and the armor turned out so wonderfully.
 
-[00:16:33] Adam: The armor was is it is more beautiful than the original armor. The original Nigel Terry worn suit of King Arthur armor, and there's probably more than one because he's the main character. But the original armor was up for auction recently, and it's again, it's like my dream platonic ideal of armor. And Terry Terry's amazing skill is that he's just the greatest armor designer, and I think he's his line and the way he thinks about curve and the way the metal moves on the body. There are aspects to the suit he built that I think are are way more beautiful even than his original. He really brought it. That was incredible.
+[00:16:33] Adam: The armor was is it is more beautiful than the original armor. The original Nigel Terry worn suit of King Arthur armor, and there's probably more than one because he's the main character. But the original armor was up for auction recently, and it's again, it's like my dream platonic ideal of armor. And Terry Terry's amazing skill is that he's just the greatest armor designer, and I think he's his line and the way he thinks about curve and the way the metal moves on the body. There are aspects to the suit he built that I think are way more beautiful even than his original. He really brought it. That was incredible.
 
-[00:17:17] Norm: Yeah, yeah, very proud. And you had that on on stage at the panel. That was just one of your incognitos. The day before that,
+[00:17:17] Norm: Yeah, yeah, very proud. And you had that on stage at the panel. That was just one of your incognitos. The day before that,
 
 [00:17:25] Adam: the day before that, I was a Chewbacca, which I did at Silicon Valley Comic Con earlier this year. The wrinkle was, we were two Chewbaccas, and the second Chewbacca was Judge John Hodgman
 
@@ -384,11 +384,11 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:17:45] Danica: Yeah,
 
-[00:17:45] Adam: he has not, and he has been. I know, I know, because we. It seems like he's been there because the w00tstock, the backstage at w00tstock, which is a regular part of our Comic Con Thursday night. That scene is all of our mutual friends. It's so many people we both know and love. And same thing last night, but I'm sorry, the same thing Thursday night. But John was there. John did a set at w00tstock, a beautiful set where he finished by singing a Modern Lovers song on the ukulele. It was super amazing, just lovely. He He did. He he he's been developing a one man show and book, and they're kind of a similar thing. And the book is coming out soon called Vacationland. And he did kind of a piece from Vacationland, talking about the first time he learned that he owned a septic tank and how those worked in his house in Western Massachusetts. That was awesome. So yeah, Hodgman put on the the raccoon makeup, and he and I walked the floor as Wookiees. And people were like, " Minds blown." They were like, " Wookiee couple."
+[00:17:45] Adam: he has not, and he has been. I know, because we. It seems like he's been there because the w00tstock, the backstage at w00tstock, which is a regular part of our Comic Con Thursday night. That scene is all of our mutual friends. It's so many people we both know and love. And same thing last night, but I'm sorry, the same thing Thursday night. But John was there. John did a set at w00tstock, a beautiful set where he finished by singing a Modern Lovers song on the ukulele. It was super amazing, just lovely. He did. He he's been developing a one man show and book, and they're kind of a similar thing. And the book is coming out soon called Vacationland. And he did kind of a piece from Vacationland, talking about the first time he learned that he owned a septic tank and how those worked in his house in Western Massachusetts. That was awesome. So yeah, Hodgman put on the raccoon makeup, and he and I walked the floor as Wookiees. And people were like, " Minds blown." They were like, " Wookiee couple."
 
 [00:18:52] Norm: Why would they both have bandoliers? I guess that's just the garb they wear. Yeah.
 
-[00:18:57] Adam: Someone was like, you know, there's not two Wookiees, and then no one seemed to care.
+[00:18:57] Adam: Someone was like there's not two Wookiees, and then no one seemed to care.
 
 [00:19:02] Norm: Yeah, I know exactly. It's more more like the people. It meant that they could take photos between you two.
 
@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:19:15] Norm: And we documented in the video, which you guys will see soon. But the costume, the Wookiee costume, that John wore was actually fabricated by a new friend of ours.
 
-[00:19:24] Adam: Yeah, yeah. Sean Calhoun and Anovos are about to release a licensed Chewbacca costume, and as I said in the panel yesterday, it's it's really hard to get a Chewbacca face right. It's really easy to make Chewbacca's like weird cousin, Joebaca, but it's really hard to get the Chewbacca attitude right. And they so totally did. The fur has the fur on the suit on the bodysuit has been hand matched in the most meticulous way to the original ILM hair samples of Chewbacca from Empire Strikes Back and from Jedi, and it's it's masterpiece. It's amazing, and it's built just like mine. the The hair is latch hooked onto netting, so it is a it is relatively cool costume, even though you sweat. Hodgman loved cosplay. It was his first time.
+[00:19:24] Adam: Yeah, yeah. Sean Calhoun and Anovos are about to release a licensed Chewbacca costume, and as I said in the panel yesterday, it's really hard to get a Chewbacca face right. It's really easy to make Chewbacca's like weird cousin, Joebaca, but it's really hard to get the Chewbacca attitude right. And they so totally did. The fur has the fur on the suit on the bodysuit has been hand matched in the most meticulous way to the original ILM hair samples of Chewbacca from Empire Strikes Back and from Jedi, and it's masterpiece. It's amazing, and it's built just like mine. the hair is latch hooked onto netting, so it is a it is relatively cool costume, even though you sweat. Hodgman loved cosplay. It was his first time.
 
 [00:20:14] Norm: Yeah,
 
@@ -426,13 +426,13 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:20:51] Norm: But it's it's been exciting, and and then we get to go home and actually read about Comic Con,
 
-[00:21:02] Adam: right? And read about well, what what got revealed? What happened? What happened at
+[00:21:02] Adam: right? And read about well, what got revealed? What happened? What happened at
 
 [00:21:04] Norm: Comic Con?
 
 [00:21:05] Adam: It's a constant melee.
 
-[00:21:06] Norm: Yeah, we're kind of in our own bubble of doing the things, doing the panels you're doing, seeing the things we do. I did some see some [unclear: posters / cool stuff]. Do you have a chance to to walk the floor a little bit?
+[00:21:06] Norm: Yeah, we're kind of in our own bubble of doing the things, doing the panels you're doing, seeing the things we do. I did some see some [unclear: posters / cool stuff] Do you have a chance to walk the floor a little bit?
 
 [00:21:15] Adam: No, no, I have not yet had a chance to walk the floor. That's that's where this may come in. My my rocketeer helmet has in the past given me a casual walk around kind of ability.
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:21:35] Adam: Yeah, I think I. We'll see.
 
-[00:21:36] Norm: I mean, the Weta booth, which you will stop by when you were in the suit of armor, that's amazing. It's it's it's so cool.
+[00:21:36] Norm: I mean, the Weta booth, which you will stop by when you were in the suit of armor, that's amazing. It's so cool.
 
 [00:21:43] Danica: Did you see it?
 
@@ -466,7 +466,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:21:59] Danica: Yes, I was wondering what that retail is.
 
-[00:22:02] Adam: I, I, we can find that for you.
+[00:22:02] Adam: I, we can find that for you.
 
 [00:22:04] Norm: Yeah,
 
@@ -474,7 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:22:06] Adam: Yeah, it's really lovely, and one of the things about UD Replicas is everything's made out of leather. So everything is. It's not urethane. They're not movie props. They're making motorcycle armor and. It's real and like it's made for humans, not for superheroes.
 
-[00:22:20] Danica: Is when you're looking at it and the the the form is beautiful. Being able to see the stitching, it's not trying to be metal.
+[00:22:20] Danica: Is when you're looking at it and the form is beautiful. Being able to see the stitching, it's not trying to be metal.
 
 [00:22:20] Adam: Right,
 
@@ -508,7 +508,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:23:21] Adam: Sauron's armor was lovely.
 
-[00:23:23] Norm: Yes, that was originally hammered out of out of steel too. Yeah, when they did that almost 20 years ago.
+[00:23:23] Norm: Yes, that was originally hammered out of steel too. Yeah, when they did that almost 20 years ago.
 
 [00:23:28] Danica: I know they're going to start doing vinyl toys. So smart! It makes so much sense.
 
@@ -532,9 +532,9 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:23:56] Adam: That is the thing that happens here at Comic Con. Is you see some people you see on television, you're like, oh my god, they are so skinny.
 
-[00:24:03] Danica: Yes. And and short.
+[00:24:03] Danica: Yes. And short.
 
-[00:24:07] Adam: Well, so yes, I've seen some people be short, but you know, like the cast of the Expanse is not a short cast, not by any means.
+[00:24:07] Adam: Well, so yes, I've seen some people be short, but like the cast of the Expanse is not a short cast, not by any means.
 
 [00:24:15] Danica: No, they're beefy. They're all tall.
 
@@ -558,45 +558,45 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:24:36] Danica: The colors were cotton candy. It was what was it? Pink, green, and purple.
 
-[00:24:42] Adam: Yes, David Silverman took some pictures and showed them to me. That's he's like these guys were stopping the clock wherever they were, which is totally incredible. And that pink Chewbacca, the hot pink, hot pink was like
+[00:24:42] Adam: Yes, David Silverman took some pictures and showed them to me. That's he's like these guys were stopping the clock wherever they were, which is totally incredible. And that pink Chewbacca, the hot pink was like
 
 [00:24:52] Norm: with a really great Ackbar companion. That was also hot pink.
 
-[00:24:57] Adam: Yes, the Ackbar. The like the like caricature of Ackbar.
+[00:24:57] Adam: Yes, the Ackbar. The like caricature of Ackbar.
 
-[00:24:59] Norm: Exactly, it was exaggerated, very wore the foam on its sleeve, on its face, but like a great like. The, the yeah the like the the liver spots on Ackbar, but just like foam pads.
+[00:24:59] Norm: Exactly, it was exaggerated, very wore the foam on its sleeve, on its face, but a great like. The yeah the like the liver spots on Ackbar, but just like foam pads.
 
 [00:25:10] Danica: Yeah.
 
 [00:25:11] Norm: Beautiful.
 
-[00:25:11] Adam: Yeah. Yeah. The cosplay and the the people, everyone walking around as superheroes and being kind of like drinking cokes and like complaining and moving straps and stuff. It's always the best.
+[00:25:11] Adam: Yeah. Yeah. The cosplay and the people, everyone walking around as superheroes and being kind of like drinking cokes and like complaining and moving straps and stuff. It's always the best.
 
-[00:25:23] Norm: Mm-hmm. Yeah, I have definitely some some my eyes on some of the toys, on the floor that I want to pick up. Oh yeah. Got to see the the 1:72 scale Millennium Falcon that Bandai is is releasing.
+[00:25:23] Norm: Mm-hmm. Yeah, I have definitely some some my eyes on some of the toys, on the floor that I want to pick up. Oh yeah. Got to see the 1:72 scale Millennium Falcon that Bandai is is releasing.
 
 [00:25:23] Adam: Yes.
 
-[00:25:23] Norm: And uh and and that's
+[00:25:23] Norm: And that's
 
 [00:25:38] Adam: that's the one that's
 
-[00:25:39] Norm: it's it's 1:72 so
+[00:25:39] Norm: it's 1:72 so
 
 [00:25:41] Adam: it's like 26 28 inches or something.
 
-[00:25:43] Norm: A little, it's still a little smaller than that. Like ah, it's like you know, yeah, a little maybe 14 inches or so, 14 15 16 inches.
+[00:25:43] Norm: A little, it's still a little smaller than that. Like ah, it's like yeah, a little maybe 14 inches or so, 14 15 16 inches.
 
 [00:25:49] Adam: But I cannot wait to get my hands on that
 
 [00:25:52] Norm: crazy amount of detail.
 
-[00:25:54] Adam: Yeah. Yeah. I spent some time with John Eblan, who's a master model maker. He did that beautiful model of the of the Firefly.
+[00:25:54] Adam: Yeah. Yeah. I spent some time with John Eblan, who's a master model maker. He did that beautiful model of the Firefly.
 
 [00:26:01] Norm: Yeah. So he works at Quantum Mechanix.
 
 [00:26:03] Adam: Yes.
 
-[00:26:01] Norm: He runs their um. They're they're shop in Florida. The model shop.
+[00:26:01] Norm: He runs their. They're shop in Florida. The model shop.
 
 [00:26:07] Adam: John and I were colleagues at Industrial Light Magic and have been friends ever since. And he does the most incredible work.
 
@@ -604,11 +604,11 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:26:14] Adam: Falcon last year.
 
-[00:26:15] Norm: Did you hear their sob story this year? The the terrible thing that happened.
+[00:26:15] Norm: Did you hear their sob story this year? The terrible thing that happened.
 
 [00:26:15] Danica: No.
 
-[00:26:15] Norm: So every year, Quantum Mechanix reveals a great miniature, right, from their their effects shop.
+[00:26:15] Norm: So every year, Quantum Mechanix reveals a great miniature, right, from their effects shop.
 
 [00:26:15] Adam: Yeah.
 
@@ -620,7 +620,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:26:42] Adam: I did hear about this. So a sixth scale Enterprise D bridge. That means it fits 12 inch figures.
 
-[00:26:48] Norm: Which they they made.
+[00:26:48] Norm: Which they made.
 
 [00:26:49] Adam: Which they made, and it was like it was four by five feet. John John [unclear: Imboden / and one] told me about this,
 
@@ -628,11 +628,11 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:26:58] Adam: Half of it got lost in shipping.
 
-[00:26:59] Norm: That's that's unacceptable. That's right. What a heartbreaker.
+[00:26:59] Norm: That's unacceptable. That's right. What a heartbreaker.
 
 [00:27:04] Danica: That is crushing.
 
-[00:27:05] Adam: What what whatever they spent.
+[00:27:05] Adam: What whatever they spent.
 
 [00:27:07] Norm: Yeah, it would never be—
 
@@ -652,23 +652,23 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:27:21] Norm: Right.
 
-[00:27:21] Adam: Right. A a chain of evidence all the way from where I am to where it's going
+[00:27:21] Adam: Right. A chain of evidence all the way from where I am to where it's going
 
 [00:27:42] Norm: because that's what it is.
 
 [00:27:43] Danica: Yeah.
 
-[00:27:43] Adam: You know, they must have had it insured.
+[00:27:43] Adam: They must have had it insured.
 
 [00:27:44] Norm: Yeah, I'm sure, but still, it's still
 
 [00:27:46] Adam: [unclear: you can’t replace / but still, it’s not the reveal]. Yeah.
 
-[00:27:48] Norm: Exactly. Exactly. And they build again. They got to build another one again. Crazy. You know, Blade Runner,
+[00:27:48] Norm: Exactly. Exactly. And they build again. They got to build another one again. Crazy. Blade Runner,
 
 [00:27:57] Adam: the Blade Runner experience. Did you guys get to go to it?
 
-[00:27:59] Norm: I haven’t, I haven’t.
+[00:27:59] Norm: I haven’t.
 
 [00:28:00] Danica: I mean, not yet. Are we gonna have a chance?
 
@@ -682,7 +682,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:28:17] Norm: Okay.
 
-[00:28:17] Adam: And then there are a whole bunch of they they recreated the world of Blade Runner, so you feel like you're in slushy kind of snow post. Yeah, and so what they did was they took piles of rock salt and wet them out, so it's like, yeah, you know, it looks like snow and it feels like snow and crunchy like winter streets under your feet.
+[00:28:17] Adam: And then there are a whole bunch of they recreated the world of Blade Runner, so you feel like you're in slushy kind of snow post. Yeah, and so what they did was they took piles of rock salt and wet them out, so it's like, yeah, you know, it looks like snow and it feels like snow and crunchy like winter streets under your feet.
 
 [00:28:37] Norm: Oh shoot! Oh yeah,
 
@@ -706,7 +706,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:30:00] Norm: that big collar jacket,
 
-[00:30:01] Adam: yeah, beautiful jacket with the fur on the inside, and then. There was this this really cool like basically [unclear: goosebumped / goose top] military radio clearly being used as a telephone and that's a standard radio. I bought a blank version of this yesterday on eBay.
+[00:30:01] Adam: yeah, beautiful jacket with the fur on the inside, and then. There was this really cool like basically [unclear: goosebumped / goose top] military radio clearly being used as a telephone and that's a standard radio. I bought a blank version of this yesterday on eBay.
 
 [00:30:16] Danica: What's the size of that? Looks like a swatch phone.
 
@@ -722,7 +722,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:30:29] Norm: Yeah.
 
-[00:30:29] Adam: Look, I feel like everything I've been seeing, everything that I know about the the Blade Runner shoot and about the the the the sets and the art direction and everything that that I've thus heard from inside, I'm really really excited.
+[00:30:29] Adam: Look, I feel like everything I've been seeing, everything that I know about the Blade Runner shoot and about the sets and the art direction and everything that that I've thus heard from inside, I'm really really excited.
 
 [00:30:29] Norm: Yeah.
 
@@ -782,15 +782,15 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:32:33] Danica: thoroughly enjoyed.
 
-[00:32:38] Adam: Yeah, and the first one, you know, it's anchored by Andy Serkis's performance as Caesar. As Caesar becomes self aware, the second film much more about the apes. I think the apes are like 65% of the screen time, and you don't care. And the performances again, Judy Greer, Andy Serkis, a host of really great actors. Only playing apes, not appearing as themselves in the movie at all. This movie, it's official. I we have left the uncanny valley,
+[00:32:38] Adam: Yeah, and the first one it's anchored by Andy Serkis's performance as Caesar. As Caesar becomes self aware, the second film much more about the apes. I think the apes are like 65% of the screen time, and you don't care. And the performances again, Judy Greer, Andy Serkis, a host of really great actors. Only playing apes, not appearing as themselves in the movie at all. This movie, it's official. I we have left the uncanny valley,
 
-[00:33:05] Norm: at least for these animals. There are scenes, and without going into the plotty, there are scenes and close-ups of the faces of Andy Serkis and Maurice, the orangutan, and the the emotion that you get out of them. Just camera held onto a face for 10 seconds. It's unbelievable.
+[00:33:05] Norm: at least for these animals. There are scenes, and without going into the plotty, there are scenes and close-ups of the faces of Andy Serkis and Maurice, the orangutan, and the emotion that you get out of them. Just camera held onto a face for 10 seconds. It's unbelievable.
 
-[00:33:23] Adam: Totally. You see the little hair and the sweat and the bokeh. And there's nothing wrong with these shots. There's nothing I can spot that's not this is a real entity being in front of me. Steve Zahn has an incredible turn in the Planet of the Apes movie as one of the apes, and it's it's an amazing performance. It really is incredible, and I met one of the other actors who played Winter, the white ape.
+[00:33:23] Adam: Totally. You see the little hair and the sweat and the bokeh. And there's nothing wrong with these shots. There's nothing I can spot that's not this is a real entity being in front of me. Steve Zahn has an incredible turn in the Planet of the Apes movie as one of the apes, and it's an amazing performance. It really is incredible, and I met one of the other actors who played Winter, the white ape.
 
 [00:33:49] Norm: There's an albino ape in the film
 
-[00:33:51] Adam: and super intense character, and the actor. I was like looking. He came to a little gathering I had in the room a couple nights ago with with Aaron Douglas from BSG and. He, you could see winter on his face.
+[00:33:51] Adam: and super intense character, and the actor. I was like looking. He came to a little gathering I had in the room a couple nights ago with Aaron Douglas from BSG and. He, you could see winter on his face.
 
 [00:33:51] Norm: Yeah.
 
@@ -810,11 +810,11 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:35:15] Adam: I have heard that Steve Zahn said it was one of the most physically taxing roles he's ever played.
 
-[00:35:19] Norm: The the physique of of an ape. They they built these these crutch systems so you can extend your arms and walk on the ground because they're doing all the motions.
+[00:35:19] Norm: The physique of an ape. They built these these crutch systems so you can extend your arms and walk on the ground because they're doing all the motions.
 
-[00:35:28] Adam: Oh my goodness! But before I even went to see it, Danica, you had told me you you were like you got to see this, and it was largely also because of the score.
+[00:35:28] Adam: Oh my goodness! But before I even went to see it, Danica, you had told me you were like you got to see this, and it was largely also because of the score.
 
-[00:35:37] Danica: The score, the score to this film is so special. It is there's it's this is a much quieter movie, like it it breathes a lot the way that the pacing goes, the the general feel of it, and it's really beautiful. But Michael Giacchino's score is so gorgeous,
+[00:35:37] Danica: The score to this film is so special. It is there's it's this is a much quieter movie, like it breathes a lot the way that the pacing goes, the general feel of it, and it's really beautiful. But Michael Giacchino's score is so gorgeous,
 
 [00:35:37] Adam: yeah,
 
@@ -824,13 +824,13 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:35:37] Danica: but it's such an important. It is a good movie no matter what, but it would not be what it is without this beautiful score that Giacchino has done.
 
-[00:36:32] Adam: I is he? Yeah, I totally agree. You had told me to look out for it, and I was watching, and it was it was it was delightful, and it felt almost like an older an older Hollywood movie
+[00:36:32] Adam: I is he? Yeah, I totally agree. You had told me to look out for it, and I was watching, and it was delightful, and it felt almost like an older Hollywood movie
 
 [00:36:32] Norm: Yeah.
 
 [00:36:32] Adam: in that kind of really lovely way in which the score worked with the action
 
-[00:36:46] Norm: and the cinematography. Yeah, I think Matt Reeves said they wanted to make it look like a western almost. They're they shot 65 mil, and and they're like these the one shot in particular when they're riding on horseback along the water like at sunset.
+[00:36:46] Norm: and the cinematography. Yeah, I think Matt Reeves said they wanted to make it look like a western almost. They're they shot 65 mil, and they're like these the one shot in particular when they're riding on horseback along the water like at sunset.
 
 [00:36:46] Adam: Yeah, yeah,
 
@@ -838,7 +838,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:37:03] Adam: Well, yeah, we just put up a piece, but you got to visit the set in Vancouver.
 
-[00:37:06] Norm: And that was a. I don't want to give away too much of the plot, but it was a human set, right? And with a, and it was massive, like acres of land, all built up. Everything fake, right? From the snow to the the barrack buildings to the collapsed trees, railroad tracks,
+[00:37:06] Norm: And that was a. I don't want to give away too much of the plot, but it was a human set, right? And with a, and it was massive, like acres of land, all built up. Everything fake, right? From the snow to the barrack buildings to the collapsed trees, railroad tracks,
 
 [00:37:25] Adam: Everything.
 
@@ -846,11 +846,11 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:37:27] Adam: And all this is they're only filming with people on there.
 
-[00:37:29] Norm: Yep. And then and and the apes
+[00:37:29] Norm: Yep. And then and the apes
 
 [00:37:31] Adam: and the actors dressed as apes and the actors not dressed as apes.
 
-[00:37:34] Norm: in the middle of the night wearing very thin. They have to wear very thin clothes because if the if if they're if they have any type of um the performance capture if they have any type of layering you lose movement.
+[00:37:34] Norm: in the middle of the night wearing very thin. They have to wear very thin clothes because if the if they're if they have any type of the performance capture if they have any type of layering you lose movement.
 
 [00:37:45] Adam: Wow. So they must have been freezing.
 
@@ -870,7 +870,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:37:59] Adam: right. Yes.
 
-[00:38:18] Danica: Oh, you were talking about what it is to trust your actors. When I was talking to Michael about it, because I had to at w00tstock, I had to gush a little bit at least about it because it was such a, a nice, experience.
+[00:38:18] Danica: Oh, you were talking about what it is to trust your actors. When I was talking to Michael about it, because I had to at w00tstock, I had to gush a little bit at least about it because it was such a nice, experience.
 
 [00:38:18] Adam: Yeah.
 
@@ -880,7 +880,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:38:46] Norm: That's one of the amazing movies. I think it's out this summer. If you look at Rotten Tomatoes, and like, oh, a movie should I watch? Well, there are eight movies in the past two months that have 90% or higher on Rotten Tomatoes.
 
-[00:38:58] Adam: The reviews are skewing higher, but I mean, like, we just did that. We just did this piece on on some prop store stuff from Spectral, a Netflix. Film
+[00:38:58] Adam: The reviews are skewing higher, but I mean we just did that. We just did this piece on some prop store stuff from Spectral, a Netflix. Film
 
 [00:38:58] Norm: Yeah.
 
@@ -902,13 +902,13 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:39:26] Danica: yes. I want the big IMAX.
 
-[00:39:30] Adam: You want the you want the seats vibrating with the sound.
+[00:39:30] Adam: You want the seats vibrating with the sound.
 
 [00:39:33] Danica: Yes.
 
 [00:39:34] Adam: All right. Okay. It's time to gird our loins for one more full day at Comic Con.
 
-[00:39:40] Norm: Oh, it's gonna be over before we know it, and we're gonna miss it. Um, and we'll have we have a over a dozen videos coming out soon on the site. They should some of them should already be on the site right now, but let's keep an eye out for that. And let's go save our voices and hit the floor.
+[00:39:40] Norm: Oh, it's gonna be over before we know it, and we're gonna miss it. And we'll have we have a over a dozen videos coming out soon on the site. They should some of them should already be on the site right now, but let's keep an eye out for that. And let's go save our voices and hit the floor.
 
 [00:39:55] Adam: Here we go. Bye, guys.
 

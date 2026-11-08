@@ -18,9 +18,9 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:01:26] Adam: Okay. Before we there's a lot to go over, but before we even start moving into discussing Comic Con and all of its awesome, I want to do a public service announcement.
 
-[00:01:37] Will: Okay. Um. So I get the more you know ding ready for the end of this.
+[00:01:37] Will: Okay. So I get the more you know ding ready for the end of this.
 
-[00:01:40] Adam: Now you are less dumb. Uh. Great podcast. Uh. Drones.
+[00:01:40] Adam: Now you are less dumb. Great podcast. Drones.
 
 [00:01:40] Will: Yeah.
 
@@ -38,7 +38,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:02:21] Adam: wildfire, which actually came from a wildfire in which firefighting efforts were hampered by unmanned aerial vehicles. And from what I understood from reading the news stories, mostly home-built octo rotors, larger, larger size platforms.
 
-[00:02:34] Will: They didn't say usually they say phantoms if they're saying if if it's phantoms.
+[00:02:34] Will: They didn't say usually they say phantoms if they're saying if it's phantoms.
 
 [00:02:37] Adam: Yeah, yeah. But unmanned aerial vehicles filming the wildfires, hampering firefighting efforts. Now I'm going to give them the benefit of the doubt and say maybe you don't realize that filming a wildfire, which I get the reason you want to get high up that it's going to look amazing and the footage will be cool. But you need to know is that when a firefighting helicopter or plane comes through and they see any bogeys in the air, they do not waste any time; they go back home to base. And
 
@@ -50,19 +50,19 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:03:07] Adam: that they should be because of these bogeys in the air.
 
-[00:03:12] Norm: It's a lot of foresight that you just don't have. Like you can be flying and you can be following what you think are the rules, you know, within line of sight and in front of you and at a certain height. But if you don't think about the contextual situation of what that what having an object in the sky means,
+[00:03:12] Norm: It's a lot of foresight that you just don't have. Like you can be flying and you can be following what you think are the rules within line of sight and in front of you and at a certain height. But if you don't think about the contextual situation of what that what having an object in the sky means,
 
 [00:03:12] Adam: right?
 
 [00:03:12] Norm: You have a lot of ramifications.
 
-[00:03:30] Adam: So there's a lot of different forums. There's a lot of different places, and I'm sure other people are dealing with it. But we're one of the early Google hits about inspires and drone systems. So I think it's incumbent on us to say, don't be a freaking idiot. Don't fly your don't fly your UAV anywhere near something in which rescue efforts are needed.
+[00:03:30] Adam: So there's a lot of different forums. There's a lot of different places, and I'm sure other people are dealing with it. But we're one of the early Google hits about inspires and drone systems. So I think it's incumbent on us to say, don't be a freaking idiot. Don't fly your UAV anywhere near something in which rescue efforts are needed.
 
 [00:03:51] Will: That means police helicopters,
 
 [00:03:51] Adam: yep,
 
-[00:03:51] Will: fire helicopters. Stay away from stay away from places where helicopters are congregating. Stay away from disasters on the freeway. Don't go near there.
+[00:03:51] Will: fire helicopters. Stay away from places where helicopters are congregating. Stay away from disasters on the freeway. Don't go near there.
 
 [00:03:51] Adam: Yeah,
 
@@ -70,11 +70,11 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:04:02] Adam: Right. It's I I get the impulse, but now this is to tell you that. Like drone operators, sorry, UAV operators, actively extended the fire on the LA freeway by 25 minutes because planes couldn't come in.
 
-[00:04:16] Will: Well, and and it happened again the previous week with the wildfire. I think it was in Southern California, but I can't remember.
+[00:04:16] Will: Well, and it happened again the previous week with the wildfire. I think it was in Southern California, but I can't remember.
 
 [00:04:16] Adam: Yep.
 
-[00:04:16] Will: That basically they they couldn't they had they had to call off the flame retardant drops because there was a quad in there.
+[00:04:16] Will: That basically they couldn't they had to call off the flame retardant drops because there was a quad in there.
 
 [00:04:29] Adam: And let's be clear, that quad was was a couple of thousand feet in the air. If not, I think remember I remember it was 4,000 feet. Now,
 
@@ -84,7 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:04:38] Will: Yeah.
 
-[00:04:38] Adam: Um, when you're going above that ceiling, there's a good reason that it's against the rules.
+[00:04:38] Adam: When you're going above that ceiling, there's a good reason that it's against the rules.
 
 [00:04:55] Will: Yeah, it reminds me of Nightcrawler.
 
@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:05:07] Norm: Then there is illusion that they're the responsibilities are lower as well,
 
-[00:05:18] Adam: yeah. And not and they're not, they're not. I mean, lives literally lives are at stake here. So cut it the fuck out.
+[00:05:18] Adam: yeah. And not and they're not. I mean, lives literally lives are at stake here. So cut it the fuck out.
 
 [00:05:26] Norm: It is an industry that's still figuring itself out, and you know we've championed how great these things can be used for things like video and photos, but in again in the right context in the right situations. I was just at the drone national competitions over the weekend at the California State Fair, and they have to they had to have both representatives from the FAA and the FCC there,
 
@@ -116,7 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:05:55] Will: What are the drone nationals in the
 
-[00:05:56] Norm: public? It was the organized event where they brought in like 120 competitors from around the world to race around a course and do freestyle. It really felt like like an X Games style competition. Oh,
+[00:05:56] Norm: public? It was the organized event where they brought in like 120 competitors from around the world to race around a course and do freestyle. It really felt like an X Games style competition. Oh,
 
 [00:06:06] Adam: cool.
 
@@ -158,11 +158,11 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:07:09] Will: the M60 that popped out of the back of it didn't pop out. It was the scariest thing I think I've seen you guys ever do.
 
-[00:07:14] Adam: That's the scariest thing. I, I, so we worked very, very hand in glove, Jamie and I, with each other and with law enforcement to make that thing safe. Um, all that being said, we put a solenoid on the trigger of a gun that we weren't next to,
+[00:07:14] Adam: That's the scariest thing. I, so we worked very, very hand in glove, Jamie and I, with each other and with law enforcement to make that thing safe. All that being said, we put a solenoid on the trigger of a gun that we weren't next to,
 
 [00:07:14] Will: right?
 
-[00:07:14] Adam: And I hate that. I mean, we did it safely. We actually had—I don't know if we—if it made it into the final episode because I didn't watch the whole thing last night, but um, we actually had a cable out at the front of the barrel that was cabled and bolted to the car so that even if our entire rig failed, except for the trigger and the gun unmounted from its mount, it couldn't do anything but still point within that 30-degree arc.
+[00:07:14] Adam: And I hate that. I mean, we did it safely. We actually had—I don't know if we—if it made it into the final episode because I didn't watch the whole thing last night, but we actually had a cable out at the front of the barrel that was cabled and bolted to the car so that even if our entire rig failed, except for the trigger and the gun unmounted from its mount, it couldn't do anything but still point within that 30-degree arc.
 
 [00:07:14] Will: Okay,
 
@@ -170,7 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:08:00] Will: That didn't make it into the cut, but it's good.
 
-[00:08:02] Adam: Yeah, no, we that we that was that was terrifying. I hate making guns remote control.
+[00:08:02] Adam: Yeah, no, we that was terrifying. I hate making guns remote control.
 
 [00:08:06] Will: Yeah, it seems very scary.
 
@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:10:10] Adam: yeah. And I’m, sorry,
 
-[00:10:12] Norm: or like like the episodes, like Rian Johnson's episodes. Every time you see him, he's directing that episode. Like when they're both in that one room the entire time with the fly.
+[00:10:12] Norm: or the episodes, like Rian Johnson's episodes. Every time you see him, he's directing that episode. Like when they're both in that one room the entire time with the fly.
 
 [00:10:21] Adam: Yes,
 
@@ -228,7 +228,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:10:34] Adam: Yeah, and is Odenkirk nominated?
 
-[00:10:37] Norm: I'm not sure if he is. They expanded the dramatic, the the big, the big best hour drama series to I think seven or something. So it made it.
+[00:10:37] Norm: I'm not sure if he is. They expanded the dramatic, the big best hour drama series to I think seven or something. So it made it.
 
 [00:10:46] Adam: Yeah.
 
@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:11:00] Will: sorry. I
 
-[00:11:00] Adam: no no no. It's fine. The the the Emmy Academy the the the governing board of the Emmys is I think a little slow to recognize how many different genres of reality television there are. But a couple of years ago, they made a step in the right direction by instead of having just one, in which we're up against Antiques Roadshow, Diners Drives, and
+[00:11:00] Adam: no no no. It's fine. The Emmy Academy the governing board of the Emmys is I think a little slow to recognize how many different genres of reality television there are. But a couple of years ago, they made a step in the right direction by instead of having just one, in which we're up against Antiques Roadshow, Diners Drives, and
 
 [00:11:22] Will: and Survivor.
 
@@ -258,9 +258,9 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:11:39] Will: Ooh.
 
-[00:11:39] Adam: I, you know, I want them to win. I mean, here they, Antiques Roadshow and MythBusters are like at this neglected end of the cable spectrum, where the network shows like Shark Tank and Undercover Boss are just going to keep on winning this thing. It makes me a little sad.
+[00:11:39] Adam: I I want them to win. I mean, here they, Antiques Roadshow and MythBusters are like at this neglected end of the cable spectrum, where the network shows like Shark Tank and Undercover Boss are just going to keep on winning this thing. It makes me a little sad.
 
-[00:12:10] Will: I, I would love it if Antiques Roadshow wins, just so that they can walk up and be like, " Well, this looks like a 1973 era." Hmm. Your grandmother used to drink a lot of scotch.
+[00:12:10] Will: I would love it if Antiques Roadshow wins, just so that they can walk up and be like, " Well, this looks like a 1973 era." Hmm. Your grandmother used to drink a lot of scotch.
 
 [00:12:10] Norm: Value on the bottom.
 
@@ -278,11 +278,11 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:12:38] Will: Well, the Mad Men finale. Yeah.
 
-[00:12:39] Adam: Yeah, yeah. Um,
+[00:12:39] Adam: Yeah, yeah.
 
 [00:12:41] Will: that's going to win a lot.
 
-[00:12:42] Adam: So anyway, thank you for the congratulations. Um, we will enjoy going to LA and losing. Um, hopefully we will lose to Antiques Roadshow, so they don't have to commiserate with Sam Farrell, their EP, who's become a friend as we commiserate every year. Um, but really, the Governor's Ball, where you get to meet a lot of your favorite. Famous people and heroes is super thrilling.
+[00:12:42] Adam: So anyway, thank you for the congratulations. We will enjoy going to LA and losing. Hopefully we will lose to Antiques Roadshow, so they don't have to commiserate with Sam Farrell, their EP, who's become a friend as we commiserate every year. But really, the Governor's Ball, where you get to meet a lot of your favorite. Famous people and heroes is super thrilling.
 
 [00:13:01] Will: Well, last year you missed it because you were in Australia. So
 
@@ -292,7 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:13:05] Adam: Yeah, absolutely. But let's talk about Comic Con. Let's download.
 
-[00:13:09] Will: Oh man. Okay. So we started out doing a Comic Con podcast, and like as soon as we started rolling, I was like, " Wait, we made a mistake. There's an astronaut over here. We should really just be talking to him about flying airplanes and spaceships and going to space and all that." But yeah, like that that morning conversation precipitated my favorite interaction of the of the weekend because I was walking down into a party later that afternoon.
+[00:13:09] Will: Oh man. Okay. So we started out doing a Comic Con podcast, and like as soon as we started rolling, I was like, " Wait, we made a mistake. There's an astronaut over here. We should really just be talking to him about flying airplanes and spaceships and going to space and all that." But yeah, like that that morning conversation precipitated my favorite interaction of the weekend because I was walking down into a party later that afternoon.
 
 [00:13:09] Adam: Yeah.
 
@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:13:09] Will: Wave at the back of Bill Shatner's head and move right on.
 
-[00:13:54] Adam: I shook his hand. I met him. That's the second time I've met Bill. Oh. Um. But
+[00:13:54] Adam: I shook his hand. I met him. That's the second time I've met Bill. Oh. But
 
 [00:14:01] Will: it means shaving cream
 
@@ -314,7 +314,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:14:02] Will: Yeah,
 
-[00:14:02] Adam: I mean it's it's very it's very fun. You know, there are certain times you get to watch very famous people suck the oxygen out of a room. I've I've I've met and had spent a little time with Gary Oldman. Now, there's someone who sucks the oxygen out of out of a room, right? People just Gary Oldman. But taking Hadfield to Comic Con so much fun. The Nerd HQ panel we did, where pretty much everyone on stage, all they wanted to do was talk to Chris, and we had Bobak there. I mean, we had more than one representative,
+[00:14:02] Adam: I mean it's very fun. There are certain times you get to watch very famous people suck the oxygen out of a room. I've met and had spent a little time with Gary Oldman. Now, there's someone who sucks the oxygen out of a room, right? People just Gary Oldman. But taking Hadfield to Comic Con so much fun. The Nerd HQ panel we did, where pretty much everyone on stage, all they wanted to do was talk to Chris, and we had Bobak there. I mean, we had more than one representative,
 
 [00:14:36] Will: space people,
 
@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:14:38] Will: oh yeah,
 
-[00:14:39] Adam: he's he he had a great time. It was so much fun playing with him there.
+[00:14:39] Adam: he's he had a great time. It was so much fun playing with him there.
 
 [00:14:43] Will: There was a moment
 
@@ -332,17 +332,17 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:14:44] Norm: got to see.
 
-[00:14:46] Will: He he is, and he's absolutely the most wonderful man.
+[00:14:46] Will: He is, and he's absolutely the most wonderful man.
 
 [00:14:52] Adam: I think you and Norm were both kind of like this by the end of the
 
 [00:14:54] Will: weekend.
 
-[00:14:54] Norm: Oh, and I was I was for the New Horizons flyby.
+[00:14:54] Norm: Oh, and I was for the New Horizons flyby.
 
 [00:14:58] Will: It was right. Yeah, it was the day it happened.
 
-[00:14:59] Norm: It was yes that morning. It was it was listening to him and Phil just chatting about New Horizons.
+[00:14:59] Norm: It was yes that morning. It was listening to him and Phil just chatting about New Horizons.
 
 [00:15:06] Adam: Yes, Phil Plait, the bad astronomer, was also in our room for the dressing. That was really. It was just that was for me my favorite Comic Con I've yet attended. Oh, in terms of all the you know Alton coming the great w00tstock in which we shifted things and changed things up three costume walks finishing off with Hadfield.
 
@@ -350,7 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:15:26] Adam: It is. I was overly ambitious.
 
-[00:15:28] Will: You, you, it worked out though.
+[00:15:28] Will: You, it worked out though.
 
 [00:15:30] Adam: It did work out.
 
@@ -368,9 +368,9 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:15:39] Adam: I just feel a little personally responsible, and if for if you're disappointed that you didn't get to see Norm's standard big download of photos, blame me.
 
-[00:15:47] Will: Norm, the the big download of photos usually leaves Norm a little broken. So I liked the dialed back, well edited version.
+[00:15:47] Will: Norm, the big download of photos usually leaves Norm a little broken. So I liked the dialed back, well edited version.
 
-[00:15:54] Adam: Yeah, it's um, we all have to. There is all manner of recovery from Comic Con. I mean, unfortunately, I got back Sunday afternoon. We had a we had a little time to have dinner together, my wife and I, because our birthdays fall on either side. Like hers, yeah, basically, our birthdays are three days apart.
+[00:15:54] Adam: Yeah, it's we all have to. There is all manner of recovery from Comic Con. I mean, unfortunately, I got back Sunday afternoon. We had a little time to have dinner together, my wife and I, because our birthdays fall on either side. Like hers, yeah, basically, our birthdays are three days apart.
 
 [00:16:20] Will: Comic Con is the celebration of your love,
 
@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:16:54] Will: Exactly.
 
-[00:16:55] Norm: Speaking of that voice, did you get a chance to watch any of the trailers that came out of Comic Con? Because that's that's the thing when you are at Comic Con, you see so little of it.
+[00:16:55] Norm: Speaking of that voice, did you get a chance to watch any of the trailers that came out of Comic Con? Because that's the thing when you are at Comic Con, you see so little of it.
 
 [00:16:55] Adam: Right,
 
@@ -412,13 +412,13 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:18:08] Will: It's true, almost certainly not.
 
-[00:18:09] Adam: Absolutely, and so I think that the category needs both some great spectacle and dark and intense scripts. I totally agree with that. But I like maybe it's that my kids were playing the trailer for me, and I am like in this room full of people listening to this really, really intense talk. I don't want to say it on the on the.
+[00:18:09] Adam: Absolutely, and so I think that the category needs both some great spectacle and dark and intense scripts. I totally agree with that. But I like maybe it's that my kids were playing the trailer for me, and I am like in this room full of people listening to this really, really intense talk. I don't want to say it on the.
 
 [00:18:31] Norm: No, no, I agree, and I think that film because studios want movies to be PG-13 to reach a wider audience. Filmmakers who want to get an R feel like they have to earn the R,
 
 [00:18:31] Adam: right?
 
-[00:18:31] Norm: And the way they feel like they have to earn R, and the same thing happened with the movie Kickass. You know, when they showed the trailer for that at Comic Con, and they had the young girl, you know, yeah, Hit-Girl, yeah, and you know, she cuts through people and then says the c word,
+[00:18:31] Norm: And the way they feel like they have to earn R, and the same thing happened with the movie Kickass. You know, when they showed the trailer for that at Comic Con, and they had the young girl yeah, Hit-Girl, yeah, and she cuts through people and then says the c word,
 
 [00:18:31] Adam: Uh huh.
 
@@ -432,17 +432,17 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:19:03] Will: Well, I think it's also to lay the stake in the ground that says, " Hey, we're going to have this kind of movie," so they can't pull back at the last minute.
 
-[00:19:08] Adam: Right. I think you're totally right, and I think that's great. It's a great kickass. It's a phenomenal script. I am saddened by this situation. So, you want to know what the practical result are? If you're watching, you're like, " Well, I see a lot of R-rated movies." Okay, here's the problem: Guillermo del Toro couldn't get Mountains of Mad. He had the plug pulled on Mountains of Madness because his script is a hard R, and it's a very intense and violent story. And the studio didn't want to pay the the the rate for that, even though he had Tom Cruise attached.
+[00:19:08] Adam: Right. I think you're totally right, and I think that's great. It's a great kickass. It's a phenomenal script. I am saddened by this situation. So, you want to know what the practical result are? If you're watching, you're like, " Well, I see a lot of R-rated movies." Okay, here's the problem: Guillermo del Toro couldn't get Mountains of Mad. He had the plug pulled on Mountains of Madness because his script is a hard R, and it's a very intense and violent story. And the studio didn't want to pay the rate for that, even though he had Tom Cruise attached.
 
 [00:19:40] Will: Well, you end up seeing
 
-[00:19:40] Adam: they didn't want to pay the full budget for a giant budget, you know, right?
+[00:19:40] Adam: they didn't want to pay the full budget for a giant budget right?
 
 [00:19:43] Will: $200 million, hundred and fifty film. Yeah, I mean, but the thing that happens is you end up seeing things like Ex Machina that are really, really low budget that that retain the R's,
 
 [00:19:43] Adam: Yes.
 
-[00:19:43] Will: and then people have to either be more inventive or use different effects or or other
+[00:19:43] Will: and then people have to either be more inventive or use different effects or other
 
 [00:19:43] Adam: yeah, right.
 
@@ -470,13 +470,13 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:20:39] Adam: There's a little George Clooney.
 
-[00:20:41] Will: The the thing about the thing that's funny about Affleck to me being Batman is that a decade ago I would have been really really pissed if Affleck was playing Batman and potentially directing a Batman film. But now I'm excited.
+[00:20:41] Will: The thing about the thing that's funny about Affleck to me being Batman is that a decade ago I would have been really really pissed if Affleck was playing Batman and potentially directing a Batman film. But now I'm excited.
 
 [00:20:53] Adam: Seen movies that he's directed. He's a great director.
 
 [00:20:55] Will: I'm ready. It's not all paycheck.
 
-[00:20:57] Adam: I I think Affleck is um
+[00:20:57] Adam: I think Affleck is
 
 [00:21:00] Will: the bomb in phantoms.
 
@@ -484,7 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:21:03] Will: So sorry, it's a Jay and Silent Bob joke.
 
-[00:21:05] Adam: Oh, um, I love Affleck. I think he's really, really. I think he's a terrific actor. I think he's a terrific director. And actually, having watched him on Bill Maher a couple of times, I think he is incredibly smart. Um, and so I dig the guy. I'm very psyched about that. Um, okay, so let's go to Dark Knight for just a second. Like the whole plot point of the Dark Knight having to be a bad guy that didn't make any sense to me whatsoever.
+[00:21:05] Adam: Oh I love Affleck. I think he's really, really. I think he's a terrific actor. I think he's a terrific director. And actually, having watched him on Bill Maher a couple of times, I think he is incredibly smart. And so I dig the guy. I'm very psyched about that. Um, okay, so let's go to Dark Knight for just a second. Like the whole plot point of the Dark Knight having to be a bad guy that didn't make any sense to me whatsoever.
 
 [00:21:29] Will: The thing that I took away from the whole thing is that Batman looked at all the people that started out good in Gotham over his long years,
 
@@ -502,7 +502,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:21:48] Will: okay, Nolan films.
 
-[00:21:49] Adam: Oh, the end of the second film, The Dark Knight. Um, he's like, I must be what Gotham needs. I'll be bad, and that doesn't make any sense to me. So
+[00:21:49] Adam: Oh, the end of the second film, The Dark Knight. He's like, I must be what Gotham needs. I'll be bad, and that doesn't make any sense to me. So
 
 [00:21:58] Norm: all right, apologetics time.
 
@@ -514,11 +514,11 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:22:02] Norm: Yeah, yeah, no, no. You've heard every explanation,
 
-[00:22:04] Adam: right? However, so in in in in light of that, I look at the trailer for Batman v Superman, and I find myself wondering, this is probably going to be some weird deal breaker plot device, like, like in the first Superman, for
+[00:22:04] Adam: right? However, so in light of that, I look at the trailer for Batman v Superman, and I find myself wondering, this is probably going to be some weird deal breaker plot device, like in the first Superman, for
 
 [00:22:04] Norm: Man of Steel,
 
-[00:22:04] Adam: Man of Steel, yeah, Man of Steel, Super Kevin Costner, Superman's dad telling him, maybe you should have let a busload of kids die so that you could protect yourself, and that, like, no, no, that doesn't make any sense at all as a plot point.
+[00:22:04] Adam: Man of Steel, yeah, Man of Steel, Super Kevin Costner, Superman's dad telling him, maybe you should have let a busload of kids die so that you could protect yourself, and that no, no, that doesn't make any sense at all as a plot point.
 
 [00:22:34] Will: I mean, Kevin Costner is kind of a jerk.
 
@@ -544,7 +544,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:23:26] Adam: during this fist fight.
 
-[00:23:27] Norm: You know, there's a. I think that this movie clearly is a response to the the this the the the critical response to that.
+[00:23:27] Norm: There's a. I think that this movie clearly is a response to the this the critical response to that.
 
 [00:23:27] Adam: Right.
 
@@ -562,7 +562,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:24:07] Adam: and darker.
 
-[00:24:07] Will: And it's going to be, it's going to be. There's going to be real, real repercussions for the things that happen in our films.
+[00:24:07] Will: And it's going to be. There's going to be real, real repercussions for the things that happen in our films.
 
 [00:24:14] Adam: Yeah.
 
@@ -572,7 +572,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:24:14] Norm: Yeah. Feels more comic booky.
 
-[00:24:19] Will: Yeah. Marvel feels much more comic booky, and and and frankly, the DC stuff feels more like a graphic novel. But I think that's a lot harder to pull off and execute.
+[00:24:19] Will: Yeah. Marvel feels much more comic booky, and frankly, the DC stuff feels more like a graphic novel. But I think that's a lot harder to pull off and execute.
 
 [00:24:19] Adam: It's true.
 
@@ -586,11 +586,11 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:24:41] Will: So I was looking at caricatures, and I liked all of them except for kind of ironically the Will Smith one.
 
-[00:24:45] Adam: Yeah. I mean, and Viola Davis just amazing, right? Just wonderful characterization, and from what I've been reading, that's very faithful to the character that she's playing, but. You know, we've become attuned to trailers and what they what they might be communicating, and such a lack of plot tells me that I feels like there might not be something there.
+[00:24:45] Adam: Yeah. I mean, and Viola Davis just amazing, right? Just wonderful characterization, and from what I've been reading, that's very faithful to the character that she's playing, but. We've become attuned to trailers and what they might be communicating, and such a lack of plot tells me that I feels like there might not be something there.
 
 [00:25:07] Will: I thought it was more of a teaser than a trailer, and I I was expecting glimpses of what's to come. Not here's what the plot of this film is.
 
-[00:25:13] Adam: Also, can can can we please stop having like teenagers in short skirts as villains or as Harley Quinn? I mean, that just again, it's another like she
+[00:25:13] Adam: Also, can we please stop having like teenagers in short skirts as villains or as Harley Quinn? I mean, that just again, it's another like she
 
 [00:25:22] Will: was. She was
 
@@ -606,11 +606,11 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:25:27] Norm: That's when he turns her into Harley Quinn.
 
-[00:25:36] Adam: Right. Oh, and and and and and I didn't think much of Jared Leto's Joker.
+[00:25:36] Adam: Right. Oh, and I didn't think much of Jared Leto's Joker.
 
 [00:25:40] Will: I like Jared Leto's Joker. That's a tough. That's a tough thing to walk into.
 
-[00:25:44] Adam: It is. It is totally. Um, I I would be remiss if I didn't. I wanted to cover this. Um, my the 2001 suits that that Hadfield and I wore at Comic Con. Um, people wanted to know where they came from and what their provenance is. The helmets and silver soft suits.
+[00:25:44] Adam: It is. It is totally. I would be remiss if I didn't. I wanted to cover this. My the 2001 suits that that Hadfield and I wore at Comic Con. People wanted to know where they came from and what their provenance is. The helmets and silver soft suits.
 
 [00:26:04] Will: I was gonna say usually we do a full video.
 
@@ -622,7 +622,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:26:04] Will: So we couldn't get it done before with you being on tour and all the stuff that was going on and all the stuff that we were doing at the same time. There was literally not a day that we could get everybody here long enough once they were done to show them off in video. So we'll do a video where we explain all of that stuff.
 
-[00:26:24] Adam: And we have a we'll have a photo gallery up of some pictures of the internals because people want to see the internals of my cooling pack. It's actually a very simple rig, and because I built it in clear acrylic, um, its mechanics and its fun, uh, its layout is totally self evident. Um, but the costume itself was mostly built by a model maker named Mike Mike Scott. Um, Mike Scott has a website, um, uh, predicta.com. Uh, the helmets. Are really really lovely.
+[00:26:24] Adam: And we have a we'll have a photo gallery up of some pictures of the internals because people want to see the internals of my cooling pack. It's actually a very simple rig, and because I built it in clear acrylic its mechanics and its fun its layout is totally self evident. But the costume itself was mostly built by a model maker named Mike Mike Scott. Mike Scott has a website predicta.com. The helmets. Are really really lovely.
 
 [00:26:57] Will: P r e d i c t a.
 
@@ -634,7 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:27:05] Will: Really.
 
-[00:27:06] Adam: Yeah. So they're and they're fiberglass. They're just really real, real works of art. He did the sewing for the all the all the sewing and assembly for the soft part, and he did the front pack. Um, my contribution was all the machining and construction and mold making for the backpack. Um, and the and the coolant internals. Uh, but Mike did the did the rest. I'd say 90%. It's just beautiful work.
+[00:27:06] Adam: Yeah. So they're and they're fiberglass. They're just really real, real works of art. He did the sewing for the all the sewing and assembly for the soft part, and he did the front pack. My contribution was all the machining and construction and mold making for the backpack. And the coolant internals. But Mike did the rest. I'd say 90%. It's just beautiful work.
 
 [00:27:31] Will: It's the the helmet. Like I think you talked about this in the video. I can't remember if I made the cut or not. But when you put the helmet on and you start breathing, you realize that the sound of Dave Bowman breathing at the end of the movie in the spacesuit is literally just a person in the spacesuit mic'd, because it it sounds exactly the same.
 
@@ -646,7 +646,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:27:59] Norm: insights. It was just fun. I'm glad we included that bit where you're just riding on the way back and just having that chat with him, you know about about spacesuits and
 
-[00:28:07] Adam: um and to to be clear, to build this suit, Mike and I had to meet up at I think three different parts of America because of our schedules. I saw him when I was coming through his city on tour a couple of times, and then he's actually been here um to get costume fittings to make sure the suits fit. Um, because the the 2001 suits are not your loose fitting spacesuits; they're actually quite form fitting, and they had to be built exactly to my specification.
+[00:28:07] Adam: And to be clear, to build this suit, Mike and I had to meet up at I think three different parts of America because of our schedules. I saw him when I was coming through his city on tour a couple of times, and then he's actually been here to get costume fittings to make sure the suits fit. Because the 2001 suits are not your loose fitting spacesuits; they're actually quite form fitting, and they had to be built exactly to my specification.
 
 [00:28:34] Norm: And the cooling system worked.
 
@@ -654,7 +654,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:28:41] Will: So the cooling system, just so everybody knows, is super straightforward. It's a tank. It's an acrylic tank with this immersion pump.
 
-[00:28:47] Adam: Yes, so I had these. I had an acrylic box made for me at TAP Plastics at a reasonable cost. I then drilled into it to install a pump and a port for filling it full of ice and water. Um. Coming out of it are two quick connect, two quick connect plugs that connect up to a Coolshirt. Coolshirt is a manufacturer of race gear for race car drivers, but also for EMT workers and people who are suffering heat stroke. They make these garments as health, basically to bring someone's temperature down. And it worked terrifically. The lithium ion batteries that I was using, which were from small Makita drills, power the submersible pump for 90 minutes.
+[00:28:47] Adam: Yes, so I had these. I had an acrylic box made for me at TAP Plastics at a reasonable cost. I then drilled into it to install a pump and a port for filling it full of ice and water. Coming out of it are two quick connect plugs that connect up to a Coolshirt. Coolshirt is a manufacturer of race gear for race car drivers, but also for EMT workers and people who are suffering heat stroke. They make these garments as health, basically to bring someone's temperature down. And it worked terrifically. The lithium ion batteries that I was using, which were from small Makita drills, power the submersible pump for 90 minutes.
 
 [00:28:47] Will: That's fantastic.
 
@@ -672,7 +672,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:30:40] Adam: It's very powerful, but I believe I opened up a CPAP machine at one point. I bought one on Craigslist and tried to get its blower to work, and I couldn't because it was fully computer controlled. Oh. So it's not like a red wire and a black wire. It's like six wires going to a microcontroller, which is adjusting the speed of the motor on the fly.
 
-[00:31:00] Will: Um. The other thing we had talked about doing, you ended up using just ice sunk into the cooler to keep the water cold.
+[00:31:00] Will: The other thing we had talked about doing, you ended up using just ice sunk into the cooler to keep the water cold.
 
 [00:31:06] Adam: Yes.
 
@@ -694,7 +694,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:31:54] Adam: yeah,
 
-[00:31:54] Will: but the other, but but the reason you would want that is if you end up using a thermoelectric cooler, which is the other thing, thousands of people. No,
+[00:31:54] Will: but the other, but the reason you would want that is if you end up using a thermoelectric cooler, which is the other thing, thousands of people. No,
 
 [00:32:01] Adam: no, right?
 
@@ -714,9 +714,9 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:32:16] Adam: And I have a Peltier junction. I just didn't get around to trying that out. Running a little radiator system past it,
 
-[00:32:16] Will: right? You're gonna have to put like a chill plate or something on it in order for that to work right. But it means you'll be able to do it presumably with a lot less water in the in the system,
+[00:32:16] Will: right? You're gonna have to put like a chill plate or something on it in order for that to work right. But it means you'll be able to do it presumably with a lot less water in the system,
 
-[00:32:30] Adam: and that would be very cool. I'd really like to try that system perhaps next year with the with the two that I've got.
+[00:32:30] Adam: and that would be very cool. I'd really like to try that system perhaps next year with the two that I've got.
 
 [00:32:37] Will: We can experiment.
 
@@ -728,15 +728,15 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:32:38] Will: I can only imagine.
 
-[00:32:38] Adam: I I don't know how he how he did it. He had the parts made, but then he did all the final assembly. Um, you know, he's a triple threat. He does the sewing, he does the mold making, does the actual fabrication. Um, and they're they're they're just. I I couldn't be happier with these suits. They're wonderful.
+[00:32:38] Adam: I don't know how he did it. He had the parts made, but then he did all the final assembly. He's a triple threat. He does the sewing, he does the mold making, does the actual fabrication. And they're just. I couldn't be happier with these suits. They're wonderful.
 
 [00:33:21] Will: So what’s the URL again?
 
-[00:33:24] Adam: I know. I I made Chris sign my lunchbox. The
+[00:33:24] Adam: I know. I made Chris sign my lunchbox. The
 
-[00:33:28] Will: best part. The best part about that was I think I don't even think it's in the video. After we finished and you were going to get changed to go back out, Chris was standing in the other room and he was he was like he was doing the the post spacewalk stuff. for your space suits
+[00:33:28] Will: best part. The best part about that was I think I don't even think it's in the video. After we finished and you were going to get changed to go back out, Chris was standing in the other room and he was like he was doing the post spacewalk stuff. for your space suits
 
-[00:33:41] Adam: dismantling them all back down to the number of parts they had gone in. So using the drills to take back apart the the the straps. Um, he emptied out the the the the reservoirs for water. He then pulled the suits inside out in this very like oh this is how we do it at NASA
+[00:33:41] Adam: dismantling them all back down to the number of parts they had gone in. So using the drills to take back apart the straps. He emptied out the reservoirs for water. He then pulled the suits inside out in this very like oh this is how we do it at NASA
 
 [00:33:58] Will: right like they were sitting up leaned against the wall. Like they were kind of looked like quadruple amputees,
 
@@ -744,9 +744,9 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:34:14] Norm: That's what we do." When he says we, he means NASA.
 
-[00:34:18] Adam: I know it's crazy. How awesome! How much fun! Now I want to go. I'm wondering if they'll allow old people to go to space because I'd love I'd love to go. I I hope Chris gets to go again, and I hope he gets to bring me. I'd like to go to space.
+[00:34:18] Adam: I know it's crazy. How awesome! How much fun! Now I want to go. I'm wondering if they'll allow old people to go to space because I'd love to go. I hope Chris gets to go again, and I hope he gets to bring me. I'd like to go to space.
 
-[00:34:31] Will: I I wonder. He's been up there long enough. I wonder if he gets to go back.
+[00:34:31] Will: I wonder. He's been up there long enough. I wonder if he gets to go back.
 
 [00:34:34] Adam: I wonder
 
@@ -764,7 +764,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:34:48] Adam: The shuttle,
 
-[00:34:48] Will: the of all the great losses from from Arthur Clarke's vision of the 21st century.
+[00:34:48] Will: the of all the great losses from Arthur Clarke's vision of the 21st century.
 
 [00:34:48] Adam: Yeah,
 
@@ -776,9 +776,9 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:35:08] Norm: what do you think Chris's answer would have been to the question you were posed at the EW red carpet video?
 
-[00:35:14] Adam: Oh gosh, okay, so yeah, io9, Annalee, and Charlie Jane Anders, Annalee Newitz, and Charlie Jane Anders, two of my favorite writers, were on the red carpet. It was so awesome to run into them, and they had they had they had some wonderful questions. But most wonderful of all was Enterprise versus Millennium Falcon. Who would win? And they
+[00:35:14] Adam: Oh gosh, okay, so yeah, io9, Annalee, and Charlie Jane Anders, Annalee Newitz, and Charlie Jane Anders, two of my favorite writers, were on the red carpet. It was so awesome to run into them, and they had some wonderful questions. But most wonderful of all was Enterprise versus Millennium Falcon. Who would win? And they
 
-[00:35:37] Norm: produced a video where throughout their entire Comic Con experience, they everyone they talked to, every celebrity, asked that question, and they build that into this montage. You can find it on Tested and on their site. And they they save you for last.
+[00:35:37] Norm: produced a video where throughout their entire Comic Con experience, they everyone they talked to, every celebrity, asked that question, and they build that into this montage. You can find it on Tested and on their site. And they save you for last.
 
 [00:35:51] Adam: They did.
 
@@ -800,7 +800,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:36:09] Will: So
 
-[00:36:10] Adam: so I I have read extensively on the subject, and I have seen both sides of the argument represented. I think cogent arguments have been made on both sides. Re the physics of, um, they don't call them lasers in Star Wars; they call them
+[00:36:10] Adam: so I I have read extensively on the subject, and I have seen both sides of the argument represented. I think cogent arguments have been made on both sides. Re the physics of they don't call them lasers in Star Wars; they call them
 
 [00:36:27] Will: turbo lasers.
 
@@ -808,13 +808,13 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:36:33] Will: Turbo means it's better.
 
-[00:36:34] Adam: I get all those arguments. Um, I choose to agree with a recent article on Gizmodo that laid out all the reasons in which the Enterprise would smoke the Millennium Falcon. Um, and this is despite my feelings that the Millennium Falcon is the most beautiful spaceship ever designed.
+[00:36:34] Adam: I get all those arguments. I choose to agree with a recent article on Gizmodo that laid out all the reasons in which the Enterprise would smoke the Millennium Falcon. And this is despite my feelings that the Millennium Falcon is the most beautiful spaceship ever designed.
 
 [00:36:57] Norm: And fast,
 
 [00:36:57] Will: fastest hunk of junk in the galaxy.
 
-[00:36:59] Adam: It is great. It is wonderful. It is. I look. If you ask me if I could, if I could have a magic wand and exist in a world where I could have a spaceship, it's the Falcon. On the extra materials for Firefly, or maybe it's for Serenity. They asked Joss Whedon. Joss Whedon, the origin story. They asked him the origin story for the Firefly universe.
+[00:36:59] Adam: It is great. It is wonderful. It is. I look. If you ask me if I could have a magic wand and exist in a world where I could have a spaceship, it's the Falcon. On the extra materials for Firefly, or maybe it's for Serenity. They asked Joss Whedon. Joss Whedon, the origin story. They asked him the origin story for the Firefly universe.
 
 [00:36:59] Will: Yeah.
 
@@ -822,9 +822,9 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:37:31] Will: Nerd
 
-[00:37:32] Adam: on this on this case.
+[00:37:32] Adam: on this case.
 
-[00:37:33] Will: I think I mean just the mass advantage that the Enterprise has over the Millennium Falcon. You know, there's no
+[00:37:33] Will: I think I mean just the mass advantage that the Enterprise has over the Millennium Falcon. There's no
 
 [00:37:39] Norm: and the fact they have shields.
 
@@ -842,11 +842,11 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:37:49] Norm: that. They've done that. Yeah. Strategy wise. Yeah.
 
-[00:37:52] Adam: There's there's there's a million reasons, but. Basically, you know, in the Star Wars universe, these are planes with effectively machine guns strapped to them. It's it's very World War II technology, and it's well known if you watch things like Everything's a Remix that George Lucas borrowed heavily from films about World War II and actual World War II dogfight footage to lay out the cutting sequences of his Tie Fighter X Wing battles in Star Wars.
+[00:37:52] Adam: There's there's there's a million reasons, but. Basically in the Star Wars universe, these are planes with effectively machine guns strapped to them. It's very World War II technology, and it's well known if you watch things like Everything's a Remix that George Lucas borrowed heavily from films about World War II and actual World War II dogfight footage to lay out the cutting sequences of his Tie Fighter X Wing battles in Star Wars.
 
 [00:38:18] Will: Dun dun dun dun. With the swoops and the yeah,
 
-[00:38:21] Norm: I do like that your your response, heralded back to Next Generation episode.
+[00:38:21] Norm: I do like that your response, heralded back to Next Generation episode.
 
 [00:38:25] Will: Yes, you invoked Worf.
 
@@ -882,7 +882,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:40:02] Will: Yeah,
 
-[00:40:02] Adam: but when the reporter asked me that question, I realized when I thought about it, you know, they supply two different satisfactions. They're they're apples and oranges. What I like about Star Trek is not what I like about Star Wars, and vice versa. What I like about Star Trek is the intellectual exercise, very much like the new Battlestar Galactica. Star Trek is a thinly veiled excuse for some very sophisticated social commentary.
+[00:40:02] Adam: but when the reporter asked me that question, I realized when I thought about it they supply two different satisfactions. They're apples and oranges. What I like about Star Trek is not what I like about Star Wars, and vice versa. What I like about Star Trek is the intellectual exercise, very much like the new Battlestar Galactica. Star Trek is a thinly veiled excuse for some very sophisticated social commentary.
 
 [00:40:02] Will: Yeah,
 
@@ -892,7 +892,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:40:56] Adam: as is the tradition of science fiction, you are totally right.
 
-[00:40:58] Will: It's also an opportunity to show us in a in a time when we were seeing a lot of dystopian stuff. You know, the Charlton Heston trio trilogy of science fiction movies.
+[00:40:58] Will: It's also an opportunity to show us in a time when we were seeing a lot of dystopian stuff. You know, the Charlton Heston trio trilogy of science fiction movies.
 
 [00:40:58] Adam: Yeah,
 
@@ -910,7 +910,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:41:37] Will: the dirty universe, the
 
-[00:41:37] Adam: dirty universe. They're built, everything's kludged together. I mean, and having worked on worked on props from both. There was a lot of discussion at ILM. One of the key things we came up with as a descriptor for someone who was a model maker who might be working on one is in Star Trek, it's totally okay to have three identical greeblies next to each other, one, two, three in a row. In Star Wars, you would never do that. In Star Wars, it's one, two, a blank space where one fell off, and then a third one. It's always kludged, every bit of…
+[00:41:37] Adam: dirty universe. They're built, everything's kludged together. I mean, and having worked on props from both. There was a lot of discussion at ILM. One of the key things we came up with as a descriptor for someone who was a model maker who might be working on one is in Star Trek, it's totally okay to have three identical greeblies next to each other, one, two, three in a row. In Star Wars, you would never do that. In Star Wars, it's one, two, a blank space where one fell off, and then a third one. It's always kludged, every bit of…
 
 [00:42:10] Will: maintained versus versus found.
 
@@ -926,21 +926,21 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:42:30] Will: I mean, it's before the fall of civilization, right? Is is probably the reason, but yeah,
 
-[00:42:35] Adam: I, I didn't even want to talk. There are prequels. I
+[00:42:35] Adam: I didn't even want to talk. There are prequels. I
 
 [00:42:38] Will: don't. Sorry, sorry, sorry.
 
 [00:42:38] Unknown speaker: Anyway,
 
-[00:42:39] Adam: I I think we've gone on long.
+[00:42:39] Adam: I think we've gone on long.
 
 [00:42:41] Will: Yeah, we
 
 [00:42:41] Adam: covered a lot of ground.
 
-[00:42:43] Will: Yeah. Um. Any other? This is our last chance to talk about Comic Con. So, is there anything else you want to talk about?
+[00:42:43] Will: Yeah. Any other? This is our last chance to talk about Comic Con. So, is there anything else you want to talk about?
 
-[00:42:48] Adam: Um. I. I will say. I. I at the beginning of the party, I spent about 90 minutes talking to a crap ton of Tested Premium members, and I just everybody was so awesome. Um. You know, not only do I love meeting the fans, but seemingly more often than not, um, they're avid contributors to Tested, to the comments, but also to builds and people who've sent us stuff and people we've covered. Um, that whole cross section was represented at the party, and I just I love talking to everybody. It's one of the great things about having that party is getting to meet the people that are supporting the site.
+[00:42:48] Adam: I. I will say. I. I at the beginning of the party, I spent about 90 minutes talking to a crap ton of Tested Premium members, and I just everybody was so awesome. Not only do I love meeting the fans, but seemingly more often than not they're avid contributors to Tested, to the comments, but also to builds and people who've sent us stuff and people we've covered. That whole cross section was represented at the party, and I just I love talking to everybody. It's one of the great things about having that party is getting to meet the people that are supporting the site.
 
 [00:43:23] Will: The costumes that people wore to the party
 
@@ -950,15 +950,15 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:43:28] Adam: I never got a chance to spend some up close time with that R2 unit. I was a little sad. It looked much better than mine.
 
-[00:43:35] Will: Well, it was. He just he just finished it about six months ago or a year ago, and um, still working on it. But I had a nice chat. I had a nice chat with him. Um, yeah, it's it's amazing, and a lot of people ask how we hung the Han Solo from with carbonite from the ceiling. The answer is very, very carefully.
+[00:43:35] Will: Well, it was. He just finished it about six months ago or a year ago, and still working on it. But I had a nice chat. I had a nice chat with him. Um, yeah, it's amazing, and a lot of people ask how we hung the Han Solo from with carbonite from the ceiling. The answer is very, very carefully.
 
 [00:43:51] Adam: I also heard from people like, " Wow, how did you afford to make the ceiling look like that?" And it was like a large. Do you
 
 [00:43:56] Will: Do you want to know
 
-[00:43:57] Adam: the decoration? The decoration for the party was magnificent. You guys and Dana and Donica, um, just absolutely killed with that.
+[00:43:57] Adam: the decoration? The decoration for the party was magnificent. You guys and Dana and Donica just absolutely killed with that.
 
-[00:44:04] Will: So Norm and I walked in for the site inspection, and we saw the lights, and we both kind of looked at each other, and it was like it was like, " Are you thinking what I'm thinking?" Moment.
+[00:44:04] Will: So Norm and I walked in for the site inspection, and we saw the lights, and we both kind of looked at each other, and it was like, " Are you thinking what I'm thinking?" Moment.
 
 [00:44:04] Adam: Amazing.
 
@@ -966,7 +966,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:44:17] Adam: we're done."
 
-[00:44:18] Will: So then, so then we went to Urban Ore over in the East Bay, which is someplace we sent the inventors when they were here.
+[00:44:18] Will: So then we went to Urban Ore over in the East Bay, which is someplace we sent the inventors when they were here.
 
 [00:44:22] Adam: I've been shopping at Urban Ore since 1990,
 
@@ -982,7 +982,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:44:38] Adam: That party was epic. That was the most fun party I've ever been to at Comic Con.
 
-[00:44:42] Will: I shouldn't have been allowed at that party. I'm nowhere near cool enough to be at a party like that. That's as good a place as any to wrap it up. The promo is still going. If you you can't get to the party now, sorry. But Adam's poster of his hand drawings of his ILM toolboxes still available. That's going to go at least until the end of the month. If you want to find out about that, you can go to tested.com/membership, and we'll be back next week with another episode. Thank you guys for watching.
+[00:44:42] Will: I shouldn't have been allowed at that party. I'm nowhere near cool enough to be at a party like that. That's as good a place as any to wrap it up. The promo is still going. If you can't get to the party now, sorry. But Adam's poster of his hand drawings of his ILM toolboxes still available. That's going to go at least until the end of the month. If you want to find out about that, you can go to tested.com/membership, and we'll be back next week with another episode. Thank you guys for watching.
 
 [00:45:06] Adam: Thanks, guys.
 

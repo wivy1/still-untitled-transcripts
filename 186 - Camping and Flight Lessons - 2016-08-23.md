@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:01:37] Rebecca: Clone your own Adam.
 
-[00:01:38] Adam: Um. Uh. So we went camping.
+[00:01:38] Adam: So we went camping.
 
 [00:01:41] Norm: Yeah.
 
@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:02:16] Rebecca: We nearly died.
 
-[00:02:19] Norm: Wait, there was there was salt at the campsite.
+[00:02:19] Norm: Wait, there was salt at the campsite.
 
 [00:02:20] Unknown: You used all the salt. All the salt.
 
@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:03:29] Norm: Yeah, fancy camping. What's it called?
 
-[00:03:31] Adam: Fancy camping. On this beautiful farm, a horse farm in Bodega Bay, California. Bodega Bay is up the California coast. It is famous. Most famous is the the town in which they filmed the Hitchcock movie, The Birds.
+[00:03:31] Adam: Fancy camping. On this beautiful farm, a horse farm in Bodega Bay, California. Bodega Bay is up the California coast. It is famous. Most famous is the town in which they filmed the Hitchcock movie, The Birds.
 
 [00:03:45] Norm: Right.
 
@@ -182,7 +182,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:04:25] Rebecca: Yeah.
 
-[00:04:25] Adam: Right. And like, like filthy. Like I'm living on the streets, filthy. Right. Because in Manhattan, like if you leave a window open, there'll be like a layer of ash, a film, like dust. It's really pervasive.
+[00:04:25] Adam: Right. And filthy. Like I'm living on the streets, filthy. Right. Because in Manhattan, like if you leave a window open, there'll be like a layer of ash, a film, like dust. It's really pervasive.
 
 [00:04:36] Rebecca: It's like living in a volcanic area.
 
@@ -190,7 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:04:45] Rebecca: Right?
 
-[00:04:46] Adam: Um. And there was this cat. There was this cat. There was this white cat that used to literally sit on its ass like this.
+[00:04:46] Adam: And there was this cat. There was this cat. There was this white cat that used to literally sit on its ass like this.
 
 [00:04:51] Rebecca: Yep, that's a bodega cat
 
@@ -212,7 +212,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:05:44] Norm: It's so good.
 
-[00:05:46] Rebecca: No, I'm just looking to get more hate mail. I'm looking to get more hate mail after, because it's it's died down after I-
+[00:05:46] Rebecca: No, I'm just looking to get more hate mail. I'm looking to get more hate mail after, because it's died down after I-
 
 [00:05:50] Adam: What did you get hate mail for again?
 
@@ -220,7 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:05:53] Norm: Oh right.
 
-[00:05:54] Adam: It's a it's a Cruise Lander.
+[00:05:54] Adam: It's a Cruise Lander.
 
 [00:05:56] Rebecca: It's a Cruise Lander. I'm sorry, you guys.
 
@@ -228,23 +228,23 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:05:59] Rebecca: Hashtag Jeep Cruiser.
 
-[00:06:01] Adam: Um. So we were camping. We were camping on this farm. So we were next to some buildings. We had power. We had water. It was more like car camping.
+[00:06:01] Adam: So we were camping. We were camping on this farm. So we were next to some buildings. We had power. We had water. It was more like car camping.
 
 [00:06:09] Rebecca: Yeah.
 
-[00:06:10] Adam: Um. But it was me, my kids, thing one and thing two, Rebecca, your boyfriend, Adam, Simone, Giertz, um,
+[00:06:10] Adam: But it was me, my kids, thing one and thing two, Rebecca, your boyfriend, Adam, Simone, Giertz
 
 [00:06:18] Norm: Sean,
 
-[00:06:18] Adam: Sean Charlesworth, uh, and Sean was camping also out of his truck.
+[00:06:18] Adam: Sean Charlesworth and Sean was camping also out of his truck.
 
 [00:06:23] Norm: Yep.
 
-[00:06:23] Adam: Uh, so I had a, I have a rooftop tent on my Land Cruiser,
+[00:06:23] Adam: So I had a, I have a rooftop tent on my Land Cruiser,
 
 [00:06:26] Rebecca: I love this.
 
-[00:06:27] Adam: This was the inaugural uh camping trip for it.
+[00:06:27] Adam: This was the inaugural camping trip for it.
 
 [00:06:31] Norm: Oh, you never slept in there?
 
@@ -254,13 +254,13 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:06:37] Adam: Oh, right. Maybe it's been longer that I've had it. But yes, I
 
-[00:06:40] Norm: Uh, you had used it one the one time.
+[00:06:40] Norm: You had used it one the one time.
 
 [00:06:41] Adam: I did.
 
 [00:06:42] Norm: Yeah.
 
-[00:06:43] Adam: Um. It is a palace up there. I love rooftop tent camping, man.
+[00:06:43] Adam: It is a palace up there. I love rooftop tent camping, man.
 
 [00:06:47] Rebecca: It did. It looked amazing.
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:06:51] Norm: You get jealous just looking at it. Like you feel inadequate putting a tent on the dirt.
 
-[00:06:56] Rebecca: Yeah. And and
+[00:06:56] Rebecca: Yeah. And
 
 [00:06:57] Norm: Where the bugs live?
 
@@ -278,13 +278,13 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:07:01] Norm: Yeah.
 
-[00:07:02] Rebecca: Uh, Apparently they have them for Mini Coopers, which is what I have.
+[00:07:02] Rebecca: Apparently they have them for Mini Coopers, which is what I have.
 
 [00:07:05] Adam: No way.
 
 [00:07:06] Rebecca: and I'm a little afraid that it's just going to collapse the entire roof. But if this is true. I'm going to get one because that is amazing.
 
-[00:07:13] Adam: It is totally an amazing way to camp. Yeah, I love camping off the ground. Um, it has its own mattress because the whole tent folds in half. So what happens is, um, to describe this, the tent takes up a huge amount of the roof rack, but it actually folds out to be double that amount of square area. And as it folds out, a ladder deploys and holds up that other second half that cantilevers off the car.
+[00:07:13] Adam: It is totally an amazing way to camp. Yeah, I love camping off the ground. It has its own mattress because the whole tent folds in half. So what happens is to describe this, the tent takes up a huge amount of the roof rack, but it actually folds out to be double that amount of square area. And as it folds out, a ladder deploys and holds up that other second half that cantilevers off the car.
 
 [00:07:37] Rebecca: That's like a goddamn lunar module.
 
@@ -292,11 +292,11 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:07:45] Norm: At, at which point does camping like that with power, water, deployable housing just become like living in an RV?
 
-[00:07:52] Adam: Well, I think it is a little like living in an RV. It's not quite as glam as that, but you know, in a zombie apocalypse, I'd certainly rather have my 4x4 than an RV to get out of those muddy fire roads when you're running from zombies.
+[00:07:52] Adam: Well, I think it is a little like living in an RV. It's not quite as glam as that, but in a zombie apocalypse, I'd certainly rather have my 4x4 than an RV to get out of those muddy fire roads when you're running from zombies.
 
 [00:08:06] Norm: So it's about you know. Living outdoors for a night.
 
-[00:08:10] Rebecca: Yeah, and I mean, you you get all of the. You can still do all the fun camping stuff, you know. You can go hiking. You can make a living. You can make a fire. But yeah, it's just like for the night time, you get to live it up and not hurt your back, you know.
+[00:08:10] Rebecca: Yeah, and I mean, you get all of the. You can still do all the fun camping stuff. You can go hiking. You can make a living. You can make a fire. But yeah, it's just like for the night time, you get to live it up and not hurt your back.
 
 [00:08:25] Adam: And it was lovely. I don't know about you, but I slept like a rock out there.
 
@@ -308,15 +308,15 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:08:33] Adam: You had trouble?
 
-[00:08:33] Rebecca: Yeah. I. It's funny. I did. Um. I had a dream at one point that I was in bed and thinking like, " Ugh, my bed is so much softer than that ground was." So it's like like a perfect dream to have. Yeah.
+[00:08:33] Rebecca: Yeah. I. It's funny. I did. I had a dream at one point that I was in bed and thinking like, " Ugh, my bed is so much softer than that ground was." So it's like a perfect dream to have. Yeah.
 
 [00:08:47] Adam: Already. Wow.
 
 [00:08:48] Rebecca: Yeah, my body was coping.
 
-[00:08:49] Adam: I actually went so far as the as the fancy camping. I went so far. I sleep with a bean pillow. I. Oh. It's one of my favorite things, and I brought my bean. Yeah, it's a pillow filled with beans.
+[00:08:49] Adam: I actually went so far as the fancy camping. I went so far. I sleep with a bean pillow. I. Oh. It's one of my favorite things, and I brought my bean. Yeah, it's a pillow filled with beans.
 
-[00:09:00] Norm: Oh, you like the the stretchy? So-
+[00:09:00] Norm: Oh, you like the stretchy? So-
 
 [00:09:02] Adam: It's not stretchy.
 
@@ -326,7 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:09:09] Rebecca: Right.
 
-[00:09:09] Adam: Um. But it's it's. It kind of crunchy and it holds my head. It's great. My wife and I both like were addicted to them.
+[00:09:09] Adam: But it's. It kind of crunchy and it holds my head. It's great. My wife and I both like were addicted to them.
 
 [00:09:16] Rebecca: See, because we dress- we drove right there and we didn't have to hike to a spot.
 
@@ -340,7 +340,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:09:26] Rebecca: Yeah,
 
-[00:09:27] Adam: Um, and you, you, you helped my son. You taught my son how to drive a stick shift.
+[00:09:27] Adam: And you helped my son. You taught my son how to drive a stick shift.
 
 [00:09:31] Rebecca: I did. Yeah.
 
@@ -374,7 +374,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:10:56] Adam: Yeah, because I mean, on some of these modern cars, you could dent the front fender, which is somehow contiguous with the back fender, and then it's like you got to replace this unibody fiberglass thing that's like $8,000.
 
-[00:11:06] Norm: Yeah, I gotta imagine the the people who key cars research like, okay,
+[00:11:06] Norm: Yeah, I gotta imagine the people who key cars research like, okay,
 
 [00:11:10] Rebecca: Right?
 
@@ -388,15 +388,15 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:11:17] Adam: see it in the mission all the time.
 
-[00:11:19] Rebecca: When I was a teenager, I wrecked my parents' car. I didn't wreck it. I well, I did later, but my my first
+[00:11:19] Rebecca: When I was a teenager, I wrecked my parents' car. I didn't wreck it. I well, I did later, but my first
 
 [00:11:29] Adam: The first time you almost wrecked it.
 
-[00:11:30] Rebecca: The first time. Uh, it was I didn't have my license yet, and we had this, um, my parents had this long, long driveway. They lived way back in the woods, and my mom and I were driving somewhere, and she was like, " Uh, do you want to drive to the end of the driveway? And I need to get like a walk-in, so I'll like jog up there, and you meet me like at the mailbox. And I was like, okay, and she's like, I'll race you, and she takes off, and so I hop in the van, I turn it on, and I hit the gas, and it was in reverse.
+[00:11:30] Rebecca: The first time. It was I didn't have my license yet, and we had this my parents had this long, long driveway. They lived way back in the woods, and my mom and I were driving somewhere, and she was like, " Uh, do you want to drive to the end of the driveway? And I need to get like a walk-in, so I'll like jog up there, and you meet me like at the mailbox. And I was like, okay, and she's like, I'll race you, and she takes off, and so I hop in the van, I turn it on, and I hit the gas, and it was in reverse.
 
 [00:12:00] Norm: Oh,
 
-[00:12:01] Rebecca: and I back up into our porch and collapse the whole porch down on the van, and so my mom hears the crash and comes running back and looks at what I what I've done, and you know, my parents were my mom particularly was pretty strict growing up, and so I'm like. Petrified, what's going to happen? And so she looks at what's happened, and she turns to me and she says, " Get in the car." And I was like, " Wh- why?" And she's like, " We're going to the liquor store to get your father some beer, so when he comes home, he doesn't kill you." And so we go to the liquor store. We get, um, I get like a, a 24 pack of, of Moosehead beer, my dad's favorite
+[00:12:01] Rebecca: and I back up into our porch and collapse the whole porch down on the van, and so my mom hears the crash and comes running back and looks at what I what I've done, and you know, my parents were my mom particularly was pretty strict growing up, and so I'm like. Petrified, what's going to happen? And so she looks at what's happened, and she turns to me and she says, " Get in the car." And I was like, " Wh- why?" And she's like, " We're going to the liquor store to get your father some beer, so when he comes home, he doesn't kill you." And so we go to the liquor store. We get I get like a 24 pack of Moosehead beer, my dad's favorite
 
 [00:12:42] Norm: Beer, apology beer.
 
@@ -406,29 +406,29 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:13:01] Rebecca: Yeah.
 
-[00:13:01] Adam: Um. By the way, that accident, not realizing the car is in reverse and stepping on the gas, is the accident I lived in more fear of on MythBusters than any other.
+[00:13:01] Adam: By the way, that accident, not realizing the car is in reverse and stepping on the gas, is the accident I lived in more fear of on MythBusters than any other.
 
 [00:13:11] Rebecca: Really?
 
-[00:13:12] Adam: Because we did car myths all the time. Um. I mean, we might have done more. We might have done more car myths than any other single category. Uh, they were great. I love driving. I, I, I'm become a much better driver because of MythBusters, so I love exercising those new skills. I love getting trained to do things, and it's a lot of bang for the buck. Editorially, you get a lot out of one day of car driving. You get ancillary cameras and commentary, lots of material. But you're also doing things like, oh, you know, the cameraman says, " Can you just scoot back just a foot?" Oh yeah, and you're doing lots of that, arranging for the camera. Okay, and you're constant. Many things are going on, and you're concentrating on an experimental methodology, camera narrative, talking to the camera. What's my role? How am I going to do this maneuver? And you're absolutely in constant danger of doing exactly that, not realizing which gear the car is in, stepping on the gas and running over someone who doesn't expect that.
+[00:13:12] Adam: Because we did car myths all the time. I mean, we might have done more. We might have done more car myths than any other single category. They were great. I love driving. I, I'm become a much better driver because of MythBusters, so I love exercising those new skills. I love getting trained to do things, and it's a lot of bang for the buck. Editorially, you get a lot out of one day of car driving. You get ancillary cameras and commentary, lots of material. But you're also doing things like, oh, you know, the cameraman says, " Can you just scoot back just a foot?" Oh yeah, and you're doing lots of that, arranging for the camera. Okay, and you're constant. Many things are going on, and you're concentrating on an experimental methodology, camera narrative, talking to the camera. What's my role? How am I going to do this maneuver? And you're absolutely in constant danger of doing exactly that, not realizing which gear the car is in, stepping on the gas and running over someone who doesn't expect that.
 
 [00:14:07] Rebecca: Right. Yeah.
 
 [00:14:08] Adam: That was the one I was most terrified of, and most kind of convinced would be the accident that would someone would get really harmed. We finished the series with no one ever getting harmed, but that's the one I was. I said this a third time.
 
-[00:14:19] Norm: Going in reverse, yeah. When you don't expect it, it takes that second, and then it's also like weird. What dyslexia? Like, why is everything backwards? And then you got to rearrange your brain.
+[00:14:19] Norm: Going in reverse, yeah. When you don't expect it takes that second, and then it's also like weird. What dyslexia? Like, why is everything backwards? And then you got to rearrange your brain.
 
 [00:14:30] Rebecca: Yeah. Have you done those? Have you taken one of those courses where it's like crazy offensive, defensive driving?
 
-[00:14:39] Adam: Um, you know, I know many police driving ranges do courses like that for civilians, and the Alameda County Sheriff's Department does. I haven't taken their course, but I have been trained by their police driving trainer multiple times.
+[00:14:39] Adam: I know many police driving ranges do courses like that for civilians, and the Alameda County Sheriff's Department does. I haven't taken their course, but I have been trained by their police driving trainer multiple times.
 
-[00:14:51] Rebecca: I want to do that, but they're they're crazy expensive. Like, it's like I guess this is more like the stunt driving sort of classes. That's kind of what I want.
+[00:14:51] Rebecca: I want to do that, but they're crazy expensive. Like, it's like I guess this is more like the stunt driving sort of classes. That's kind of what I want.
 
-[00:14:58] Adam: They do one up at, in, it's not Infineon. It's not Sears Point. Now it's something else. The, uh, the the raceway up in Sonoma County.
+[00:14:58] Adam: They do one up at, in, it's not Infineon. It's not Sears Point. Now it's something else. The raceway up in Sonoma County.
 
 [00:15:06] Norm: Sonoma, yeah.
 
-[00:15:07] Adam: Um, they do one up there that's apparently really fantastic.
+[00:15:07] Adam: They do one up there that's apparently really fantastic.
 
 [00:15:10] Rebecca: Yeah.
 
@@ -436,11 +436,11 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:15:18] Rebecca: Yeah.
 
-[00:15:18] Adam: Whatever they're gonna charge, it's totally worth it. It improves your ability to know the limits of the car. Right. Um,
+[00:15:18] Adam: Whatever they're gonna charge, it's totally worth it. It improves your ability to know the limits of the car. Right.
 
 [00:15:25] Norm: After, you bring your car?
 
-[00:15:26] Adam: You- I don't know. Um, Oh, oh, that's me, right? No, I can't answer that just yet. Sorry, Steve, I'll call you back. Um, uh, you really get to understand the the limits of what's gonna happen after a bunch of you-. I was a terrible driver when we started shooting MythBusters, but after a few years, we were back east and I hit some black ice and my car started going sideways. And I, my heart rate never went up. I just literally knew exactly how to adjust the oversteer and kind of keep going straight. And like three days later, my wife was like, " You have to stop aiming for the black ice."
+[00:15:26] Adam: You- I don't know. Oh, oh, that's me, right? No, I can't answer that just yet. Sorry, Steve, I'll call you back. You really get to understand the limits of what's gonna happen after a bunch of you-. I was a terrible driver when we started shooting MythBusters, but after a few years, we were back east and I hit some black ice and my car started going sideways. And I, my heart rate never went up. I just literally knew exactly how to adjust the oversteer and kind of keep going straight. And like three days later, my wife was like, " You have to stop aiming for the black ice."
 
 [00:16:00] Norm: And my question for that is in terms of simulations, because you knew that in VR. You did a lot of car driving simulations, getting like a full video game set up. Like, how adequately will that actually prepare you for the real environment? It's a question I have. Yeah,
 
@@ -450,9 +450,9 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:16:45] Adam: But it's a fascinating question, and it's one we had again several times gone down the path to experiment with.
 
-[00:16:51] Norm: Because you know, pilots when they train with simulators, a lot of that is just to get the procedures right because there's so many procedures, and not necessarily about the instinctual training your instincts in that moment.
+[00:16:51] Norm: Because pilots when they train with simulators, a lot of that is just to get the procedures right because there's so many procedures, and not necessarily about the instinctual training your instincts in that moment.
 
-[00:17:02] Rebecca: When things feel really different when you're moving, and when the thing you do changes what is happening around you. You know, I remember when the first time virtual reality came around, which is why I've been skeptical of it. This. Time like oh yeah loads of fun but it's not going to catch on
+[00:17:02] Rebecca: When things feel really different when you're moving, and when the thing you do changes what is happening around you. I remember when the first time virtual reality came around, which is why I've been skeptical of it. This. Time like oh yeah loads of fun but it's not going to catch on
 
 [00:17:19] Norm: Right, right, right.
 
@@ -462,7 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:17:43] Rebecca: And I'll also say like-
 
-[00:17:43] Adam: It's totally a different experience it's it's really hard to equate I think flying simulators are easier to give you that kind of you know that pitch and yaw that happens when you're in a plane Wow, I'm- Excuse me.
+[00:17:43] Adam: It's totally a different experience it's really hard to equate I think flying simulators are easier to give you that kind of you know that pitch and yaw that happens when you're in a plane Wow, I'm- Excuse me.
 
 [00:17:56] Rebecca: Are you allergic to me?
 
@@ -476,7 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:18:28] Adam: You definitely had the [unclear: coolest parents ever / crazy parents / parents].
 
-[00:18:30] Rebecca: Yeah, yeah, and well, they, you know, my mom left it to my dad because, you know, it was his flight simulator that I was always playing, and he's like, " Yeah, I think she, she'll be all right," you know, and so, and they checked with the, the airport, you know, where, where we did it, and they're like, " Yeah, it should be fine. We'll just take her up and, you know, show her what it's like." So we were in a Cessna, and we get in, and I was immediately like, " That's the artificial horizon, and that's the throttle," and like, and I was just so excited, and the guy was just like, " Yeah," and the guy was like, " Do you want to take off?" And I was like, " Ah!" And he's like, " I'll land it, but you can take off if you want, because taking off is easy. You just
+[00:18:30] Rebecca: Yeah, yeah, and well, they, you know, my mom left it to my dad because, you know, it was his flight simulator that I was always playing, and he's like, " Yeah, I think she, she'll be all right," and so, and they checked with the airport, you know, where we did it, and they're like, " Yeah, it should be fine. We'll just take her up and, you know, show her what it's like." So we were in a Cessna, and we get in, and I was immediately like, " That's the artificial horizon, and that's the throttle," and and I was just so excited, and the guy was just like, " Yeah," and the guy was like, " Do you want to take off?" And I was like, " Ah!" And he's like, " I'll land it, but you can take off if you want, because taking off is easy. You just
 
 [00:19:06] Adam: Right, landing is-
 
@@ -488,7 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:19:24] Norm: and it wasn't until last year that you realized it was all simulation.
 
-[00:19:27] Rebecca: Oh, right, and I've been dead the entire time. Right, but yeah, it was. And because, like, a lot of that, though, it translated. I think because it's so gentle when you when you're moving in a Cessna, you know, it's not like you fly to the side or you know you shouldn't be.
+[00:19:27] Rebecca: Oh, right, and I've been dead the entire time. Right, but yeah, it was. And because a lot of that, though, it translated. I think because it's so gentle when you when you're moving in a Cessna it's not like you fly to the side or you know you shouldn't be.
 
 [00:19:43] Adam: Yes, and yeah, I have driven car simulators that were very. It just didn't feel nearly as. So yeah, that situational awareness is everything when driving.
 
@@ -522,7 +522,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:21:01] Rebecca: Yeah, yeah. What's worse, as a cyclist though, are people who park in the bike lane.
 
-[00:21:06] Adam: Yes, well, like all Uber drivers. Yes. Um, and what I really like is when they put on their flashers and just drift halfway into the bike lane and crawl. Yeah. In which case, oh no, no, no! You have no idea which door is going to open
+[00:21:06] Adam: Yes, well, like all Uber drivers. Yes. And what I really like is when they put on their flashers and just drift halfway into the bike lane and crawl. Yeah. In which case, oh no, no, no! You have no idea which door is going to open
 
 [00:21:20] Rebecca: at any point.
 
@@ -536,7 +536,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:21:37] Adam: I once was on a bike that got run over by a car while I was riding it, and I was fine. But literally, both tires bent at an angle like that. The guy got out of the car and he was like, " You're amazing."
 
-[00:21:47] Rebecca: I got T-boned by an SUV once, and other people called 911 and the ambulance. And so I'm like, " Okay, I guess I'll wait around and make a report." And the ambulance shows up, and they're like, " Where's this cyclist?" I was like, " Hey," and they're like, " We were here to pick up a corpse." I was like, " Oh no, I'm fine." Wow. And like they check me, I had like a big bruise along my leg.
+[00:21:47] Rebecca: I got T-boned by an SUV once, and other people called 911 and the ambulance. And so I'm like, " Okay, I guess I'll wait around and make a report." And the ambulance shows up, and they're like, " Where's this cyclist?" I was like, " Hey," and they're like, " We were here to pick up a corpse." I was like, " Oh no, I'm fine." Wow. And they check me, I had a big bruise along my leg.
 
 [00:22:09] Adam: It turns out you're still dead, Rebecca.
 

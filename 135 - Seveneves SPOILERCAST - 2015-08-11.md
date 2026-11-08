@@ -20,17 +20,17 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:01:53] Adam: Very, very short period of time.
 
-[00:01:54] Will: I, I took about a week, and I was so engaged that I literally. Bought the audio book so that I could switch from the ebook at home, and when I get in the car, it just picks up where the ebook left off, which is the most magical kind of future.
+[00:01:54] Will: I took about a week, and I was so engaged that I literally. Bought the audio book so that I could switch from the ebook at home, and when I get in the car, it just picks up where the ebook left off, which is the most magical kind of future.
 
-[00:02:09] Adam: That's pretty magical. That is pretty amazing. I, I, yeah, I want to listen to the audio book now just because I want to experience it again. The book we're talking about is Seveneves. So, Norm, we're apologizing publicly.
+[00:02:09] Adam: That's pretty magical. That is pretty amazing. I, yeah, I want to listen to the audio book now just because I want to experience it again. The book we're talking about is Seveneves. So, Norm, we're apologizing publicly.
 
 [00:02:21] Will: Yeah, sorry.
 
-[00:02:22] Adam: Um, because you're on your road trip, you might be listening to it on on on audio book, and we'll talk about it when you get back. But Will and I wanted to do a spoiler cast.
+[00:02:22] Adam: Because you're on your road trip, you might be listening to it on audio book, and we'll talk about it when you get back. But Will and I wanted to do a spoiler cast.
 
 [00:02:30] Will: We waited like a month and a half.
 
-[00:02:31] Adam: Yeah, we wanted to do a spoiler cast. So, this is Neal Stephenson's new book, Seveneves. Um,
+[00:02:31] Adam: Yeah, we wanted to do a spoiler cast. So, this is Neal Stephenson's new book, Seveneves.
 
 [00:02:37] Will: let's talk a little bit about it generally without spoilers,
 
@@ -60,17 +60,17 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:03:39] Adam: So to be clear, Neal developed this first as well. I don't even know what it was first developed as, but he has over the years attempted to make it a video game, a television show, a movie.
 
-[00:03:52] Will: Yeah, it's it's all media,
+[00:03:52] Will: Yeah, it's all media,
 
-[00:03:54] Adam: all media. So when he finally sat down to write it, this is from what I understand. Um, it was a very developed world, and
+[00:03:54] Adam: all media. So when he finally sat down to write it, this is from what I understand. It was a very developed world, and
 
 [00:04:04] Will: it's really evident immediately.
 
-[00:04:05] Adam: Yeah, it is a very ah, it it lit up the same parts of my brain that the Martian did.
+[00:04:05] Adam: Yeah, it is a very ah, it lit up the same parts of my brain that the Martian did.
 
-[00:04:14] Will: You mean the the the movie that's about the square thing going into the round hole in Apollo 13, stretched out over an entire book?
+[00:04:14] Will: You mean the movie that's about the square thing going into the round hole in Apollo 13, stretched out over an entire book?
 
-[00:04:20] Adam: Well, there is that, right? So, okay, so this is a half spoiler because it happens fairly early in the book. The moon blows up very quickly. It becomes apparent that the large chunks that make up the moon are going to start raining down on Earth, and humanity will not survive this. So, how will how will humanity survive what they call the white rain, which is the the the
+[00:04:20] Adam: Well, there is that, right? So, okay, so this is a half spoiler because it happens fairly early in the book. The moon blows up very quickly. It becomes apparent that the large chunks that make up the moon are going to start raining down on Earth, and humanity will not survive this. So, how will humanity survive what they call the white rain, which is the
 
 [00:04:50] Will: hard rain,
 
@@ -100,11 +100,11 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:05:46] Adam: Yes.
 
-[00:05:47] Will: How humanity and and just to be clear, not an immediate apocalypse. I think they're looking at three or four years is how as the first part of the book.
+[00:05:47] Will: How humanity and just to be clear, not an immediate apocalypse. I think they're looking at three or four years is how as the first part of the book.
 
-[00:05:54] Adam: Yeah. Yes. It's it's on the order of a couple of years at least, and so they've. There's time. There's time to sort of figure out, but he he keeps on oscillating wonderfully between a sort of the micro and the macro, right? He chooses characters who are science communicators, who are also in relationships of their own, so they're dealing on a personal level with the tragedy that is happening, but they're also dealing on a global level with the tragedy that is happening, and it it becomes quite riveting for that because Neal's very smart. He's thought about thought this through on many many different levels about how people would react to this,
+[00:05:54] Adam: Yeah. Yes. It's on the order of a couple of years at least, and so they've. There's time. There's time to sort of figure out, but he keeps on oscillating wonderfully between a sort of the micro and the macro, right? He chooses characters who are science communicators, who are also in relationships of their own, so they're dealing on a personal level with the tragedy that is happening, but they're also dealing on a global level with the tragedy that is happening, and it becomes quite riveting for that because Neal's very smart. He's thought about thought this through on many many different levels about how people would react to this,
 
-[00:06:29] Will: and and you know the fascinating parts. So the the book has three parts. If you read this, you know the book has three parts. The first part deals with the aftermath of the of the event. I think they call it right. So e plus zero to three years when the hard rain starts.
+[00:06:29] Will: and you know the fascinating parts. So the book has three parts. If you read this, you know the book has three parts. The first part deals with the aftermath of the event. I think they call it right. So e plus zero to three years when the hard rain starts.
 
 [00:06:44] Adam: Yes.
 
@@ -174,15 +174,15 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:09:04] Will: That's amazing because it's like a 900 page book or something.
 
-[00:09:07] Adam: It is, it is deeply satisfyingly long. So, you so the one of the very first things that happens is humanity realizes that survival of the human race will not happen on Earth.
+[00:09:07] Adam: It is deeply satisfyingly long. So, you so the one of the very first things that happens is humanity realizes that survival of the human race will not happen on Earth.
 
 [00:09:18] Will: Right.
 
-[00:09:18] Adam: That's just that's that's not going to be. Well,
+[00:09:18] Adam: That's just that's not going to be. Well,
 
 [00:09:22] Will: that's what they say.
 
-[00:09:23] Adam: That's what they say. Yeah. They put their resources in orbit, so the Chinese and the Russians and the Americans, they all the all the nations of the world gather together to start putting people up onto the International Space Station, who is nicknamed Izzy.
+[00:09:23] Adam: That's what they say. Yeah. They put their resources in orbit, so the Chinese and the Russians and the Americans, they all the nations of the world gather together to start putting people up onto the International Space Station, who is nicknamed Izzy.
 
 [00:09:42] Will: Izzy.
 
@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:10:03] Will: they had one narrator with an Englishy voice and one narrator with a not Englishy voice so yeah
 
-[00:10:09] Adam: so the the it's part of an experimental procedure to figure out how to mine asteroids in space
+[00:10:09] Adam: so the it's part of an experimental procedure to figure out how to mine asteroids in space
 
 [00:10:15] Will: Right.
 
@@ -222,7 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:10:25] Will: yeah either works
 
-[00:10:26] Adam: and they start flying resources up so at one point the Neil deGrasse Tyson character's son and he go up to Oregon where they've got a a space facility where they're firing rockets every single day getting resources up onto Izzy and the re the like they're calling them what do they call the the the the What are they
+[00:10:26] Adam: and they start flying resources up so at one point the Neil deGrasse Tyson character's son and he go up to Oregon where they've got a space facility where they're firing rockets every single day getting resources up onto Izzy and the re the like they're calling them what do they call the What are they
 
 [00:10:49] Will: pods?
 
@@ -232,7 +232,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:10:54] Adam: vitamins
 
-[00:10:55] Will: right yeah so this is this is the thing that was fascinating to me because it's something we learned talking to NASA folk. There's a ton of stuff that you're never going to be able to manufacture in orbit,
+[00:10:55] Will: right yeah so this is the thing that was fascinating to me because it's something we learned talking to NASA folk. There's a ton of stuff that you're never going to be able to manufacture in orbit,
 
 [00:11:03] Adam: right?
 
@@ -244,11 +244,11 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:11:15] Adam: Right.
 
-[00:11:15] Will: It's it's very analogous to the old. There was an article on in the Atlantic or something a few years ago about the possibility of making a cheeseburger in a pre agrarian in an agrarian society. And like, you know, you don't think about it, but getting the cow slaughtered at the right time to have cheese that's fresh, and that tomatoes are in season, and that lettuce is in season, and that you can have bread because you have the flour that's been milled. It's it doesn't happen unless you have this massive civilization behind you, which is I think where the whole story kind of breaks down a little bit. But
+[00:11:15] Will: It's very analogous to the old. There was an article on in the Atlantic or something a few years ago about the possibility of making a cheeseburger in a pre agrarian in an agrarian society. And like you don't think about it, but getting the cow slaughtered at the right time to have cheese that's fresh, and that tomatoes are in season, and that lettuce is in season, and that you can have bread because you have the flour that's been milled. It's it doesn't happen unless you have this massive civilization behind you, which is I think where the whole story kind of breaks down a little bit. But
 
-[00:11:50] Adam: interesting. Okay, I hadn't thought about that. Um. So there's a tremendous amount of time in the first part of the book covering the building of an infrastructure on an existing infrastructure to allow people to survive, to get as many people up there as scientists, thinkers, people who have the ability to make this habitat bigger.
+[00:11:50] Adam: interesting. Okay, I hadn't thought about that. So there's a tremendous amount of time in the first part of the book covering the building of an infrastructure on an existing infrastructure to allow people to survive, to get as many people up there as scientists, thinkers, people who have the ability to make this habitat bigger.
 
-[00:12:12] Will: So the plan now. This is this is where I have my first question about the book. The plan, which we'll summarize briefly, is to use Izzy as the mothership, build a bunch of relatively cheap, simple capsules that can hook together and then spin to give artificial centripetal gravity.
+[00:12:12] Will: So the plan now. This is where I have my first question about the book. The plan, which we'll summarize briefly, is to use Izzy as the mothership, build a bunch of relatively cheap, simple capsules that can hook together and then spin to give artificial centripetal gravity.
 
 [00:12:26] Adam: Right, which is going to be critical for people because you don't want if you eventually want human race to travel back to Earth, they're going to need some kind of bone density.
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:13:37] Will: He just comes and knocks on the door.
 
-[00:13:38] Adam: He comes and knocks on the door, and he commandeers his own his own ship to go get an asteroid asteroid full of water and bring it back to Izzy.
+[00:13:38] Adam: He comes and knocks on the door, and he commandeers his own ship to go get an asteroid asteroid full of water and bring it back to Izzy.
 
 [00:13:47] Will: Right. At great personal expense.
 
@@ -282,7 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:14:01] Will: I assume so.
 
-[00:14:01] Adam: Post destruction of humanity on Earth, but during the time when the the the existing the existing what are the the the hives? It's not the hive. The um the swarm.
+[00:14:01] Adam: Post destruction of humanity on Earth, but during the time when the existing what are the hives? It's not the hive. The swarm.
 
 [00:14:13] Will: The swarm.
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:14:57] Adam: Exactly, precisely.
 
-[00:14:59] Will: So. So, like, like this whole this whole construction thing. Like, as a as a science and engineering nerd, I'm like, this all this all makes pretty good sense.
+[00:14:59] Will: So. So this whole construction thing. Like, as a science and engineering nerd, I'm like, this all makes pretty good sense.
 
 [00:15:10] Adam: Pretty pretty robust.
 
@@ -308,11 +308,11 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:15:15] Adam: Oh, wow!
 
-[00:15:15] Will: Because there's no there's no closed systems in well, at least right now with current technology, which is pretty much what they're working with.
+[00:15:15] Will: Because there's no closed systems in well, at least right now with current technology, which is pretty much what they're working with.
 
 [00:15:22] Adam: Right,
 
-[00:15:22] Will: we don't have closed systems in space that don't require fairly constant replenishment. You know, even with the water recycling that's on ISS right now,
+[00:15:22] Will: we don't have closed systems in space that don't require fairly constant replenishment. Even with the water recycling that's on ISS right now,
 
 [00:15:29] Adam: right?
 
@@ -324,7 +324,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:15:37] Adam: The story is so good. So yeah, go ahead.
 
-[00:15:39] Will: No, he he does this thing, and Pat Rothfuss talks about this on his podcast, the Untitled Rothfuss Podcast. He does with Max Temkin.
+[00:15:39] Will: No, he does this thing, and Pat Rothfuss talks about this on his podcast, the Untitled Rothfuss Podcast. He does with Max Temkin.
 
 [00:15:46] Adam: We got to have him on.
 
@@ -334,13 +334,13 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:15:57] Will: I just want him to read stuff to me.
 
-[00:15:58] Adam: I I came upstairs during w00tstock. At this year's Comic Con, and I heard Pat reading on stage, and I was like, " Who do we know that has a voice that beautiful?"
+[00:15:58] Adam: I came upstairs during w00tstock. At this year's Comic Con, and I heard Pat reading on stage, and I was like, " Who do we know that has a voice that beautiful?"
 
 [00:16:08] Will: And then it was him. He's almost James Earl Jonesian. I wanted to just write, do an introduction for our stuff,
 
 [00:16:13] Adam: completely, and such a sweet guy. Anyway, he talks.
 
-[00:16:15] Will: He talks in his in his book about how in his books, one of his goals is to make you care so much about the character and so much about the things that the character cares about that something that's would be inconsequential in your day to day life is going to have a profound emotional impact. And the interesting thing about this, to me, is that you know this is a book that deals with 7 billion people being killed almost instantly,
+[00:16:15] Will: He talks in his book about how in his books, one of his goals is to make you care so much about the character and so much about the things that the character cares about that something that's would be inconsequential in your day to day life is going to have a profound emotional impact. And the interesting thing about this, to me, is that you know this is a book that deals with 7 billion people being killed almost instantly,
 
 [00:16:39] Adam: right?
 
@@ -348,15 +348,15 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:16:39] Adam: Yeah,
 
-[00:16:39] Will: that was that was definitely moving. But the human, the the tiniest of human losses, were the things that had the larger impact. The return of the Ymir and and the the the chaos of that of that return,
+[00:16:39] Will: that was definitely moving. But the human, the tiniest of human losses, were the things that had the larger impact. The return of the Ymir and the chaos of that return,
 
 [00:16:54] Adam: Yeah.
 
-[00:16:55] Will: the the the political inanity that I want to think in a situation where the survival of the species is at stake, we wouldn't have to deal with
+[00:16:55] Will: the political inanity that I want to think in a situation where the survival of the species is at stake, we wouldn't have to deal with
 
 [00:17:02] Adam: right.
 
-[00:17:02] Will: But but maybe we would.
+[00:17:02] Will: But maybe we would.
 
 [00:17:04] Adam: Most likely would.
 
@@ -394,11 +394,11 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:18:13] Will: like literally as the world is
 
-[00:18:14] Adam: as the world is ending. Neal has an an amazing ear for that that oscillation between the micro and the macro.
+[00:18:14] Adam: as the world is ending. Neal has an amazing ear for that that oscillation between the micro and the macro.
 
 [00:18:24] Will: It's just it's astounding because, like I said, the things that had the biggest impact were the smallest, smallest things, the loss of some robots or the you know something that that yeah
 
-[00:18:35] Adam: yeah. So there is there is the book is packed with these beautiful moments, and you are really wondering as you are reading it how it's going to how it's going to come about. Like, okay, so now I know the white rain is the hard rain is going to happen. So I am wondering when they're going to get to it, right? Like, are they going to get to it early? Because it feels at the beginning of the book like you are moving along at a very fast clip,
+[00:18:35] Adam: yeah. So there is the book is packed with these beautiful moments, and you are really wondering as you are reading it how it's going to come about. Like, okay, so now I know the white rain is the hard rain is going to happen. So I am wondering when they're going to get to it, right? Like, are they going to get to it early? Because it feels at the beginning of the book like you are moving along at a very fast clip,
 
 [00:18:59] Will: and is it going to be like a Michael Bay scene where? All of a sudden, there's there's basketball sized pieces of rock destroying cities left and right, and he kind of just skips over that.
 
@@ -420,7 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:19:40] Adam: Yes. Yes.
 
-[00:19:42] Will: Pacific Northwest. He he like that was one of the moments for me that I was just I was just weeping and had to stop reading the book because I was like you know he's he's literally the world is burning around him and he's taking the extra five minutes to say goodbye to his daughter and wish her luck before he runs across and locks himself in a vault underground
+[00:19:42] Will: Pacific Northwest. He like that was one of the moments for me that I was just weeping and had to stop reading the book because I was like you know he's literally the world is burning around him and he's taking the extra five minutes to say goodbye to his daughter and wish her luck before he runs across and locks himself in a vault underground
 
 [00:19:59] Adam: in a vault underground because he's a miner.
 
@@ -434,7 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:20:06] Will: Dinah
 
-[00:20:07] Adam: is it? Dinah, right? And Dinah is Dinah is the one who is using robots to mine Amalthea,
+[00:20:07] Adam: is it? Dinah, right? And Dinah is the one who is using robots to mine Amalthea,
 
 [00:20:13] Will: Yeah.
 
@@ -452,23 +452,23 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:20:36] Adam: We've gotten to the end of part one. Now that the hard rain has killed all of humanity and the remaining, what is it? A couple thousand?
 
-[00:20:42] Will: 1,500, I think, or 2,000. There's a there's a very Battlestar Galactica scene with this where they're talking about the the remainder of humanity being in these fragile little spaceships.
+[00:20:42] Will: 1,500, I think, or 2,000. There's a very Battlestar Galactica scene with this where they're talking about the remainder of humanity being in these fragile little spaceships.
 
-[00:20:56] Adam: I just didn't know where my phone was. I got I got nervous.
+[00:20:56] Adam: I just didn't know where my phone was. I got nervous.
 
-[00:20:58] Will: You got to know where your towel is. Yeah, there's this there's this amazing moment when they're like the enormity of hey all all of our 50,000 years of shared history is bundled up in these tiny little dinky spaceships
+[00:20:58] Will: You got to know where your towel is. Yeah, there's this amazing moment when they're like the enormity of hey all all of our 50,000 years of shared history is bundled up in these tiny little dinky spaceships
 
 [00:21:15] Adam: right
 
 [00:21:15] Will: that probably we maybe made some mistakes on the design of
 
-[00:21:19] Adam: right because they've also they've also packed all of human history all of the books all of the movies every bit of media humanity has generated and been able to send up to the to the space to the colony
+[00:21:19] Adam: right because they've also packed all of human history all of the books all of the movies every bit of media humanity has generated and been able to send up to the space to the colony
 
-[00:21:30] Will: the segment when when the Neil deGrasse Tyson character goes to Nepal and goes on like the so one of the things we didn't talk about at all is
+[00:21:30] Will: the segment when the Neil deGrasse Tyson character goes to Nepal and goes on like the so one of the things we didn't talk about at all is
 
 [00:21:39] Adam: the lottery
 
-[00:21:39] Will: the lottery is to bring the the best and the brightest children of the world from each culture
+[00:21:39] Will: the lottery is to bring the best and the brightest children of the world from each culture
 
 [00:21:45] Adam: yeah
 
@@ -484,7 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:21:58] Adam: They're smaller. They use less resources. They turn out to get less nauseous.
 
-[00:22:03] Will: It turns out you can make you know you you can make more people with them and not with the men.
+[00:22:03] Will: It turns out you can make you know you can make more people with them and not with the men.
 
 [00:22:07] Adam: Yes, it's definitely that's definitely going to be a thing. So there's two, and then there's two factions that end up existing up there in space after the destruction of the world. And one faction are the scientists and the engineers that make up Izzy and the infrastructure.
 
@@ -494,7 +494,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:22:35] Will: by launching literally constantly for indefinitely.
 
-[00:22:39] Adam: And as you would imagine, the getting up onto the swarm towards the end becomes hotly contested. Nukes are detonated on Earth in order to protect one of the launch sites on the west coast of of on the eastern coast of South America. It gets very very intense.
+[00:22:39] Adam: And as you would imagine, the getting up onto the swarm towards the end becomes hotly contested. Nukes are detonated on Earth in order to protect one of the launch sites on the west coast of on the eastern coast of South America. It gets very very intense.
 
 [00:22:57] Will: It basically like it starts to collapse.
 
@@ -508,7 +508,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:23:13] Adam: Yeah.
 
-[00:23:13] Will: And and just to be clear, we're talking about something that's literally going to boil the oceans from the earth,
+[00:23:13] Will: And just to be clear, we're talking about something that's literally going to boil the oceans from the earth,
 
 [00:23:17] Adam: right? For thousands of years.
 
@@ -516,17 +516,17 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:23:19] Adam: Yeah.
 
-[00:23:19] Will: So this is this was my least favorite part of the book, frankly. The this the the part two, just because I found the politicking between the Julia faction and the science faction.
+[00:23:19] Will: So this is this was my least favorite part of the book, frankly. The this the part two, just because I found the politicking between the Julia faction and the science faction.
 
 [00:23:30] Adam: It was so stressful,
 
 [00:23:31] Will: maddening.
 
-[00:23:31] Adam: It was super super stressful. Um. Um. And then you keep on wondering. So as you're reading, you know, it's it's like, the this is why books are better than movies, I think, on a kind of on a deep scale
+[00:23:31] Adam: It was super super stressful. And then you keep on wondering. So as you're reading it's like, the this is why books are better than movies, I think, on a kind of on a deep scale
 
-[00:23:45] Will: for for especially for stuff that has like nuance.
+[00:23:45] Will: for especially for stuff that has like nuance.
 
-[00:23:47] Adam: Well, yeah. Well, you in a movie, it's like if the if the actor who gets $20 million hasn't is is in danger, you kind of know he's not going to die.
+[00:23:47] Adam: Well, yeah. Well, you in a movie, it's like if the actor who gets $20 million hasn't is is in danger, you kind of know he's not going to die.
 
 [00:23:57] Will: Right.
 
@@ -536,11 +536,11 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:24:02] Adam: so you know this, but in in the in the book, you I I kept on wondering how are we going to get there from here? I know that this I knew as because everyone's been saying it: the moon blows up, the book spans 5,000 years. As soon as it starts, you know, a dozen years into the future or so, I realized, okay, at some point we're going to leap. I don't know when that leap is going to happen, and I don't know what it's going to look like. So you keep on wondering, and things just that whole part two, which is post destruction of the Earth, pre the leap 5,000 years. That whole part two is so stressful.
 
-[00:24:33] Will: It's the nadir. It's diving toward the diving toward the collapse, and
+[00:24:33] Will: It's the nadir. It's diving toward the collapse, and
 
-[00:24:38] Adam: and and you realize that that it really is you are in danger of losing everybody. You're in danger of the politicking causing horrifying rift. And
+[00:24:38] Adam: and you realize that that it really is you are in danger of losing everybody. You're in danger of the politicking causing horrifying rift. And
 
-[00:24:46] Will: this is so. This is where I thought it was a parable for politics in America, because you have this one side that that's that's seemingly trying to make the right decisions on both a short and a long term. And then another side that's completely willfully ignorant of your actual status and the where you are in the world that's making the decisions is right for them in the very short term.
+[00:24:46] Will: this is so. This is where I thought it was a parable for politics in America, because you have this one side that that's seemingly trying to make the right decisions on both a short and a long term. And then another side that's completely willfully ignorant of your actual status and the where you are in the world that's making the decisions is right for them in the very short term.
 
 [00:25:07] Adam: Right,
 
@@ -552,13 +552,13 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:25:09] Adam: decisions for the short term.
 
-[00:25:11] Will: with with bad information and right. And frankly, I wondered why they didn't just fire Julia out of the airlock about midway through part two.
+[00:25:11] Will: with bad information and right. And frankly, I wondered why they didn't just fire Julia out of the airlock about midway through part two.
 
 [00:25:19] Adam: Yeah,
 
 [00:25:19] Will: like yeah.
 
-[00:25:21] Adam: Again, as a commentary, I I I appreciate you know, like I said, I know Neal; he's a friend of mine, and I think we have very similar politics. And you know, he was making a real he was making a point, and it's a really good and important point.
+[00:25:21] Adam: Again, as a commentary, I I I appreciate like I said, I know Neal; he's a friend of mine, and I think we have very similar politics. And he was making a real he was making a point, and it's a really good and important point.
 
 [00:25:34] Will: Yeah,
 
@@ -566,7 +566,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:25:46] Will: That then the then a bad actor inside the swarm causes a hack that causes a massive, massive loss of life and and. And and resources
 
-[00:25:58] Adam: and slowly the the the life is continually diminished. The number of living bodies becomes more and more and more and more diminished,
+[00:25:58] Adam: and slowly the life is continually diminished. The number of living bodies becomes more and more diminished,
 
 [00:26:07] Will: and it dwindles. So this was one of the things that I loved about Battlestar was that number on the board in Roslin's office,
 
@@ -576,11 +576,11 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:26:14] Adam: yeah.
 
-[00:26:14] Will: So then then it goes up, and people are so happy,
+[00:26:14] Will: So then it goes up, and people are so happy,
 
 [00:26:17] Adam: yeah.
 
-[00:26:17] Will: Um, you look at this, and and during this time, there's just a sense of dread because I know even if like literally even if they manage to survive until they can find a place to to put greenhouses and to start growing plants and to start making algae into food, they're literally going to be subsisting on protein gruel for fifty, seventy, 100, 200 years.
+[00:26:17] Will: You look at this, and during this time, there's just a sense of dread because I know even if like literally even if they manage to survive until they can find a place to put greenhouses and to start growing plants and to start making algae into food, they're literally going to be subsisting on protein gruel for fifty, seventy, 100, 200 years.
 
 [00:26:42] Adam: Who knows?
 
@@ -592,13 +592,13 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:26:54] Adam: Yeah.
 
-[00:26:54] Will: And and then there's an even bigger divide between the cannibals and the not cannibals
+[00:26:54] Will: And then there's an even bigger divide between the cannibals and the not cannibals
 
 [00:26:59] Adam: that gets really intense.
 
 [00:27:01] Will: It's yeah.
 
-[00:27:02] Adam: Basically, there becomes this point at which the the the last surviving members on Izzy manage. So the Elon Musk character comes back with water in the form of an asteroid, and it's brilliantly. Again, this is where it comes into sort of Martian territory because they basically take a one-way trip to an asteroid that's close but quite far.
+[00:27:02] Adam: Basically, there becomes this point at which the last surviving members on Izzy manage. So the Elon Musk character comes back with water in the form of an asteroid, and it's brilliantly. Again, this is where it comes into sort of Martian territory because they basically take a one-way trip to an asteroid that's close but quite far.
 
 [00:27:28] Will: Right,
 
@@ -624,7 +624,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:28:10] Adam: Right.
 
-[00:28:10] Will: Probably badly. Um. Or if you can stay in low Earth orbit and just keep dodging rocks for a few thousand years, but the the amount of attrition that happened in the first 10 years of that,
+[00:28:10] Will: Probably badly. Or if you can stay in low Earth orbit and just keep dodging rocks for a few thousand years, but the amount of attrition that happened in the first 10 years of that,
 
 [00:28:21] Adam: right,
 
@@ -640,7 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:28:49] Adam: Okay. And
 
-[00:28:51] Will: but but but it's something they can. The the long term goal is to move into this cleft in the rock
+[00:28:51] Will: but it's something they can. The long term goal is to move into this cleft in the rock
 
 [00:28:55] Adam: Right.
 
@@ -666,7 +666,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:29:22] Will: And life finds a way.
 
-[00:29:23] Adam: Yes. Right. And there becomes this moment at which, and it's one of the it's I've read thousands of books. This is one of my favorite reveals I have ever come across in literature. I must. I and and it is the title of the book as you realize that there are seven women left and they are the seven eves.
+[00:29:23] Adam: Yes. Right. And there becomes this moment at which, and it's one of the it's I've read thousands of books. This is one of my favorite reveals I have ever come across in literature. I must. I and it is the title of the book as you realize that there are seven women left and they are the seven eves.
 
 [00:29:44] Will: Seven women of childbearing age.
 
@@ -674,9 +674,9 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:29:50] Will: So literally, I just got chills.
 
-[00:29:51] Adam: I know I'm getting a little choked up. So I I. I came to this part of the book. It was about 2:30 in the morning of the weekend. I was polishing it off, and I just—I literally dropped the book and openly wept. I just—I couldn't believe how lovely that that that construction was. Of course, of course, of course.
+[00:29:51] Adam: I know I'm getting a little choked up. So I I. I came to this part of the book. It was about 2:30 in the morning of the weekend. I was polishing it off, and I just—I literally dropped the book and openly wept. I just—I couldn't believe how lovely that that that construction was. Of course.
 
-[00:30:09] Will: But I mean, it's it's it highlights the fragility of our existence as a whole.
+[00:30:09] Will: But I mean, it's it highlights the fragility of our existence as a whole.
 
 [00:30:17] Adam: Yeah.
 
@@ -684,19 +684,19 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:30:18] Adam: Yeah.
 
-[00:30:18] Will: Like we're one bad asteroid away from from never existing. Yeah.
+[00:30:18] Will: Like we're one bad asteroid away from never existing. Yeah.
 
 [00:30:22] Adam: Exactly.
 
-[00:30:22] Will: Um. And and the responsibility that we all have to make sure that that continues. And it it came like this is the situation. The seven the seven women that are left, two of them are on the Julia side, including Julia.
+[00:30:22] Will: And the responsibility that we all have to make sure that that continues. And it came like this is the situation. The seven women that are left, two of them are on the Julia side, including Julia.
 
 [00:30:34] Adam: Yeah.
 
-[00:30:34] Will: Um. And and you know they had the option. They have the option to hey let's let's get rid of the bad people
+[00:30:34] Will: And you know they had the option. They have the option to hey let's let's get rid of the bad people
 
 [00:30:43] Adam: right
 
-[00:30:43] Will: and start from scratch. But we're only have five people left. Like no the the math is really bad on that.
+[00:30:43] Will: and start from scratch. But we're only have five people left. Like no the math is really bad on that.
 
 [00:30:48] Adam: The math is terrible.
 
@@ -710,7 +710,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:30:56] Will: So they start and they they basically come to this agreement. They they literally have a conversation that could have ended with " fuck it, we're shutting the whole thing down. This is the end of the human race. We had a good run, but you guys, I can't. I'm going to blow this place up because I can't take you people anymore.
 
-[00:31:10] Adam: Exactly. They make them come to a. They make they they they come to a decision, and that decision almost immediately you jump 5,000 years into the future.
+[00:31:10] Adam: Exactly. They make them come to a. They make they come to a decision, and that decision almost immediately you jump 5,000 years into the future.
 
 [00:31:19] Will: But the decision is interesting of itself. The decision is that we're going to use the technology we have to genetically modify ourselves, and we each get to choose one trait,
 
@@ -722,7 +722,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:31:36] Will: But if you want people to be smarter, if you want them to be more compassionate, if you want them to be whatever, we have this is this is a huge leap, obviously, but yeah, yeah. The upshot is it's it's an amazing setup for part three.
 
-[00:31:46] Adam: So riveting, and then part three. I I'm not sure we have time here. I mean, I don't want to cover too much of part three here, but it it like.
+[00:31:46] Adam: So riveting, and then part three. I I'm not sure we have time here. I mean, I don't want to cover too much of part three here, but it like.
 
 [00:31:55] Will: We could save part three for Norm too.
 
@@ -732,13 +732,13 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:31:58] Adam: let's do that. Because Norm, it's time for finishing. It's time for finishing Seveneves.
 
-[00:32:04] Will: Screaming at their radios right now. I, um, the thing I will say about the the the book in general is that he left a lot of, not exactly loose ends, but kind of hanging ends that are
+[00:32:04] Will: Screaming at their radios right now. I the thing I will say about the book in general is that he left a lot of, not exactly loose ends, but kind of hanging ends that are
 
 [00:32:15] Adam: plenty of hanging. And he wanted to. I mean, yeah, and
 
 [00:32:19] Will: he's not much of a sequel guy, generally speaking.
 
-[00:32:21] Adam: No, but but this is a mature world that he developed to have long-ranging and far-reaching, plots and implications and other explorations. Um, and there's tons when you finally get to part three. There's tons that's not dealt with.
+[00:32:21] Adam: No, but this is a mature world that he developed to have long-ranging and far-reaching, plots and implications and other explorations. And there's tons when you finally get to part three. There's tons that's not dealt with.
 
 [00:32:36] Will: Right,
 
@@ -746,29 +746,29 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:32:37] Will: what happened to the Martians, Adam?
 
-[00:32:39] Adam: Right, exactly. Um, it's also incredibly optimistic.
+[00:32:39] Adam: Right, exactly. It's also incredibly optimistic.
 
 [00:32:44] Will: I thought so.
 
-[00:32:45] Adam: Science fiction, and it's it's very optimistic about the tenacity of life in general and humanity specifically.
+[00:32:45] Adam: Science fiction, and it's very optimistic about the tenacity of life in general and humanity specifically.
 
-[00:32:51] Will: It's it's a it's um. I mean, the first part was the part one was an incredible page turner for me. I literally couldn't stop. Part two was incredibly depressing. Yeah, just because I
+[00:32:51] Will: It's a it's. I mean, the first part was the part one was an incredible page turner for me. I literally couldn't stop. Part two was incredibly depressing. Yeah, just because I
 
-[00:33:04] Adam: totally agree. And the and and and the the getting and maybe that's what makes the reveal of the title why the title is what it is so intense is because you've endured so much stress to get to this. You realize, I guess that's it. You realize, oh right, humanity will survive, and it will survive because of these seven women.
+[00:33:04] Adam: totally agree. And the getting and maybe that's what makes the reveal of the title why the title is what it is so intense is because you've endured so much stress to get to this. You realize, I guess that's it. You realize, oh right, humanity will survive, and it will survive because of these seven women.
 
 [00:33:25] Will: Right.
 
 [00:33:27] Adam: For good or ill, they have decided to make that that call. And when you realize that you're done with this stressful part and you get to move forward, it's such a relief.
 
-[00:33:37] Will: And then there's this amazing adventure in the in the third
+[00:33:37] Will: And then there's this amazing adventure in the third
 
-[00:33:39] Adam: third part, and the adventure is wonderful. I I want to read sequels. I want to see more about.
+[00:33:39] Adam: third part, and the adventure is wonderful. I want to read sequels. I want to see more about.
 
-[00:33:44] Will: I I will read as many books as he produces in this yeah in this world
+[00:33:44] Will: I will read as many books as he produces in this yeah in this world
 
 [00:33:47] Adam: or television
 
-[00:33:48] Will: series whatever. I mean, I mean, like look, you can make a cartoon with. Cardboard cut. You can make South Park style cartoon. I'll watch that. I'm
+[00:33:48] Will: series whatever. I mean, like look, you can make a cartoon with. Cardboard cut. You can make South Park style cartoon. I'll watch that. I'm
 
 [00:33:56] Adam: So Please don't recommend the spoiler part of the spoiler cast to anyone who hasn't read this book. Really seriously, you got to read it. That reveal. Don't spoil the title for anybody.
 
@@ -792,7 +792,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:34:36] Adam: It is. Don't even tell her that that chick in the crying game is a man.
 
-[00:34:40] Will: Here's the thing. If people ask, if you recommend the book to people, tell them the moon blows up in the first sentence, and it's about it's about you know society and human civilization collapsing. Yeah. That's enough. If people don't want to read it based on that, they're not going to want to read it. Right. So,
+[00:34:40] Will: Here's the thing. If people ask, if you recommend the book to people, tell them the moon blows up in the first sentence, and it's about you know society and human civilization collapsing. Yeah. That's enough. If people don't want to read it based on that, they're not going to want to read it. Right. So,
 
 [00:34:56] Adam: so don't tell them there's a huge spoiler about the title.
 
@@ -800,13 +800,13 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:35:00] Adam: that secret between us.
 
-[00:35:01] Will: It's it's funny. I love like I have loved many many Neal Stephenson books over the years: Diamond Age, Snow Crash, Cryptonomicon. I even like the Baroque stuff, which is a little. And I love Anathem. I love Reamde.
+[00:35:01] Will: It's funny. I love like I have loved many many Neal Stephenson books over the years: Diamond Age, Snow Crash, Cryptonomicon. I even like the Baroque stuff, which is a little. And I love Anathem. I love Reamde.
 
 [00:35:14] Adam: Super wonderful.
 
 [00:35:15] Will: Yeah, this is far and away my favorite book that he's written.
 
-[00:35:19] Adam: Oh, that's a good question. I haven't even thought on that scale. But we we we we're going to have to get Neal onto the talk.
+[00:35:19] Adam: Oh, that's a good question. I haven't even thought on that scale. But we we're going to have to get Neal onto the talk.
 
 [00:35:24] Will: I would. We've
 
@@ -814,11 +814,11 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:35:26] Will: it. We we've gotten halfway there, and then yeah, yeah.
 
-[00:35:27] Adam: We're going to get Neal onto the talking room because he's he's a friend of tested friend of mine, and he's wonderful.
+[00:35:27] Adam: We're going to get Neal onto the talking room because he's a friend of tested friend of mine, and he's wonderful.
 
 [00:35:33] Will: I want to. I want to. Yeah. I mean, he's not going. He's good. I mean, go and tell you. He's not going to tell you anything that you want to know about the book. Oh,
 
-[00:35:41] Adam: that's that's fine. Which
+[00:35:41] Adam: that's fine. Which
 
 [00:35:42] Will: is fine.
 
@@ -828,7 +828,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:35:46] Adam: Absolutely.
 
-[00:35:46] Will: So anyway, I hope you enjoyed the spoiler cast. We'll do the we'll do the part three spoiler cast with Norm.
+[00:35:46] Will: So anyway, I hope you enjoyed the spoiler cast. We'll do the part three spoiler cast with Norm.
 
 [00:35:52] Adam: We will do the part three spoiler cast with Norm. So it's a two part spoiler cast.
 

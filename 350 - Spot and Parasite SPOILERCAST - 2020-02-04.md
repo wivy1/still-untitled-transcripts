@@ -46,7 +46,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:02:06] Adam: he's the one that does the Jose Jimenez.
 
-[00:02:09] Will: It's it's uh it's the guy who plays Gus Grissom, right?
+[00:02:09] Will: It's the guy who plays Gus Grissom, right?
 
 [00:02:12] Norm: I believe
 
@@ -62,7 +62,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:02:28] Norm: with buzz cuts.
 
-[00:02:29] Adam: Well, they set the archetype. also, also, it's a murderer's row of great actors like Lance Henriksen is in there, like buried. You know, you forget all these amazing people.
+[00:02:29] Adam: Well, they set the archetype. also, also, it's a murderer's row of great actors like Lance Henriksen is in there, like buried. You forget all these amazing people.
 
 [00:02:36] Will: I haven't watched that in probably 15 years. I should go back and watch it.
 
@@ -82,9 +82,9 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:03:00] Will: here in San Francisco.
 
-[00:03:00] Adam: Yeah, so Colossal Pictures, which was down off of Quint Street, where I worked with Jamie Hyneman in the early '90s, Colossal Pictures in the in the in the '80s when they made the right stuff, did all the special effects. And when they needed that long hallway shot, there is that long factory building in Dogpatch on the east side of 3rd Street.
+[00:03:00] Adam: Yeah, so Colossal Pictures, which was down off of Quint Street, where I worked with Jamie Hyneman in the early '90s, Colossal Pictures in the '80s when they made the right stuff, did all the special effects. And when they needed that long hallway shot, there is that long factory building in Dogpatch on the east side of 3rd Street.
 
-[00:03:21] Will: Oh, the the American Building is where they shot that?
+[00:03:21] Will: Oh, the American Building is where they shot that?
 
 [00:03:23] Adam: Yeah, there's just a 1,200 foot long hallway, and that's where they shot that.
 
@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:04:16] Will: Yeah, Norm Norm's a good grip.
 
-[00:04:17] Norm: We'll bring a we'll bring a robot.
+[00:04:17] Norm: We'll bring a robot.
 
 [00:04:18] Adam: That's really really exciting, and we could bring a robot.
 
@@ -146,7 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:04:36] Norm: You have one for this whole year.
 
-[00:04:39] Adam: For this whole year, we are developing for him. We are going to give him some new skills, and we are going to also help him walk out of the uncanny valley, hopefully, so that he doesn't creep people out. Because when I see Spot, I see a magnificent piece of engineering and a solution to. Really interesting problems that we might not have even encountered yet, and I I see a future that I like. A lot of people, when they see Spot, they they see a different narrative, and I get it. I get why they see that narrative, and I know that they're affected by things like Metalhead, the beautiful season four episode of Black Mirror. But I would like everyone to see the engineering feat that I witnessed when I see it.
+[00:04:39] Adam: For this whole year, we are developing for him. We are going to give him some new skills, and we are going to also help him walk out of the uncanny valley, hopefully, so that he doesn't creep people out. Because when I see Spot, I see a magnificent piece of engineering and a solution to. Really interesting problems that we might not have even encountered yet, and I I see a future that I like. A lot of people, when they see Spot, they see a different narrative, and I get it. I get why they see that narrative, and I know that they're affected by things like Metalhead, the beautiful season four episode of Black Mirror. But I would like everyone to see the engineering feat that I witnessed when I see it.
 
 [00:05:21] Will: You're trying to get on the good side of the robots before they come for us.
 
@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:05:38] Adam: It's not big dog.
 
-[00:05:38] Norm: It's not big dog. It has a very specific purpose. Now it inherits a lot of the engineering and design philosophy that went into those, but this is this is for very specific purpose. It is for surveying. It's for construction. It's for industry use. It's a tool.
+[00:05:38] Norm: It's not big dog. It has a very specific purpose. Now it inherits a lot of the engineering and design philosophy that went into those, but this is for very specific purpose. It is for surveying. It's for construction. It's for industry use. It's a tool.
 
 [00:05:55] Adam: And it's an it's a you know and it is it's very much a tool with very few attachments right now like it doesn't map the room it looks at the ground in front of it and figures out how to move over it without incident. It took me a couple of weeks of having it here because we've had it now for a few
 
@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:06:48] Adam: I can't. It can't be manually controlled.
 
-[00:06:49] Norm: Yeah, so there is this controller with a screen. It's essentially an Android tablet with. Two sticks, you know, almost like a video game controller, and you can use a two stick control to to pilot it.
+[00:06:49] Norm: Yeah, so there is this controller with a screen. It's essentially an Android tablet with. Two sticks almost like a video game controller, and you can use a two stick control to pilot it.
 
 [00:07:00] Adam: Yeah,
 
@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:07:03] Adam: And you can, and you're seeing what Spot sees. You're seeing the view of the world that he is witnessing.
 
-[00:07:07] Norm: So it has kind of structured light sensors, so infrared and and and and visions. These
+[00:07:07] Norm: So it has kind of structured light sensors, so infrared and visions. These
 
 [00:07:14] Adam: there's some laser scanning going on.
 
@@ -202,17 +202,17 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:07:18] Will: It's bounce back
 
-[00:07:19] Norm: right? So it's it's very much like the Microsoft Kinect or the Intel RealSense cameras, and it has an array of those all around. So that's where I think the magic in it is how easily it lets you control it, direct it without having to think about things like obstacles.
+[00:07:19] Norm: right? So it's very much like the Microsoft Kinect or the Intel RealSense cameras, and it has an array of those all around. So that's where I think the magic in it is how easily it lets you control it, direct it without having to think about things like obstacles.
 
 [00:07:37] Adam: What if it bumps into this thing? How's it going to make it over that obstacle?
 
-[00:07:40] Will: When you were showing it to me, and you just tapped on a section of the floor from your shop end of the shop to like by the by the pool table,
+[00:07:40] Will: When you were showing it to me, and you just tapped on a section of the floor from your shop end of the shop to like by the pool table,
 
 [00:07:47] Adam: yeah,
 
-[00:07:47] Will: and it just was like, okay, I got this, and walked over there, and kind of shimmyed over to the left to avoid an obstacle, and then walked around, and then got to where it was supposed to be, and then you did the same thing by backing it up, and I was just like, oh. Okay, this is this this this works better than I expected.
+[00:07:47] Will: and it just was like, okay, I got this, and walked over there, and kind of shimmyed over to the left to avoid an obstacle, and then walked around, and then got to where it was supposed to be, and then you did the same thing by backing it up, and I was just like, oh. Okay, this is this works better than I expected.
 
-[00:08:01] Adam: You know the the Boston Dynamics folks have been friends of mine for a few years, and we've had a lot of time to to to get to know each other. And I've been seeing, I've been following their progress actually since the early '90s. That's the first time Marc Raibert's early work came across my came across my attention, and it's so exciting to have him here. We turn him on every day. We play around with different things. We have a whole bunch of different plans for him. And just like a good any good TV show, there are some things we want to do that are part of an overall plot, and there are some bottle episodes. I even have an idea for helping him to poop.
+[00:08:01] Adam: You know the Boston Dynamics folks have been friends of mine for a few years, and we've had a lot of time to get to know each other. And I've been seeing, I've been following their progress actually since the early '90s. That's the first time Marc Raibert's early work came across my attention, and it's so exciting to have him here. We turn him on every day. We play around with different things. We have a whole bunch of different plans for him. And just like a good any good TV show, there are some things we want to do that are part of an overall plot, and there are some bottle episodes. I even have an idea for helping him to poop.
 
 [00:08:41] Will: Stars, perhaps
 
@@ -220,9 +220,9 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:08:44] Will: Okay.
 
-[00:08:46] Adam: but yeah, the video, the first video is up is a is a little taste, and I'm very excited how well the video has done.
+[00:08:46] Adam: but yeah, the video, the first video is up is a little taste, and I'm very excited how well the video has done.
 
-[00:08:52] Norm: And I think the the response, I mean, there's a response online, also the response in person. I want to talk about both of those. Like people have already come up by watching the video with. A lot of like the same direction. They know when they see you and Spot together. Of course, there's going to be, you know, people cosplay, cosplay, cosplay, and then we're thinking in those terms, right?
+[00:08:52] Norm: And I think the response, I mean, there's a response online, also the response in person. I want to talk about both of those. Like people have already come up by watching the video with. A lot of like the same direction. They know when they see you and Spot together. Of course, there's going to be people cosplay, cosplay, cosplay, and then we're thinking in those terms, right?
 
 [00:09:09] Adam: We are. I mean, one of the lovely things about producing a series like we are currently producing is we know what the expectations are, and it's really fun to both meet them and change them and modify them. That's actually some of the most fun of the storytelling.
 
@@ -248,11 +248,11 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:10:05] Unknown speaker (Will or Norm): Okay.
 
-[00:10:05] Adam: And I also may. I started playing around in my head with some acronyms or ideas about a name that could be specific to him. People keep asking, " What's what's the name?" And my feeling is, unless and until, right, like something. If something naturally occurs, it will occur, and if it doesn't, it doesn't.
+[00:10:05] Adam: And I also may. I started playing around in my head with some acronyms or ideas about a name that could be specific to him. People keep asking, " What's what's the name?" And my feeling is, unless and until, right, like something. If something naturally occurs, it will occur, and if it doesn't.
 
 [00:10:23] Unknown speaker (Will or Norm): Yeah.
 
-[00:10:23] Adam: But people, they see it on the street and immediately pull out their phones, like " Holy cow!" Like just watching it. But the best is children seeing it. Like it's not like children have a great scope of all the things that are going on in the world, but they see this thing on the street and like they can tell something really remarkable is happening in front of them, and their brains kind of like. It's it's It's a smile of
+[00:10:23] Adam: But people, they see it on the street and immediately pull out their phones, like " Holy cow!" Like just watching it. But the best is children seeing it. Like it's not like children have a great scope of all the things that are going on in the world, but they see this thing on the street and like they can tell something really remarkable is happening in front of them, and their brains kind of like. It's a smile of
 
 [00:10:48] Will: it's the thing. It's the look on kids' faces they got when they get went to Maker Faire. Like you're walking around Maker Faire and a kid sees R2-D2 rolling up toward them,
 
@@ -260,7 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:10:54] Will: It's. This is real. Yeah, that's so cool.
 
-[00:11:00] Adam: The thing that I want to tease before we move off of Spot is that with the things we want to do with him this year, we are rounding up a number of collaborators to help in this endeavor. That is truly exciting. And, And old colleagues of mine, and friends, and people I admire.
+[00:11:00] Adam: The thing that I want to tease before we move off of Spot is that with the things we want to do with him this year, we are rounding up a number of collaborators to help in this endeavor. That is truly exciting. And old colleagues of mine, and friends, and people I admire.
 
 [00:11:17] Norm: I think we can go as far to say, like a lot of the people we know work in the business of imagining the future, whether it's actually building the machines and engineering,
 
@@ -278,17 +278,17 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:11:58] Adam: It's really
 
-[00:11:59] Norm: because they don't have to worry about the engineering when they're when they're coming up with those stories,
+[00:11:59] Norm: because they don't have to worry about the engineering when they're coming up with those stories,
 
-[00:12:03] Adam: right? So we're taking a piece of of it's it's like science fiction and the real world have real world have intersected in a in a really thrilling way.
+[00:12:03] Adam: right? So we're taking a piece of it's like science fiction and the real world have intersected in a really thrilling way.
 
-[00:12:11] Norm: And you saw you saw it in the video. I don't know if I mean it must have been intentional, but the way when when any of us operated, our natural inclination is try to puppet it. Like their spot has a has a head tilt, and I don't know, it has a functional purpose in terms of the way the legs can move and move around things. But we all want to kind of give it that head tilt,
+[00:12:11] Norm: And you saw it in the video. I don't know if I mean it must have been intentional, but the way when any of us operated, our natural inclination is try to puppet it. Like their spot has a head tilt, and I don't know, it has a functional purpose in terms of the way the legs can move and move around things. But we all want to kind of give it that head tilt,
 
 [00:12:31] Adam: yeah,
 
-[00:12:31] Norm: and have it like perch up and and and and sit, and that's some of the most fun we've had so far.
+[00:12:31] Norm: and have it like perch up and sit, and that's some of the most fun we've had so far.
 
-[00:12:38] Adam: Indeed, indeed, and I mean we haven't even started to play with its kinematics of how it moves, and that's definitely going to be something we we delve into.
+[00:12:38] Adam: Indeed, indeed, and I mean we haven't even started to play with its kinematics of how it moves, and that's definitely going to be something we delve into.
 
 [00:12:46] Will: I I can't wait to see more. It's it's been fascinating watching.
 
@@ -318,13 +318,13 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:13:42] Norm: It's so subjective, and all I'm sure nothing, everything here is like. Why isn't this film in there?
 
-[00:13:47] Adam: I mean, I'm sure, I'm sure that. But then when you look at the channel, you see all the different ways he's intersected different directors with other directors to talk about film and to really go into the depth of how this came to be, why this is important, what does it mean culturally, what it means, you know. Plot-wise,
+[00:13:47] Adam: I mean, I'm sure that. But then when you look at the channel, you see all the different ways he's intersected different directors with other directors to talk about film and to really go into the depth of how this came to be, why this is important, what does it mean culturally, what it means. Plot-wise,
 
 [00:14:02] Will: from Armageddon to Zardoz, probably.
 
 [00:14:05] Adam: I will say, having a Samsung television, it was hard to get the Criterion Channel app on Samsung. They don't play together right now, and this is part of this weird sequestration. Who owns the standard landscape?
 
-[00:14:19] Will: Can we can we talk about this for a sec?
+[00:14:19] Will: Can we talk about this for a sec?
 
 [00:14:20] Adam: Yeah, I'm going to tell you what my fix was. If you have a Samsung TV, here's what works. It it's not enough to just sign up for the Roku app on the Samsung apps. You actually have to get an external Roku stick.
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:14:49] Will: brilliant. HDMI-CEC stuff does that. Yeah.
 
-[00:14:51] Adam: And then I've been I've been obsessed with it. So actually, I said the the the Night Huxley passed. I wanted a mood of a film, so I watched. Wong Kar-wai's in the mood for love, which was exactly the right thing for me at that moment in time. Last night, when I couldn't get sleep because my sleep patterns are still abysmal.
+[00:14:51] Adam: And then I've been obsessed with it. So actually, I said the Night Huxley passed. I wanted a mood of a film, so I watched. Wong Kar-wai's in the mood for love, which was exactly the right thing for me at that moment in time. Last night, when I couldn't get sleep because my sleep patterns are still abysmal.
 
 [00:15:09] Will: Ruined.
 
@@ -356,7 +356,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:16:07] Adam: right? Right.
 
-[00:16:08] Will: Like, and that's that's the thing we use because I kind of trust Apple with privacy stuff.
+[00:16:08] Will: Like, and that's the thing we use because I kind of trust Apple with privacy stuff.
 
 [00:16:10] Adam: Yeah.
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:16:14] Adam: don't know if it's justified or not.
 
-[00:16:15] Will: Yeah, don't know. I'd be interested to hear what people think. That's why I'm bringing it up because I don't know anything about it. I haven't I haven't done the research yet. We were working on an episode of Tech Pod about that, and I would love to get feedback from people who maybe know more. Um, and you can hit me on Twitter or comments. I'll read comments.
+[00:16:15] Will: Yeah, don't know. I'd be interested to hear what people think. That's why I'm bringing it up because I don't know anything about it. I haven't done the research yet. We were working on an episode of Tech Pod about that, and I would love to get feedback from people who maybe know more. And you can hit me on Twitter or comments. I'll read comments.
 
 [00:16:28] Norm: And Criterion had to spin up their own service because previously they were part of Filmstruck. We've championed that for it. Unfortunately, went away, and this was the the response for that to to take that collection, the licenses they have to allow you to watch, you know, the selection of film otherwise you would not be able to find anywhere.
 
@@ -372,7 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:16:49] Will: oh, good,
 
-[00:16:49] Adam: yeah, it has. It's been really, really stunning. Um, and seriously, if you're wondering whether you should sign up for Criterion, you do. It's a stunning film education in a channel with beautiful prints. Uh, really like it's just great. It's like I'm I'm just cracking the the surface of it now.
+[00:16:49] Adam: yeah, it has. It's been really, really stunning. And seriously, if you're wondering whether you should sign up for Criterion, you do. It's a stunning film education in a channel with beautiful prints. Really like it's just great. It's like I'm I'm just cracking the surface of it now.
 
 [00:17:07] Will: I didn't know it was live yet, so I'm going to go sign up as soon as we go as soon as I get home.
 
@@ -386,9 +386,9 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:17:20] Adam: Next time he's here, we totally have him on the podcast
 
-[00:17:23] Norm: and and ask him when is a movie like Parasite going to hit Criterion Collection?
+[00:17:23] Norm: and ask him when is a movie like Parasite going to hit Criterion Collection?
 
-[00:17:27] Adam: Well, and Bong Joon Ho has is interviewed a bunch on on in different in different things on this. Um, thanks for the
+[00:17:27] Adam: Well, and Bong Joon Ho has is interviewed a bunch on in different things on this. Thanks for the
 
 [00:17:34] Norm: I know.
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:18:02] Adam: And. My son, thing two, was playing with us, and he was like 19 at the time. And the only time I was a werewolf, he could tell I was the werewolf because he was the seer, and I somehow managed to convince people that not only was I not a werewolf, but he was not the seer, and it unhinged him being so duplicitously like slammed by me in competition.
 
-[00:18:28] Will: We play one night ultimate, which is basically no sleeps. You just do. You get one one night of werewolf, and then it's done. And they they build a bunch of extra rules roles.
+[00:18:28] Will: We play one night ultimate, which is basically no sleeps. You just do. You get one one night of werewolf, and then it's done. And they build a bunch of extra rules roles.
 
 [00:18:36] Adam: Oh, wow.
 
@@ -424,7 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:18:47] Adam: Yeah.
 
-[00:18:47] Will: Um, we play with my seven-year-old.
+[00:18:47] Will: We play with my seven-year-old.
 
 [00:18:49] Adam: Oh wow!
 
@@ -442,11 +442,11 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:19:17] Unknown speaker (Will or Norm): I cannot.
 
-[00:19:18] Adam: a parasite. Um, I've been dying to talk about this film because so Ben Acker, friend of the channel and good friend of mine, half of Acker and Blacker, the writers of Thrilling Adventure Hour, among many other things,
+[00:19:18] Adam: a parasite. I've been dying to talk about this film because so Ben Acker, friend of the channel and good friend of mine, half of Acker and Blacker, the writers of Thrilling Adventure Hour, among many other things,
 
 [00:19:31] Will: delightful human being.
 
-[00:19:32] Adam: Um, one of the things I love, we all know how fun it is to talk to screenwriters about film, right? To hear what someone who is immersed in the mechanics of it thinks about various things. And one of the things I love about Ben and the way he talks about it is, it's always about character for him. Character, character, character. He doesn't give a shit about plots if it's not about the characters and what they're what was actually happening because of the characters. And
+[00:19:32] Adam: One of the things I love, we all know how fun it is to talk to screenwriters about film, right? To hear what someone who is immersed in the mechanics of it thinks about various things. And one of the things I love about Ben and the way he talks about it is, it's always about character for him. Character, character, character. He doesn't give a shit about plots if it's not about the characters and what they're what was actually happening because of the characters. And
 
 [00:19:55] Will: it took me 40 years to get to that spot, just for the record.
 
@@ -456,19 +456,19 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:20:24] Unknown speaker (Will or Adam): [Just for a little bit, okay? / You're gonna spread this out over two?]
 
-[00:20:26] Norm: No, no, we'll get to the we'll get to the spoilers. The movie, undoubtedly, I mean, it's it's not a horror film; it's a thriller.
+[00:20:26] Norm: No, no, we'll get to the spoilers. The movie, undoubtedly, I mean, it's not a horror film; it's a thriller.
 
-[00:20:33] Adam: But wait, wait, wait! Just before we even get to spoilers, even talking generally about the film is a is a is a tiny bit of a spoiler. I would recommend that if you really are excited about seeing it, maybe turn this off now,
+[00:20:33] Adam: But wait, wait, wait! Just before we even get to spoilers, even talking generally about the film is a tiny bit of a spoiler. I would recommend that if you really are excited about seeing it, maybe turn this off now,
 
 [00:20:47] Norm: yeah,
 
 [00:20:47] Adam: because the less you know, the more thrilling the film is to be sure. And I can't wait to watch it a second time because I am sure it's a wholly different experience.
 
-[00:20:54] Norm: And it's in theaters in in the states because of the Oscar campaign.
+[00:20:54] Norm: And it's in theaters in the states because of the Oscar campaign.
 
 [00:20:58] Adam: Yeah.
 
-[00:20:58] Norm: Um. So it is a hat on a hat, though. Um. Which is the convention to say that you know they they take something literal, and and it it is also the metaphor. So the fact that people live there is a class system, and people literally live under people.
+[00:20:58] Norm: So it is a hat on a hat, though. Which is the convention to say that you know they take something literal, and it is also the metaphor. So the fact that people live there is a class system, and people literally live under people.
 
 [00:21:13] Adam: Yeah.
 
@@ -484,7 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:21:39] Adam: And Snowpiercer. and he plays with all of your expectations all the time you meet a new character and you think oh I think they're kind of like this and then you find out oh no they're totally the opposite of that actually they're also like that
 
-[00:21:53] Norm: there are two families in the film let's talk about the the the main protagonist family the
+[00:21:53] Norm: there are two families in the film let's talk about the main protagonist family the
 
 [00:22:01] Adam: the main protagonist family is a a husband and a wife and their son and their their adult son and adult daughter
 
@@ -510,15 +510,15 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:22:17] Adam: There's no. There's there's not even a ton to suggest that they're actually related. These four.
 
-[00:22:24] Will: I I that was unclear to me for a pretty substantial part of the film.
+[00:22:24] Will: I that was unclear to me for a pretty substantial part of the film.
 
 [00:22:28] Adam: I submit that they might not be, and that the film.
 
-[00:22:32] Norm: I see that point, but I think that the the bond that they have,
+[00:22:32] Norm: I see that point, but I think that the bond that they have,
 
 [00:22:39] Adam: yeah,
 
-[00:22:39] Norm: and the maybe the cultural need for like the you know the father, the the parental children relationship.
+[00:22:39] Norm: and the maybe the cultural need for like the you know the father, the parental children relationship.
 
 [00:22:46] Adam: Yeah.
 
@@ -530,7 +530,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:23:02] Adam: And the other family is a very wealthy family.
 
-[00:23:05] Norm: Yeah, so the Kim family is the the poor family, and then the the wealthy family is the the Park family, and
+[00:23:05] Norm: Yeah, so the Kim family is the poor family, and then the wealthy family is the Park family, and
 
 [00:23:10] Adam: the Park family lives in this. Amazing architectural masterpiece of a house,
 
@@ -540,7 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:23:19] Norm: Yeah.
 
-[00:23:19] Adam: Because where light falls in eye lines, like Bong Joon Ho had diagrams in the script as he was writing about eye lines from the staircase to the kitchen to the thing to the thing, and there was they looked for a house and very quickly realized they weren't going to find it, and then they went to the lot where they built the house and spent days tracking where the sun was going and built the orientation of the house to accommodate for the sun based on the plot.
+[00:23:19] Adam: Because where light falls in eye lines, like Bong Joon Ho had diagrams in the script as he was writing about eye lines from the staircase to the kitchen to the thing, and there was they looked for a house and very quickly realized they weren't going to find it, and then they went to the lot where they built the house and spent days tracking where the sun was going and built the orientation of the house to accommodate for the sun based on the plot.
 
 [00:23:45] Norm: Wow.
 
@@ -564,15 +564,15 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:24:19] Adam: The idea that every space that you, pretty much every space that you are witnessing in that film, is a space completely constructed, is kind of astounding.
 
-[00:24:28] Will: Well, and the different locations have entirely different, like they're it's almost shot like different films, right? Like the basement, the basement set is shot in a very grungy kind of
+[00:24:28] Will: Well, and the different locations have entirely different, like they're it's almost shot like different films, right? Like the basement set is shot in a very grungy kind of
 
 [00:24:38] Adam: Chernobyl kind of way.
 
-[00:24:39] Will: Um, I, I was gonna say like a '70s, like a like a '70s,
+[00:24:39] Will: I was gonna say like a '70s, like a '70s,
 
 [00:24:44] Adam: like an Alan Pakula film, or something like that.
 
-[00:24:45] Will: yeah, yeah, yeah. Whereas the other the the expensive home is shot, um, almost almost like like the Island, like not like a Michael Bay film, but like you know how the island had that whole golden hour, like the whole thing felt like it was shot in the golden hour. It's a terrible.
+[00:24:45] Will: yeah, yeah, yeah. Whereas the other the expensive home is shot almost like the Island, like not like a Michael Bay film, but you know how the island had that whole golden hour the whole thing felt like it was shot in the golden hour. It's a terrible.
 
 [00:24:59] Adam: Ewan McGregor film?
 
@@ -600,7 +600,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:25:32] Adam: It's very Fincherian. You're right. You're completely right. I just made that word up. Fincherian.
 
-[00:25:36] Will: Yeah, sounds good. To be like a Finch or David Finch. See also, see also the goldfinch.
+[00:25:36] Will: Yeah, sounds good. To be like a Finch or David Finch. See also the goldfinch.
 
 [00:25:43] Adam: See also Peter Finch.
 
@@ -608,7 +608,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:25:50] Adam: So it's a film in which these two families intersect, and it is the intersection is mostly about class, more than it is about sexuality or romance or friendship. However, those all play some role in it, but it's really deeply about class to me. That's what I took away from it, and I'm not actually sure what the film stance on class is. Right, that's the kind of the ambiguity that's baked right into the entire thing.
 
-[00:26:24] Norm: Uh. And or who who you are supposed to be rooting for?
+[00:26:24] Norm: And or who who you are supposed to be rooting for?
 
 [00:26:28] Adam: Well, that changes moment by moment.
 
@@ -624,7 +624,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:26:37] Norm: third. Yeah, the son. Yeah, yeah.
 
-[00:26:40] Will: The the Park son or
+[00:26:40] Will: The Park son or
 
 [00:26:41] Norm: the Kim son. The yeah,
 
@@ -644,11 +644,11 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:26:50] Adam: he's about the most unsullied character in the entire.
 
-[00:26:53] Will: I would say the two Park kids are the are the victims of this whole thing.
+[00:26:53] Will: I would say the two Park kids are the victims of this whole thing.
 
 [00:26:58] Adam: Yeah.
 
-[00:26:59] Norm: Hmm. Curious. I got to think about that more, but there is a momentum in the first third or you know half of the film where these things are falling into place, and you watch it almost like a heist film in in the planning and the execution.
+[00:26:59] Norm: Hmm. Curious. I got to think about that more, but there is a momentum in the first third or you know half of the film where these things are falling into place, and you watch it almost like a heist film in the planning and the execution.
 
 [00:27:14] Adam: It feels like
 
@@ -656,7 +656,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:27:16] Adam: and in the same way that a heist film is super thrilling because you just are super excited to see what's right around the corner. This is more like a manners drama in which it has the same tension constantly,
 
-[00:27:26] Norm: but and the tension builds up to a point where. It, you know, like I am going to describe a scene where they're they're drinking and they're eating food and they're celebrating, reveling in the success of their their plot.
+[00:27:26] Norm: but and the tension builds up to a point where. It like I am going to describe a scene where they're drinking and they're eating food and they're celebrating, reveling in the success of their plot.
 
 [00:27:38] Will: Well, they're bringing the venue that they're in down to their level,
 
@@ -664,9 +664,9 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:27:45] Adam: Just a simple scene of a family eating dinner. You are like on the couch in contortions with tension. I was
 
-[00:27:52] Norm: even before the moment happens where they they telegraph that something's supposed to
+[00:27:52] Norm: even before the moment happens where they telegraph that something's supposed to
 
-[00:27:55] Adam: And that scene lasts, that scene lasts like 10 times longer than I could take.
+[00:27:55] Adam: And that scene lasts like 10 times longer than I could take.
 
 [00:27:59] Will: So long.
 
@@ -676,7 +676,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:28:03] Adam: it's almost that amount of tension.
 
-[00:28:05] Will: But but it's it's you are sitting there and you are like, man, I do not, I do not want good things to happen to these people. But I also kind of don't want bad. Like the thing that's bad is going to be real bad.
+[00:28:05] Will: But it's you are sitting there and you are like, man, I do not want good things to happen to these people. But I also kind of don't want bad. Like the thing that's bad is going to be real bad.
 
 [00:28:15] Adam: Julia had to tell me to stop moving because I was like, ah.
 
@@ -694,11 +694,11 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:29:10] Norm: Let's talk about spoilers.
 
-[00:29:11] Adam: Okay. So if you're at all interested in seeing Parasite, turn this off now. The less you know, the better. Now I say that thinking that movies like The Sixth Sense and Seven, and and and Fight Club are way better when you know what's going on. I actually think that they're improved by having watched them once.
+[00:29:11] Adam: Okay. So if you're at all interested in seeing Parasite, turn this off now. The less you know, the better. Now I say that thinking that movies like The Sixth Sense and Seven, and Fight Club are way better when you know what's going on. I actually think that they're improved by having watched them once.
 
 [00:29:30] Norm: Oh, of course. The second time is.
 
-[00:29:32] Adam: So I'm I'm really looking I'm really looking forward to seeing Parasite a second time, but. The like so, Parasite starts off like any normal film. You're meeting somebody; they're having a conversation with somebody else, and a young guy, a young man, gets a job tutoring a kid. That's how it begins. And he goes. So the young man is of the Kim family.
+[00:29:32] Adam: So I'm I'm really looking forward to seeing Parasite a second time, but. The like so, Parasite starts off like any normal film. You're meeting somebody; they're having a conversation with somebody else, and a young guy, a young man, gets a job tutoring a kid. That's how it begins. And he goes. So the young man is of the Kim family.
 
 [00:29:52] Norm: Yep.
 
@@ -714,7 +714,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:30:11] Adam: Okay, so yeah, he's teaching the daughter. That's right.
 
-[00:30:13] Norm: Yeah, and he and he gets that job from being passed it from a friend.
+[00:30:13] Norm: Yeah, and he gets that job from being passed it from a friend.
 
 [00:30:18] Adam: Right.
 
@@ -726,7 +726,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:30:28] Adam: He's told that there's already a plot, which is that his friend, who's a successful, handsome university student who's about to go abroad for a year, wants to eventually ask this 16 year old girl out, but he's Giving the job of tutoring her to his friend, who he trusts,
 
-[00:30:42] Will: and and he the friend also sets the stage with the family, which is the mother's in charge, but maybe not the brightest. Or
+[00:30:42] Will: and he the friend also sets the stage with the family, which is the mother's in charge, but maybe not the brightest. Or
 
 [00:30:50] Adam: yeah, he said she's
 
@@ -736,27 +736,27 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:30:52] Will: is what the translation is at least.
 
-[00:30:54] Norm: But the the whole time, this Kim family is hustling. The folding of the pizza boxes is this whole thing. They're taking these jobs.
+[00:30:54] Norm: But the whole time, this Kim family is hustling. The folding of the pizza boxes is this whole thing. They're taking these jobs.
 
 [00:31:02] Adam: The Kim family lives in this dingy apartment that is literally below street level,
 
 [00:31:06] Norm: where they're you know they're stealing Wi-Fi.
 
-[00:31:10] Will: There's there's a moment in the beginning when he says the the the street fumigator guys coming around, and they're like, " Hey, the fumigator guys coming. Should we shut the windows?" And the father says, " No, we'll get free fumigation if we leave the windows open." And they're folding pizza boxes and coughing and holding their breath, and it is it's horrifying.
+[00:31:10] Will: There's there's a moment in the beginning when he says the street fumigator guys coming around, and they're like, " Hey, the fumigator guys coming. Should we shut the windows?" And the father says, " No, we'll get free fumigation if we leave the windows open." And they're folding pizza boxes and coughing and holding their breath, and it is it's horrifying.
 
 [00:31:26] Adam: It is maybe some of the I I was five minutes into the movie and I thought this is some of the most efficient character building I have ever seen. A friend of mine who's a screenwriter, he his favorite character building sequence. Is the scene in Grosse Pointe Blank when John Cusack goes to his father's grave and empties a bottle of scotch on it.
 
 [00:31:46] Will: It's so good, yes.
 
-[00:31:46] Adam: Leaves the bottle, drives away? No words are spoken. You know everything you need to know, and the entirety of Parasite feels like that level of of of character precision.
+[00:31:46] Adam: Leaves the bottle, drives away? No words are spoken. You know everything you need to know, and the entirety of Parasite feels like that level of character precision.
 
 [00:31:56] Will: It's dense in the way that Watchmen is dense.
 
-[00:31:59] Adam: Yeah. Um. So the son goes and starts tutoring, and the mother is then talking about her other child, a younger son, daughter who is hard to control.
+[00:31:59] Adam: Yeah. So the son goes and starts tutoring, and the mother is then talking about her other child, a younger son, daughter who is hard to control.
 
 [00:32:08] Will: You're right. Sorry.
 
-[00:32:09] Norm: And then they see an opportunity to then bring more of the family in. So this is where the the kind of
+[00:32:09] Norm: And then they see an opportunity to then bring more of the family in. So this is where the kind of
 
 [00:32:16] Adam: This is where you realize that there's more to this family, right? Yeah. The sister shows up. The Kim's sister shows up and pretends to be an art therapist.
 
@@ -766,9 +766,9 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:32:29] Adam: right?
 
-[00:32:30] Will: Right. I'm thinking, oh, this is gonna this is like a heist that's gonna wrap around itself, and some stuff's gonna happen, and it's gonna be a A lovable romp through, you know,
+[00:32:30] Will: Right. I'm thinking, oh, this is gonna this is like a heist that's gonna wrap around itself, and some stuff's gonna happen, and it's gonna be a lovable romp through
 
-[00:32:38] Norm: right? They're they're gonna somehow weasel away in and replace the family.
+[00:32:38] Norm: right? They're gonna somehow weasel away in and replace the family.
 
 [00:32:42] Adam: Yeah, and so so that goes on for a little while, and then they manage to get rid of the sister. Manages to get no, they get rid of the chauffeur.
 
@@ -792,7 +792,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:33:28] Will: Yeah,
 
-[00:33:28] Adam: she is. She seems really. Uh, she seems a little flaky, but she's tenacious. Like they recognize she's a foe, and I remember thinking she's a foe. Wait a minute, what? She seemed just like a goofy.
+[00:33:28] Adam: she is. She seems really. She seems a little flaky, but she's tenacious. Like they recognize she's a foe, and I remember thinking she's a foe. Wait a minute, what? She seemed just like a goofy.
 
 [00:33:40] Will: Yeah, and just to be clear, there's nothing evil that happens in this film, really, up until the point that the daughter gets the chauffeur sacked.
 
@@ -818,7 +818,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:34:05] Will: And then mom comes in.
 
-[00:34:06] Adam: So well, so the the they get the housekeeper sacked, and the mom comes in to replace the housekeeper. Now all four Kims are working for the Parks, and the Parks have no idea that they're related.
+[00:34:06] Adam: So well, so the they get the housekeeper sacked, and the mom comes in to replace the housekeeper. Now all four Kims are working for the Parks, and the Parks have no idea that they're related.
 
 [00:34:16] Norm: That's right.
 
@@ -830,13 +830,13 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:34:22] Adam: yeah, the son walks over to one of the Kims and like sniffs him. And then goes over to another Kim and sniffs them and says to his fam, his parents, the Parks, they smell the same and they smell like the sister. They smell like my art tutor as well.
 
-[00:34:38] Norm: And that is another hat on a hat because not only is he conveying that that he recognizes and he's telegraphing that you, he they they are familiar to each other, but they are of a same people. They are
+[00:34:38] Norm: And that is another hat on a hat because not only is he conveying that that he recognizes and he's telegraphing that you, he they are familiar to each other, but they are of a same people. They are
 
 [00:34:49] Will: they're poors
 
 [00:34:50] Norm: They are.
 
-[00:34:50] Adam: and and this is when you immediately cut back to the Kims back at home, realizing that they are going to all need to shower with different products and not cross pollinate. And that's when you realize they are deeply committed to this ruse and to taking it very very far. And so very shortly after that, the the rich family, if we hadn't made this clear, the Parks are super rich. The Kims super poor. The the Parks family goes on a on a camping trip,
+[00:34:50] Adam: and this is when you immediately cut back to the Kims back at home, realizing that they are going to all need to shower with different products and not cross pollinate. And that's when you realize they are deeply committed to this ruse and to taking it very very far. And so very shortly after that, the rich family, if we hadn't made this clear, the Parks are super rich. The Kims super poor. The Parks family goes on a camping trip,
 
 [00:35:16] Norm: Mm hmm.
 
@@ -864,9 +864,9 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:35:43] Norm: peach fuzz.
 
-[00:35:44] Will: They told it, yeah, they they they they framed her for having TB,
+[00:35:44] Will: They told it, yeah, they framed her for having TB,
 
-[00:35:49] Norm: and the the housekeeper says recognizes them and says, " Not as I, I know what type of person you are. You are, and and it's not. I'm not here for retribution. I'm not here. I recognize the game that you've played, and you've played it well. But I'm here for another purpose.
+[00:35:49] Norm: and the housekeeper says recognizes them and says, " Not as I, I know what type of person you are. You are, and and it's not. I'm not here for retribution. I'm not here. I recognize the game that you've played, and you've played it well. But I'm here for another purpose.
 
 [00:36:06] Will: I left something,
 
@@ -878,25 +878,25 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:36:11] Will: into a bunker.
 
-[00:36:12] Adam: And and this is where everything from her ringing the doorbell, like already watching the Kims eat dinner in this house. Is super stressful.
+[00:36:12] Adam: And this is where everything from her ringing the doorbell, like already watching the Kims eat dinner in this house. Is super stressful.
 
 [00:36:20] Will: You're waiting for something to happen, and then the doorbell rings, and it gets much worse.
 
-[00:36:24] Adam: And the doorbell rings, and it's the housekeeper. Like, what does the housekeeper do? And then she goes downstairs, and it turns out that downstairs there's a secret door, and her husband's been living underground in this house for a, like, a decade?
+[00:36:24] Adam: And the doorbell rings, and it's the housekeeper. Like, what does the housekeeper do? And then she goes downstairs, and it turns out that downstairs there's a secret door, and her husband's been living underground in this house for a a decade?
 
 [00:36:35] Will: Four years, five years
 
-[00:36:36] Norm: on the run, hiding from um
+[00:36:36] Norm: on the run, hiding from
 
 [00:36:38] Adam: creditors,
 
 [00:36:38] Norm: creditors exactly. Yes, in pitch black, and this is where it gets like very Kafka esque. Like he is
 
-[00:36:44] Will: Is there debtors prison in in Korea or something. Is this a thing?
+[00:36:44] Will: Is there debtors prison in Korea or something. Is this a thing?
 
 [00:36:48] Adam: What's that?
 
-[00:36:49] Norm: I, I.
+[00:36:49] Norm: I.
 
 [00:36:49] Will: Why is he hiding from creditors? In a anyway, I don't know.
 
@@ -918,7 +918,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:37:24] Adam: operating the lights from underground
 
-[00:37:27] Norm: when the the
+[00:37:27] Norm: when the
 
 [00:37:29] Adam: Oh my god.
 
@@ -952,7 +952,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:38:01] Norm: of that guy.
 
-[00:38:02] Adam: So later on, it's revealed you hear that the that the the young Park son, the brilliant one who's got ADD, that the sister is pretending to be an art therapist for. You've heard that he had a trauma at a birthday where he saw a ghost, and you hear about this, and then it slowly dawns on you that, of course, the ghost must be the husband who lives in the basement.
+[00:38:02] Adam: So later on, it's revealed you hear that the young Park son, the brilliant one who's got ADD, that the sister is pretending to be an art therapist for. You've heard that he had a trauma at a birthday where he saw a ghost, and you hear about this, and then it slowly dawns on you that, of course, the ghost must be the husband who lives in the basement.
 
 [00:38:25] Norm: Yeah.
 
@@ -962,7 +962,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:38:33] Adam: you're looking at the stairs to the basement, which have already been like a character in the film.
 
-[00:38:37] Norm: And it's late at night. It's the classic kids. When you're a little child, you're scared of what's in the basement. And it's late at night. He's going to find some food in the fridge. And this is when the husband would sneak and steal some food. They show the black, the the the the emptiness of the cavity of the stairwell.
+[00:38:37] Norm: And it's late at night. It's the classic kids. When you're a little child, you're scared of what's in the basement. And it's late at night. He's going to find some food in the fridge. And this is when the husband would sneak and steal some food. They show the black, the emptiness of the cavity of the stairwell.
 
 [00:38:54] Adam: Yeah.
 
@@ -996,19 +996,19 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:39:53] Unknown speaker (Norm or Will): Yes,
 
-[00:39:53] Adam: that actually happens in this movie. There we go. That's just look. I don't think we can even start to go into the plot lines of the of the of the third act of this film because it's so interwoven and so convoluted and bizarre. But people are murdered in the open at a party, and blood is spraying everywhere, and there are body counts and runs through the rain with houses sinking, and it's completely batshit.
+[00:39:53] Adam: that actually happens in this movie. There we go. That's just look. I don't think we can even start to go into the plot lines of the third act of this film because it's so interwoven and so convoluted and bizarre. But people are murdered in the open at a party, and blood is spraying everywhere, and there are body counts and runs through the rain with houses sinking, and it's completely batshit.
 
-[00:40:21] Norm: And as batshit it is, the what's important about this film. Is the subtext that slowly surfaces the the relationship between the the the father the Kim father and the Park father? How those those bonds, like that relationship, is you see what's beneath the surface,
+[00:40:21] Norm: And as batshit it is, the what's important about this film. Is the subtext that slowly surfaces the relationship between the father the Kim father and the Park father? How those those bonds, like that relationship, is you see what's beneath the surface,
 
 [00:40:42] Adam: yeah.
 
 [00:40:42] Norm: And he reveals what's beneath the surface, and it's so unsettling. And it's you know it's a face of society.
 
-[00:40:48] Adam: Well, and that's the thing. So you watch, you know, classically, you watch the movie The Fighter with with Mark Wahlberg and and Christian Bale, and you realize at the end that the fighter is Christian Bale, right? You realize, oh, the title's about a different guy than I thought it was, right? Well, and Parasite does the same thing. What who's the parasite? You start out 20 minutes in, you have one answer. 40 minutes in, you have another answer. At the end of the film, it's kind of the answer is all of the above.
+[00:40:48] Adam: Well, and that's the thing. So you watch classically, you watch the movie The Fighter with Mark Wahlberg and Christian Bale, and you realize at the end that the fighter is Christian Bale, right? You realize, oh, the title's about a different guy than I thought it was, right? Well, and Parasite does the same thing. What who's the parasite? You start out 20 minutes in, you have one answer. 40 minutes in, you have another answer. At the end of the film, it's kind of the answer is all of the above.
 
 [00:41:16] Norm: Yeah.
 
-[00:41:17] Adam: And you know, it's it's like it's the class system on society is the parasite on the human condition.
+[00:41:17] Adam: And it's like it's the class system on society is the parasite on the human condition.
 
 [00:41:24] Norm: Yeah.
 
@@ -1016,11 +1016,11 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:41:28] Norm: The heavy rain scene where you have, you know, the the Parks come back from their trip because it's it's raining and they're talking about oh how great it is that you know it's going to clean you know everything's going to come back smelling so fresh in their backyard. At the same time, the Kim family is scrambling because their entire street is flooded and they're being buried in this flood.
 
-[00:41:45] Adam: And this and this is the scene of the post their escape from the ridiculous confluence of events back at the house during the dinner in which they left the big mess. And it is their descent. They literally descend from the castle on high to their basement hovel, which is underwater, and they're drowning in their house.
+[00:41:45] Adam: And this is the scene of the post their escape from the ridiculous confluence of events back at the house during the dinner in which they left the big mess. And it is their descent. They literally descend from the castle on high to their basement hovel, which is underwater, and they're drowning in their house.
 
 [00:42:05] Unknown speaker (Norm or Will): Wow.
 
-[00:42:05] Adam: Ah. It. It is maybe the most thrilling film I've seen in years. I can't. I can't recommend it enough. Everything you've heard about it, you know. Again, I hope you haven't listened to all of this
+[00:42:05] Adam: Ah. It. It is maybe the most thrilling film I've seen in years. I can't. I can't recommend it enough. Everything you've heard about it. Again, I hope you haven't listened to all of this
 
 [00:42:18] Norm: without having seen it.
 
@@ -1028,7 +1028,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:42:22] Norm: Yeah.
 
-[00:42:23] Adam: Um. I. I. I'm so excited that. There are still so many places to find thrills and weirdness and awesomeness in filmmaking, especially from corners that you don't necessarily expect. Bong Joon Ho has always made films that subvert expectations, and this is an—I just can't wait to see what he does next.
+[00:42:23] Adam: I. I. I'm so excited that. There are still so many places to find thrills and weirdness and awesomeness in filmmaking, especially from corners that you don't necessarily expect. Bong Joon Ho has always made films that subvert expectations, and this is an—I just can't wait to see what he does next.
 
 [00:42:45] Will: That sounds like as good a place as any to
 
@@ -1056,17 +1056,17 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:43:43] Will: Yeah,
 
-[00:43:44] Adam: that like there are that even if you know the exact architecture of a chip, you still not be may not be able to find the the vulnerabilities within it within your supply chain.
+[00:43:44] Adam: that like there are that even if you know the exact architecture of a chip, you still not be may not be able to find the vulnerabilities within it within your supply chain.
 
 [00:43:55] Will: Where's the fab
 
-[00:43:56] Adam: and the ways in which it turns out? You remember the Apple memory leak where the the the bus was talking to the buffer memory, and that was where the password was being exposed. It's like that problem exists in everything we own across the entire world times a gazillion. It's terrifying. I'm glad you're talking about best practices for security.
+[00:43:56] Adam: and the ways in which it turns out? You remember the Apple memory leak where the bus was talking to the buffer memory, and that was where the password was being exposed. It's like that problem exists in everything we own across the entire world times a gazillion. It's terrifying. I'm glad you're talking about best practices for security.
 
 [00:44:16] Will: Well, so the upshot is, I I as a result of this hack, the update that we'll go into the next time we record probably is that I'm going to start doing two factor hardware, so with like USB key type that that stuff. For at least, like a primary account that is the end-all catch-all of all the other accounts.
 
 [00:44:34] Adam: Yeah.
 
-[00:44:34] Will: So yeah, it was it was an interesting conversation, and you can find you can listen to it now. It's up. It should be up now.
+[00:44:34] Will: So yeah, it was an interesting conversation, and you can find you can listen to it now. It's up. It should be up now.
 
 [00:44:42] Adam: Okay.
 

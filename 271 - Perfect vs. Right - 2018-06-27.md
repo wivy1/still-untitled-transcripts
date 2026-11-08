@@ -32,7 +32,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:01:17] Kishore: No,
 
-[00:01:17] Adam: we were telling. I was telling stories on on the MythBusters Junior set, and one of the young MythBusters said, " Boy, you certainly have a lot of stories, Mister Adam." And I was like, in my head, I was like, " I am not sure how to take that."
+[00:01:17] Adam: we were telling. I was telling stories on the MythBusters Junior set, and one of the young MythBusters said, " Boy, you certainly have a lot of stories, Mister Adam." And I was like, in my head, I was like, " I am not sure how to take that."
 
 [00:01:29] Kishore: Are they calling you Sir as well?
 
@@ -44,7 +44,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:01:38] Norm: That's interesting. I like it. It's a little different.
 
-[00:01:40] Adam: These These young MythBusters are so inspiring. Can I just stop and just like we're we're in week four, we're we're we're shooting away. It is so much fun. Um. These young MythBusters are so inspiring and so delightful to spend time around.
+[00:01:40] Adam: These These young MythBusters are so inspiring. Can I just stop and just like we're in week four, we're shooting away. It is so much fun. These young MythBusters are so inspiring and so delightful to spend time around.
 
 [00:01:56] Norm: Awesome! Yeah, that's great to hear.
 
@@ -54,9 +54,9 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:02:07] Kishore: the mustache.
 
-[00:02:07] Adam: No, because he's very he's very recalcitrant and does not want to do the thing you expect to be done, and that is a very that is a a key personality trait of Jamie's. Yeah. If you give Jamie a range of parameters, he's always going to go, " Well, what's the upside down and backwards version of this? What is the way no one's looking at this? How could I do this in a way that has never been tried before? Even just to say a joke, yeah. So this this young man reminds me very much of that,
+[00:02:07] Adam: No, because he's very recalcitrant and does not want to do the thing you expect to be done, and that is a very that is a key personality trait of Jamie's. Yeah. If you give Jamie a range of parameters, he's always going to go, " Well, what's the upside down and backwards version of this? What is the way no one's looking at this? How could I do this in a way that has never been tried before? Even just to say a joke, yeah. So this this young man reminds me very much of that,
 
-[00:02:39] Norm: and that's not something necessarily that he did for camera. It was it was the behind the scenes operating procedure that made what he did.
+[00:02:39] Norm: and that's not something necessarily that he did for camera. It was the behind the scenes operating procedure that made what he did.
 
 [00:02:47] Adam: It's one of the algorithms he runs that makes him such a great engineer.
 
@@ -74,11 +74,11 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:03:11] Kishore: So much fun because it's it holds up in a way that you don't see many movies that are almost 40 years old hold up in that way.
 
-[00:03:19] Adam: Not at all, and and you know Steven Soderbergh took Raiders a couple years ago, stripped all the color out and removed the sound and played it as a silent film as a demonstration of how well you can tell exactly what's going on through the whole film without ever hearing a line of dialogue. And he points out that that is a testament to Spielberg's beyond genius framing.
+[00:03:19] Adam: Not at all, and you know Steven Soderbergh took Raiders a couple years ago, stripped all the color out and removed the sound and played it as a silent film as a demonstration of how well you can tell exactly what's going on through the whole film without ever hearing a line of dialogue. And he points out that that is a testament to Spielberg's beyond genius framing.
 
-[00:03:42] Kishore: For for me, it was also remembering how films used to be light hearted and like filled with just. Joy Raiders for a movie with Nazis throughout the movie is a pretty joyous film.
+[00:03:42] Kishore: For me, it was also remembering how films used to be light hearted and like filled with just. Joy Raiders for a movie with Nazis throughout the movie is a pretty joyous film.
 
-[00:03:54] Adam: It's a pretty joyous film. I I still can't get over the how did he get to the secret Nazi base? He rode the periscope across hundreds of miles of ocean.
+[00:03:54] Adam: It's a pretty joyous film. I still can't get over the how did he get to the secret Nazi base? He rode the periscope across hundreds of miles of ocean.
 
 [00:04:02] Norm: It was like the Muppets, where he traveled by map.
 
@@ -88,11 +88,11 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:04:16] Kishore: yeah. Oh yeah, that came true.
 
-[00:04:18] Adam: It is so. I remember seeing. I remember seeing Raiders when it came out, '81. Right, same year as Octopussy, and that was the summer. So we were up at the summer. We go. We have a summer house in Cape Cod, and I was there with my cousins. And we had been seeing. Look up a list of the movies that came out in 1981. It will blow your freaking mind. Actually, you know what? Sorry, this is this is worth doing. And maybe if you have,
+[00:04:18] Adam: It is so. I remember seeing. I remember seeing Raiders when it came out, '81. Right, same year as Octopussy, and that was the summer. So we were up at the summer. We go. We have a summer house in Cape Cod, and I was there with my cousins. And we had been seeing. Look up a list of the movies that came out in 1981. It will blow your freaking mind. Actually, you know what? Sorry, this is worth doing. And maybe if you have,
 
-[00:04:41] Norm: yeah, yeah, no, that's okay. Adam's going. While he mentions that. The reason I brought it up is because when when we talked about it last, Will was here and he was saying that every time you watch Raiders, you see something new because there's something new to discover. And I wasn't at that screening, so I hadn't seen it for a while. But I went to my my copy of it last night and revisited because there was a Twitter thread revealing some things that I did not know were goofs and gaffes and and things.
+[00:04:41] Norm: yeah, yeah, no, that's okay. Adam's going. While he mentions that. The reason I brought it up is because when we talked about it last, Will was here and he was saying that every time you watch Raiders, you see something new because there's something new to discover. And I wasn't at that screening, so I hadn't seen it for a while. But I went to my copy of it last night and revisited because there was a Twitter thread revealing some things that I did not know were goofs and gaffes and things.
 
-[00:05:08] Kishore: I think I saw this thread. It's it's mind blowing.
+[00:05:08] Kishore: I think I saw this thread. It's mind blowing.
 
 [00:05:11] Norm: It's one of those things once you see it, you can't see. But I'm not going to reveal until Adam list your movie is some 1981 ish.
 
@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:06:10] Adam: Yeah. Oh, the Beyond. What a messed up movie that is. Dinner with Andre. The only movie that Roger Ebert ever said was a genreless film. That that's all 1981.
 
-[00:06:21] Norm: The even the first six of those you could say are like like seminal films in
+[00:06:21] Norm: The even the first six of those you could say are like seminal films in
 
 [00:06:25] Adam: Completely.
 
@@ -130,11 +130,11 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:07:29] Kishore: So let's see if Adam actually knows this fact.
 
-[00:07:31] Norm: Oh my god! Okay, wait, hold on. So we're going to set it up. There are three things I saw on the internet last night that were. I think Rian Johnson had retweeted one of them. And there were things I had no idea. Like two of them are gaffes, and one of them is a revelation. We'll start with the gaffes, like because and and for people listening to the podcast, these are things that once you see you or hear next time you watch the movie, you will not be able to not see them.
+[00:07:31] Norm: Oh my god! Okay, wait, hold on. So we're going to set it up. There are three things I saw on the internet last night that were. I think Rian Johnson had retweeted one of them. And there were things I had no idea. Like two of them are gaffes, and one of them is a revelation. We'll start with the gaffes, like because and for people listening to the podcast, these are things that once you see you or hear next time you watch the movie, you will not be able to not see them.
 
 [00:07:54] Adam: You won't be like the rainbow stripes of a DLP projector. once you know it’s there,
 
-[00:07:56] Norm: then you move your eye. You can't move your eyes. You move your dart your eyes left and right, and you you are seeing
+[00:07:56] Norm: then you move your eye. You can't move your eyes. You move your dart your eyes left and right, and you are seeing
 
 [00:08:02] Kishore: the sound of glass shattering in your head will happen.
 
@@ -164,13 +164,13 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:08:43] Adam: Toht, yeah.
 
-[00:08:44] Norm: He's in the car, but not really. What you see is it's it's a stand-in, and the stand-in is just his hat and a coat, facing away from you.
+[00:08:44] Norm: He's in the car, but not really. What you see is it's a stand-in, and the stand-in is just his hat and a coat, facing away from you.
 
 [00:08:56] Adam: Right.
 
 [00:08:56] Norm: And it literally looks like a shrunken person on the front seat of the car, just the hat and the coat.
 
-[00:09:02] Kishore: This this one really broke me.
+[00:09:02] Kishore: This one really broke me.
 
 [00:09:03] Adam: Really, I've never seen that.
 
@@ -198,11 +198,11 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:09:51] Adam: right,
 
-[00:09:51] Norm: she's in the the bar, right, and you see that that beautiful shot of uh the shadow of Indiana Jones walking through the the doors, right. What is she doing at that moment? She's she's stressed,
+[00:09:51] Norm: she's in the bar, right, and you see that that beautiful shot of the shadow of Indiana Jones walking through the doors, right. What is she doing at that moment? She's stressed,
 
 [00:10:04] Kishore: isn't she? Like polishing glasses behind the bar.
 
-[00:10:07] Adam: Yeah, she's she's picking up the glasses.
+[00:10:07] Adam: Yeah, she's picking up the glasses.
 
 [00:10:09] Norm: Right, and then she does something like she puts them to her head.
 
@@ -228,7 +228,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:10:46] Adam: snowballs!
 
-[00:10:47] Norm: Snowballs! And now you can't unsee that because in the the stills, I went by frame by frame. You can see clearly they are snowballs.
+[00:10:47] Norm: Snowballs! And now you can't unsee that because in the stills, I went by frame. You can see clearly they are snowballs.
 
 [00:10:53] Adam: But when she throws them, it makes a sound of glass shattering.
 
@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:11:36] Adam: So you go to New York soon?
 
-[00:11:37] Norm: Yeah. Yeah. You know, we've always talked. We've We've been New York together a bunch of times for New York Comic Con, and we've gone to like New York Maker Faire, and we've gone typically in the fall. Your favorite time in New York?
+[00:11:37] Norm: Yeah. Yeah. We've always talked. We've We've been New York together a bunch of times for New York Comic Con, and we've gone to like New York Maker Faire, and we've gone typically in the fall. Your favorite time in New York?
 
 [00:11:53] Adam: April or October.
 
@@ -298,7 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:12:49] Norm: I don't have a one of the things I'm doing is listening suggestions for things to do because I've never had an opportunity for a trip where I've had both the day and the night free.
 
-[00:13:00] Adam: Have you Have you ever gone to the Museum of Natural History?
+[00:13:00] Adam: Have you ever gone to the Museum of Natural History?
 
 [00:13:02] Norm: Yes. Okay. I've done that.
 
@@ -308,15 +308,15 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:13:13] Adam: Brooklyn Museum is wonderful. I was there a couple times ago, and I was there.
 
-[00:13:16] Norm: There's a V and A exhibit that's a traveling V and A exhibit that's there right now for Bowie. Um, actually,
+[00:13:16] Norm: There's a V and A exhibit that's a traveling V and A exhibit that's there right now for Bowie. Actually,
 
 [00:13:21] Adam: oh right, right.
 
 [00:13:21] Norm: So I'll be very excited to see that.
 
-[00:13:25] Adam: But have you been to the the the World's Fair fairgrounds out in Queens with the model of New York City?
+[00:13:25] Adam: But have you been to the World's Fair fairgrounds out in Queens with the model of New York City?
 
-[00:13:31] Norm: No, I have not been in the model because that's where Maker Faire New York is out in Flushing. But I've never had a chance to see the the Futurama right.
+[00:13:31] Norm: No, I have not been in the model because that's where Maker Faire New York is out in Flushing. But I've never had a chance to see the Futurama right.
 
 [00:13:40] Adam: The model is. Is shocking.
 
@@ -324,29 +324,29 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:13:49] Adam: it's effectively a scale miniature. I can't remember what scale,
 
-[00:13:53] Norm: but you rode over it. Well, was was in in in the in the World's Fair. You like you you you were on it. It was a ride,
+[00:13:53] Norm: but you rode over it. Well, was was in the World's Fair. You like you were on it. It was a ride,
 
 [00:14:00] Adam: right?
 
 [00:14:00] Norm: Oh, okay. You got to see the future.
 
-[00:14:01] Adam: This is this is now in the round. I can walk around it, but it's a scale model of all of New York with every single building in New York in the model.
+[00:14:01] Adam: This is now in the round. I can walk around it, but it's a scale model of all of New York with every single building in New York in the model.
 
 [00:14:09] Norm, Kishore uncertain: Oh,
 
-[00:14:09] Adam: and it is a tradition from what I remember that when architects finish a new building in Manhattan, they have a scale model made and they they they always send it to the model so it can be installed.
+[00:14:09] Adam: and it is a tradition from what I remember that when architects finish a new building in Manhattan, they have a scale model made and they always send it to the model so it can be installed.
 
 [00:14:23] Kishore: Do they actually put them in?
 
 [00:14:24] Adam: Yeah, so it should be updated.
 
-[00:14:27] Kishore: Oh, that's great. So, like, even the Freedom Tower, which is relatively new,
+[00:14:27] Kishore: Oh, that's great. So even the Freedom Tower, which is relatively new,
 
 [00:14:32] Adam: yeah, yeah, and so there is also there is little wires for planes that take off at LaGuardia and land at Kennedy on on little strings. It's it's. Gobsmacking to see it's something like 100 some 150,000 buildings.
 
 [00:14:47] Kishore: I've never seen this.
 
-[00:14:47] Adam: Oh yeah, it's it's really incredible.
+[00:14:47] Adam: Oh yeah, it's really incredible.
 
 [00:14:49] Norm: I gotta check that out.
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:15:16] Adam: Yeah, the cloisters are really beautiful. Absolutely,
 
-[00:15:19] Norm: it's like a like a church grounds and museum, medieval museum
+[00:15:19] Norm: it's like a church grounds and museum, medieval museum
 
 [00:15:22] Adam: at the north end of Manhattan. Absolutely beautiful. That famous unicorn tapestry that you if you grew up in New York, the unicorn tapestry is like part of your youth because it was just everywhere, and it's up there at the cloisters.
 
@@ -410,9 +410,9 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:16:43] Adam: Are you going to see any shows?
 
-[00:16:44] Norm: That's the thing. I think like the one time I went and saw like three shows in in once, and we have only tickets for one show, and it's a show that I think both of you have seen, and it's in and of itself
+[00:16:44] Norm: That's the thing. I think like the one time I went and saw like three shows in once, and we have only tickets for one show, and it's a show that I think both of you have seen, and it's in and of itself
 
-[00:16:56] Kishore: so good, so good.
+[00:16:56] Kishore: so good.
 
 [00:16:58] Norm: I've only been told not to be told much about it.
 
@@ -422,7 +422,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:17:08] Adam: It is almost an anti-magic show.
 
-[00:17:11] Kishore: Yeah, I I think calling it a magic show is sort of a a weird disservice to what it actually is. It's really it's you're going to a one man show.
+[00:17:11] Kishore: Yeah, I I think calling it a magic show is sort of a weird disservice to what it actually is. It's really it's you're going to a one man show.
 
 [00:17:20] Adam: It's a one man show, 70 minutes long with six tricks in it, and every one of them. I mean, like Michael Weber, who directed Brain Candy and is a wonderful magic designer and magician in his own right, has this you know conversational gambit. He'll be like, " There's only X number of tricks," and then he'll lay out for you the categorical top lines of these like seven different kinds of tricks. And you realize, oh wow, he's really right. There's only these kinds of these number of tricks. It still feels like all six tricks, in and of itself, are different than anything I have seen. And as much as I know about magic over the years, there is there's one trick in there I still don't know how they do it. I have like literally no idea at all.
 
@@ -438,7 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:18:25] Adam: Frank Oz directed in and of itself.
 
-[00:18:28] Kishore: He's just watching the show, and uh, and what I thought was so magical about it is after the show, there's you know, there's things that happen in the show with people in the audience. Is people don't just leave; they hang out. And they're talking about the show, and there's some people that are trying to figure it out. But I managed to run into one of the people that was kind of in the show, and we and we talked, and we ended up talking for like an hour, just about all these personal stories. So there was this weird way where it just like took strangers, put them in a cauldron, and out came out the other side. I felt like I knew these people afterwards, and that and that was the magic.
+[00:18:28] Kishore: He's just watching the show, and what I thought was so magical about it is after the show, there's there's things that happen in the show with people in the audience. Is people don't just leave; they hang out. And they're talking about the show, and there's some people that are trying to figure it out. But I managed to run into one of the people that was kind of in the show, and we talked, and we ended up talking for like an hour, just about all these personal stories. So there was this weird way where it just like took strangers, put them in a cauldron, and out came out the other side. I felt like I knew these people afterwards, and that was the magic.
 
 [00:19:08] Norm: And it wasn't a it's not a big theater because I'm looking for tickets.
 
@@ -448,11 +448,11 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:19:12] Kishore: Wow,
 
-[00:19:12] Adam: yeah, it's very small. It's it is. You're absolutely right. The show is a crucible, and it's a it's it's an autobiographical crucible that Derek Delgaudio walks through. It is also it's it's still very private. He still keeps a lot to himself as much as he reveals, and he does not tell a lie for the entirety of the show. I I believe that's the case. I've seen it four or five times now. I saw it at the Geffen when it first opened, and I think two other times in L. A. , and I've seen it twice in New York.
+[00:19:12] Adam: yeah, it's very small. It's it is. You're absolutely right. The show is a crucible, and it's a it's an autobiographical crucible that Derek Delgaudio walks through. It is also it's still very private. He still keeps a lot to himself as much as he reveals, and he does not tell a lie for the entirety of the show. I believe that's the case. I've seen it four or five times now. I saw it at the Geffen when it first opened, and I think two other times in L. A. , and I've seen it twice in New York.
 
 [00:19:47] Norm: Yeah, it's closing in August, so
 
-[00:19:48] Adam: it is. It's such a singular, beautiful document as as a as a a performance. I mean, it's really. I can't gush enough about it. Well, I'm given to hyperbole,
+[00:19:48] Adam: it is. It's such a singular, beautiful document as a performance. I mean, it's really. I can't gush enough about it. Well, I'm given to hyperbole,
 
 [00:20:02] Norm: and without going, we're not going to go into the specifics. I'm going to see it in like two days, but yeah,
 
@@ -460,9 +460,9 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:20:09] Norm: I will absolutely. The fact that you know these type of shows are you know when magicians perform shows they are usually they're written and performed by the magician, but they're also directed right. So this one Frank Oz directed. So I'm really interested what how what the collaboration is and what does a director bring to a show if the magician knows all the tricks and the magician is a performer. What can a director bring?
 
-[00:20:34] Kishore: You'll see because I think the the core of the show is that it's not a magic show. And like that's the beauty of it; it is a stage show.
+[00:20:34] Kishore: You'll see because I think the core of the show is that it's not a magic show. And like that's the beauty of it; it is a stage show.
 
-[00:20:41] Adam: And and the thing about Frank Oz is that Frank Oz has always performed. The beginning, the first half of his career was formed in a space where the suspension of disbelief didn't matter. He was he created magical things where the suspension of belief did not matter. It was all about story and character, and this is no different.
+[00:20:41] Adam: And the thing about Frank Oz is that Frank Oz has always performed. The beginning, the first half of his career was formed in a space where the suspension of disbelief didn't matter. He was he created magical things where the suspension of belief did not matter. It was all about story and character, and this is no different.
 
 [00:21:05] Norm: And that's also an interesting thing because unrelated to that show, last night I watched another magic show. This is a
 
@@ -476,19 +476,19 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:21:21] Adam: British magician,
 
-[00:21:22] Norm: mentalist. Yes, exactly, and he does a show called Miracle. I guess he did in London 2015 2016. That's now on Netflix. And watching it, I am like, do I want to watch a magic show on on the television? Because yeah, when you are an audience, and he does it for audience of 2,000 people, like you have a buy in. Already, you have a suspicion that you are you are the energy of the room. The reality distortion field is there.
+[00:21:22] Norm: mentalist. Yes, exactly, and he does a show called Miracle. I guess he did in London 2015 2016. That's now on Netflix. And watching it, I am like, do I want to watch a magic show on the television? Because yeah, when you are an audience, and he does it for audience of 2,000 people, like you have a buy in. Already, you have a suspicion that you are the energy of the room. The reality distortion field is there.
 
 [00:21:45] Adam: Yeah.
 
 [00:21:45] Norm: So can that transfer through the plane of the television, and is that as effective? And you saw the same show.
 
-[00:21:52] Kishore: I was I was blown away by it, and it wasn't so much that I was blown away by the tricks. Again, it was reminiscent of what, in and of itself, did, which was take these magic tricks and surround it by this sort of wrapper of a story that enveloped the crowd. And basically, the conceit of the show, and this isn't spoiling anything, is he gets up there and says, " I'm going to lie to you,
+[00:21:52] Kishore: I was blown away by it, and it wasn't so much that I was blown away by the tricks. Again, it was reminiscent of what, in and of itself, did, which was take these magic tricks and surround it by this sort of wrapper of a story that enveloped the crowd. And basically, the conceit of the show, and this isn't spoiling anything, is he gets up there and says, " I'm going to lie to you,
 
 [00:22:15] Adam: right?
 
 [00:22:15] Kishore: And you're going to believe me, and you're going to be totally bought in. And he doesn't reveal the tricks, but he tells people what they're getting into, and they still fall into that trap just because of who we are.
 
-[00:22:29] Adam: Well, I also think that's part of a longer tradition in modern magic of being really clear about. The open about the deceit, and Derren Brown's particular brilliance in my mind is taking classic tricks and doing beautiful and amazing mods. I haven't seen the Netflix special now. I didn't even know it was there. I can't wait to watch it. One of there's a classic old trick called " Out of This World," in which you hand a deck of cards to someone and ask them to mentally to sort the cards into red and blue, red and black, without looking at the cards. So you make two piles blind, and the magician then turns those piles over and shows that you have done it correctly. Right? This is a a wonderful reveal. It's a great trick. Watching it in the hands of a good magician is just delightful, and the surprise is incredible. Derren Brown's version of " Out of This World" from years and years ago was he handed you a bunch of photographs and you put them into piles of people you liked and people you didn't like, and when you were done, he turned them over and you could see that all the people you didn't like were deceased. And all the ones you did were alive.
+[00:22:29] Adam: Well, I also think that's part of a longer tradition in modern magic of being really clear about. The open about the deceit, and Derren Brown's particular brilliance in my mind is taking classic tricks and doing beautiful and amazing mods. I haven't seen the Netflix special now. I didn't even know it was there. I can't wait to watch it. One of there's a classic old trick called " Out of This World," in which you hand a deck of cards to someone and ask them to mentally to sort the cards into red and blue, red and black, without looking at the cards. So you make two piles blind, and the magician then turns those piles over and shows that you have done it correctly. Right? This is a wonderful reveal. It's a great trick. Watching it in the hands of a good magician is just delightful, and the surprise is incredible. Derren Brown's version of " Out of This World" from years and years ago was he handed you a bunch of photographs and you put them into piles of people you liked and people you didn't like, and when you were done, he turned them over and you could see that all the people you didn't like were deceased. And all the ones you did were alive.
 
 [00:23:34] Norm: What? Wow!
 
@@ -498,7 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:24:55] Adam: Derren Brown.
 
-[00:24:56] Norm: Yes, we were talking about Derren Brown, and well, Kishore and I were just talking about how I don't have to like. I didn't like all the the tricks he does in this special, and that's okay because some of the tricks that he does were to me very clearly just versions of a trick I'd seen before, and whether the execution were was hit and miss, like you know, I just don't care for that type of trick.
+[00:24:56] Norm: Yes, we were talking about Derren Brown, and well, Kishore and I were just talking about how I don't have to like. I didn't like all the tricks he does in this special, and that's okay because some of the tricks that he does were to me very clearly just versions of a trick I'd seen before, and whether the execution were was hit and miss, like I just don't care for that type of trick.
 
 [00:25:22] Adam: Right. Right.
 
@@ -512,21 +512,21 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:25:56] Norm: Which that's powerful,
 
-[00:25:58] Kishore: which I think is totally powerful. I think the the one and and this is going to be a mild spoiler for those who haven't seen it is he does he does this bit with a woman where he he smashes a light bulb and then eats it,
+[00:25:58] Kishore: which I think is totally powerful. I think the one and this is going to be a mild spoiler for those who haven't seen it is he does this bit with a woman where he smashes a light bulb and then eats it,
 
 [00:26:12] Adam: right,
 
-[00:26:12] Kishore: and then convinces a woman across the table from him, who's from the audience, to eat it as well, and she is full palpably of fear as you would be if you're trying to eat a glass bulb, and walks her through it so carefully and and sweetly, but really what he's doing is having her believe that she can. Do this thing while establishing some safety around her, and I think that's what was magical. It wasn't the trick itself; I've seen that trick before, but it was the story around it, which was you can do amazing things if you believe. But the people that peddle that to you as as as a story are oftentimes not in it for your best interest.
+[00:26:12] Kishore: and then convinces a woman across the table from him, who's from the audience, to eat it as well, and she is full palpably of fear as you would be if you're trying to eat a glass bulb, and walks her through it so carefully and sweetly, but really what he's doing is having her believe that she can. Do this thing while establishing some safety around her, and I think that's what was magical. It wasn't the trick itself; I've seen that trick before, but it was the story around it, which was you can do amazing things if you believe. But the people that peddle that to you as a story are oftentimes not in it for your best interest.
 
-[00:26:57] Adam: That is totally true, and I really appreciate Derren Brown being part of a long legacy from James Randi and Penn and Teller, and a lot of other amazing magicians who are clear that these are tricks. But there's a thing about what you're describing that is something I realized about magicians that is also became clear to me why I would never be a good magician, and it is that a magician doing a trick well involves taking an audience member, whether it's a close-up magic or a full audience, and holding them in a slightly uncomfortable place. Because something unexplainable is going to happen, and that's that is inherently a slightly dangerous place. I always think of it like, like the bodyguard holding Michael Douglas out over the the driving range shelf in the movie Black Rain. It's like the magician's holding you in this slightly unsafe space, but they're holding onto you really tight, and they're managing your attention and the narrative that you are receiving and remembering in order to give you this experience that they would love. They would love to be fooled, as as as Julia Sweeney says, " Magic is all atheists have left in the world." And I, as a as a the type of pleaser and and and cooperator that I am, I don't feel comfortable holding people in that space. I don't feel comfortable lying to them in order to create this experience.
+[00:26:57] Adam: That is totally true, and I really appreciate Derren Brown being part of a long legacy from James Randi and Penn and Teller, and a lot of other amazing magicians who are clear that these are tricks. But there's a thing about what you're describing that is something I realized about magicians that is also became clear to me why I would never be a good magician, and it is that a magician doing a trick well involves taking an audience member, whether it's a close-up magic or a full audience, and holding them in a slightly uncomfortable place. Because something unexplainable is going to happen, and that's that is inherently a slightly dangerous place. I always think of it like the bodyguard holding Michael Douglas out over the driving range shelf in the movie Black Rain. It's like the magician's holding you in this slightly unsafe space, but they're holding onto you really tight, and they're managing your attention and the narrative that you are receiving and remembering in order to give you this experience that they would love. They would love to be fooled, as Julia Sweeney says, " Magic is all atheists have left in the world." And I, as a the type of pleaser and cooperator that I am, I don't feel comfortable holding people in that space. I don't feel comfortable lying to them in order to create this experience.
 
 [00:28:29] Kishore: I would just imagine you just like the whole time going through the thing, having like a big grin on your face, like you're going to experience something amazing.
 
 [00:28:35] Adam: If I do a trick, I am nothing but just. A a litany of tells. I blink before I do the move. I do all sorts of crap. I'm just I'm terrible, but I you know it is that it is exactly that thing of of holding of hope like holding someone really tightly and doing giving them something really remarkable.
 
-[00:28:57] Kishore: I think the other thing is he was doing that show in front of like whatever 2,000 people, and there was nothing more intimate than watching that moment one on one with one person on stage and that level of intimacy in an age where everything feels like the opposite of intimacy these days felt really special and and kind.
+[00:28:57] Kishore: I think the other thing is he was doing that show in front of like whatever 2,000 people, and there was nothing more intimate than watching that moment one on one with one person on stage and that level of intimacy in an age where everything feels like the opposite of intimacy these days felt really special and kind.
 
-[00:29:16] Norm: Well, that's what I was watching it for. Like you know, yeah, you watch his version of the trick and his storytelling, but it's how does he capture 2,000 people and what is the performance? What is that 70 minutes? You know, he he has 70 minutes to tell his x number of stories and and tricks. How does that unfold and what does it build up to and is there a culmination? And for this one, there was. Yeah, so I'd recommend that. So I'm, you know, that's a long way saying I'm very looking forward to.
+[00:29:16] Norm: Well, that's what I was watching it for. Like yeah, you watch his version of the trick and his storytelling, but it's how does he capture 2,000 people and what is the performance? What is that 70 minutes? He has 70 minutes to tell his x number of stories and tricks. How does that unfold and what does it build up to and is there a culmination? And for this one, there was. Yeah, so I'd recommend that. So I'm, you know, that's a long way saying I'm very looking forward to.
 
 [00:29:41] Adam: I can't wait to see it.
 
@@ -542,7 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:29:54] Kishore: please text us. I texted Adam right after.
 
-[00:29:57] Adam: I was like, dude, I am still my my wife and I are still burning our way through Mad Men, which remains so shockingly great, just incredible.
+[00:29:57] Adam: I was like, dude, I am still my wife and I are still burning our way through Mad Men, which remains so shockingly great, just incredible.
 
 [00:30:09] Norm: And you go on a trip very soon. We talked about last week. You are working on the Maltese Falcon.
 
@@ -556,13 +556,13 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:30:25] Adam: Cause I'm out of time.
 
-[00:30:26] Kishore: I know you're you're well ahead of your normal schedule, but I get how you're out of time. Does it feel any better to be Potentially done with your Comic Con costume three weeks before Comic Con.
+[00:30:26] Kishore: I know you're well ahead of your normal schedule, but I get how you're out of time. Does it feel any better to be Potentially done with your Comic Con costume three weeks before Comic Con.
 
 [00:30:36] Adam: This has happened before. The alien spacesuit. When I made that, I was finished effectively a month before Comic Con, and it sat in the shop. And all I I was in full production at that point. So I came by the shop every morning at like seven in the morning with a cup of coffee and sort of tossed a little on it just to dirty it up and kind of weather it in.
 
-[00:30:54] Kishore: And the excitement of of unveiling it doesn't doesn't wane in the fact that you have this period.
+[00:30:54] Kishore: And the excitement of unveiling it doesn't doesn't wane in the fact that you have this period.
 
-[00:31:00] Adam: Not at all. In fact, I'm already thinking about how to display this year's San Diego costume here in my shop so that I can like imbibe it and imbue it. There's there is some aspects of a cooling system which I'll probably add when I get back. But yes, this weekend I'm heading up to Anderson Ranch to to to finally foundry the Maltese Falcon, and I just showed you the old one next to the new one.
+[00:31:00] Adam: Not at all. In fact, I'm already thinking about how to display this year's San Diego costume here in my shop so that I can like imbibe it and imbue it. There's there is some aspects of a cooling system which I'll probably add when I get back. But yes, this weekend I'm heading up to Anderson Ranch to finally foundry the Maltese Falcon, and I just showed you the old one next to the new one.
 
 [00:31:27] Norm: Oh my god!
 
@@ -570,13 +570,13 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:31:29] Norm: Yeah,
 
-[00:31:30] Adam: I mean, okay. So there's this. There's this thing that's happening, which is fascinating, right? I'm going through. I have all of these images of the Falcon. I've printed them all up full size, and I'm using calipers to measure distances and make sure that all of my topology is topography is correct. And yet, I can't quite get all the way there. That's just that's just the way that is. This is an imperfect art. What I am doing, as as tight as I can get, I'm. If you could grid the real one onto what I'm making, they won't match because they will never match because this is an imperfect art. And so there is this point at which I stop worrying. There's a point of detail which I stop worrying about the detail being perfect, and I start worrying about it being right. And I am almost at the point with this Falcon. I've got all the topographical details in every detent, every feather line. But now it's time to tie it together so it feels like a cohesive whole, and that. Involves going sort of away from the away from the perfection of getting every little detail right and making sure that the sculpture itself feels exactly like it should feel.
+[00:31:30] Adam: I mean, okay. So there's this. There's this thing that's happening, which is fascinating, right? I'm going through. I have all of these images of the Falcon. I've printed them all up full size, and I'm using calipers to measure distances and make sure that all of my topology is topography is correct. And yet, I can't quite get all the way there. That's just the way that is. This is an imperfect art. What I am doing, as tight as I can get, I'm. If you could grid the real one onto what I'm making, they won't match because they will never match because this is an imperfect art. And so there is this point at which I stop worrying. There's a point of detail which I stop worrying about the detail being perfect, and I start worrying about it being right. And I am almost at the point with this Falcon. I've got all the topographical details in every detent, every feather line. But now it's time to tie it together so it feels like a cohesive whole, and that. Involves going sort of away from the perfection of getting every little detail right and making sure that the sculpture itself feels exactly like it should feel.
 
 [00:32:44] Kishore: I think you just described like the struggle with any maker, like finishing a project. Like, what does it feel like when it's right?
 
-[00:32:52] Norm: Well, specifically a replica. When you're talking about detail by detail, is literally grid by grid line. You know, start this mark and this mark and this mark, but the step back.
+[00:32:52] Norm: Well, specifically a replica. When you're talking about detail by detail, is literally grid by grid line. Start this mark and this mark, but the step back.
 
-[00:33:02] Adam: Well, so and and there's a there's a difference between me and and a certain level of prop replicator. There's on the RPF now the the replication of Han Solo's DL44 his sidearm in Star Wars is at such a high level that you can buy you can buy a stencil that replicates all the chipped aluminum perfectly to screen matched. Perfection,
+[00:33:02] Adam: Well, so and there's a difference between me and a certain level of prop replicator. There's on the RPF now the replication of Han Solo's DL44 his sidearm in Star Wars is at such a high level that you can buy a stencil that replicates all the chipped aluminum perfectly to screen matched. Perfection,
 
 [00:33:29] Norm: right?
 
@@ -620,7 +620,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:35:55] Kishore: Dave Goldberg, yeah.
 
-[00:35:55] Adam: Sorry, Dave Goldberg, and I accidentally called him Ken Goldberg, who's a friend of mine that runs part of the robotics department at Cal. And I met Ken through my friend Michael Joaquin Grey, who's the creator of Zoob, a toy company that I was director of R and D of in the '90s. And Michael, in the late '80s, made a a perfect replica of Sputnik. And this was before the wall came down. He found engineers from Russia to help him replicate the radio. And Sputnik was a pressurized canister, and he literally every nut and bolt he replicated and displayed it with its long antenna. In a gallery, on a long strip of, I think, black velvet, and the sculpture's title was " My Sputnik," and the moment I saw that, I was like, " I know, I know, I get it, I got it, I got it." And so, when I was first working on the Maltese Falcon talk, which was the first big talk that went up on the TED site that got me attention, I my guiding principle in that was my Maltese Falcon, and that was part of a rhetorical flourish that I ended up removing from that talk because it was unnecessary. But yeah, it is exactly that. It's my Maltese Falcon, not the Maltese Falcon. All this, I am sure, to some folks, this is like this is a level of specificity that is completely unnecessary and ridiculous, and I totally agree with that.
+[00:35:55] Adam: Sorry, Dave Goldberg, and I accidentally called him Ken Goldberg, who's a friend of mine that runs part of the robotics department at Cal. And I met Ken through my friend Michael Joaquin Grey, who's the creator of Zoob, a toy company that I was director of R and D of in the '90s. And Michael, in the late '80s, made a perfect replica of Sputnik. And this was before the wall came down. He found engineers from Russia to help him replicate the radio. And Sputnik was a pressurized canister, and he literally every nut and bolt he replicated and displayed it with its long antenna. In a gallery, on a long strip of, I think, black velvet, and the sculpture's title was " My Sputnik," and the moment I saw that, I was like, " I know, I know, I get it, I got it, I got it." And so, when I was first working on the Maltese Falcon talk, which was the first big talk that went up on the TED site that got me attention, I my guiding principle in that was my Maltese Falcon, and that was part of a rhetorical flourish that I ended up removing from that talk because it was unnecessary. But yeah, it is exactly that. It's my Maltese Falcon, not the Maltese Falcon. All this, I am sure, to some folks, this is like this is a level of specificity that is completely unnecessary and ridiculous, and I totally agree with that.
 
 [00:37:24] Kishore: But that's why they come to this podcast.
 
@@ -648,7 +648,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:38:16] Adam: Right, exactly,
 
-[00:38:16] Norm: exactly. 35 pounds. Wow, that's that's gonna be that's gonna that's gonna be the weight limit. The whole thing
+[00:38:16] Norm: exactly. 35 pounds. Wow, that's gonna be the weight limit. The whole thing
 
 [00:38:21] Adam: for a carry-on
 
@@ -666,13 +666,13 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:38:51] Norm: worth putting a GPS tracker on that. Maybe.
 
-[00:38:53] Adam: Well, that's yeah. I have been known to do that in the past. Anything else to, uh, talk about on the side?
+[00:38:53] Adam: Well, that's yeah. I have been known to do that in the past. Anything else to talk about on the side?
 
 [00:38:59] Norm: I think that's it. One one thing we're announcing is that at San Diego Comic Con, we're looking for Totoros.
 
 [00:39:06] Adam: We are!
 
-[00:39:06] Norm: If if we'll be bringing
+[00:39:06] Norm: If we'll be bringing
 
 [00:39:08] Kishore: not like in the park, they're you're requesting people.
 
@@ -682,9 +682,9 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:39:16] Norm: We want the Totoro meet cutes. Yeah. If you're going to San Diego Comic Con and you built a Totoro, maybe it was inspired by the build that you did, Adam, or maybe you just built a Totoro. We would love to meet up and put a comment on the website, not YouTube, on the website, and we'll reach out or tweet at us, and we'll reach out and coordinate something.
 
-[00:39:39] Adam: Yeah, it's it's going to be Studio Ghibli Love Fest.
+[00:39:39] Adam: Yeah, it's going to be Studio Ghibli Love Fest.
 
-[00:39:42] Kishore: Oh, that that is going to be the the single most happy moment of the con. See a march of Totoros,
+[00:39:42] Kishore: Oh, that that is going to be the single most happy moment of the con. See a march of Totoros,
 
 [00:39:49] Adam: dude. What is the collective noun for Totoros? I think. I mean, I want to say a love of Totoros, a hug, an embrace of Totoros. There you go.
 
@@ -696,7 +696,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:40:11] Norm: And I think that's a perfect place to end. Thank you all there for listening. A happy Fourth of July.
 
-[00:40:16] Adam: Happy Fourth of July. Hey, oh, do like do like I do every year on the Fourth of July. I read the Constitution. It is a fantastic practice. It's a very readable document, and given all of the crap that is spewed about about what the Constitution is and what it means, it is a good practice as a citizen to read it yourself.
+[00:40:16] Adam: Happy Fourth of July. Hey, oh, do like I do every year on the Fourth of July. I read the Constitution. It is a fantastic practice. It's a very readable document, and given all of the crap that is spewed about about what the Constitution is and what it means, it is a good practice as a citizen to read it yourself.
 
 [00:40:41] Kishore: No spoilers, though.
 

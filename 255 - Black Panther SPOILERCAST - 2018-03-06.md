@@ -14,7 +14,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:00:38] Will: It's Monday after the Oscars.
 
-[00:00:40] Adam: Yes, we we had a lovely Oscar party last night. We had a ball. We had we had popcorn.
+[00:00:40] Adam: Yes, we had a lovely Oscar party last night. We had a ball. We had popcorn.
 
 [00:00:45] Norm: I saw that you won some type of Oscars bingo.
 
@@ -50,9 +50,9 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:01:43] Norm: Most of those actually happened.
 
-[00:01:44] Adam: Selfie. Camera cuts to joke subject. Fish sex joke. We we had a dispute about this, but it was decided by the house that there was not a fish sex joke.
+[00:01:44] Adam: Selfie. Camera cuts to joke subject. Fish sex joke. We had a dispute about this, but it was decided by the house that there was not a fish sex joke.
 
-[00:01:55] Will: So as is as is my tradition post. Birth of my child, I vacate the house on Oscar Day around the time the red carpet stuff starts, so that Gina can like
+[00:01:55] Will: So as is my tradition post. Birth of my child, I vacate the house on Oscar Day around the time the red carpet stuff starts, so that Gina can like
 
 [00:02:03] Adam: enjoy it.
 
@@ -62,7 +62,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:02:07] Will: so I saw Peter Rabbit instead of watching the Oscars yesterday, and I don't encourage anybody to do that
 
-[00:02:12] Adam: to do the the full operation or just to see Peter Rabbit.
+[00:02:12] Adam: to do the full operation or just to see Peter Rabbit.
 
 [00:02:14] Will: No, it's nice to get like if one person is more invested in the whole, you know, the soiree.
 
@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:04:04] Will: Well, it's they've been doing it for 90 years, and and the Academy Motion Picture Arts and Sciences is like, I mean they're they're movies.
 
-[00:04:13] Norm: Ah, now I know you didn't see this because you didn't watch it, but Adam, did you see the commercial for the museum? That was the the riff on the shining.
+[00:04:13] Norm: Ah, now I know you didn't see this because you didn't watch it, but Adam, did you see the commercial for the museum? That was the riff on the shining.
 
 [00:04:21] Adam: Yes. So here's what happened. We're fast forwarding through
 
@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:05:01] Norm: No, it's super cool.
 
-[00:05:02] Will: Is it is it the same site as like LACMA and all that stuff, or is it somewhere else?
+[00:05:02] Will: Is it the same site as like LACMA and all that stuff, or is it somewhere else?
 
 [00:05:06] Norm: I think it's that new museum.
 
@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:05:18] Will: That's fabulous.
 
-[00:05:19] Adam: Yeah, and you know, look if they want some Shining props, I might be able to help them out.
+[00:05:19] Adam: Yeah, and look if they want some Shining props, I might be able to help them out.
 
 [00:05:25] Will: You can. You can. They know who to call.
 
@@ -152,7 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:05:30] Adam: Did they?
 
-[00:05:30] Norm: Well, that the the big lander, right? I think that was them that they bought it.
+[00:05:30] Norm: Well, that the big lander, right? I think that was them that they bought it.
 
 [00:05:33] Adam: Ah,
 
@@ -166,7 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:05:51] Will: And how was the couch last night, Adam?
 
-[00:05:54] Adam: Yeah, it was really fun to watch the to watch the Oscars, especially the force of nature that is Frances McDormand. God, I love her. I love her.
+[00:05:54] Adam: Yeah, it was really fun to watch the Oscars, especially the force of nature that is Frances McDormand. God, I love her. I love her.
 
 [00:06:02] Will: Was that the first time she won?
 
@@ -182,7 +182,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:06:12] Norm: That's the case.
 
-[00:06:13] Adam: I believe that is the case. Damn, she is such an awesome human. Such a great actress and so forthright and intelligent. Oh my God, I like. I want to meet her just so that we could have a disagreement and I'll be wrong. Like that's that's the degree to which I want her approval.
+[00:06:13] Adam: I believe that is the case. Damn, she is such an awesome human. Such a great actress and so forthright and intelligent. Oh my God, I like. I want to meet her just so that we could have a disagreement and I'll be wrong. Like that's the degree to which I want her approval.
 
 [00:06:29] Norm: Inclusion riders,
 
@@ -190,7 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:06:31] Norm: Inclusion riders.
 
-[00:06:32] Adam: Inclusion riders. Also, my I think my favorite moment last night was Best Picture. They, Faye Dunaway and and Maureen Beatty announced that it is a Shape of Water. And Guillermo comes up on stage, gets the envelope, and holds it, looks at it, and turns to the camera and goes, " It is Shape of Water."
+[00:06:32] Adam: Inclusion riders. Also, my I think my favorite moment last night was Best Picture. They, Faye Dunaway and Maureen Beatty announced that it is a Shape of Water. And Guillermo comes up on stage, gets the envelope, and holds it, looks at it, and turns to the camera and goes, " It is Shape of Water."
 
 [00:06:50] Will: Somebody, I want to say Laura Hall on my Twitter feed, who's a game designer in Portland, had tweeted a picture of the envelope and was like, " Look, they fixed the graphic design problem that made that. Like, there were multiple things that compounded the mistake last year."
 
@@ -214,7 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:07:28] Adam: I'll. You know what? I don't know, but I suspect you know same in the same way that the Creative Arts Emmys, the Schmies that I have gone to, is cut down to like 75 minutes and aired on during the daytime on some.
 
-[00:07:45] Norm: Yeah, for the Oscars, it's barely acknowledged. You have like one shot of Patrick Stewart and and some of the some of the recipients.
+[00:07:45] Norm: Yeah, for the Oscars, it's barely acknowledged. You have like one shot of Patrick Stewart and some of the recipients.
 
 [00:07:51] Adam: So that's it's not something I've looked up.
 
@@ -226,11 +226,11 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:08:09] Adam: Yeah,
 
-[00:08:09] Will: because if you look at Holly Hunter in The Big Sick, I don't know if you if you saw that, but like she was unbelievable in that movie.
+[00:08:09] Will: because if you look at Holly Hunter in The Big Sick, I don't know if you saw that, but like she was unbelievable in that movie.
 
 [00:08:15] Adam: Phenomenal. Yep.
 
-[00:08:15] Will: Frances McDormand in Three Billboards was unlike she's ever been before. I think, and and yeah, like it's it was good. It was good all the way around.
+[00:08:15] Will: Frances McDormand in Three Billboards was unlike she's ever been before. I think, and yeah, like it's it was good. It was good all the way around.
 
 [00:08:24] Adam: Yep.
 
@@ -254,11 +254,11 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:09:06] Norm: and then he went up and thanked. Everyone he's worked with,
 
-[00:09:09] Adam: yeah, no, he's an amazing guy, amazing guy. I, I, I heard this about Blade Runner and other films. He does not have a second unit.
+[00:09:09] Adam: yeah, no, he's an amazing guy. I heard this about Blade Runner and other films. He does not have a second unit.
 
 [00:09:18] Norm: All him.
 
-[00:09:19] Adam: he is there for every camera shot. He he doesn't delegate that.
+[00:09:19] Adam: he is there for every camera shot. He doesn't delegate that.
 
 [00:09:23] Will: So typically, a second unit does like exterior shots and stuff without the kind of main actors.
 
@@ -270,15 +270,15 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:09:44] Will: Huh. I mean, part of me says, yeah, that's awesome that he's like watches the whole thing. The other part of me says, hey, that's a valuable spot for people who are coming up to like get get time on camera.
 
-[00:09:55] Adam: Yeah, totally. No, I mean that was that was the thing. Those I can't remember if we talked about this on the podcast, but we've talked about it personally so much is that on the behind the scenes of Lord of the Rings, you can watch them having to watch. Two hours plus of dailies every single day from all the multiple camera departments, and the only one who could seem to stay awake till the end of every single session was Peter.
+[00:09:55] Adam: Yeah, totally. No, I mean that was the thing. Those I can't remember if we talked about this on the podcast, but we've talked about it personally so much is that on the behind the scenes of Lord of the Rings, you can watch them having to watch. Two hours plus of dailies every single day from all the multiple camera departments, and the only one who could seem to stay awake till the end of every single session was Peter.
 
-[00:10:17] Will: I mean, look, you you know him better than we do, than I do, obviously. But I mean, he seems like he is just a an unstoppable force, basically.
+[00:10:17] Will: I mean, look, you know him better than we do, than I do, obviously. But I mean, he seems like he is just a an unstoppable force, basically.
 
 [00:10:24] Adam: Absolutely, and Coco, Coco won. Lee Unkrich and the Pixar folks got up. That was a lovely set of speeches for Coco's acceptance.
 
 [00:10:33] Norm: One of two awards and best song.
 
-[00:10:35] Will: Best song too. Yeah. I mean, Coco in this year's Best Animated Field was like if it hadn't won one, there would have been. It was a massive crime. I mean, I've I've seen all. Well, I didn't see the I didn't see the becoming Vincent one, but I saw everything else.
+[00:10:35] Will: Best song too. Yeah. I mean, Coco in this year's Best Animated Field was like if it hadn't won one, there would have been. It was a massive crime. I mean, I've I've seen all. Well, I didn't see the becoming Vincent one, but I saw everything else.
 
 [00:10:49] Adam: You saw Boss Baby.
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:11:36] Will: Back and forth all over the place,
 
-[00:11:37] Adam: Have some announcements to make. I'll have some announcements to make later on this year about some projects that I've had on the on the burner that have been occupying a lot of my time. But suffice it to say, I have not been able to make it out to the damn movies until this weekend when we went and saw Black Panther at the Kabuki.
+[00:11:37] Adam: Have some announcements to make. I'll have some announcements to make later on this year about some projects that I've had on the burner that have been occupying a lot of my time. But suffice it to say, I have not been able to make it out to the damn movies until this weekend when we went and saw Black Panther at the Kabuki.
 
 [00:11:52] Will: What'd you think? Was it good or you know,
 
@@ -314,9 +314,9 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:12:32] Adam: but not to anyone's. Not that anyone's complaining. And holy cow, did I love that movie so so much!
 
-[00:12:40] Will: So I walked out of the theater, and it's it's one of like I don't often walk out of the theater and think, man, I would turn around and walk back right in and watch another showing of that. Had it not been the Friday after it opened, I would have turned right back around and gone right back into the next showing because it was exceptional.
+[00:12:40] Will: So I walked out of the theater, and it's one of like I don't often walk out of the theater and think, man, I would turn around and walk back right in and watch another showing of that. Had it not been the Friday after it opened, I would have turned right back around and gone right back into the next showing because it was exceptional.
 
-[00:12:52] Adam: Angela Bassett, by the way, seems to be using some alien technology to stay looking as badass as as I can possibly imagine. She's a warrior. I loved the general. I loved Shuri. Chadwick Boseman was incredible. I'd read extensively about how they worked on a dialect that wasn't any specific African country, but that really was specific to Wakanda and getting everyone to. Speak that way, and at a certain point, my wife leans over and she's like, " The accents are amazing, and they really were like super consistent."
+[00:12:52] Adam: Angela Bassett, by the way, seems to be using some alien technology to stay looking as badass as I can possibly imagine. She's a warrior. I loved the general. I loved Shuri. Chadwick Boseman was incredible. I'd read extensively about how they worked on a dialect that wasn't any specific African country, but that really was specific to Wakanda and getting everyone to. Speak that way, and at a certain point, my wife leans over and she's like, " The accents are amazing, and they really were like super consistent."
 
 [00:13:22] Will: Yeah, across all the characters.
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:13:36] Will: Let's decide what we're going to talk about, and then we should have a spoiler.
 
-[00:13:38] Adam: I think I think it's been out long enough. We can spoil the crap out of this. Oh, you want to talk non-spoiler first?
+[00:13:38] Adam: I think it's been out long enough. We can spoil the crap out of this. Oh, you want to talk non-spoiler first?
 
 [00:13:44] Will: I mean, we usually do, just in case, like the three people that haven't seen it yet.
 
@@ -356,33 +356,33 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:14:11] Adam: PG 13
 
-[00:14:11] Will: . Yeah, like like it's it's a fabulous album, and and I'm shocked that they got Disney to sign off with putting this fairly explicit album out with a PG-13 movie that's clearly aimed at teenagers. But whatever, all good.
+[00:14:11] Will: Yeah, like it's a fabulous album, and I'm shocked that they got Disney to sign off with putting this fairly explicit album out with a PG-13 movie that's clearly aimed at teenagers. But whatever, all good.
 
 [00:14:27] Adam: Yeah,
 
-[00:14:28] Will: I mean, it seems like it seems like to me that Disney just said, " Hey, here's here's this character. Here are an incredibly talented team of actors and directors and and production writers. The whole thing, go make this film that you want to see." And then they kind of stayed out of their way.
+[00:14:28] Will: I mean, it seems like to me that Disney just said, " Hey, here's here's this character. Here are an incredibly talented team of actors and directors and and production writers. The whole thing, go make this film that you want to see." And then they kind of stayed out of their way.
 
-[00:14:45] Adam: It seems and feels and smells exactly like that. Like it is, it is a a complete vision that is joyful. It's dangerous. It's it's beautiful. You know, we've talked coming back from San Diego Comic Con each year that there are touchstone films. A couple years ago, everyone there was so many Reys from from Force Awakens. There, this year, I really think unequivocally, San Diego Comic Con is going to be the Black Panther Comic Con.
+[00:14:45] Adam: It seems and feels and smells exactly like that. Like it is a complete vision that is joyful. It's dangerous. It's beautiful. We've talked coming back from San Diego Comic Con each year that there are touchstone films. A couple years ago, everyone there was so many Reys from Force Awakens. There, this year, I really think unequivocally, San Diego Comic Con is going to be the Black Panther Comic Con.
 
 [00:15:13] Will: Bunch of middle-aged white guys in Black Panther armor. It's just what everybody needs.
 
-[00:15:16] Adam: God, I hope not. I loved the range of costumes. I loved the range of of of iconography and masks and dress and I mean, one of the things that's great about world building is what you understand, but also what you don't understand. And we've said this before, but I think that Spirited Away is probably the greatest example of this. Is a this is a world with rules, and you're only going to ever learn like one tiny smidgen of them. But you can tell there's an internal consistency and depth, right?
+[00:15:16] Adam: God, I hope not. I loved the range of costumes. I loved the range of iconography and masks and dress and I mean, one of the things that's great about world building is what you understand, but also what you don't understand. And we've said this before, but I think that Spirited Away is probably the greatest example of this. Is a this is a world with rules, and you're only going to ever learn like one tiny smidgen of them. But you can tell there's an internal consistency and depth, right?
 
-[00:15:51] Norm: And to give you a glimpse into that depth while not feeling superficial and to to show that there is more there,
+[00:15:51] Norm: And to give you a glimpse into that depth while not feeling superficial and to show that there is more there,
 
 [00:15:58] Adam: yeah.
 
 [00:15:58] Norm: That I mean, explicitly say it. That is difficult.
 
-[00:16:01] Will: It's one of the things that actually is really interesting about Avatar. Like, like it's a movie that nobody thinks about anymore.
+[00:16:01] Will: It's one of the things that actually is really interesting about Avatar. Like it's a movie that nobody thinks about anymore.
 
 [00:16:06] Norm: Yeah,
 
-[00:16:06] Will: 12 years after it came out or whatever. But you know, it was really clear when you saw the ships and all the all of the world that was set up around telling that relatively simple story.
+[00:16:06] Will: 12 years after it came out or whatever. But it was really clear when you saw the ships and all the all of the world that was set up around telling that relatively simple story.
 
 [00:16:18] Norm: Yeah.
 
-[00:16:18] Will: That James Cameron and the whoever else wrote the film had spent a lot of time thinking about how this works, what the economy of this is, you know, why people would come to this place and and all that, and you get a lot of the same like. So we want to get into spoilers because I.
+[00:16:18] Will: That James Cameron and the whoever else wrote the film had spent a lot of time thinking about how this works, what the economy of this is, you know, why people would come to this place and all that, and you get a lot of the same like. So we want to get into spoilers because I.
 
 [00:16:32] Norm: Let's do it.
 
@@ -392,13 +392,13 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:16:41] Norm: Yeah.
 
-[00:16:41] Will: I was just like, oh right, okay, this is not at all what I was going to,. I was expecting this. This is. This is. There's something really different happening here, and I was really thrilled. Like it was an exciting moment. The theater gasped when I was in there like. And and you don't get that in movies.
+[00:16:41] Will: I was just like, oh right, okay, this is not at all what I was going to,. I was expecting this. This is. This is. There's something really different happening here, and I was really thrilled. Like it was an exciting moment. The theater gasped when I was in there like. And you don't get that in movies.
 
 [00:16:58] Adam: No, you don't. You don't. And I mean, even so, I'm two and a half weeks behind. The audience clapped at the end of the screening I saw in the middle of the day.
 
 [00:17:07] Will: Yeah.
 
-[00:17:07] Adam: You know, it's a joyful. A joyful movie to watch, and I'm. It's like like you said. I'm going to watch it many times. I'm really looking forward to sinking my teeth into all of that.
+[00:17:07] Adam: It's a joyful. A joyful movie to watch, and I'm. It's like you said. I'm going to watch it many times. I'm really looking forward to sinking my teeth into all of that.
 
 [00:17:20] Norm: I mean, the film also has a juggle between this very entertaining popcorn film and a comic book film, and also being aware of its importance to its viewers and the people, the characters, and the people that the film represents. And it doesn't pull that gut punch. It lets you. It has intentionally has the gut punch at the both the end of the film.
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:17:48] Adam: yeah.
 
-[00:17:48] Norm: I mean, opens up in Oakland, and then when they jump back to that flashback, and you realize it is Michael B. Jordan's character Killmonger looking up at the ship and running up, you know, into the apartment building. That is powerful.
+[00:17:48] Norm: I mean, opens up in Oakland, and then when they jump back to that flashback, and you realize it is Michael B. Jordan's character Killmonger looking up at the ship and running up into the apartment building. That is powerful.
 
 [00:18:00] Will: Yeah,
 
@@ -420,27 +420,27 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:18:12] Will: Oh,
 
-[00:18:12] Norm: and the kid walks up to him, and and says, " Who are you?" And when they reveal themselves, not only to the world but to the kids there,
+[00:18:12] Norm: and the kid walks up to him, and says, " Who are you?" And when they reveal themselves, not only to the world but to the kids there,
 
 [00:18:19] Will: yeah.
 
 [00:18:19] Norm: And it's the complete opposite of what his father did, which was to hide and shroud in secrecy.
 
-[00:18:24] Adam: And and Julia turned to me and did when he said, " When the kid says, 'Who are you?'" Julia said in her best, " My wife." In her best,
+[00:18:24] Adam: And Julia turned to me and did when he said, " When the kid says, 'Who are you?'" Julia said in her best, " My wife." In her best,
 
 [00:18:33] Will: My wife.
 
 [00:18:33] Adam: Robert Downey Jr. I am Black Panther.
 
-[00:18:37] Norm: I mean, and that's that's. I mean, it's a riff on that.
+[00:18:37] Norm: I mean, and that's. I mean, it's a riff on that.
 
 [00:18:40] Adam: Yeah,
 
-[00:18:40] Norm: it's a riff on the Batman. You know, at the end of you know Batman Dark Knight, right? It's it's a riff on all that that trope of the superhero revealing
+[00:18:40] Norm: it's a riff on the Batman. At the end of you know Batman Dark Knight, right? It's a riff on all that that trope of the superhero revealing
 
 [00:18:48] Adam: Self-actualization.
 
-[00:18:49] Norm: exactly, but it's much more powerful because it's about what the the person asking the question sees in the character.
+[00:18:49] Norm: exactly, but it's much more powerful because it's about what the person asking the question sees in the character.
 
 [00:18:56] Adam: Yeah, and it like I love Marvel for getting out of the way of its own movies.
 
@@ -456,15 +456,15 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:19:09] Adam: a deeply New Zealand film and its sense of humor and. Play and folly. I mean, you know, this is a movie with a bunch of jokes that don't feel at all like Hollywood style jokes, and yet they totally scan and work.
 
-[00:19:23] Will: I mean, if they cut across during one of the fight scenes and like Jermaine Clements over there strumming a ukulele and singing, that would have been okay. I would have been okay with that. Yeah, so I mean, I don't know what like. Look, a lot of the stuff in Black Panther, I feel like I am woefully under equipped to to discuss intelligently, and I don't think we need more.
+[00:19:23] Will: I mean, if they cut across during one of the fight scenes and like Jermaine Clements over there strumming a ukulele and singing, that would have been okay. I would have been okay with that. Yeah, so I mean, I don't know what like. Look, a lot of the stuff in Black Panther, I feel like I am woefully under equipped to discuss intelligently, and I don't think we need more.
 
-[00:19:40] Adam: I think the cultural implications of Black Panther have been covered extensively, and you know, it's also a great film, and that's
+[00:19:40] Adam: I think the cultural implications of Black Panther have been covered extensively, and it's also a great film, and that's
 
 [00:19:47] Norm: that's the
 
 [00:19:48] Adam: loveliest thing about the idea of this type of cultural normalization of bringing people closer together by giving them things to enjoy together.
 
-[00:19:57] Norm: Extremely efficient and competent in its action and its sequences. There is a great video that I think director Ryan Coogler did with Variety or Vanity Fair, where he maps out the casino scene, the fight scene in the casino, and it was one of the first scenes they shot. And it's a series on on that YouTube channel where directors talk, and I think Taika Waititi did same thing for Thor.
+[00:19:57] Norm: Extremely efficient and competent in its action and its sequences. There is a great video that I think director Ryan Coogler did with Variety or Vanity Fair, where he maps out the casino scene, the fight scene in the casino, and it was one of the first scenes they shot. And it's a series on that YouTube channel where directors talk, and I think Taika Waititi did same thing for Thor.
 
 [00:20:20] Will: Okay.
 
@@ -472,11 +472,11 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:20:30] Adam: Oh, that's great! I I've been avoiding all that stuff since I'm psyched to jump in..
 
-[00:20:33] Norm: Totally should watch it for for Black Panther and for this action sequence, which is just in the casino where it's you know the the three of them in the room, and then the the with Andy Serkis's character, and then when the fight breaks out, even the the beats of that and their positioning and the colors that they're wearing, everything is so thoughtful.
+[00:20:33] Norm: Totally should watch it for Black Panther and for this action sequence, which is just in the casino where it's you know the three of them in the room, and then the with Andy Serkis's character, and then when the fight breaks out, even the beats of that and their positioning and the colors that they're wearing, everything is so thoughtful.
 
 [00:20:52] Adam: You are never abandoned in the physical space. I've you know the action of it.
 
-[00:20:58] Will: There were a couple moments in one of the car chases where you kind of lost when when he gets chucked up in the air, and you're like, ah, where'd he go? What's going on here? And then magically ends up right in the right place.
+[00:20:58] Will: There were a couple moments in one of the car chases where you kind of lost when he gets chucked up in the air, and you're like, ah, where'd he go? What's going on here? And then magically ends up right in the right place.
 
 [00:21:08] Adam: I also want to point out how great a villain Andy Serkis is. He's terrifying.
 
@@ -512,7 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:21:55] Norm: Yeah,
 
-[00:21:55] Will: I, I, um, like it's one of the things that bums me out now is when you see a character, like an actor, gets their one shot at the MCU. Get they, whoever makes the movie whiffs it, and you end up with a with an amazing like like the the example of Michael Keaton as Vulture in Spider Man was fine, but like like. You could do a lot more with Michael Keaton than a one-off bad guy.
+[00:21:55] Will: I like it's one of the things that bums me out now is when you see a character, like an actor, gets their one shot at the MCU. Get they, whoever makes the movie whiffs it, and you end up with a with an amazing like the example of Michael Keaton as Vulture in Spider Man was fine, but. You could do a lot more with Michael Keaton than a one-off bad guy.
 
 [00:22:17] Adam: I thought it
 
@@ -534,7 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:22:54] Will: Yeah,
 
-[00:22:55] Adam: yeah, yeah. We we were we were we were we were talking about the the extreme beauty of a bunch of the. I mean, that's
+[00:22:55] Adam: yeah, yeah. We were talking about the extreme beauty of a bunch of the. I mean, that's
 
 [00:23:03] Will: really. I mean,
 
@@ -580,7 +580,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:23:46] Norm: I think that he was unabashed about the fact that even though not within the same continuity, you can pull a John Williams theme and put it in a Zack Snyder movie.
 
-[00:23:55] Will: Yeah, he's like this is the Superman song, and he used the original John Williams theme. He used the he used like, and the thing that amazed me is that the Wonder Woman theme, which is excellent, the Danny Elfman Batman theme, which is excellent, and the the John Williams Superman theme, which is iconic.
+[00:23:55] Will: Yeah, he's like this is the Superman song, and he used the original John Williams theme. He used the he used like, and the thing that amazed me is that the Wonder Woman theme, which is excellent, the Danny Elfman Batman theme, which is excellent, and the John Williams Superman theme, which is iconic.
 
 [00:24:10] Adam: Yeah,
 
@@ -588,11 +588,11 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:24:12] Adam: Amazing
 
-[00:24:12] Will: in the context of of of this film.
+[00:24:12] Will: in the context of this film.
 
 [00:24:15] Adam: Okay,
 
-[00:24:15] Will: and and I thought I I thought it was lovely.
+[00:24:15] Will: and I thought I I thought it was lovely.
 
 [00:24:18] Adam: Um.
 
@@ -606,7 +606,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:24:29] Norm: Yeah, Factory Entertainment.
 
-[00:24:30] Adam: Factory Entertainment makes a an all metal God Killer sword, and this is this is it. The blade is, in terms of accuracy, terrific. The symbols and the etching is pretty darn great. The handle is cast zinc alloy, like a lot of handles from metal movie props.
+[00:24:30] Adam: Factory Entertainment makes a an all metal God Killer sword, and this is it. The blade is, in terms of accuracy, terrific. The symbols and the etching is pretty darn great. The handle is cast zinc alloy, like a lot of handles from metal movie props.
 
 [00:24:49] Will: So it has the right weight.
 
@@ -620,37 +620,37 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:25:29] Adam: I think I'm going to take it out to a. But there's a lot of jewelry places here in San Francisco, and have it gold plated to make it extra awesome.
 
-[00:25:35] Norm: And that's the thing with like prop replicas like these because they're they're high end. They're several hundred dollars. Sometimes they're limited edition. When you read the description on their website, I think everything has to be read with a little grain of salt because they say, you know, designed with access to the original prop, but that can mean so many things, right? Did they get the original files? Are they were they given just photos of it? Like how accurate? And that doesn't tell you whether their manufacturing process, you know, all the seam lines that you got rid of in this replica were they in the original prop?
+[00:25:35] Norm: And that's the thing with like prop replicas like these because they're high end. They're several hundred dollars. Sometimes they're limited edition. When you read the description on their website, I think everything has to be read with a little grain of salt because they say designed with access to the original prop, but that can mean so many things, right? Did they get the original files? Are they were they given just photos of it? Like how accurate? And that doesn't tell you whether their manufacturing process all the seam lines that you got rid of in this replica were they in the original prop?
 
-[00:26:07] Adam: Look, I mean, and and the the simplest logical case to make for how hard it is is that master replicas repeatedly had access. To original props and still managed to regularly piss off their fans for getting large details wrong, and by wrong I mean they might have had one detail from one movie on a prop that was in the wrong movie of the franchise, because that happens when you go into the archives. Often the people managing these archives don't know as much as your as your as your base level obsessed fan like me or you,
+[00:26:07] Adam: Look, I mean, and the simplest logical case to make for how hard it is is that master replicas repeatedly had access. To original props and still managed to regularly piss off their fans for getting large details wrong, and by wrong I mean they might have had one detail from one movie on a prop that was in the wrong movie of the franchise, because that happens when you go into the archives. Often the people managing these archives don't know as much as your base level obsessed fan like me or you,
 
-[00:26:38] Norm: right? And as a licensee, the people who have who pay money to get the rights to make these replicas, they don't always get every all the access because the licensor doesn't care. They they got the money and they'll sign off on something and they have you know those words you know authentic like a certificate of authenticity, but that may not be enough. So I love the idea that you're taking something that you've paid several hundred dollars for and then basically taking it apart,
+[00:26:38] Norm: right? And as a licensee, the people who have who pay money to get the rights to make these replicas, they don't always get every all the access because the licensor doesn't care. They got the money and they'll sign off on something and they have you know those words you know authentic like a certificate of authenticity, but that may not be enough. So I love the idea that you're taking something that you've paid several hundred dollars for and then basically taking it apart,
 
 [00:27:02] Adam: yep,
 
 [00:27:02] Norm: and rebuilding it.
 
-[00:27:04] Adam: And so yeah, we'll we'll we'll show my results when when we're all done. This is not one we're covering on camera because I'm it's probably going to take me dozens of hours of work over many days to do this. So it's just sitting on my bench with some files near it, and every time I have an extra 30 minutes, I kind of work on it for a bit.
+[00:27:04] Adam: And so yeah, we'll we'll we'll show my results when we're all done. This is not one we're covering on camera because I'm it's probably going to take me dozens of hours of work over many days to do this. So it's just sitting on my bench with some files near it, and every time I have an extra 30 minutes, I kind of work on it for a bit.
 
 [00:27:20] Will: Do you find that kind of work to be a little meditative?
 
-[00:27:22] Adam: Oh, it's entirely meditative. I, I, no longer at this point in my life mind looking at a project like this where I'm not even sure how long it's going to take or how I'm going to finish it. I and, um, from being obsessed with the engraving video, but also specifically Clickspring. I've mentioned Clickspring on the podcast. Holy cow! Go watch Clickspring. Um, this is the guy who does everything out of a shop that is maybe 300 square feet, and a lot of his work is so carefully hand filing with really good lighting and good vise work. Um, it's it's that's gotten me into doing exactly this kind of thing and being like, oh, I can with files. I can't make an unrecoverable mistake like I can with a Dremel, so I can just sit there and slowly look at it from every angle and just make sure it's right.
+[00:27:22] Adam: Oh, it's entirely meditative. I, no longer at this point in my life mind looking at a project like this where I'm not even sure how long it's going to take or how I'm going to finish it. I and from being obsessed with the engraving video, but also specifically Clickspring. I've mentioned Clickspring on the podcast. Holy cow! Go watch Clickspring. This is the guy who does everything out of a shop that is maybe 300 square feet, and a lot of his work is so carefully hand filing with really good lighting and good vise work. It's that's gotten me into doing exactly this kind of thing and being like, oh, I can with files. I can't make an unrecoverable mistake like I can with a Dremel, so I can just sit there and slowly look at it from every angle and just make sure it's right.
 
-[00:28:11] Will: It makes a ton of sense. You can you can muck something up in about three tenths of a second with a Dremel.
+[00:28:11] Will: It makes a ton of sense. You can muck something up in about three tenths of a second with a Dremel.
 
 [00:28:16] Adam: Right, and so I'm now like I did some Dremel work on this today to kind of play around with one of the dragon heads, and I I put it on one of its lowest settings so I could just sit there and really have the gentle control.
 
-[00:28:30] Will: Do you ever vise the Dremel and go the other way? That's that was the thing somebody showed me once. Is you put it you put the the Dremel in a bench vise, and then you can kind of come at the blade from the side.
+[00:28:30] Will: Do you ever vise the Dremel and go the other way? That's that was the thing somebody showed me once. Is you put it you put the Dremel in a bench vise, and then you can kind of come at the blade from the side.
 
 [00:28:38] Adam: I had not tried that.
 
 [00:28:39] Will: It seems a little dangerous.
 
-[00:28:40] Adam: .  Yeah, I haven't tried that. I am interested in the in the engraving video of the watch. It's clear that the watch is clamped into a special jeweler's vise that holds it, and I actually bought one. But this one specifically turns, so the the engraver has his two hands, his or her two hands on the work, but they're turning the work into the chisel, not the other way around.
+[00:28:40] Adam: Yeah, I haven't tried that. I am interested in the engraving video of the watch. It's clear that the watch is clamped into a special jeweler's vise that holds it, and I actually bought one. But this one specifically turns, so the engraver has his two hands, his or her two hands on the work, but they're turning the work into the chisel, not the other way around.
 
 [00:29:03] Norm: So you have to only maintain the pressure.
 
-[00:29:05] Adam: Yeah, and so I'm curious what that rig looks like, and I've started to I went and looked for engraver's vise, engraver's work setup. I'm I'm sure somebody listening will will post where I could see this. But it's almost like they've got some sort of Potter's wheel type thing. They're moving with their feet, but it's really heavy and holds this thing rigidly.
+[00:29:05] Adam: Yeah, and so I'm curious what that rig looks like, and I've started to I went and looked for engraver's vise, engraver's work setup. I'm sure somebody listening will will post where I could see this. But it's almost like they've got some sort of Potter's wheel type thing. They're moving with their feet, but it's really heavy and holds this thing rigidly.
 
 [00:29:24] Norm: But you get mechanical assistance and precision.
 
@@ -662,7 +662,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:29:43] Will: Cool.
 
-[00:29:43] Adam: Speaking of commenting within the comments, I just want to thank the tested community, those who agree with what we talked about last week about gun control, but especially those who don't agree with us who took the time to contribute to the conversation. I thought everybody in the comments comported themselves really respectfully and understood our goal to try and create a dialogue. I was incredibly gratified by the response on on our site on Facebook. On Twitter about about our podcast last week,
+[00:29:43] Adam: Speaking of commenting within the comments, I just want to thank the tested community, those who agree with what we talked about last week about gun control, but especially those who don't agree with us who took the time to contribute to the conversation. I thought everybody in the comments comported themselves really respectfully and understood our goal to try and create a dialogue. I was incredibly gratified by the response on our site on Facebook. On Twitter about about our podcast last week,
 
 [00:30:16] Will: I saw you middle of last week, and you were like, " Hey, the comments on that were really good." I was like, " Wait, what? Really?"
 

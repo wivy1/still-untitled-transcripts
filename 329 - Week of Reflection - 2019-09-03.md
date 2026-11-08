@@ -36,11 +36,11 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:01:10] Adam: It's already back.
 
-[00:01:11] Will: I I rented a car last week, and the rental car place had one of the best disclaimers I've ever seen on this on the counter when you were renting the car, and it was basically like, look, we allow you to take your car to Burning these rental cars to Burning Man, but when it comes back, we're going to check the engine compartment and the interior, and if there's any dust, we're going to charge you a $400 detailing fee.
+[00:01:11] Will: I rented a car last week, and the rental car place had one of the best disclaimers I've ever seen on this on the counter when you were renting the car, and it was basically like, look, we allow you to take your car to Burning these rental cars to Burning Man, but when it comes back, we're going to check the engine compartment and the interior, and if there's any dust, we're going to charge you a $400 detailing fee.
 
 [00:01:32] Adam: Oh, nice.
 
-[00:01:32] Will: And I was just like, that is like that is surprisingly chill. That that like I was expecting them to be like, no, under no circumstances is this car to go on Black Rock Mesa. Yada yada yada.
+[00:01:32] Will: And I was just like, that is surprisingly chill. That that like I was expecting them to be like, no, under no circumstances is this car to go on Black Rock Mesa. Yada yada yada.
 
 [00:01:40] Adam: There's A certain amount of like you just can't stop it.
 
@@ -50,7 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:01:52] Will: Yeah,
 
-[00:01:52] Adam: where the only people wandering around the Mission are foreign tourists. They are delightful. It was super. Like we drove around the city every day. It was it was wonderful.
+[00:01:52] Adam: where the only people wandering around the Mission are foreign tourists. They are delightful. It was super. Like we drove around the city every day. It was wonderful.
 
 [00:02:03] Will: I had lunch in the Richmond yesterday, and it was just we walked right in like to the good dim sum place. There's no line. Yep.
 
@@ -66,7 +66,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:02:25] Adam: Dragon Con,
 
-[00:02:26] Norm: Dragon Con, and and and PAX, the big video game expo in Seattle. And in Dragon Con, of course, I want to talk about Dragon Con. We obviously did not get to go, but the pictures,
+[00:02:26] Norm: Dragon Con, and PAX, the big video game expo in Seattle. And in Dragon Con, of course, I want to talk about Dragon Con. We obviously did not get to go, but the pictures,
 
 [00:02:36] Adam: dude,
 
@@ -106,31 +106,31 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:03:50] Adam: I know. I mean that that saturated blue. They really nailed it.
 
-[00:03:54] Will: I the thing that so I've never been to Dragon Con. I've always wanted to go, but not enough to go to Atlanta and Labor Day. But it seems like it's the place that, like, the hardcore cosplay community goes to really show off.
+[00:03:54] Will: I the thing that so I've never been to Dragon Con. I've always wanted to go, but not enough to go to Atlanta and Labor Day. But it seems like it's the place that the hardcore cosplay community goes to really show off.
 
-[00:04:07] Adam: Oh, yeah, yeah, no, it's it's San Diego is
+[00:04:07] Adam: Oh, yeah, yeah, no, it's San Diego is
 
 [00:04:13] Will: that's outreach; it's community outreach. You are getting new people. in.
 
 [00:04:15] Adam: It's more than that. Obviously, it's definitely more than that. But Dragon Con is where you go to like do the deep cuts that will be appreciated by your fellow cosplayers.
 
-[00:04:24] Norm: And I think it's less about what you bring as as opposed to how you are, you what you are doing while you are in costume. And San Diego there’s a lot of stuff that's greatest hits. Definitely stuff that's unveiled because you got a lot of attention, a lot of press, a lot of media. But cosplayers go to San Diego don't really get to enjoy themselves. You know, they stand in the lobby, they take photos. Yeah, you are waiting in lines and shopping, but at Dragon Con, the cosplay you are doing, you are there just to hang out because it is a party, and the fact that you are it's a social event rather than a convention setting. Even though it is technically a convention, that's what makes it more enjoyable.
+[00:04:24] Norm: And I think it's less about what you bring as opposed to how you are, you what you are doing while you are in costume. And San Diego there’s a lot of stuff that's greatest hits. Definitely stuff that's unveiled because you got a lot of attention, a lot of press, a lot of media. But cosplayers go to San Diego don't really get to enjoy themselves. They stand in the lobby, they take photos. Yeah, you are waiting in lines and shopping, but at Dragon Con, the cosplay you are doing, you are there just to hang out because it is a party, and the fact that you are it's a social event rather than a convention setting. Even though it is technically a convention, that's what makes it more enjoyable.
 
-[00:05:00] Adam: And it's very hotel based. They like take over the five hotels in the middle of downtown, and it's it's phenomenal. Some of the best evenings I've had in my life have been at DragonCon.
+[00:05:00] Adam: And it's very hotel based. They like take over the five hotels in the middle of downtown, and it's phenomenal. Some of the best evenings I've had in my life have been at DragonCon.
 
 [00:05:09] Will: One of my favorite costumes that I ever saw come out of there was I think Harrison Krix and Bill and some other folks made like had a print run of the carpet from the floor of one of the hotels,
 
 [00:05:19] Adam: and probably got a cease and desist from the carpet company.
 
-[00:05:22] Will: I remember, and then and then the next year they had changed the carpet in the hotel,
+[00:05:22] Will: I remember, and then the next year they had changed the carpet in the hotel,
 
 [00:05:26] Adam: right?
 
 [00:05:26] Will: Yeah, yeah. It's just I mean, but the that makes the costume even better in my eyes, right?
 
-[00:05:32] Adam: Totally. Um, so I loved seeing the pictures coming out of DragonCon. That was very, very. wonderful.
+[00:05:32] Adam: Totally. So I loved seeing the pictures coming out of DragonCon. That was very, very. wonderful.
 
-[00:05:37] Will: That's right. I think um the the Galaxy's Edge stuff opened in Florida,
+[00:05:37] Will: That's right. I think the Galaxy's Edge stuff opened in Florida,
 
 [00:05:41] Norm: Florida. This week. that's right. Oh, and with the hurricanes too. So there’s a big hurricane, of course coming off the coast.
 
@@ -140,13 +140,13 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:05:55] Adam: I know Jose Andres and his people are all out there.
 
-[00:05:58] Will: They're there. I I didn't realize he had served. 2 million meals, in Puerto Rico.
+[00:05:58] Will: They're there. I didn't realize he had served. 2 million meals, in Puerto Rico.
 
 [00:06:02] Adam: dude. The guy is
 
 [00:06:03] Will: That's unbelievable.
 
-[00:06:04] Adam: He's one of the like. Not only is he one of the nicest humans I've ever been lucky enough to spend time with. He's a he's a bit of a pal, but holy hell, he is working every day to be part of the solution. It's delightful. to watch.
+[00:06:04] Adam: He's one of the like. Not only is he one of the nicest humans I've ever been lucky enough to spend time with. He's a bit of a pal, but holy hell, he is working every day to be part of the solution. It's delightful. to watch.
 
 [00:06:16] Norm: He's more humanitarian now than he is celebrity chef, and people have said the institutional knowledge that he and his team have built in terms of relief efforts is more important than
 
@@ -162,9 +162,9 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:06:31] Adam: it's totally amazing.
 
-[00:06:32] Norm: But for people who did make it out there to Orlando and to and and go to Galaxy's Edge, no lines apparently two days ago because everyone stayed home because of the hurricane.
+[00:06:32] Norm: But for people who did make it out there to Orlando and to and go to Galaxy's Edge, no lines apparently two days ago because everyone stayed home because of the hurricane.
 
-[00:06:43] Will: Well, and and I mean they've had the same thing. Well, you just went to Galaxy's Edge in Disneyland,
+[00:06:43] Will: Well, and I mean they've had the same thing. Well, you just went to Galaxy's Edge in Disneyland,
 
 [00:06:47] Norm: right, Anaheim? Yeah.
 
@@ -188,7 +188,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:07:34] Adam: Yeah, carousel of cockpits. So every group of six feels like they're walking into an empty Millennium Falcon.
 
-[00:07:38] Norm: Yeah, and and how how could they do that with the throughput?
+[00:07:38] Norm: Yeah, and how how could they do that with the throughput?
 
 [00:07:41] Adam: I heard about this several years ago from somebody on the inside, and I was like, I cannot wait to try that.
 
@@ -196,25 +196,25 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:07:47] Will: sounds good.
 
-[00:07:48] Norm: I'll give you the the the cliff notes as to what I was then told via via DM about how it works is that there is the big static Falcon on the outside that's when everyone takes pictures with. You don't actually go in that. That's a static model completely, right? It's just a set display. The ride itself is actually behind that, so there's about an hour-long wait in Anaheim to get in, which there are lots of things to see and take pictures of. And then you get into a holding area with an amazing animatronic that's your that's the main character of this ride. He's like a Jabba the Hutt type figure, a pirate. He's elevated. He does a lovely briefing. And in that holding area, which fits about 60 people, you're split between a left side and a right side. And I was, why is it left side and the right side? Well, the left side and right side then go to separate Millennium Falcon entrances, which 30 people into a separate holding area, which is the main. You're walking on board the ship, and the main where the Dejarik chess set is, and the bunk, the beds are
+[00:07:48] Norm: I'll give you the cliff notes as to what I was then told via via DM about how it works is that there is the big static Falcon on the outside that's when everyone takes pictures with. You don't actually go in that. That's a static model completely, right? It's just a set display. The ride itself is actually behind that, so there's about an hour-long wait in Anaheim to get in, which there are lots of things to see and take pictures of. And then you get into a holding area with an amazing animatronic that's your that's the main character of this ride. He's like a Jabba the Hutt type figure, a pirate. He's elevated. He does a lovely briefing. And in that holding area, which fits about 60 people, you're split between a left side and a right side. And I was, why is it left side and the right side? Well, the left side and right side then go to separate Millennium Falcon entrances, which 30 people into a separate holding area, which is the main. You're walking on board the ship, and the main where the Dejarik chess set is, and the bunk, the beds are
 
 [00:08:44] Will: The lounge there, yeah.
 
-[00:08:44] Norm: The lounge, right? The famous lounge. That's a great selfie station. You take pictures, and you have about 30 people there. And then you're given little tickets, like with a color code, you know, yellow, blue, orange, red. Six people at a time, with their colors codes, are then pulled in, into a corridor, and a door. Now the corridor has multiple doorways, and you only if you go to the first door, that's one part of the carousel. The second door is another carousel.
+[00:08:44] Norm: The lounge, right? The famous lounge. That's a great selfie station. You take pictures, and you have about 30 people there. And then you're given little tickets, like with a color code yellow, blue, orange, red. Six people at a time, with their colors codes, are then pulled in, into a corridor, and a door. Now the corridor has multiple doorways, and you only if you go to the first door, that's one part of the carousel. The second door is another carousel.
 
 [00:09:15] Will: Oh, so they can load 30 people at a time then they turn the carousel.
 
 [00:09:18] Norm: And each carousel has, I believe, five or six different cockpits that then are on a rotation. Plus, here's the thing I didn't realize: there's also a third door that's for ADA for slow boarders. So that's on a separate Millennium Falcon, so they can take their time and not hold up the carousel.
 
-[00:09:38] Will: Oh, that's that's really smart. I mean, but yeah.
+[00:09:38] Will: Oh, that's really smart. I mean, but yeah.
 
 [00:09:41] Norm: And then once you're boarded, the attendant says you got 30 seconds to buckle in because they need to move the carousel and close that door. And so within 30 seconds, you're buckled in. The ride takes off and you're flying the Falcon?
 
 [00:09:51] Will: Is it like a fast ride? Is it like a roller coaster? Or is it like a Star Tours? Kind of situation?
 
-[00:09:53] Norm: It's like a Star Tours ride. It's a motion simulator, right? But you're fully. It's a it's a video game where you know you're there are two pilots. One person controls yaw. One person controls. Pitch. One pilot gets to pull the hyperdrive lever.
+[00:09:53] Norm: It's like a Star Tours ride. It's a motion simulator, right? But you're fully. It's a video game where you know you're there are two pilots. One person controls yaw. One person controls. Pitch. One pilot gets to pull the hyperdrive lever.
 
-[00:10:07] Will: Oh, yeah. Whoa. Yeah. Did you did you load? Did you have the pad app on your phone so you could do the stuff there?
+[00:10:07] Will: Oh, yeah. Whoa. Yeah. Did you load? Did you have the pad app on your phone so you could do the stuff there?
 
 [00:10:11] Norm: I didn't do that.
 
@@ -238,7 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:10:50] Adam: But so there's no fine line in my Wookiee costumes.
 
-[00:10:52] Will: No, your Wookiee costume would be frowned upon. Ah, yeah. But like, but like, you could wear your Han Solo jacket.
+[00:10:52] Will: No, your Wookiee costume would be frowned upon. Ah, yeah. But like, you could wear your Han Solo jacket.
 
 [00:10:57] Norm: It's a casual cosplay that you could do, and it becomes a whole thing where people try to push that boundary.
 
@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:11:05] Norm: I think they do like old timey, like vintage days.
 
-[00:11:08] Adam: Couldn't they bring over a bunch of the bunch of the Snow White characters just to man the ship.
+[00:11:08] Adam: Couldn't they bring over a bunch of the Snow White characters just to man the ship.
 
 [00:11:14] Will: Look, you can't do Snow White this year. Snow Whites are going to be the official people working. If you don't have a costume, get the hell out.
 
@@ -258,9 +258,9 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:11:23] Will: it's really fun.
 
-[00:11:23] Norm: Park, you know, subsection of the park that feels like it's a whole thing. Yeah.
+[00:11:23] Norm: Park subsection of the park that feels like it's a whole thing. Yeah.
 
-[00:11:27] Adam: I watched some great television and some terrible television, and I, uh, let's see, I wa, I finished Band of Brothers.
+[00:11:27] Adam: I watched some great television and some terrible television, and I let's see, I wa, I finished Band of Brothers.
 
 [00:11:34] Norm: Okay,
 
@@ -282,11 +282,11 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:11:54] Will: Kyle Chandler, he's one of the main characters.
 
-[00:11:56] Adam: Yeah, Ron Livingston, Ron Livingston, and Damian Lewis are the two main actors. I also watched. I also watched the the Rock's movie Rampage.
+[00:11:56] Adam: Yeah, Ron Livingston, and Damian Lewis are the two main actors. I also watched. I also watched the Rock's movie Rampage.
 
 [00:12:04] Will: Oh, that's a based on the hit 1988 video game Rampage.
 
-[00:12:08] Adam: Listen, you know it was it was better than awful. It was enjoyable for being terrible.
+[00:12:08] Adam: Listen, you know it was better than awful. It was enjoyable for being terrible.
 
 [00:12:15] Will: I look. I feel like a lot of those rock movies, the big budget ones that aren't like Fast and the Furious or some other brand,
 
@@ -308,7 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:12:40] Will: Yeah, yeah, it's very silly.
 
-[00:12:41] Adam: You're exactly right. Exactly right. Um, and then I also, you know, we've been talking about Beat Saber.
+[00:12:41] Adam: You're exactly right. Exactly right. And then I also we've been talking about Beat Saber.
 
 [00:12:46] Will: Yeah,
 
@@ -316,7 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:12:48] Will: It's fabulous.
 
-[00:12:49] Adam: Um, I have discovered on some levels, in general, in the past, where there are certain levels that I could not get to the expert level. I've been able to. I've done everything on hard.
+[00:12:49] Adam: I have discovered on some levels, in general, in the past, where there are certain levels that I could not get to the expert level. I've been able to. I've done everything on hard.
 
 [00:13:00] Will: Okay.
 
@@ -338,19 +338,19 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:13:26] Adam: Oh yeah, as far as I go. So, it's this kind of funny thing because you end up, I end up gravitating towards certain songs that are fun to do. And ultimate power is really fun because there's a lot of one handed stuff.
 
-[00:13:37] Will: I like I like stuff that makes your hips swing as you're going back and forth. That's
+[00:13:37] Will: I like stuff that makes your hips swing as you're going back and forth. That's
 
 [00:13:40] Adam: well, and then I was like, hmm, Have I done all of these? Let me just make sure I've done all these on it. And then I started learning all these brand new songs which I hadn't done in months and months.
 
 [00:13:49] Will: Hmm.
 
-[00:13:49] Adam: Uh, it was really fun, and I, I got a lot of I got a lot of workout.
+[00:13:49] Adam: It was really fun, and I, I got a lot of I got a lot of workout.
 
 [00:13:52] Will: The thing that that game does that's lovely is each of the songs has kind of it's it's. It's it's I want to say mouthfeel, but that's not right. But the like the movements that it makes you do for each of the songs is subtly different in a way that
 
 [00:14:04] Adam: it is
 
-[00:14:04] Will: like like sometimes they put the bombs right behind the block, so you have to be really tight on your saber control.
+[00:14:04] Will: like sometimes they put the bombs right behind the block, so you have to be really tight on your saber control.
 
 [00:14:09] Adam: Indeed, I will also say that I believe, and I would love to know if any of the Beat Saber people listen to this podcast, if you would let us know. But I feel like some of the levels actually teach you while you're playing them how to play.
 
@@ -360,13 +360,13 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:14:28] Norm: subconsciously
 
-[00:14:29] Adam: going on because they'll basically you'll you'll always get to it the 20% mark. You'll always get to this crap that's too hard, and then it slows down and it kind of shows you how to do the crap that's too hard, so that when the crap comes up again, now you're ready with the ba ba ba ba ba ba ba, you know.
+[00:14:29] Adam: going on because they'll basically you'll you'll always get to it the 20% mark. You'll always get to this crap that's too hard, and then it slows down and it kind of shows you how to do the crap that's too hard, so that when the crap comes up again, now you're ready with the ba ba ba ba ba ba ba.
 
-[00:14:45] Will: And that's the thing that it does too, as it progresses through the through the tracks on one difficulty level, especially with the the first soundtrack.
+[00:14:45] Will: And that's the thing that it does too, as it progresses through the tracks on one difficulty level, especially with the first soundtrack.
 
 [00:14:52] Adam: Yeah.
 
-[00:14:52] Will: So like if you get to the the last few songs on hard, those are probably comparable to an expert level on the. Earlier songs.
+[00:14:52] Will: So like if you get to the last few songs on hard, those are probably comparable to an expert level on the. Earlier songs.
 
 [00:14:59] Adam: Oh, you think they're like the New York Times, where the first ones?
 
@@ -384,21 +384,21 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:15:21] Will: You have to memorize.
 
-[00:15:22] Adam: You You end up getting. I end up with institutional memory. Like, oh, they do a lot of switching in this level. They swap the They swap the bricks in this level, or oh, in this one there's this ridiculous. You just have to just like go as fast as you possibly can.
+[00:15:22] Adam: You end up getting. I end up with institutional memory. Like, oh, they do a lot of switching in this level. They swap the bricks in this level, or oh, in this one there's this ridiculous. You just have to just like go as fast as you possibly can.
 
 [00:15:36] Will: You're doing the Phil Collins drum fill there, yeah.
 
-[00:15:38] Adam: Yeah. Um. But no, I'm actually I appreciate that. What I'm really seeking every time is the flow state, not the memorization state. Of like, here they come, da, da, da, da. So it was really fun to stick like yesterday. I burned through eight levels that I had not gotten to expert in on expert. On the first try on each, like I have made a real, I progressed to the next level.
+[00:15:38] Adam: Yeah. But no, I'm actually I appreciate that. What I'm really seeking every time is the flow state, not the memorization state. Of like, here they come, da, da, da, da. So it was really fun to stick like yesterday. I burned through eight levels that I had not gotten to expert in on expert. On the first try on each, like I have made a real, I progressed to the next level.
 
-[00:15:59] Will: It occurs to me that using a game like this, probably it's burned for Beat Saber on you now, is a way to quantify how quickly you can learn new skills, like how people, how people in general can learn new skills.
+[00:15:59] Will: It occurs to me that using a game like this, probably it's burned for Beat Saber on you now, is a way to quantify how quickly you can learn new skills, like how people in general can learn new skills.
 
 [00:16:09] Adam: How steep your learning curve is
 
-[00:16:09] Will: well, no, because you like that game fundamentally presents your reptile brain with something it's never experienced before, right? Blocks are coming to where and we have to sword them. There's no, you have no kind of parallel for that in your human experience up until the point that you saw that game. So presumably, you could use something like that to to quantify, yeah, and say, hey,
+[00:16:09] Will: well, no, because you like that game fundamentally presents your reptile brain with something it's never experienced before, right? Blocks are coming to where and we have to sword them. There's no, you have no kind of parallel for that in your human experience up until the point that you saw that game. So presumably, you could use something like that to quantify, yeah, and say, hey,
 
 [00:16:27] Norm: It really is a killer app for you.
 
-[00:16:29] Adam: Oh, so I really, really enjoy it. This week was an sorry, we've been talking about the small stuff, but this week was an intense week. I will tell you on we we lost a MythBusters co host this week. Jessi Combs. She she was killed trying to break her own land speed record in a four wheeled vehicle. Jessi did the incredible and difficult task of when I met her of stepping into Kari Byron's gigantic shoes while Kari took a leave of absence to have her baby Stella. And Jessi not only stepped into that role with all the incredible enthusiasm, but became a fan a fan favorite. Our fans are so MythBuster fans are intense, and there was a point at Comic Con once I made a joke about replacing the narrator because we had some we had a very funny narration, and just making the joke I lost the audience and had to win them back because they were so upset at the idea we were changing something about the brand that they loved. So for Jessi to step into Kari's shoes and become so well loved by the fans for the season that she was on is no small thing and a real testament to her incredible work ethic. Her incredible build, prowess, her ability to be herself on camera, and it is a great loss in my heart. Our hearts go out to her family and her loved ones. I can't imagine how difficult their week was.
+[00:16:29] Adam: Oh, so I really, really enjoy it. This week was an sorry, we've been talking about the small stuff, but this week was an intense week. I will tell you on we lost a MythBusters co host this week. Jessi Combs. She was killed trying to break her own land speed record in a four wheeled vehicle. Jessi did the incredible and difficult task of when I met her of stepping into Kari Byron's gigantic shoes while Kari took a leave of absence to have her baby Stella. And Jessi not only stepped into that role with all the incredible enthusiasm, but became a fan favorite. Our fans are so MythBuster fans are intense, and there was a point at Comic Con once I made a joke about replacing the narrator because we had some we had a very funny narration, and just making the joke I lost the audience and had to win them back because they were so upset at the idea we were changing something about the brand that they loved. So for Jessi to step into Kari's shoes and become so well loved by the fans for the season that she was on is no small thing and a real testament to her incredible work ethic. Her incredible build, prowess, her ability to be herself on camera, and it is a great loss in my heart. Our hearts go out to her family and her loved ones. I can't imagine how difficult their week was.
 
 [00:19:11] Will: Yeah, yeah.
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:19:19] Adam: which was its own little bit of intense.
 
-[00:19:22] Will: I, I, I just got to the part in the fall where they talk about that.
+[00:19:22] Will: I just got to the part in the fall where they talk about that.
 
 [00:19:26] Adam: Yes.
 
@@ -416,7 +416,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:19:31] Adam: right?
 
-[00:19:32] Will: This is this is this is the idea that she can go to school and never not call for texts for three weeks.
+[00:19:32] Will: This is the idea that she can go to school and never not call for texts for three weeks.
 
 [00:19:37] Adam: Oh, yeah,
 
@@ -430,9 +430,9 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:19:54] Will: Okay,
 
-[00:19:54] Adam: but it was one of these roller coaster weeks where all this stuff happens, and you. It's keep happening, right? And you, you, I found myself having like those telltale reactions on the corners of things, where it's like, " Wow, that guy taking too long in the coffee line made me inordinately upset." Oh, it's because everything this week is super intense and really upsetting.
+[00:19:54] Adam: but it was one of these roller coaster weeks where all this stuff happens, and you. It's keep happening, right? And you, I found myself having like those telltale reactions on the corners of things, where it's like, " Wow, that guy taking too long in the coffee line made me inordinately upset." Oh, it's because everything this week is super intense and really upsetting.
 
-[00:20:21] Norm: Yeah, that makes you want to retreat and watch some Netflix and and watch, you know, chill out for a little bit.
+[00:20:21] Norm: Yeah, that makes you want to retreat and watch some Netflix and watch chill out for a little bit.
 
 [00:20:27] Adam: Lots of, lots and lots of time watching watching programs and chilling out at home and enjoying the quiet city.
 
@@ -456,11 +456,11 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:20:52] Adam: Yep. Yep. And just and remember, both of you, that at the very moment you will feel at the peak of your professional prowess. You will be completely useless to them.
 
-[00:21:02] Will: Oh yeah, oh yeah.
+[00:21:02] Will: Oh yeah.
 
 [00:21:04] Norm: Looking forward to that.
 
-[00:21:05] Adam: That is what it is to have kids. Yeah, the the you will you will hit that streak where you are like, man, I feel pretty good about all this stuff, and they'll be like, can you please stop talking and pretend that you don't know me?
+[00:21:05] Adam: That is what it is to have kids. Yeah, the you will hit that streak where you are like, man, I feel pretty good about all this stuff, and they'll be like, can you please stop talking and pretend that you don't know me?
 
 [00:21:17] Will: Dad, if you'll scrunch down while you drop me off at school, that would be great.
 
@@ -474,7 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:21:32] Adam: Oh, the new series.
 
-[00:21:33] Norm: The new and I rewatched the the movie.
+[00:21:33] Norm: The new and I rewatched the movie.
 
 [00:21:35] Adam: Well, no, Twitter is loving
 
@@ -482,11 +482,11 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:21:37] Adam: Twitter is loving the spit out of the new series. I have not yet dived in.
 
-[00:21:40] Norm: So it's it's 10 episodes. It is, you know, as practical as any as it could be, and I find myself I find myself watching every 15 minutes, like pinching myself. How does this show exist? How could right you know? How could
+[00:21:40] Norm: So it's 10 episodes. It is as practical as any as it could be, and I find myself watching every 15 minutes, like pinching myself. How does this show exist? How could right you know? How could
 
 [00:21:57] Will: $4 billion a year, Norm?
 
-[00:21:58] Norm: Right? Obviously, Netflix paid for it, and and they've been trying to work on this for a long time. I listened to a couple interviews with the director. All 10 episodes directed by the French director Louis Leterrier. He did The Incredible Hulk. He did Transporter. That was like one of his first films.
+[00:21:58] Norm: Right? Obviously, Netflix paid for it, and they've been trying to work on this for a long time. I listened to a couple interviews with the director. All 10 episodes directed by the French director Louis Leterrier. He did The Incredible Hulk. He did Transporter. That was like one of his first films.
 
 [00:22:14] Adam: Jason Statham.
 
@@ -508,7 +508,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:22:32] Adam: Jason Statham movies are all one giant enjoyable film.
 
-[00:22:35] Norm: Well, as I said, you know, he said this movie is all practical effects. Well, he had a lot of experience because, like, Jason Statham is one big practical effect,
+[00:22:35] Norm: Well, as I said he said this movie is all practical effects. Well, he had a lot of experience because Jason Statham is one big practical effect,
 
 [00:22:42] Adam: right? Right? Right.
 
@@ -518,7 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:23:29] Adam: you should. Oh, what an exciting treat you have in store!
 
-[00:23:31] Will: Okay, I was going to say, is it is it you? It's worth going back to at this point.
+[00:23:31] Will: Okay, I was going to say, is it you? It's worth going back to at this point.
 
 [00:23:34] Adam: Completely holds up.
 
@@ -552,7 +552,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:24:40] Adam: And it's constantly moving.
 
-[00:24:41] Norm: Yeah. Wow. But they do things with the sets here. There's a big library with this, and they do a lot of like the director pushed the the puppeteers to do longer shots, so it's not just within the frame of you know two puppets talking to each other. They do oners.
+[00:24:41] Norm: Yeah. Wow. But they do things with the sets here. There's a big library with this, and they do a lot of like the director pushed the puppeteers to do longer shots, so it's not just within the frame of you know two puppets talking to each other. They do oners.
 
 [00:24:57] Adam: Oh wow! Right. Wow.
 
@@ -594,21 +594,21 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:25:47] Adam: Hero's amazing. House of Flying Daggers.
 
-[00:25:48] Will: Jet Li, Jet Li is Hero, right?
+[00:25:48] Will: Jet Li is Hero, right?
 
 [00:25:50] Norm: Oh, yeah.
 
 [00:25:50] Will: How he did House of Flying Daggers?
 
-[00:25:52] Norm: House of Flying Daggers. He did To Live. Do you remember that movie? Um, it's about the, uh, the Chinese cultural revolution. He was banned from filmmaking for years after making it.
+[00:25:52] Norm: House of Flying Daggers. He did To Live. Do you remember that movie? It's about the Chinese cultural revolution. He was banned from filmmaking for years after making it.
 
 [00:26:01] Will: I've never actually seen that.
 
-[00:26:02] Norm: Gong Li’s in it, and it's it's it's it's the Chinese Doctor Zhivago.
+[00:26:02] Norm: Gong Li’s in it, and it's the Chinese Doctor Zhivago.
 
 [00:26:09] Will: Oh, okay.
 
-[00:26:09] Norm: Is how I would I would describe.
+[00:26:09] Norm: Is how I would describe.
 
 [00:26:11] Will: Wow.
 
@@ -620,7 +620,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:26:24] Adam: Yeah,
 
-[00:26:25] Norm: and where Hero and House Flying Daggers and and Great Wall are colorful.
+[00:26:25] Norm: and where Hero and House Flying Daggers and Great Wall are colorful.
 
 [00:26:33] Adam: Yeah,
 
@@ -638,7 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:26:59] Will: I don't remember that.
 
-[00:26:59] Adam: It's a it's a there's no dialogue.
+[00:26:59] Adam: It's a there's no dialogue.
 
 [00:27:02] Norm: It's in one of the first fights.
 
@@ -650,7 +650,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:27:18] Will: yeah, you see the fight.
 
-[00:27:19] Norm: That's how you get stylistically all the, you know, wuxia like all the the stepping on rain and the puddles, like because in their head,
+[00:27:19] Norm: That's how you get stylistically all the wuxia like all the stepping on rain and the puddles, like because in their head,
 
 [00:27:27] Adam: yeah,
 
@@ -668,7 +668,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:27:33] Adam: yeah, it's in
 
-[00:27:33] Norm: the the rain slows down.
+[00:27:33] Norm: the rain slows down.
 
 [00:27:36] Adam: Wow,
 
@@ -684,7 +684,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:27:50] Adam: Yes.
 
-[00:27:49] Will: like I used the power of the Kindle to switch from the book that I was reading to the you know audio book, which that still feels like magic. And that the reading is really good. The I don't know if you've listened to the audio book, but I've been zipping back and forth between the two, and it's it is a really delightful presentation. And I finally got. Sometimes Stephenson books start a little slow, as we all know. This is definitely one of those, and I finally got to the part where it got to the big idea, and I was like, " Oh, I've got to, I," every waking moment is going to be contained inside this book now. Yeah, it's it's it's astounding. It's truly like it. It is. It became clear about halfway through this that either he backed into the premise that he's been trying to write toward for the last 20 years. Oh, which I don't think happened
+[00:27:49] Will: like I used the power of the Kindle to switch from the book that I was reading to the you know audio book, which that still feels like magic. And that the reading is really good. The I don't know if you've listened to the audio book, but I've been zipping back and forth between the two, and it's it is a really delightful presentation. And I finally got. Sometimes Stephenson books start a little slow, as we all know. This is definitely one of those, and I finally got to the part where it got to the big idea, and I was like, " Oh, I've got to, I," every waking moment is going to be contained inside this book now. Yeah, it's astounding. It's truly like it. It is. It became clear about halfway through this that either he backed into the premise that he's been trying to write toward for the last 20 years. Oh, which I don't think happened
 
 [00:28:33] Adam: about the intersection of our need for religion to create a structure within which to operate.
 
@@ -696,15 +696,15 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:28:46] Adam: Yeah.
 
-[00:28:47] Will: Um, and Anathem is—it's unclear what Anathem is about, but I quite enjoy it.
+[00:28:47] Will: And Anathem is—it's unclear what Anathem is about, but I quite enjoy it.
 
 [00:28:52] Adam: Yeah.
 
-[00:28:52] Will: Um, and this seems like it's the it's the dawn of the you know the post singularity. What what what happens beyond?
+[00:28:52] Will: And this seems like it's the dawn of the you know the post singularity. What happens beyond?
 
 [00:28:58] Adam: Right.
 
-[00:28:58] Will: You know what what what do post-meatspace humans look like?
+[00:28:58] Will: You know what do post-meatspace humans look like?
 
 [00:29:04] Adam: I loved how casually he posits the future and then tosses it aside for the narrative. Right, like the idea that we don't carry phones anymore in 20 years—it's all eyeglasses. Yeah, I think that's totally right.
 
@@ -716,9 +716,9 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:29:29] Adam: Yeah, we should see if we can get Neal down here.
 
-[00:29:32] Will: I would I would I would literally pull out teeth to have an opportunity to harass Neal with questions. about this book.
+[00:29:32] Will: I would literally pull out teeth to have an opportunity to harass Neal with questions. about this book.
 
-[00:29:38] Adam: All right, let me let me see if I can get him to come on down.
+[00:29:38] Adam: All right, let me see if I can get him to come on down.
 
 [00:29:40] Norm: Pacific Northwest, right?
 

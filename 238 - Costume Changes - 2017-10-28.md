@@ -34,15 +34,15 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:00:34] Norm: Oh my goodness.
 
-[00:00:35] Will: It’s, it’s I was in New York a couple weeks ago. It is the when I was there was the perfect fall New York. Like
+[00:00:35] Will: It’s I was in New York a couple weeks ago. It is the when I was there was the perfect fall New York. Like
 
 [00:00:35] Norm: October, that’s great.
 
 [00:00:42] Will: October.
 
-[00:00:44] Adam: It's like it's like you know some people like they live in the they live in Martha's Vineyard for during the summer part during the winter during the summer and then in Florida for the summer. It's like you could live anywhere in the world just so long as you lived in New York. In April and in October,
+[00:00:44] Adam: It's like you know some people like they live in the they live in Martha's Vineyard for during the summer part during the winter during the summer and then in Florida for the summer. It's like you could live anywhere in the world just so long as you lived in New York. In April and in October,
 
-[00:00:57] Will: I was like a friend of mine has an apartment in Chinatown, and we went up on his roof and we were playing board games and like had this. I'll show you the panorama afterwards. It was incredible. Of like, and I was like, man, I could, I could totally live here. This is totally doable.
+[00:00:57] Will: I was like a friend of mine has an apartment in Chinatown, and we went up on his roof and we were playing board games and like had this. I'll show you the panorama afterwards. It was incredible. Of like, and I was like, man, I could totally live here. This is totally doable.
 
 [00:01:11] Adam: Wouldn't get any light.
 
@@ -86,7 +86,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:02:06] Will: It's good. Yeah, Chloe was. We called her Chloe Bananas for years and years because she's bananas, and she's now just grumpy Chloe now instead of Chloe Bananas.
 
-[00:02:16] Adam: Um. So I was in London, Will.
+[00:02:16] Adam: So I was in London, Will.
 
 [00:02:16] Will: What were you doing, London?
 
@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:03:05] Will: Did you get to do the baton?
 
-[00:03:06] Adam: I did not. The Michael came in and conducted a few choice pieces, but the bulk of the conducting was done by the amazing Ludwig Wicki, who is just a ball of. This week was amazing. Ludwig Wicki is a ball of pure joy and awesome, and it was lovely to watch him work with the work with the orchestra. The orchestra was incredible. The symphonic symphonia, and it was totally intense, right? Because it's also all of Michael's friends who are like Gareth Edwards and Matt Reeves and Angus MacLane and Pete Docter and Andrew Stanton and
+[00:03:06] Adam: I did not. The Michael came in and conducted a few choice pieces, but the bulk of the conducting was done by the amazing Ludwig Wicki, who is just a ball of. This week was amazing. Ludwig Wicki is a ball of pure joy and awesome, and it was lovely to watch him work with the orchestra. The orchestra was incredible. The symphonic symphonia, and it was totally intense, right? Because it's also all of Michael's friends who are like Gareth Edwards and Matt Reeves and Angus MacLane and Pete Docter and Andrew Stanton and
 
 [00:03:45] Norm: No, can you set the stage,
 
@@ -140,7 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:04:27] Adam: It was surreal and really, really, really fun, crazy fun. Because I know all these guys, and I will tell you, stepping out onto the stage of the Royal Albert Hall in front of a full house with the orchestra behind me is the first time in of years and years that I have had stage jitters.
 
-[00:04:44] Will: I can't even like like when you're talking about the famous theaters of the world,
+[00:04:44] Will: I can't even like when you're talking about the famous theaters of the world,
 
 [00:04:44] Adam: right?
 
@@ -154,7 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:05:02] Norm: yeah, or size or stature.
 
-[00:05:03] Adam: So it's. I think it seats about 4,000, but because of the way structure of this performance, you know, they block off some sections that can't see properly. So I think we had 3,600 in the in the hall.
+[00:05:03] Adam: So it's. I think it seats about 4,000, but because of the way structure of this performance they block off some sections that can't see properly. So I think we had 3,600 in the hall.
 
 [00:05:03] Norm: All right.
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:05:51] Will: That's incredible. Just just to be clear, that inflatable T-Rex costume is my favorite dumb gag.
 
-[00:06:00] Adam: It's it's almost cheating. People kept on going. Oh, that was the funniest! And I'm like, it really is almost cheating. Like, go, go, try and try to shoot something that’s not funny with that.
+[00:06:00] Adam: It's almost cheating. People kept on going. Oh, that was the funniest! And I'm like, it really is almost cheating. Like, go, go, try and try to shoot something that’s not funny with that.
 
 [00:06:08] Norm: Didn't realize it was licensed. That's crazy. It's a Jurassic World thing.
 
@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:06:29] Will: Did you see the muscle suit?
 
-[00:06:30] Adam: Yes. Nice. So it was. This is my favorite. This this most dumbly simple costume I've ever put together. It's like a $10 Amazon spandex Mr. Incredible onesie.
+[00:06:30] Adam: Yes. Nice. So it was. This is my favorite. This most dumbly simple costume I've ever put together. It's like a $10 Amazon spandex Mr. Incredible onesie.
 
 [00:06:41] Will: Okay.
 
@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:06:41] Norm: Yes.
 
-[00:06:41] Adam: Made by Flex Designs, the guys that we covered when I bought the full body from them. That's of course. So it it looked incredible. It looked amazing. It looked incredible.
+[00:06:41] Adam: Made by Flex Designs, the guys that we covered when I bought the full body from them. That's of course. So it looked incredible. It looked amazing. It looked incredible.
 
 [00:06:54] Will: He always skips leg day though.
 
@@ -210,11 +210,11 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:06:56] Unknown speaker: Wow!
 
-[00:06:56] Adam: In fact, I was who was I talking to? I think Colin Trevorrow. No, it was maybe Andrew Stanton who was like, all of us directors were looking at those Super Eight films because we all made the same ones, but Michael's were better. Like, thank God he went into composing and not directing. And then to see, like, he's making these Star Trek, Star Wars. He's making these Star Wars and Indiana Jones films
+[00:06:56] Adam: In fact, I was who was I talking to? I think Colin Trevorrow. No, it was maybe Andrew Stanton who was like, all of us directors were looking at those Super Eight films because we all made the same ones, but Michael's were better. Like, thank God he went into composing and not directing. And then to see he's making these Star Trek, Star Wars. He's making these Star Wars and Indiana Jones films
 
 [00:06:56] Will: Oh, man,
 
-[00:06:56] Adam: at 10 and 12 years old with the like the the teen dreams of working with Spielberg, and then he works with Spielberg. They played Super Eight.
+[00:06:56] Adam: at 10 and 12 years old with the like the teen dreams of working with Spielberg, and then he works with Spielberg. They played Super Eight.
 
 [00:07:57] Will: Did he score Super Eight?
 
@@ -232,11 +232,11 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:08:16] Will: Oh, my god!
 
-[00:08:17] Adam: With a full orchestra backing, he and Michael sang it together. Not a dry eye in the house. All of us, all of us from backstage, just lined up in the alley watching this like totally emotional, incredible moment.
+[00:08:17] Adam: With a full orchestra backing, he and Michael sang it together. Not a dry eye in the house. All of us from backstage, just lined up in the alley watching this like totally emotional, incredible moment.
 
 [00:08:29] Will: Wow!
 
-[00:08:29] Norm: Yeah, did it feel like like hosting like the Oscars type of thing where a different costume every time you go back, run backstage, have to tear things off, put things on.
+[00:08:29] Norm: Yeah, did it feel like hosting like the Oscars type of thing where a different costume every time you go back, run backstage, have to tear things off, put things on.
 
 [00:08:29] Adam: It was.
 
@@ -246,13 +246,13 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:08:38] Norm: Right.
 
-[00:08:38] Adam: So let's just make it fully absurd. Go out in a costume, and I'm, you know, I'm not there to take up any time, just to move things along and kind of
+[00:08:38] Adam: So let's just make it fully absurd. Go out in a costume, and I'm I'm not there to take up any time, just to move things along and kind of
 
 [00:09:02] Will: kill time if you need between setups or whatever.
 
 [00:09:02] Unknown speaker: exactly
 
-[00:09:02] Adam: just a little bit. And that was that was that's a fun gig to do, you know. It's not a you're just moving things forward, and that's that was really entertaining.
+[00:09:02] Adam: just a little bit. And that was that's a fun gig to do, you know. It's not a you're just moving things forward, and that's that was really entertaining.
 
 [00:09:12] Will: That's rad,
 
@@ -266,7 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:09:27] Will: Were you there for the hurricane?
 
-[00:09:28] Adam: Yes, I believe I believe it missed me.
+[00:09:28] Adam: Yes, I believe it missed me.
 
 [00:09:30] Will: Missed you, missed yeah, missed London, but hit Ireland and wow, okay.
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:09:51] Adam: Stephen's people are so welcoming and hospitable. I've done the show a couple times now, and they've just like welcome back, and you know. They're just. I love doing that show.
 
-[00:10:01] Will: It's. It seems like like and Ed Sullivan Theater is another one of those great theaters, right?
+[00:10:01] Will: It's. It seems like and Ed Sullivan Theater is another one of those great theaters, right?
 
 [00:10:06] Adam: Yeah. No. It’s totally. It’s total and it's legendary. That last time I went, Stephen showed me. He said, " This is precisely the place where Dave used to stand."
 
@@ -296,13 +296,13 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:10:15] Adam: No, but that's not where Stephen stands. But he's aware of like that's where the desk went. This is where he stood. This is where you know. It's like all of this incredible history in that space.
 
-[00:10:24] Will: That's so cool. That's yeah. It was a really good show. It's on the the the show the the songs on YouTube. If you want to see it, you can find it. Yeah, the clips. It's on Colbert's YouTube channel.
+[00:10:24] Will: That's so cool. That's yeah. It was a really good show. It's on the show the songs on YouTube. If you want to see it, you can find it. Yeah, the clips. It's on Colbert's YouTube channel.
 
 [00:10:32] Adam: Super fun. I brought my mom.
 
 [00:10:33] Will: Very good.
 
-[00:10:33] Adam: Oh, awesome. Yeah, the last the last time I did Colbert, or maybe two times ago, I was backstage with my mom and my lawyer Joel was also there, and I took a selfie with the three of them, and I wrote, " My mom, my lawyer, and I backstage at Colbert," and someone wrote, " Do you always bring your lawyer and your mother to every appearance
+[00:10:33] Adam: Oh, awesome. Yeah, the last time I did Colbert, or maybe two times ago, I was backstage with my mom and my lawyer Joel was also there, and I took a selfie with the three of them, and I wrote, " My mom, my lawyer, and I backstage at Colbert," and someone wrote, " Do you always bring your lawyer and your mother to every appearance
 
 [00:10:53] Will: as your attorney?" Joel never makes as your attorney. He doesn't seem like that. That he
 
@@ -310,9 +310,9 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:11:03] Will: Seems like it. I think that's the right choice.
 
-[00:11:07] Adam: So that was that was my two weeks. That was really fun.
+[00:11:07] Adam: So that was my two weeks. That was really fun.
 
-[00:11:09] Will: Did you while you were in New York? Did you go to the the Henson thing at Museum of Modern?
+[00:11:09] Will: Did you while you were in New York? Did you go to the Henson thing at Museum of Modern?
 
 [00:11:14] Norm: We did. Yeah.
 
@@ -332,7 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:12:00] Will: Yeah.
 
-[00:12:00] Norm: all all types of weird film experimentation and and performing right like, uh, and so yeah, it's it's a permanent exhibition, museum moving image, uh, and we have we just finished our cut of a video piece we shot there, so
+[00:12:00] Norm: all all types of weird film experimentation and performing right like and so yeah, it's a permanent exhibition, museum moving image and we have we just finished our cut of a video piece we shot there, so
 
 [00:12:14] Will: oh, in the exhibition,
 
@@ -346,7 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:12:18] Will: I need to make an excuse to go back to New York.
 
-[00:12:20] Adam: Um, have you guys been watching Mind Hunter?
+[00:12:20] Adam: Have you guys been watching Mind Hunter?
 
 [00:12:22] Norm: No, this is a David Fincher show.
 
@@ -392,13 +392,13 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:13:24] Will: B Y L. [unclear: I’m not even pronouncing / I’m pronouncing] it wrong.
 
-[00:13:30] Adam: Really, really, really enjoyable. And if you like, if there's like, there's a bunch of filmmakers in his series that he's made series about, and if you're like a Fincher addict like me, it's just a, just like you know, like eating candy. It’s delicious.
+[00:13:30] Adam: Really, really, really enjoyable. And if you like, if there's like, there's a bunch of filmmakers in his series that he's made series about, and if you're like a Fincher addict like me, it's just a, just like like eating candy. It’s delicious.
 
 [00:13:45] Will: I had no idea that was Fincher. I'm I'm really, but infinitely more because like like you look at that run and you look at like even when you go back and watch Alien Three, if you go back and watch the director's cut of Alien Three, it is a dramatically better movie than than we all saw in theaters.
 
 [00:13:58] Adam: We all remember, yeah,
 
-[00:13:59] Will: yeah, and and I mean, still not great, but you can see that. There's like it's shot brilliantly. It's a lovely film.
+[00:13:59] Will: yeah, and I mean, still not great, but you can see that. There's like it's shot brilliantly. It's a lovely film.
 
 [00:14:05] Norm: Does it feel?
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:14:07] Norm: Oh, sorry.
 
-[00:14:08] Will: No, it's okay. It's just it's just a really intense film. Like it's hard to watch.
+[00:14:08] Will: No, it's okay. It's just a really intense film. Like it's hard to watch.
 
 [00:14:08] Norm: Yeah,
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:14:12] Norm: Does Mindhunter feel like Zodiac?
 
-[00:14:14] Adam: It does actually. So Mindhunter is set in 1977. So the music is amazing and the cars are just delightful. You know, it's like a Chevy Nova pulling up into frame. Right. That was my first car.
+[00:14:14] Adam: It does actually. So Mindhunter is set in 1977. So the music is amazing and the cars are just delightful. It's like a Chevy Nova pulling up into frame. Right. That was my first car.
 
 [00:14:29] Will: Oh, wow.
 
@@ -430,25 +430,25 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:14:33] Norm: And he was heavily involved. He directed like the first episode and heavily involved the first season. But kind of, he still executive produces, but doesn't have that day to day. So House of Cards today is has like echoes of Fincher.
 
-[00:14:56] Adam: This definitely feels while Fincher directed didn't direct all the episodes of Mindhunter. In the same vein, he did direct the first one, and I haven't actually like logged which others that he directed. But the the the look and the feel retains a very Fincher aesthetic of high contrast frames, of very purposeful use of depth of field, very methodical camerawork. Right?
+[00:14:56] Adam: This definitely feels while Fincher directed didn't direct all the episodes of Mindhunter. In the same vein, he did direct the first one, and I haven't actually like logged which others that he directed. But the look and the feel retains a very Fincher aesthetic of high contrast frames, of very purposeful use of depth of field, very methodical camerawork. Right?
 
 [00:14:56] Norm: Yeah.
 
-[00:14:56] Adam: Not a lot of hit. Not nearly any handheld. Your subject stays in the center of frame. The cameras move very deliberately, and it's gorgeous. Jonathan Groff is the star. He played King George in Hamilton. If you want to see Jonathan Groff is wonderful in the series, but he's definitely hiding his speed, as it were, because he plays a kind of a straight laced FBI man. I would recommend that if you would like eight minutes of pure joy, watch Jonathan Groff at a fundraiser singing and performing Anything Goes with the dancers from the Broadway show Anything Goes. It is. I will spend my whole life aspiring to be as generously. Um, as generously competent and and delightful in doing something physical as he is in that dance number.
+[00:14:56] Adam: Not a lot of hit. Not nearly any handheld. Your subject stays in the center of frame. The cameras move very deliberately, and it's gorgeous. Jonathan Groff is the star. He played King George in Hamilton. If you want to see Jonathan Groff is wonderful in the series, but he's definitely hiding his speed, as it were, because he plays a kind of a straight laced FBI man. I would recommend that if you would like eight minutes of pure joy, watch Jonathan Groff at a fundraiser singing and performing Anything Goes with the dancers from the Broadway show Anything Goes. It is. I will spend my whole life aspiring to be as generously. As generously competent and delightful in doing something physical as he is in that dance number.
 
-[00:16:13] Will: My my, I have I've spent more time than I probably care to admit trying to isolate the tittering laugh from the end of " They'll Be Back," the last one. The
+[00:16:13] Will: My, I have I've spent more time than I probably care to admit trying to isolate the tittering laugh from the end of " They'll Be Back," the last one. The
 
-[00:16:26] Adam: Yeah. the, the [unclear: / dominus]
+[00:16:26] Adam: Yeah. the [unclear: / dominus]
 
-[00:16:26] Will: yes, yeah, yeah, exactly, and and because I think that would make such a such an amazing horrible ringtone. Oh my god! Like the most obnoxious ringtone is the tittering laugh every time it rings. You're like, oh, I'm happy.
+[00:16:26] Will: yes, yeah, yeah, exactly, and because I think that would make such a such an amazing horrible ringtone. Oh my god! Like the most obnoxious ringtone is the tittering laugh every time it rings. You're like, oh, I'm happy.
 
 [00:16:37] Adam: Wow, that's good.
 
 [00:16:38] Will: Also, bummed out, but yeah.
 
-[00:16:39] Adam: Um, so Mindhunter also involved a key character in Mindhunter is um uh Ed Kemper, um a famous what's called the Coed Killer. Okay, he's a real person. Um, I believe the story is inspired by. I again, I have not done the research to how much of the series is based on reality, but Ed Kemper is a real killer of women, and he's a character in the movie and I've seen some footage of the real Ed Kemper talking, and it's kind of amazing how well they did.
+[00:16:39] Adam: So Mindhunter also involved a key character in Mindhunter is Ed Kemper a famous what's called the Coed Killer. Okay, he's a real person. I believe the story is inspired by. I again, I have not done the research to how much of the series is based on reality, but Ed Kemper is a real killer of women, and he's a character in the movie and I've seen some footage of the real Ed Kemper talking, and it's kind of amazing how well they did.
 
-[00:17:08] Norm: So the the premise is it's about profilers.
+[00:17:08] Norm: So the premise is it's about profilers.
 
 [00:17:11] Adam: It's about profile. It is about the burgeoning understanding from the FBI that there is such a thing as a serial killer.
 
@@ -486,7 +486,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:18:53] Norm: Oh I'm excited
 
-[00:18:56] Will: I mean the thing the thing about it is after he made the Facebook movie and it was amazing. I'm kind of like I just try. I have faith. I you know
+[00:18:56] Will: I mean the thing about it is after he made the Facebook movie and it was amazing. I'm kind of like I just try. I have faith. I you know
 
 [00:18:56] Norm: [unclear: music / A new book].
 
@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:19:28] Adam: 97 takes.
 
-[00:19:28] Will: Yeah, but but that film in general, like I think you can pop into kind of any scene and like it is a thing that anytime I flip a channel and I see it, like that's the next two hours gone.
+[00:19:28] Will: Yeah, but that film in general, like I think you can pop into kind of any scene and like it is a thing that anytime I flip a channel and I see it, like that's the next two hours gone.
 
 [00:19:38] Adam: Totally, totally. Yeah, I love the line. Dating you is like dating a Stairmaster.
 
@@ -518,7 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:19:43] Norm: Bollywood.
 
-[00:19:43] Will: Bollywood musical, you know. Yeah, I'm. It's just you don't you don't often see that. A lot of time people people get into like a genre, and and Fincher definitely tends to like true crime and kind of kind of gritty, real.
+[00:19:43] Will: Bollywood musical. Yeah, I'm. It's just you don't often see that. A lot of time people people get into like a genre, and Fincher definitely tends to like true crime and kind of gritty, real.
 
 [00:20:11] Adam: Well, and I I appreciated. Did you see the story this week about Fincher having said that he? I I'm not sure if he was offered to direct one of the Star Wars movies.
 
@@ -532,7 +532,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:20:22] Will: Yeah,
 
-[00:20:22] Adam: I don't want that kind of. And this is coming from someone who had suffered from 20th Century Fox with significant studio interference with with with with Alien Three, which of course is what happens when you're a brand new director brought into a franchise. They bring in a new director so that they have some measure of control.
+[00:20:22] Adam: I don't want that kind of. And this is coming from someone who had suffered from 20th Century Fox with significant studio interference with Alien Three, which of course is what happens when you're a brand new director brought into a franchise. They bring in a new director so that they have some measure of control.
 
 [00:20:42] Norm: I would think Steven Soderbergh's the other director who does something different every single time. And speaking of Star Wars, you see that he posted recently his rejection letter from Lucasfilm back in the '80s, I believe. Like, sorry,
 
@@ -552,13 +552,13 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:21:14] Will: Nice.
 
-[00:21:14] Norm: It's you want you want to know the premise?
+[00:21:14] Norm: It's you want to know the premise?
 
 [00:21:14] Adam: Yes.
 
 [00:21:14] Will: Yeah.
 
-[00:21:14] Norm: It's a taking. Imagine the investigative journalism that is that is applied to a thing like Serial, but it's about a high school and who spray painted 27 dicks onto 27 faculty cars and one fateful afternoon.
+[00:21:14] Norm: It's a taking. Imagine the investigative journalism that is applied to a thing like Serial, but it's about a high school and who spray painted 27 dicks onto 27 faculty cars and one fateful afternoon.
 
 [00:22:00] Adam: Oh my God!
 
@@ -584,17 +584,17 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:22:35] Will: Yeah.
 
-[00:22:36] Adam: So she spends like 12 hours, 12 separate episodes, talking about the Blacklist. Another seven hours talking about Boris Karloff and Bela Lugosi. So she she does seasons that are based nominally on different categories or portions of the film of film history, and then just does the deepest, deepest dives into it. And you can drop in anywhere.
+[00:22:36] Adam: So she spends like 12 hours, 12 separate episodes, talking about the Blacklist. Another seven hours talking about Boris Karloff and Bela Lugosi. So she does seasons that are based nominally on different categories or portions of the film of film history, and then just does the deepest, deepest dives into it. And you can drop in anywhere.
 
-[00:22:58] Will: And it's it's very it's very loving. It's very accessible. It's she's before she did this. She was a writer, like she was a film reviewer, film critic, and and writer. And
+[00:22:58] Will: And it's very loving. It's very accessible. It's she's before she did this. She was a writer, like she was a film reviewer, film critic, and writer. And
 
 [00:23:10] Adam: her and her background is in film history.
 
-[00:23:12] Will: Yeah, but but she's a film historian, and and and has always come at her work from a real point of um, love like love of the medium.
+[00:23:12] Will: Yeah, but she's a film historian, and has always come at her work from a real point of love like love of the medium.
 
-[00:23:20] Adam: Yeah, and a love of the audience. There's a way in which she's. I have a second podcast to recommend, but and both of them. This she has a lovely way of speaking in a very measured, balanced, again deliberate cadence, which I find very reassuring after several episodes. It's like this. It's like you going back to that place. Like oh, it's it's comfortable here. The other podcast I want to mention is Cameron Esposito's podcast, Queery Q U E E R Y, and it is it is about intersectionality regarding gender issues. Namely, about that she talks to lots of different people. But Cameron is a comedian in L.A. She's very well known in comedy circles. She's brilliant. She and her partner Rhea Butcher have did did stuff with w00tstock a couple years back. That's where I first met them. But she has an amazing way of interviewing people that is, again, super accessible and loving and intelligent. And the conversations she has with people, like her hairdresser or with Evan Rachel Wood, and the places they get to in talking about their personal experiences and ways in which to to illuminate aspects of gender issues and issues of identity, is it's a really amazing listen. And if you have like just dive in anywhere, and it's an amazing, amazing podcast.
+[00:23:20] Adam: Yeah, and a love of the audience. There's a way in which she's. I have a second podcast to recommend, but and both of them. This she has a lovely way of speaking in a very measured, balanced, again deliberate cadence, which I find very reassuring after several episodes. It's like this. It's like you going back to that place. Like oh, it's comfortable here. The other podcast I want to mention is Cameron Esposito's podcast, Queery Q U E E R Y, and it is about intersectionality regarding gender issues. Namely, about that she talks to lots of different people. But Cameron is a comedian in L.A. She's very well known in comedy circles. She's brilliant. She and her partner Rhea Butcher have did did stuff with w00tstock a couple years back. That's where I first met them. But she has an amazing way of interviewing people that is, again, super accessible and loving and intelligent. And the conversations she has with people, like her hairdresser or with Evan Rachel Wood, and the places they get to in talking about their personal experiences and ways in which to illuminate aspects of gender issues and issues of identity, is it's a really amazing listen. And if you have like just dive in anywhere, and it's an amazing, amazing podcast.
 
-[00:24:45] Will: I um I have something a little lighter to recommend. We there's a there's a game, a trivia game, right now that runs live on iOS, an app. Called HQ. It runs twice a day on weekdays and once on weekends, and it's hosted. It's a live video of a guy standing in front of a green screen asking you questions and kind of. It's do you remember? Do you remember? You don't know Jack.
+[00:24:45] Will: I have something a little lighter to recommend. We there's a game, a trivia game, right now that runs live on iOS, an app. Called HQ. It runs twice a day on weekdays and once on weekends, and it's hosted. It's a live video of a guy standing in front of a green screen asking you questions and kind of. It's do you remember? Do you remember? You don't know Jack.
 
 [00:24:45] Norm: Yeah, yeah.
 
@@ -602,7 +602,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:25:14] Adam: So [unclear: you’re always getting the answer second / are you always getting the answer second?]
 
-[00:25:15] Will: You have you have five seconds to answer the question, so it's very quick. You can't Google, and basically, like it works like Who Wants to Be a Millionaire. So every time,
+[00:25:15] Will: You have five seconds to answer the question, so it's very quick. You can't Google, and basically, like it works like Who Wants to Be a Millionaire. So every time,
 
 [00:25:15] Unknown speaker: right?
 
@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:25:15] Adam: Right?
 
-[00:25:15] Will: And and then if the person who answers the last, all the people who answer the last question get like a little bit of cash, but it's really more about this like shared social thing.
+[00:25:15] Will: And then if the person who answers the last, all the people who answer the last question get like a little bit of cash, but it's really more about this like shared social thing.
 
 [00:25:37] Norm: They whittle down 20,000 to a handful
 
@@ -624,7 +624,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:25:46] Adam: get like 20 of us.
 
-[00:25:47] Will: Yeah, get all the brains. We need to get we need to get the brains.
+[00:25:47] Will: Yeah, get all the brains. We need to get the brains.
 
 [00:25:50] Norm: There’s a critical mass Yeah, for how many answers? How many cooks in the kitchen?
 
@@ -638,7 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:25:56] Will: That's awesome!
 
-[00:25:56] Adam: It was a really fun group to to talk to.
+[00:25:56] Adam: It was a really fun group to talk to.
 
 [00:26:14] Will: Very cool.
 
@@ -664,7 +664,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:26:33] Adam: Oh, spooky.
 
-[00:26:33] Norm: Yes, yeah. So we'll do we'll do a Halloween episode next week.
+[00:26:33] Norm: Yes, yeah. So we'll do a Halloween episode next week.
 
 [00:26:37] Will: Bring your theremin.
 
@@ -678,7 +678,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:26:40] Adam: But I performed with a theremin recently. There was a theremin on stage when I did participated in Janet Varney staged reading of Plan Nine from Outer Space in Brooklyn as part of New York Comic Con.
 
-[00:26:53] Will: I'm I'm really disappointed that you don’t own a theremin.
+[00:26:53] Will: I'm really disappointed that you don’t own a theremin.
 
 [00:26:53] Adam: I don't.
 
@@ -688,7 +688,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:26:59] Will: Okay.
 
-[00:26:59] Adam: But no, I've never, I've never, I've never even bought a theremin kit. I know it's ridiculous.
+[00:26:59] Adam: But no, I've never even bought a theremin kit. I know it's ridiculous.
 
 [00:27:09] Will: Of all the like, I would assume that that's like an entry point, not not the exit, right?
 
@@ -754,11 +754,11 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:27:55] Adam: Oh, yeah. Sorry.
 
-[00:28:03] Will: Yeah. So the Adult Swim series that that Foo Powers. We make this animated series. It's a live cartoon with Carl from Aqua Teen Hunger Force. He's a horrible person, but it's a really funny show. It's on every Wednesday. It's an NFL call-in show. But if you don't like the sports ball, don't worry about that because it's really it's really about America.
+[00:28:03] Will: Yeah. So the Adult Swim series that that Foo Powers. We make this animated series. It's a live cartoon with Carl from Aqua Teen Hunger Force. He's a horrible person, but it's a really funny show. It's on every Wednesday. It's an NFL call-in show. But if you don't like the sports ball, don't worry about that because it's really about America.
 
 [00:28:03] Adam: America.
 
-[00:28:03] Will: And and if you are easily offended, I would encourage you to steer clear. Carl's co-host is a friend of his that he met at let's say late night establishment that involves dancing, perhaps. And also, there is a talking fleshlight. So,
+[00:28:03] Will: And if you are easily offended, I would encourage you to steer clear. Carl's co-host is a friend of his that he met at let's say late night establishment that involves dancing, perhaps. And also, there is a talking fleshlight. So,
 
 [00:28:03] Norm: all right,
 
@@ -794,7 +794,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:28:59] Adam: I'm sorry. This podcast is going up late this week, but come to the live show and we'll see you guys. We'll talk to you guys on Tuesday.
 
-[00:29:06] Norm: And we have and we have more stuff from Adam's trip to Blade Runner set. We our embargo is lifted, so they're going to be rolling out starting next week.
+[00:29:06] Norm: And we have more stuff from Adam's trip to Blade Runner set. We our embargo is lifted, so they're going to be rolling out starting next week.
 
 [00:29:06] Adam: Cool.
 

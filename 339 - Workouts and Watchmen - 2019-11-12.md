@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:01:44] Adam: It is like this marriage between the two, and it's also like you're John Wick running down a hallway, killing bad guys.
 
-[00:01:51] Will: It's a rhythm game. Rhythm. The the thing you have to do on the beat is shoot people. Yeah. In the body or the head, I mean, it's optional.
+[00:01:51] Will: It's a rhythm game. Rhythm. The thing you have to do on the beat is shoot people. Yeah. In the body or the head, I mean, it's optional.
 
 [00:01:56] Adam: And it is not only is it thrilling, but I want to tell you, my thighs are on fire this week.
 
@@ -114,13 +114,13 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:02:28] Will: Yeah.
 
-[00:02:28] Norm: And people were, you know, going to play Pistol Whip, we're going to have giant, giant calves.
+[00:02:28] Norm: And people were going to play Pistol Whip, we're going to have giant, giant calves.
 
-[00:02:32] Will: I told I told Gina this morning, Pistol Whip is leg day.
+[00:02:32] Will: I told Gina this morning, Pistol Whip is leg day.
 
 [00:02:35] Norm: It is leg day.
 
-[00:02:35] Adam: It is leg day. And and Beat Saber is arm day.
+[00:02:35] Adam: It is leg day. And Beat Saber is arm day.
 
 [00:02:38] Norm: Yes.
 
@@ -132,15 +132,15 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:02:57] Norm: adventure puzzle games, which did okay, and they actually were the people who brought forth like snap turning in VR, where you use the thumbstick and you snap and turn and not do a smooth turn, [unclear: that's comfortable / not comfortable]. They figured that out.
 
-[00:03:10] Adam: Then they they made it work.
+[00:03:10] Adam: Then they made it work.
 
 [00:03:11] Norm: Yes.
 
-[00:03:11] Will: Okay. Well, they they figured that lerp's don't work. I mean, lerp's work for 90% of people and really don't work for like 5%. Lerp is a linear expression of I can't remember what it stands for, but it basically means you jump and it doesn't blink out the movement; it just shows it in like six frames.
+[00:03:11] Will: Okay. Well, they figured that lerp's don't work. I mean, lerp's work for 90% of people and really don't work for like 5%. Lerp is a linear expression of I can't remember what it stands for, but it basically means you jump and it doesn't blink out the movement; it just shows it in like six frames.
 
 [00:03:25] Adam: Ah.
 
-[00:03:25] Will: Um. But the but the point is, they're doing linear locomotion here in a way that makes no one I've put in this game sick. Most of the time, when you move linearly, a certain a larger percentage of people than than just stand still will feel motion sick after a really short period of time.
+[00:03:25] Will: But the point is, they're doing linear locomotion here in a way that makes no one I've put in this game sick. Most of the time, when you move linearly, a certain a larger percentage of people than than just stand still will feel motion sick after a really short period of time.
 
 [00:03:40] Adam: And I am one of those. Is there a reason that it works? Because I found myself thinking it's because you're kind of always looking at the horizon, which is the advice they give you when you get seasick.
 
@@ -148,9 +148,9 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:03:52] Adam: Oh, I'm always moving at the same speed.
 
-[00:03:52] Will: So you're it's the same as being in a train that's moving at the same speed or, you know, a car or whatever. There's no, um, horizon bob. There's no they're really careful. Like the gun does a little bit of a just a the model just kind of bulges out a little bit on the beat, but other than that, there's nothing. And also, I think those I think those alternating tiles on the ground also help because they give your brain more cues about the speed of movement.
+[00:03:52] Will: So you're it's the same as being in a train that's moving at the same speed or, you know, a car or whatever. There's no horizon bob. There's no they're really careful. Like the gun does a little bit of a just a the model just kind of bulges out a little bit on the beat, but other than that, there's nothing. And also, I think those alternating tiles on the ground also help because they give your brain more cues about the speed of movement.
 
-[00:04:18] Adam: It is a ludicrously pleasurable game to play. I I can't stop playing it.
+[00:04:18] Adam: It is a ludicrously pleasurable game to play. I can't stop playing it.
 
 [00:04:24] Will: Yeah, have you tried turning off the auto aim and stuff?
 
@@ -166,7 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:04:58] Adam: you can't count on it.
 
-[00:04:59] Will: Well, and they're giving you like, like on normal, you are presented with maybe two or three guys, maybe four at most. On hard, it will spawn like a grid of four, two four by four grids, or two two by two grids, and you have to just, you know, you have to John Wick that shit.
+[00:04:59] Will: Well, and they're giving you like on normal, you are presented with maybe two or three guys, maybe four at most. On hard, it will spawn like a grid of four, two four by four grids, or two two by two grids, and you have to just you have to John Wick that shit.
 
 [00:05:14] Adam: Yeah, and
 
@@ -188,13 +188,13 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:06:04] Norm: Yeah.
 
-[00:06:05] Adam: Um, I notice my aiming accuracy is at about 75%. Yeah,
+[00:06:05] Adam: I notice my aiming accuracy is at about 75%. Yeah,
 
 [00:06:09] Norm: yeah, yeah.
 
 [00:06:09] Adam: Feels pretty reasonable. Yeah.
 
-[00:06:11] Will: Well, so the the scoring is interesting because the Beat Saber is a little esoteric, right? The Beat Saber it's like about the arm, the motion of your arm, and the and the the length of your swing, and the speed, and the timing, and there's a bunch of stuff. that goes in there.
+[00:06:11] Will: Well, so the scoring is interesting because the Beat Saber is a little esoteric, right? The Beat Saber it's like about the arm, the motion of your arm, and the length of your swing, and the speed, and the timing, and there's a bunch of stuff. that goes in there.
 
 [00:06:23] Adam: I was told by a Beat Saber expert last week that a lot of people game it just by moving their wrists. So like real professional players aren't moving very much at all, despite the game's attempt to. The
 
@@ -228,7 +228,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:07:21] Adam: Yeah.
 
-[00:07:21] Will: Um. The the uh the thing that they don't have is I think cross platform leaderboards. So I've so far run down the Vive wireless battery I think three or four times playing it, which is like an hour per session probably. It's a very good game. It's it's it is. I am I am I'm thinking about it right now. I just want to go play.
+[00:07:21] Will: The thing that they don't have is I think cross platform leaderboards. So I've so far run down the Vive wireless battery I think three or four times playing it, which is like an hour per session probably. It's a very good game. It's it is. I am I'm thinking about it right now. I just want to go play.
 
 [00:07:38] Adam: It may end up being the thing that causes me to attach a battery pack to the back of my headset or
 
@@ -236,7 +236,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:07:45] Adam: Yeah. I've noticed people there's vests you can buy that'll slip a USB back behind your shoulder blades.
 
-[00:07:50] Will: Well, so that's basically what the Vive wireless is. It's like a big USB pack that I just put in my pocket and it has a long enough cord. The um the it's out everywhere right it's out on Rift Quest and Vive.
+[00:07:50] Will: Well, so that's basically what the Vive wireless is. It's like a big USB pack that I just put in my pocket and it has a long enough cord. The it's out everywhere right it's out on Rift Quest and Vive.
 
 [00:08:00] Norm: just not PSVR yet
 
@@ -258,7 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:08:27] Will: sometimes I do
 
-[00:08:28] Adam: it is it is Jamie Hyneman's workout music
+[00:08:28] Adam: it is Jamie Hyneman's workout music
 
 [00:08:30] Will: really
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:08:38] Will: wow
 
-[00:08:38] Adam: Jamie Jamie um I don't know what his workout is these days for a long time when we were on tour it was kettlebells
+[00:08:38] Adam: Jamie Jamie I don't know what his workout is these days for a long time when we were on tour it was kettlebells
 
 [00:08:46] Will: oh I can see that
 
@@ -290,23 +290,23 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:09:31] Adam: Oh, absolutely. Yeah, yeah.
 
-[00:09:33] Will: You got to have a to have a mustache like that. You have to have a physique.
+[00:09:33] Will: You got to have a mustache like that. You have to have a physique.
 
 [00:09:36] Adam: Yeah, I remember. Actually, I see the same physical therapist that he sees because he introduced them to me, and they're terrific. And one of the things that he was really impressed by was they taught him brand new ways of working out older muscle groups,
 
 [00:09:49] Will: Oh.
 
-[00:09:50] Adam: which involved. Less repetition and more like because he had he had a he had a tricky knee for a little while and it's really hard to work out knees
+[00:09:50] Adam: which involved. Less repetition and more like because he had a tricky knee for a little while and it's really hard to work out knees
 
 [00:10:00] Will: yeah
 
-[00:10:00] Adam: it's really difficult and if I remember correctly and forgive me medical medical listeners if I if I get this wrong
+[00:10:00] Adam: it's really difficult and if I remember correctly and forgive me medical medical listeners if I get this wrong
 
 [00:10:07] Will: Prepare to scream at your radio
 
-[00:10:09] Adam: uh they what they had him do was go into a squat where he's, the knee is holding the tension but he's not doing repetition he's just holding it there until he can't and he collapses into a mat that's below him and then take a little breather and do it again and you you're basically it's this very low impact strength training and he was blown away by how quickly so the the reason I'm mentioning Jamie being surprised by someone teaching him a new thing is he's always researching efficiency in ways to work out all the muscles he really like he wants to keep his body running for as long as possible which is hilarious because when he gets sick he gets really pissed.
+[00:10:09] Adam: They what they had him do was go into a squat where he's, the knee is holding the tension but he's not doing repetition he's just holding it there until he can't and he collapses into a mat that's below him and then take a little breather and do it again and you you're basically it's this very low impact strength training and he was blown away by how quickly so the reason I'm mentioning Jamie being surprised by someone teaching him a new thing is he's always researching efficiency in ways to work out all the muscles he really like he wants to keep his body running for as long as possible which is hilarious because when he gets sick he gets really pissed.
 
-[00:10:50] Will: Oh yeah, the weakness of the he can't he can't handle the weakness of the flesh.
+[00:10:50] Will: Oh yeah, the weakness of the he can't handle the weakness of the flesh.
 
 [00:10:54] Norm: Him maximizing the treadmill angle, carrying weight versus you doing a John Wick simulator in VR as your workout is the quintessential difference between the two.
 
@@ -374,11 +374,11 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:12:20] Adam: Which is fine. But I I'm so excited. The episode three.
 
-[00:12:27] Norm: So let's set this up. We talked about it a little bit before. Regina King, of course, is the main star. It is a sequel to the book Watchmen by Alan Moore and Dave Gibbons, not necessarily the the movie, although there are visual references to the Zack Snyder movie.
+[00:12:27] Norm: So let's set this up. We talked about it a little bit before. Regina King, of course, is the main star. It is a sequel to the book Watchmen by Alan Moore and Dave Gibbons, not necessarily the movie, although there are visual references to the Zack Snyder movie.
 
 [00:12:39] Adam: No, they went to they. They talk about the squid, so they're they're holding to the to the book, not the film,
 
-[00:12:44] Norm: and it's set in 2019 alternate reality where the world is different. You know, it's What happened if Nixon was president for that long?
+[00:12:44] Norm: and it's set in 2019 alternate reality where the world is different. It's What happened if Nixon was president for that long?
 
 [00:12:51] Will: Nixon got four terms, and then was followed up by an actor named R. R.
 
@@ -388,15 +388,15 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:12:58] Norm: And then Robert Redford, After Ford, but the world building of the show that they do is not just exposition that's laid out to you. You discover it as you watch the show,
 
-[00:13:09] Adam: and they and they they they actually go deep into one of the center set pieces of the first three episodes that I've seen are the the the Tulsa race riots,
+[00:13:09] Adam: and they actually go deep into one of the center set pieces of the first three episodes that I've seen are the Tulsa race riots,
 
 [00:13:20] Norm: the Tulsa, or the massacres,
 
 [00:13:21] Adam: Massacres, the Tulsa massacre. Yeah, race riot. It's a massacre.
 
-[00:13:25] Will: It was it was a riot where the white people were upset that there was a prosperous black community and
+[00:13:25] Will: It was a riot where the white people were upset that there was a prosperous black community and
 
-[00:13:30] Adam: burned it down and killed a bunch of people. One of the most prosperous black communities in the United States. It was called Black Wall Street, and it was an entire effective part of a city in which the local white people were so incensed about it, they not only showed up and murdered hundreds and hundreds of people, they were flying planes over and dropping. Bombs, fire bombs on the. They they razed an entire town. R a z e d. Um, it's a horrifying part of American history because it happened in the '20s.
+[00:13:30] Adam: burned it down and killed a bunch of people. One of the most prosperous black communities in the United States. It was called Black Wall Street, and it was an entire effective part of a city in which the local white people were so incensed about it, they not only showed up and murdered hundreds and hundreds of people, they were flying planes over and dropping. Bombs, fire bombs on the. They razed an entire town. R a z e d. It's a horrifying part of American history because it happened in the '20s.
 
 [00:13:58] Will: They never. They don't. It's funny growing up in the South. It's something they don't teach you.
 
@@ -404,9 +404,9 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:14:01] Will: You never hear about that.
 
-[00:14:02] Adam: Um, and they they they uh Tulsa has reparations in the show. One of the things that happens is that Tulsa confronted itself and applied reparations. Um, and it's not a simple matter. It's a complex social thing that goes on, and that also weaves into the first three episodes. in a way I found really fascinating.
+[00:14:02] Adam: And they Tulsa has reparations in the show. One of the things that happens is that Tulsa confronted itself and applied reparations. And it's not a simple matter. It's a complex social thing that goes on, and that also weaves into the first three episodes. in a way I found really fascinating.
 
-[00:14:21] Norm: One of the really fascinating meta things about this show is an HBO show, and much like the way HBO's producers are making Westworld and and Watchmen and even True Detective, it's week by week release. They are well aware of kind of the online following and even us discussing this, right? And how a show in the community that follows a show. Builds a life of its own that the creators can't really anticipate, so they prepare a lot of ancillary material, which is perfect for a show like Watchmen, because that's exactly how that story was laid out when it was first put out. Most people know it as a graphic novel, but it really was 12 issues in a maxi series that was released, you know, one month at a time, and with each issue there would be excerpts from the original Nite Owl's memoir. There would be these newspaper clippings,
+[00:14:21] Norm: One of the really fascinating meta things about this show is an HBO show, and much like the way HBO's producers are making Westworld and Watchmen and even True Detective, it's week by week release. They are well aware of kind of the online following and even us discussing this, right? And how a show in the community that follows a show. Builds a life of its own that the creators can't really anticipate, so they prepare a lot of ancillary material, which is perfect for a show like Watchmen, because that's exactly how that story was laid out when it was first put out. Most people know it as a graphic novel, but it really was 12 issues in a maxi series that was released one month at a time, and with each issue there would be excerpts from the original Nite Owl's memoir. There would be these newspaper clippings,
 
 [00:15:09] Will: and that stuff's in the Absolute Edition as the kind of interstitials, right?
 
@@ -418,7 +418,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:15:26] Adam: I I've got to listen to that. I have to say, this is so. There's been four episodes. The fourth is just recently aired. I've seen the first three. The third episode. The first two are great. I enjoyed them immensely. I burned through them. The third one is amazing, and it's amazing. So it walks through one of the original Watchmen.
 
-[00:15:50] Norm: It's the first episode in the season where Angela Abar, Regina King's character, is. You're not seeing the world through her eyes. It brings in a new character to the show, which ends up being revealed to be one of the original Watchmen. It's it's it's a
+[00:15:50] Norm: It's the first episode in the season where Angela Abar, Regina King's character, is. You're not seeing the world through her eyes. It brings in a new character to the show, which ends up being revealed to be one of the original Watchmen. It's a
 
 [00:16:04] Will: Laurie Laurie Laurie. Well, she changes her name, Laurie
 
@@ -430,7 +430,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:16:21] Adam: Jean Smart has so much fun with this character, and you can imagine what you know about what it's like to be a woman in Hollywood, a woman of a certain age, don't often get roles that are meaty like this, and you watch the actress just make so much delicious hay out of the role.
 
-[00:16:38] Will: But like that, the cold open. I think it was the cold open when they're in the bank. Where she's going into the bank and and like they're they're they're doing a faux. I mean, I it's last week's episode. I don't know if we want to do spoilers or not.
+[00:16:38] Will: But like that, the cold open. I think it was the cold open when they're in the bank. Where she's going into the bank and they're doing a faux. I mean, I it's last week's episode. I don't know if we want to do spoilers or not.
 
 [00:16:52] Norm: Can do light spoilers.
 
@@ -438,7 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:16:57] Norm: Yeah,
 
-[00:16:57] Will: and it turns and there's so much glee and she gives so few fucks about anything that the vigilante cares about. Like to me, the the thing that's interesting about this is it's all about the impact of.
+[00:16:57] Will: and it turns and there's so much glee and she gives so few fucks about anything that the vigilante cares about. Like to me, the thing that's interesting about this is it's all about the impact of.
 
 [00:17:10] Norm: Let me tell you this:
 
@@ -468,7 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:17:51] Norm: And daughter of the comedian.
 
-[00:17:52] Adam: There's this, there's this, There's this other that's really nifty. There's this other. It's beautiful. There's this other aspect of that episode, which is Doctor Manhattan's living on Mars. No one has seen him in a fair bit of time, but because of his omnipotence, there's apparently phone booths you can go to and you can call Mars and talk to him.
+[00:17:52] Adam: There's this other that's really nifty. There's this other. It's beautiful. There's this other aspect of that episode, which is Doctor Manhattan's living on Mars. No one has seen him in a fair bit of time, but because of his omnipotence, there's apparently phone booths you can go to and you can call Mars and talk to him.
 
 [00:18:09] Will: It's a cottage industry. It's the best scam because you don't have to call. He sees the entire universe at the same time. Letters to Santa.
 
@@ -480,13 +480,13 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:18:35] Will: What's the framework for the whole episode?
 
-[00:18:36] Adam: And it is a framework that feels so Alan Moore with the the the black.
+[00:18:36] Adam: And it is a framework that feels so Alan Moore with the black.
 
 [00:18:42] Will: The black freighter.
 
 [00:18:43] Adam: The black freighter, which is such a weird, dark thing in that issue, right?
 
-[00:18:49] Will: Well, but but I mean, it isn't actually like, like she doesn't she she doesn't mess up the joke. It's all intentional.
+[00:18:49] Will: Well, but I mean, it isn't actually like she doesn't mess up the joke. It's all intentional.
 
 [00:18:57] Norm: And it's also that's a classic joke construct,
 
@@ -534,7 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:20:18] Norm: Part of this was laid out in the podcast that Damon Lindelof and Craig Mazin do.
 
-[00:20:23] Will: They released they released a podcast after the third episode, right?
+[00:20:23] Will: They released a podcast after the third episode, right?
 
 [00:20:25] Norm: Once every three episodes, and one of the things they revealed is they filmed all Jeremy Irons episodes first. Mm-hmm. So they didn't film things concurrently. They had him his availability and their shooting location in I believe Ireland for a set time, and they just shot. All of that before the scripts were even written for the other episodes.
 
@@ -562,7 +562,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:22:23] Will: Oh, I didn't know he was in that. I haven't watched it yet.
 
-[00:22:25] Adam: Not only is Billy Crudup in it, but in a in a roster of terrific actors: Mark Duplass, Steve Carell, Jennifer Aniston, Reese Witherspoon. Billy Crudup is like. He's in almost in a different show, and it's so much fun to watch him go. He is Billy Crudup has played some great villains over the years. In this specific role, he is leaning out over his villainy with a glee that is sheer delight—it's a delight to watch.
+[00:22:25] Adam: Not only is Billy Crudup in it, but in a roster of terrific actors: Mark Duplass, Steve Carell, Jennifer Aniston, Reese Witherspoon. Billy Crudup is like. He's in almost in a different show, and it's so much fun to watch him go. He is Billy Crudup has played some great villains over the years. In this specific role, he is leaning out over his villainy with a glee that is sheer delight—it's a delight to watch.
 
 [00:22:53] Will: Yeah,
 
@@ -578,7 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:23:09] Will: Agreed
 
-[00:23:09] Adam: , she has phenomenal timing, and she's playing she's playing a terrific part. And Reese Witherspoon, also, I'm a big fan, and her part is great and meaty. I find the writing quite uneven on the show. So some scenes will be really electric and sparky and fun and weird, and then the next scene will be like some bit of boilerplate where someone's like, " Did you get the plans? Yeah, I got the plans, boss. We'll get them soon." Not that that. A dialogue exchange occurs within the show, but it feels that clunky sometimes.
+[00:23:09] Adam: she has phenomenal timing, and she's playing a terrific part. And Reese Witherspoon, also, I'm a big fan, and her part is great and meaty. I find the writing quite uneven on the show. So some scenes will be really electric and sparky and fun and weird, and then the next scene will be like some bit of boilerplate where someone's like, " Did you get the plans? Yeah, I got the plans, boss. We'll get them soon." Not that that. A dialogue exchange occurs within the show, but it feels that clunky sometimes.
 
 [00:23:44] Will: I mean that that so the framework is it's a show about a morning show, where the co host of long the Matt Lauer character is is
 
@@ -588,7 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:23:57] Adam: Ripped from the [unclear]. Yeah, he sexually harasses, sexual impropriety at the workplace, and he sleeps with many people that he works so that work for him.
 
-[00:24:05] Will: So, like, if we think about the list of shows that are the framework of the show within the show, we have like Larry Sanders and Garry Shandling. We have Newsroom. We have Studio 60. Like we have 30 Rock. Where does this land on the on like? Um, well, from what you've seen, like, is it because it's a drama, right?
+[00:24:05] Will: So if we think about the list of shows that are the framework of the show within the show, we have like Larry Sanders and Garry Shandling. We have Newsroom. We have Studio 60. Like we have 30 Rock. Where does this land on the on like? Um, well, from what you've seen is it because it's a drama, right?
 
 [00:24:24] Adam: Yeah, it feels as a drama. It feels more akin to like The Good Wife, like that kind of ensemble drama of good actors, and occasionally the dialogue can be stupid, turgid. Mark Duplass, by the way. An actor, the Duplass brothers are two actors, the founders of Mumblecore, and they've been in many, many different things, including the a whole bunch of television you've seen. Mark Duplass is terrific in this, playing this tired director. The supporting cast is terrific. I like it more than I don't like it.
 
@@ -602,9 +602,9 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:25:32] Will: Wow,
 
-[00:25:32] Adam: it's it's there's a delight. To the fact that he's so unabashedly shitty, he's totally admitting it up front. Like, there's no, I don't want to be that kind of person. No, he's exactly who he wants to be.
+[00:25:32] Adam: it's there's a delight. To the fact that he's so unabashedly shitty, he's totally admitting it up front. Like, there's no, I don't want to be that kind of person. No, he's exactly who he wants to be.
 
-[00:25:43] Will: Wow. I, I, so I'm, like, I'm always interested when they cast comedians for drama roles because it's usually there's usually it's usually to good purpose and it usually works really well.
+[00:25:43] Will: Wow. I, so I'm I'm always interested when they cast comedians for drama roles because it's usually there's usually it's usually to good purpose and it usually works really well.
 
 [00:25:54] Adam: In that vein, in the second episode, there's a scene in which so Carell is they're very slow to bring him to wheel him into the plot. He's you're just kind of dipping into him a couple times per episode, but then late in the second episode, he meets with a Hollywood director whose career was also derailed by sexual impropriety, played by Martin Short.
 
@@ -614,7 +614,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:26:26] Will: yeah,
 
-[00:26:26] Adam: the the amount of weight and timing and stakes they're adding to their dialogue is like a masterclass.
+[00:26:26] Adam: the amount of weight and timing and stakes they're adding to their dialogue is like a masterclass.
 
 [00:26:36] Will: Yeah.
 
@@ -646,13 +646,13 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:27:41] Will: The Good Girl was a long time ago, but it was intense, and like I thought that was a phenomenal film.
 
-[00:27:45] Adam: There's one thing that I find about Aniston that is that it seems, it seems difficult for her to play an unabashedly shitty person, and I feel sometimes like that's what this role requires.
+[00:27:45] Adam: There's one thing that I find about Aniston that is that it seems difficult for her to play an unabashedly shitty person, and I feel sometimes like that's what this role requires.
 
 [00:28:00] Will: Did you see Horrible Bosses?
 
 [00:28:00] Adam: Oh, yes, that is actually your really. That's my favorite Jennifer Aniston role. I think she's incredible in that, but she's playing a comedy shitty person.
 
-[00:28:11] Will: Well, she's playing a a ludicrously over the top shitty person, right? Flipping the flipping the yeah.
+[00:28:11] Will: Well, she's playing a ludicrously over the top shitty person, right? Flipping the yeah.
 
 [00:28:17] Adam: There's the degree of how much fun she has in Horrible Bosses is super great. Yeah, like I love that. That might be my favorite movie role.  of hers.
 
@@ -730,15 +730,15 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:30:30] Adam: Yeah, it's all the scratch track. Yeah, I've seen it.
 
-[00:30:32] Will: It has, yeah, and and and they're like
+[00:30:32] Will: It has, yeah, and they're like
 
 [00:30:34] Adam: that was released at the Castro in '93. Yeah, I saw it in the theater.
 
-[00:30:39] Will: So so it's like this, like the notes are this is this this narration is terrible. The you know the voiceover is terrible. Where's the Vangelis? The Vangelis was the only thing that made the first hour tolerable. There's two. There's not enough fighting, and then there's too much fighting. And it's I'll I'll I'll send you the Twitter. I'll send it. I'll send it to you so you can put it in the notes. It was good.
+[00:30:39] Will: So so it's like this, like the notes are this is this narration is terrible. The you know the voiceover is terrible. Where's the Vangelis? The Vangelis was the only thing that made the first hour tolerable. There's two. There's not enough fighting, and then there's too much fighting. And it's I'll I'll I'll send you the Twitter. I'll send it. I'll send it to you so you can put it in the notes. It was good.
 
 [00:30:59] Adam: I'm super psyched for the fourth episode of Watchmen. Like I said, I'm going to watch it in just a couple of hours when I get home.
 
-[00:31:03] Norm: And then [unclear: let's not podcast / listen to our podcast]. Highly recommended. Damon Lindelof, Craig Mazin from from
+[00:31:03] Norm: And then [unclear: let's not podcast / listen to our podcast] Highly recommended. Damon Lindelof, Craig Mazin from
 
 [00:31:08] Will: Chernobyl,
 
@@ -750,15 +750,15 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:31:30] Adam: Watchmen does not feel like that. The boys did not feel like that. I felt like I got big fat episodes every episode of the boys, and I'm feeling the same thing with Watchmen.
 
-[00:31:40] Will: Well, Watchmen's, They're they're 45 minute episodes or something
+[00:31:40] Will: Well, Watchmen's, They're 45 minute episodes or something
 
 [00:31:42] Norm: about an hour long. Nine of them.
 
-[00:31:43] Will: They feel they feel each one feels like a movie almost. Like not in the not in that there's like. Opening enclosure of of plotting and the, and the storyline.
+[00:31:43] Will: They feel each one feels like a movie almost. Like not in the not in that there's like. Opening enclosure of plotting and the storyline.
 
 [00:31:52] Adam: but it's super cinematic.
 
-[00:31:53] Will: It's it's gorgeous.
+[00:31:53] Will: It's gorgeous.
 
 [00:31:54] Norm: Every minute is crafted.
 
@@ -800,7 +800,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:32:57] Unknown speaker (Adam or Will): What else were we going to talk about?
 
-[00:32:59] Norm: We're we're we might be at our time.
+[00:32:59] Norm: We're we might be at our time.
 
 [00:33:02] Will: Okay,
 
@@ -812,7 +812,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:33:11] Will: Don't move to San Francisco. We're full.
 
-[00:33:14] Norm: Well, I'm saying for for the holidays and a lot of people maybe vacation to San Francisco.
+[00:33:14] Norm: Well, I'm saying for the holidays and a lot of people maybe vacation to San Francisco.
 
 [00:33:19] Will: Oh yeah, and tourism dollars are welcome.
 
@@ -830,7 +830,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:33:44] Adam: Do okay.
 
-[00:33:44] Will: Yeah, put by pay the money for the audio tour. Because it's narrated by former guards and inmates, they they recorded them while they were still alive.
+[00:33:44] Will: Yeah, put by pay the money for the audio tour. Because it's narrated by former guards and inmates, they recorded them while they were still alive.
 
 [00:33:51] Adam: Amazing!
 
@@ -860,17 +860,17 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:35:29] Will: yeah no,
 
-[00:35:31] Adam: don't you? I I saw when last time we were at Weta Workshop, one of the Weta folks went. Well, I went to San Francisco and I stayed in this hotel. It was on Polk Street, and I walked the whole of Polk Street, and it was just awful. And I was like. You literally walked. I think the worst street in San Francisco. You walked.
+[00:35:31] Adam: don't you? I saw when last time we were at Weta Workshop, one of the Weta folks went. Well, I went to San Francisco and I stayed in this hotel. It was on Polk Street, and I walked the whole of Polk Street, and it was just awful. And I was like. You literally walked. I think the worst street in San Francisco. You walked.
 
 [00:35:49] Will: It's like Gina. Gina used to do a walking tour when people would come to town, where we would start at Union Square, start at the Powell Street BART station, and then walk up because you walk through Union Square on the way, but walk through Chinatown and North Beach, and then go to the Alcatraz ferry, which was still on Fisherman's Wharf,
 
 [00:36:04] Adam: right?
 
-[00:36:04] Will: And it was like you you start at like nine o'clock in the morning, you hit the ferry for a one o'clock ferry, grab lunch and a beer somewhere along the way, and then spend the afternoon at Alcatraz and come back and go have dinner someplace. And it was a fantastic way to spend the day.
+[00:36:04] Will: And it was like you start at like nine o'clock in the morning, you hit the ferry for a one o'clock ferry, grab lunch and a beer somewhere along the way, and then spend the afternoon at Alcatraz and come back and go have dinner someplace. And it was a fantastic way to spend the day.
 
 [00:36:16] Adam: Yeah,
 
-[00:36:16] Will: it's a really really walkable city. Um, get the you can get the the get your Clipper card so you can ride BART and the and the and the Muni, and the cable cars and the streetcars and the whole thing and and yeah, bring your walking shoes.
+[00:36:16] Will: it's a really really walkable city. Get the you can get the get your Clipper card so you can ride BART and the Muni, and the cable cars and the streetcars and the whole thing and yeah, bring your walking shoes.
 
 [00:36:31] Adam: I think that when we do this episode, let's do some of our memories of doing those things.
 
@@ -886,17 +886,17 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:36:47] Will: You don't see anything.
 
-[00:36:49] Adam: I I still don't mind it up there. But you're right. You're right.
+[00:36:49] Adam: I still don't mind it up there. But you're right. You're right.
 
 [00:36:51] Will: When you're going for the view,
 
 [00:36:51] Adam: you can see the city. It is one of the more remarkable views of any city ever, except for the view of Cape Town from Table Mountain. I and the two feel not dissimilar, although Table Mountain's a bit more majestic.
 
-[00:37:05] Will: The first time I was in Hawaii, I was I was there. I was like, oh, it's a cloudy, it's an overcast day. Let's go to the top of the volcano today and see what it's like up there. So we drove three hours up to the side of the volcano and got to the top, and I was like, oh, right, this is why this is a bad time to do this. It's 40 degrees, and this is what the inside of a cloud feels like.
+[00:37:05] Will: The first time I was in Hawaii, I was there. I was like, oh, it's a cloudy, it's an overcast day. Let's go to the top of the volcano today and see what it's like up there. So we drove three hours up to the side of the volcano and got to the top, and I was like, oh, right, this is why this is a bad time to do this. It's 40 degrees, and this is what the inside of a cloud feels like.
 
 [00:37:20] Adam: The dumb shit we do on vacation. I ran out of gas in a Prius in front of the Dole Plantation on Hawaii.
 
-[00:37:26] Will: How do you how do you run out of gas in a Prius?
+[00:37:26] Will: How do you run out of gas in a Prius?
 
 [00:37:27] Adam: There's so much. You get so many miles out of a tank. I just forgot that you had to stop and fill it.
 
@@ -922,7 +922,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:38:10] Will: either one's fine.
 
-[00:38:11] Norm: Paper engineer. Yeah, either either be cool, and a bunch of other stuff. The model in front of me is a model kit that Kate and I put together, and we did some fun painting and lighting of it, and it's it's a lot of fun. Star Destroyer.
+[00:38:11] Norm: Paper engineer. Yeah, either either be cool, and a bunch of other stuff. The model in front of me is a model kit that Kate and I put together, and we did some fun painting and lighting of it, and it's a lot of fun. Star Destroyer.
 
 [00:38:22] Will: Those little lights aren't a twinkling, Norm.
 
@@ -936,7 +936,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:38:36] Adam: Okay, I'm just going to let it go.
 
-[00:38:36] Will: On on this week's episode of Brad and Will Made a Tech Pod, we talked about Wi-Fi.
+[00:38:36] Will: On this week's episode of Brad and Will Made a Tech Pod, we talked about Wi-Fi.
 
 [00:38:40] Adam: Yeah,
 
@@ -948,7 +948,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:38:48] Adam: Oh no, it's her contribution is to Bluetooth.
 
-[00:38:50] Will: Bluetooth. Yeah. We talked about we talked about the Shannon limit, which is the theoretical maximum data capacity for a frequency range, which was really fun. There's math. You can find it at techpod.content.town.
+[00:38:50] Will: Bluetooth. Yeah. We talked about the Shannon limit, which is the theoretical maximum data capacity for a frequency range, which was really fun. There's math. You can find it at techpod.content.town.
 
 [00:39:04] Adam: Awesome!
 

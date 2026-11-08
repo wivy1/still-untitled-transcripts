@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:01:38] Frank: Well, yeah, I mean the the schedule is different, the budgets are different, the the way it's kind of shot is a little bit different.
 
-[00:01:43] Will: Is it so like so like imagine so there's not a whole lot of examples where the same makeup's used in two places, but Star Trek comes to mind. Like, what about Worf? Like is Worf’s makeup different for the movies than it was for the TV shows?
+[00:01:43] Will: Is it so like imagine so there's not a whole lot of examples where the same makeup's used in two places, but Star Trek comes to mind. Like, what about Worf? Like is Worf’s makeup different for the movies than it was for the TV shows?
 
 [00:01:54] Frank: I mean, I think.
 
@@ -102,9 +102,9 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:03:22] Will: Babylon Five,
 
-[00:03:23] Frank: Babylon Five or anything. I mean, they they have to have like populate a spaceship with aliens.
+[00:03:23] Frank: Babylon Five or anything. I mean, they have to have like populate a spaceship with aliens.
 
-[00:03:27] Adam: So do you have a moment in in television makeup where the first time you got to see something of yours, watch it in the regular lineup on television? You the first excited.
+[00:03:27] Adam: So do you have a moment in television makeup where the first time you got to see something of yours, watch it in the regular lineup on television? You the first excited.
 
 [00:03:37] Frank: The first TV show that I ever worked on was Buffy the Vampire Slayer.
 
@@ -126,7 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:04:13] Adam: Wait. So how was that? Right. So you worked on it.
 
-[00:04:15] Frank: It was the coolest thing ever. Like it was my first time on set. on real set. It was my first time working with a lot of these really big makeup artists, like Joel Harlow and Todd McIntosh, and and I met a lot of really great guys that really helped me out a lot in the beginning of my career, and um, that was the that was pretty cool, and I I still think Buffy's a pretty you know epic show as far as like creature of the week kind of stuff.
+[00:04:15] Frank: It was the coolest thing ever. Like it was my first time on set. on real set. It was my first time working with a lot of these really big makeup artists, like Joel Harlow and Todd McIntosh, and I met a lot of really great guys that really helped me out a lot in the beginning of my career, and that was the that was pretty cool, and I I still think Buffy's a pretty you know epic show as far as like creature of the week kind of stuff.
 
 [00:04:37] Adam: Buffy is amazing. Buffy was really amazing. They had a lot of fun with their makeup. They had a lot of fun within their budget, and because the drama was so good and the writing was so good, you often didn't mind that sometimes the makeups were a little bit crunchy.
 
@@ -168,7 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:05:46] Norm: ears and foreheads.
 
-[00:05:46] Adam: Right, there's a lot of bumps on the forehead makeups. Except for the Ferengi, and I have deep problems with the Ferengi as as a stylized makeup.
+[00:05:46] Adam: Right, there's a lot of bumps on the forehead makeups. Except for the Ferengi, and I have deep problems with the Ferengi as a stylized makeup.
 
 [00:05:55] Will: Don't like the ears, huh?
 
@@ -200,7 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:07:15] Frank: Yeah, the Dick Smith course and his books that he wrote. Yeah,
 
-[00:07:17] Adam: I had I was I was talking to Guillermo del Toro and Greg Nicotero, and both of them have stories about being teenagers and writing letters to Dick Smith.
+[00:07:17] Adam: I had I was talking to Guillermo del Toro and Greg Nicotero, and both of them have stories about being teenagers and writing letters to Dick Smith.
 
 [00:07:28] Frank: That’s how I got. the course.
 
@@ -212,11 +212,11 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:07:36] Will: I mean, writing a letter goes a long way.
 
-[00:07:37] Adam: and going to Larchmont, New York, to his shop and going downstairs, and there's Regan, you know, the the spinning head makeup from Exorcist and stuff like. And you you you wrote to Dick Smith.
+[00:07:37] Adam: and going to Larchmont, New York, to his shop and going downstairs, and there's Regan, you know, the spinning head makeup from Exorcist and stuff like. And you wrote to Dick Smith.
 
 [00:07:46] Frank: I wrote to Dick Smith. I got the course when I was in high school, I believe.
 
-[00:07:50] Will: Can you can you explain what the course is for people who don't know?
+[00:07:50] Will: Can you explain what the course is for people who don't know?
 
 [00:07:52] Frank: Yeah. The Dick Smith course is. Basically, like a telephone book size, how to how to do everything, and it's it's a little bit on the advanced side. So you would have to write into Dick Smith and show him photos of your work. And when he thought that you kind of did enough that you can comprehend this course,
 
@@ -240,31 +240,31 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:08:26] Frank: Yeah.
 
-[00:08:26] Adam: What was the What was the tipping point? What was the thing that? I mean, that's a pretty directed thing to get to in high school.
+[00:08:26] Adam: What was the tipping point? What was the thing that? I mean, that's a pretty directed thing to get to in high school.
 
 [00:08:35] Frank: I liked I like monster movies. I grew up watching horror movies and sci fi movies with my dad, and I just wanted to build this stuff. And it was you know things like the making of Thriller. Like
 
 [00:08:44] Adam: oh yeah,
 
-[00:08:45] Frank: I I still have the VHS tape from when I recorded it off HBO. That it's like so worn out and so staticky, but I still have that tape. And you know, I watched a million times, and I saw Rick Baker, and you know, all these people, and Greg Cannom, and Tony Gardner, and all these guys building these great zombies, and and it just showed how they did it. And that was kind of the first time I think there's a lot of people in my generation that that was their tipping point.
+[00:08:45] Frank: I still have the VHS tape from when I recorded it off HBO. That it's like so worn out and so staticky, but I still have that tape. And I watched a million times, and I saw Rick Baker, and all these people, and Greg Cannom, and Tony Gardner, and all these guys building these great zombies, and it just showed how they did it. And that was kind of the first time I think there's a lot of people in my generation that that was their tipping point.
 
-[00:09:06] Adam: And so I mean, so Dick Smith set a set a standard. I mean, in a way, just by being encouraging and available to a whole generation. I mean, Rick Baker has that story about Dick Smith, et cetera. He creates an ethos among the makeup community. It would seem.
+[00:09:06] Adam: And so I mean, so Dick Smith set a standard. I mean, in a way, just by being encouraging and available to a whole generation. I mean, Rick Baker has that story about Dick Smith, et cetera. He creates an ethos among the makeup community. It would seem.
 
 [00:09:23] Frank: Well, it's some people follow. A lot of people follow. A lot of people are very helpful. It's kind of like your Ten Commandments of making: like share,
 
 [00:09:23] Adam: Right.
 
-[00:09:23] Frank: And like let everybody know. Because just because I tell you how I make a mold or something like that doesn't mean you can go take my job, but it does it does no harm to share that with somebody because you might find something that's a little trick, and you might go, Hey, I did this, but I did it different. It works better, and then that makes everybody better.
+[00:09:23] Frank: And like let everybody know. Because just because I tell you how I make a mold or something like that doesn't mean you can go take my job, but it does no harm to share that with somebody because you might find something that's a little trick, and you might go, Hey, I did this, but I did it different. It works better, and then that makes everybody better.
 
 [00:09:23] Adam: Right.
 
-[00:09:23] Frank: Some people are secretive, and that usually comes from insecurity, and artists are. You know, always insecure. So there's
+[00:09:23] Frank: Some people are secretive, and that usually comes from insecurity, and artists are. Always insecure. So there's
 
 [00:09:51] Adam: and the whole time at ILM, I only ran into a couple of people who were like that.
 
 [00:09:51] Frank: Yeah.
 
-[00:09:51] Adam: yeah. I mean, and one was actually one was really open about it. I said, " Do you mind if I take pictures of the thing you're doing?" And he said, " Yeah, but I'm not going to tell you everything I know about it." And I was like, " Really?" And he goes, " Yeah, I know that's weird, but it's one of the things I get hired for a lot." And wow, I I said that I'm sad that I'm sad about that. And he was like, " Yeah, I know.
+[00:09:51] Adam: yeah. I mean, and one was actually one was really open about it. I said, " Do you mind if I take pictures of the thing you're doing?" And he said, " Yeah, but I'm not going to tell you everything I know about it." And I was like, " Really?" And he goes, " Yeah, I know that's weird, but it's one of the things I get hired for a lot." And wow, I I said that I'm sad about that. And he was like, " Yeah, I know.
 
 [00:10:19] Frank: All right,
 
@@ -272,9 +272,9 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:10:22] Frank: How do you?
 
-[00:10:23] Adam: I had to applaud his honesty instead of being because on the other front, there was another guy I ran into who was just shitty when you draped drifted into his territory. I won't say anything more than that because it was really these are outliers, right? Yeah. But you know, he had a thing. He got hired for a lot, and if you did anything approaching that material, he'd be really uncomfortable about it.
+[00:10:23] Adam: I had to applaud his honesty instead of being because on the other front, there was another guy I ran into who was just shitty when you draped drifted into his territory. I won't say anything more than that because it was really these are outliers, right? Yeah. But he had a thing. He got hired for a lot, and if you did anything approaching that material, he'd be really uncomfortable about it.
 
-[00:10:43] Will: But I mean, that seemed like the kind of the status quo for the effects industry for a long time up until. Fairly recently, right? Like people, like if somebody figured out a new way to make the the foam look shiny and metallic, then they would not they wouldn't share that because that's a that's a that's a competitive advantage.
+[00:10:43] Will: But I mean, that seemed like the kind of the status quo for the effects industry for a long time up until. Fairly recently, right? Like people, like if somebody figured out a new way to make the foam look shiny and metallic, then they would not they wouldn't share that because that's a competitive advantage.
 
 [00:11:02] Adam: There are still some secretive techniques. I know of people who work at some big shops and there are technologies that I know about that even the people within those shops have specifically signed a piece of paper saying we can't talk about the fact that we use that technology.
 
@@ -284,7 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:11:23] Norm: it can be competitive in terms of getting contracts. So,
 
-[00:11:27] Frank: but that's such an upper echelon thing. Like for for the base, like people that want to get started in effects, or people that want to just learn some, you know, pretty advanced things. All of the information is out there.
+[00:11:27] Frank: but that's such an upper echelon thing. Like for the base, like people that want to get started in effects, or people that want to just learn some pretty advanced things. All of the information is out there.
 
 [00:11:27] Adam: It really is.
 
@@ -292,7 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:11:41] Norm: So, what's what's the market like now in terms of TV shows using and hiring makeup artists and to do creature effects? Is are there still jobs like they were? Back in the late '90s,
 
-[00:11:53] Frank: and I don't know that there is any like real big creature shows going on now. I know that there is like American Horror Story. There is a lot of stuff, and Falling Skies is doing a great job. A guy named Todd Masters has a shop down here in LA and up in Vancouver, and they are actually doing a lot of the CG stuff along with it, like the blinking eyes and stuff like that, to augment their makeups. And I think that that's kind of a a forward thinking approach to well, a lot of our makeups get CG augmented anyway, so why don't we provide that service so that way we at least have control over the final look of it?
+[00:11:53] Frank: and I don't know that there is any like real big creature shows going on now. I know that there is like American Horror Story. There is a lot of stuff, and Falling Skies is doing a great job. A guy named Todd Masters has a shop down here in LA and up in Vancouver, and they are actually doing a lot of the CG stuff along with it, like the blinking eyes and stuff like that, to augment their makeups. And I think that that's kind of a forward thinking approach to well, a lot of our makeups get CG augmented anyway, so why don't we provide that service so that way we at least have control over the final look of it?
 
 [00:11:53] Adam: Yeah, got it.
 
@@ -300,11 +300,11 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:12:34] Norm: Very cool.
 
-[00:12:34] Frank: Yeah, I don't know what what else is like real big makeupy stuff that's going on.
+[00:12:34] Frank: Yeah, I don't know what else is like real big makeupy stuff that's going on.
 
 [00:12:38] Adam: Sorry, I am texting, but that's okay. You won't believe what I am just about to send you. We'll talk about it after.
 
-[00:12:43] Will: Wow! Wow! Wow! And after the podcast, Adam’s going to post a brief apology online. Both texting, we're we're going to have to establish rules about texting during the podcast. Um. So okay, so earlier on you were talking about appliances,
+[00:12:43] Will: Wow! Wow! Wow! And after the podcast, Adam’s going to post a brief apology online. Both texting, we're going to have to establish rules about texting during the podcast. So okay, so earlier on you were talking about appliances,
 
 [00:12:43] Frank: yeah,
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:13:18] Will: Okay,
 
-[00:13:19] Adam: I mean for for for for Tim Curry's makeup for Legend, I think only his lower lip is visible.
+[00:13:19] Adam: I mean for Tim Curry's makeup for Legend, I think only his lower lip is visible.
 
 [00:13:27] Frank: Something like that.
 
@@ -350,7 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:13:59] Adam: That makeup on Sam Neill, which were apparently some of the gel-filled silicone.
 
-[00:14:04] Frank: Yeah, those are those are early gel-filled.
+[00:14:04] Frank: Yeah, those are early gel-filled.
 
 [00:14:06] Adam: So they moved with Sam Neill's face in a way I've never seen makeup move.
 
@@ -362,7 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:14:18] Norm: So when you're watching a movie or a TV show, what are the things you look for and say, " Oh, that's a really good job with that makeup," or that that the way they made that skin move.
 
-[00:14:27] Adam: The the first I'm just saying as a layperson on this, I always notice if the hair is bad, and it's really one of those weird like some people spend a lot on the makeup and then not a lot on the hair, and you're like, " What the hell are you guys doing?"
+[00:14:27] Adam: The first I'm just saying as a layperson on this, I always notice if the hair is bad, and it's really one of those weird like some people spend a lot on the makeup and then not a lot on the hair, and you're like, " What the hell are you guys doing?"
 
 [00:14:40] Frank: A lot of that comes from producers and stuff. If you you know you you build a makeup. Let's say a makeup for a movie might cost $8,000 or $10,000 to make, like just to build it, right?
 
@@ -380,21 +380,21 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:15:09] Adam: or you get a net and apply it, and
 
-[00:15:12] Frank: it's it's
+[00:15:12] Frank: it's
 
 [00:15:13] Adam: a bunch of different.
 
 [00:15:14] Frank: Really, there's so many different ways to do it, but it's like really expensive to get good wigs, like really expensive,
 
-[00:15:19] Adam: and they and they really are. Like when they're bad, they are bad.
+[00:15:19] Adam: and they really are. Like when they're bad, they are bad.
 
 [00:15:23] Frank: Yeah, they make or break a makeup.
 
-[00:15:25] Will: So is is Scarlett Johansson's hair in the Avengers movies? Is it a wig or is it is it just a dye job? Do you, can you tell?
+[00:15:25] Will: So is is Scarlett Johansson's hair in the Avengers movies? Is it a wig or is it just a dye job? Do you, can you tell?
 
 [00:15:33] Adam: I do not.
 
-[00:15:33] Will: I watched this last night, and I was I was it distracted me through the entire movie.
+[00:15:33] Will: I watched this last night, and I was it distracted me through the entire movie.
 
 [00:15:37] Adam: I’ll ask her next time I see her.
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:16:10] Adam: that's amazing.
 
-[00:16:12] Frank: There's yeah, that's um,
+[00:16:12] Frank: There's yeah, that's
 
 [00:16:13] Adam: but there's still makeup is still one of those industries that hasn't been super affected by CG, right? There's still a lot of shops doing it
 
@@ -438,7 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:16:52] Frank: There's a handful of people like Guillermo that are still like you know really champions of building. Practical monsters.
 
-[00:16:57] Adam: Well, so and I was, I was. There's a shot from Pacific Rim when the when the fist punches all the way through the building and then tips over the cup of coffee.
+[00:16:57] Adam: Well, so and I was. There's a shot from Pacific Rim when the fist punches all the way through the building and then tips over the cup of coffee.
 
 [00:16:57] Frank: Yeah.
 
@@ -456,9 +456,9 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:17:25] Frank: Wow.
 
-[00:17:25] Adam: There's a way, and there's a there's a cost savings in CG and getting that because even though it was a practical shot, they had to add in a bunch of CG to make it work. They they didn't have the the the the the Jaeger fist. They had a green stand in that they then you know composited the digital fist onto.
+[00:17:25] Adam: There's a way, and there's a cost savings in CG and getting that because even though it was a practical shot, they had to add in a bunch of CG to make it work. They didn't have the Jaeger fist. They had a green stand in that they then you know composited the digital fist onto.
 
-[00:17:43] Will: Well, I mean, but to me as a film goer, like that, like the the merger of the two worlds is a wonderful thing because we're getting to a place now where and I can't look at it and tell whether it's CG or practical.
+[00:17:43] Will: Well, I mean, but to me as a film goer, like that, like the merger of the two worlds is a wonderful thing because we're getting to a place now where and I can't look at it and tell whether it's CG or practical.
 
 [00:17:43] Adam: And that is
 
@@ -472,7 +472,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:18:00] Will: Yeah.
 
-[00:18:00] Adam: and I love that Abrams is saying that he's doing much more practical stuff out on on Star Wars.
+[00:18:00] Adam: and I love that Abrams is saying that he's doing much more practical stuff out on Star Wars.
 
 [00:18:15] Will: Did you see that? Have you seen the drone shots where people are flying over the set?
 
@@ -484,7 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:18:23] Will: I'm coming with you when you. do that.
 
-[00:18:24] Adam: When I was when I was in New Zealand talking to Peter Jackson, he was like, " So yeah, I was in London and I went to. I was standing in the Millennium Falcon talking to J. J. Abrams, and I was like, "
+[00:18:24] Adam: When I was in New Zealand talking to Peter Jackson, he was like, " So yeah, I was in London and I went to. I was standing in the Millennium Falcon talking to J. J. Abrams, and I was like, "
 
 [00:18:34] Frank: Oh man,
 
@@ -532,7 +532,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:19:32] Frank: hosted on Tested.
 
-[00:19:33] Will: Yeah, when are you? What do you do you? At this time in the past when we're recording this, have you thought about what the schedule is going to be yet, or are you going to kind of play it by ear while you start out?
+[00:19:33] Will: Yeah, when are you? What do you? At this time in the past when we're recording this, have you thought about what the schedule is going to be yet, or are you going to kind of play it by ear while you start out?
 
 [00:19:33] Adam: Do one a year.
 
@@ -596,7 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:20:51] Adam: Yeah,
 
-[00:20:53] Will: we have we have a lot of presented by Tested premium members featuring Frank coming up. If they're not already on the site by now, even
+[00:20:53] Will: we have a lot of presented by Tested premium members featuring Frank coming up. If they're not already on the site by now, even
 
 [00:20:53] Adam: awesome.
 

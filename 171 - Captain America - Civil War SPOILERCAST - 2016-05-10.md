@@ -16,7 +16,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:01:29] Norm: Well, to everyone out there.
 
-[00:01:31] Adam: You know, there's a reason that I buy two cups of coffee from from Ritual when I come in in the morning.
+[00:01:31] Adam: There's a reason that I buy two cups of coffee from Ritual when I come in the morning.
 
 [00:01:36] Will: Because it's like contact.
 
@@ -46,7 +46,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:02:06] Adam: No, it's John Hurt. He's right.
 
-[00:02:07] Will: No, I mean, in in he, I was doing a bad segue. Norm does the good segues. I do the bad segues.
+[00:02:07] Will: No, I mean, in he, I was doing a bad segue. Norm does the good segues. I do the bad segues.
 
 [00:02:12] Norm: General Thunderbolt Ross. Yeah, in the Marvel movies, played by William Hurt.
 
@@ -104,13 +104,13 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:03:24] Adam: I see,
 
-[00:03:24] Norm: and I think you you reach meet peak theater saturation in a movie like Star Wars: Force Awakens, and even that, the Sunday seats, you know, there's a drop on Sundays.
+[00:03:24] Norm: and I think you reach meet peak theater saturation in a movie like Star Wars: Force Awakens, and even that, the Sunday seats there's a drop on Sundays.
 
-[00:03:31] Adam: There, there is okay. So, but before we get to that, I consumed a bunch of media this week.
+[00:03:31] Adam: There is okay. So, but before we get to that, I consumed a bunch of media this week.
 
 [00:03:36] Will: Ooh, nothing I like more than consuming media.
 
-[00:03:39] Adam: Um, I consumed the end of the second. I consumed the totality of the second season of Better Call Saul.
+[00:03:39] Adam: I consumed the end of the second. I consumed the totality of the second season of Better Call Saul.
 
 [00:03:46] Will: Okay.
 
@@ -124,11 +124,11 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:04:05] Will: Okay,
 
-[00:04:05] Adam: and it's a totally different show too. The it's a it it's. However, I guess the thing that Vince, the space that Vince and his and his team really like, is that tension of the self-actualized person who knows that they're good, even though they're doing terrible things.
+[00:04:05] Adam: and it's a totally different show too. The it's a it it's. However, I guess the thing that Vince, the space that Vince and his team really like, is that tension of the self-actualized person who knows that they're good, even though they're doing terrible things.
 
 [00:04:26] Will: Well, everybody thinks they're good,
 
-[00:04:27] Adam: right? No, and it's that's the most devastating line in the talented Mr. Ripley. No one thinks they're a bad person, and this is the case. And so you're watching like the the the second season deals deeply with the totally messed up relationship between Saul and his brother Chuck, played by Michael McKean, and it's super complicated, super complicated, super complex, and amazing. I also watched the series finale of Girls.
+[00:04:27] Adam: right? No, and it's that's the most devastating line in the talented Mr. Ripley. No one thinks they're a bad person, and this is the case. And so you're watching like the second season deals deeply with the totally messed up relationship between Saul and his brother Chuck, played by Michael McKean, and it's super complicated, super complex, and amazing. I also watched the series finale of Girls.
 
 [00:04:54] Norm: Oh yeah, you.
 
@@ -176,13 +176,13 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:05:54] Will: starts out.
 
-[00:05:54] Norm: She started off as the the naive. Okay.
+[00:05:54] Norm: She started off as the naive. Okay.
 
 [00:05:56] Adam: You know what she is? Is she's the least Afraid of her crazy.
 
 [00:06:02] Will: You think that's it?
 
-[00:06:03] Adam: I, I, I. She is the one who's most unabashedly like she. She continues to circle back and love her crazy. I mean, this is arguably Hannah's entire arc on on girls, but Shosh has always been there. And Shosh goes to Japan, and there's an episode shot in Japan. Actually, a couple, but there's one main one shot in Japan that I swear rivals Lost in Translation as a magnificent meditation on an American in Tokyo.
+[00:06:03] Adam: I. She is the one who's most unabashedly like she. She continues to circle back and love her crazy. I mean, this is arguably Hannah's entire arc on girls, but Shosh has always been there. And Shosh goes to Japan, and there's an episode shot in Japan. Actually, a couple, but there's one main one shot in Japan that I swear rivals Lost in Translation as a magnificent meditation on an American in Tokyo.
 
 [00:06:32] Will: Wow,
 
@@ -190,7 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:06:33] Will: that is bold.
 
-[00:06:34] Adam: Oh, I'm totally. I I will go toe to toe against that Amsterdam shit.
+[00:06:34] Adam: Oh, I'm totally. I will go toe to toe against that Amsterdam shit.
 
 [00:06:38] Will: So I wasn't going to watch this, and I will totally. I will totally. Yeah, I'll fire it up now.
 
@@ -200,7 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:06:56] Adam: Yeah, Jenny Slate of Marcel the Shell fame. She is wonderful, and it's just it's left me with a really good, deep, warm feeling.
 
-[00:07:05] Norm: As as good shows should.
+[00:07:05] Norm: As good shows should.
 
 [00:07:06] Will: So as a good finale should.
 
@@ -220,9 +220,9 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:07:28] Adam: Ah, okay. Catastrophe is about an American man on a business trip in London who has a five night stand with a wonderful Irish woman, gets her pregnant, moves to Ireland, moves to London, marries her.
 
-[00:07:41] Will: So as as 21st century, yeah. What's what you do?
+[00:07:41] Will: So as 21st century, yeah. What's what you do?
 
-[00:07:45] Adam: It's called catastrophe, and um. It is so. Rob Delaney,
+[00:07:45] Adam: It's called catastrophe, and. It is so. Rob Delaney,
 
 [00:07:52] Will: he's a great, awful Twitter follow, by the way.
 
@@ -234,7 +234,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:08:04] Will: Does she have an Irish name?
 
-[00:08:07] Adam: I just yeah. Uh, catastrophe Irish teacher. Let's see here. Um. Sharon Horgan.
+[00:08:07] Adam: I just yeah. Catastrophe Irish teacher. Let's see here. Sharon Horgan.
 
 [00:08:17] Norm: Okay.
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:09:16] Will: Yeah.
 
-[00:09:16] Adam: But as far as you can imagine, like, what kind of person just moves to another country after a five-night stand and decides to marry this woman and decides to really make it work? And this season two picks up at a very interesting place. Like, I was I was impressed, and I don't want to spoil it.
+[00:09:16] Adam: But as far as you can imagine what kind of person just moves to another country after a five-night stand and decides to marry this woman and decides to really make it work? And this season two picks up at a very interesting place. Like, I was impressed, and I don't want to spoil it.
 
 [00:09:36] Will: Okay.
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:09:51] Norm: funny shows about realistic people.
 
-[00:09:53] Adam: So, what warmed me up to it is one of the great dramatic comedies. Thank you for pointing out that category ever made is Sports Night, which is Aaron Sorkin's first show. Felicity Huffman, Josh Malina, Robert Guillaume. I mean, it it is a masterpiece of a show. It only went for two seasons. Clark Gregg shows up at the end. William H Macy. It's phenomenal. In fact, it's something that I want to do on tested, and it's a long term plan to do
+[00:09:53] Adam: So, what warmed me up to it is one of the great dramatic comedies. Thank you for pointing out that category ever made is Sports Night, which is Aaron Sorkin's first show. Felicity Huffman, Josh Malina, Robert Guillaume. I mean, it is a masterpiece of a show. It only went for two seasons. Clark Gregg shows up at the end. William H Macy. It's phenomenal. In fact, it's something that I want to do on tested, and it's a long term plan to do
 
 [00:10:16] Unknown speaker: Where you watch it.
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:10:53] Adam: Yeah, no, totally.
 
-[00:10:54] Will: Like, like the uses of silence. You are so used to the boom, boom, boom, boom, boom, boom, boom, boom, boom, boom of of of commentary and in those in that Sorkin script that when there is a pause, like every you kind of it's it's like it's like if you are in a room full of people and somebody screams and then everything just stops.
+[00:10:54] Will: Like the uses of silence. You are so used to the boom, boom, boom, boom, boom, boom, boom, boom, boom, boom of commentary and in those in that Sorkin script that when there is a pause, like every you kind of it's like if you are in a room full of people and somebody screams and then everything just stops.
 
 [00:11:13] Adam: Right, right,
 
@@ -302,7 +302,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:11:21] Will: told me it
 
-[00:11:22] Adam: was good. It turns out it's amazing. It's amazing. It was, it was, it was, it was. We were all living out our fantasy presidency. Maybe
+[00:11:22] Adam: was good. It turns out it's amazing. It's amazing. It was. We were all living out our fantasy presidency. Maybe
 
 [00:11:32] Norm: I just started watching John Adams,
 
@@ -320,7 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:11:52] Will: Well, no, I was going to say until Tricky Dick.
 
-[00:11:54] Adam: Oh God, actually, yeah, he is to the he is to the left. I he's to the left of our centrist Democratic Party now. I'd vote for Nixon.
+[00:11:54] Adam: Oh God, actually, yeah, he is to the left. I he's to the left of our centrist Democratic Party now. I'd vote for Nixon.
 
 [00:12:03] Will: oh Dick,
 
@@ -330,13 +330,13 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:12:04] Adam: Nixon, He started the EPA.
 
-[00:12:05] Norm: just based on based on the policies.
+[00:12:05] Norm: just based on the policies.
 
 [00:12:07] Will: Yeah,
 
 [00:12:08] Adam: he tried to get single payer passed.
 
-[00:12:10] Will: I mean, yes, I think I think everyone at this table would probably vote for Nixon in the current political.
+[00:12:10] Will: I mean, yes, I think everyone at this table would probably vote for Nixon in the current political.
 
 [00:12:16] Adam: We don't have to go there.
 
@@ -358,11 +358,11 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:12:36] Will: No,
 
-[00:12:36] Adam: in Hamilton, there's a point in the in the second act where it says Hamilton fires. Sorry, Adams fires Hamilton. Privately calls him Creole bastard. Hamilton publishes his response and it says, " Sit down, John, you fat mother." Whoa, Miranda, Lin Manuel Miranda actually wrote an entire rap of Hamilton's 45 page takedown of the Adams presidency.
+[00:12:36] Adam: in Hamilton, there's a point in the second act where it says Hamilton fires. Sorry, Adams fires Hamilton. Privately calls him Creole bastard. Hamilton publishes his response and it says, " Sit down, John, you fat mother." Whoa, Miranda, Lin Manuel Miranda actually wrote an entire rap of Hamilton's 45 page takedown of the Adams presidency.
 
 [00:13:02] Will: 45 page takedown. What is he? Is he an internet commenter?
 
-[00:13:05] Adam: It was. It was a pamphlet that revealed all of these internal strife in the Adams presidency. It was totally like one of the one of the worst things that Hamilton. did.
+[00:13:05] Adam: It was. It was a pamphlet that revealed all of these internal strife in the Adams presidency. It was totally like one of the worst things that Hamilton. did.
 
 [00:13:14] Will: Adams was the second president, right?
 
@@ -370,7 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:13:15] Will: he's between Jefferson and Washington.
 
-[00:13:17] Adam: Correct, and he turned it turned Hamilton in. It turned both the. It was so awful. It turned both Hamilton and Adams into pariahs. Wow, and it it made Adams the very first one term president.
+[00:13:17] Adam: Correct, and he turned it turned Hamilton in. It turned both the. It was so awful. It turned both Hamilton and Adams into pariahs. Wow, and it made Adams the very first one term president.
 
 [00:13:30] Will: Yeah,
 
@@ -384,11 +384,11 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:13:49] Adam: So, how far into? How long is that?
 
-[00:13:52] Norm: It's uh, I think seven episodes, and they're about you know between 70 and 90 minutes long.
+[00:13:52] Norm: It's I think seven episodes, and they're about you know between 70 and 90 minutes long.
 
 [00:13:56] Adam: Oh, wow.
 
-[00:13:56] Norm: So they're they're long episodes.
+[00:13:56] Norm: So they're long episodes.
 
 [00:13:58] Adam: It's Laura Linney. Am I right?
 
@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:14:06] Adam: Oh, oh, so it's pre Washington.
 
-[00:14:08] Norm: Uh, it. I mean, you have to do his entire life, or his. It goes through like at least 30 years in
+[00:14:08] Norm: It. I mean, you have to do his entire life, or his. It goes through like at least 30 years in
 
 [00:14:13] Adam: I see.
 
@@ -416,7 +416,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:14:24] Will: yeah. Well, we're figuring it out. Yeah, this good presidents and bad presidents, Adam.
 
-[00:14:30] Adam: You know the the the thing I'm curious about how the show will treat this Hamilton sort of ghost running of Adams's entire cabinet.
+[00:14:30] Adam: You know the thing I'm curious about how the show will treat this Hamilton sort of ghost running of Adams's entire cabinet.
 
 [00:14:37] Norm: Exactly, and it was one of the reasons I wanted to watch the show.
 
@@ -436,11 +436,11 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:14:48] Norm: I don't think it's Walter Isaacson, but they're definitely in the credits. Based on the book by.
 
-[00:14:52] Adam: You know, years ago at the what do you call it? The Young Scientists Challenge, which is an annual science challenge in D.C.
+[00:14:52] Adam: Years ago at the what do you call it? The Young Scientists Challenge, which is an annual science challenge in D.C.
 
 [00:15:03] Will: It sounds like that should be like an evil contest, right?
 
-[00:15:07] Adam: Well, so at the one of the early ones, Jamie and I were judges. This is like 2004 or something like that, and Walter Isaacson gave the keynote speech on the final night of the Young Scientists Challenge. And he, like, he's a wonderful writer, very important historian, but boy, did that guy not read a room.
+[00:15:07] Adam: Well, so at the one of the early ones, Jamie and I were judges. This is like 2004 or something like that, and Walter Isaacson gave the keynote speech on the final night of the Young Scientists Challenge. And he he's a wonderful writer, very important historian, but boy, did that guy not read a room.
 
 [00:15:27] Will: Oh yeah!
 
@@ -484,9 +484,9 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:16:37] Unknown speaker: Okay, hold on.
 
-[00:16:36] Will: That's the that's the divide in politics in America.
+[00:16:36] Will: That's the divide in politics in America.
 
-[00:16:39] Norm: No, no, no, no, no. Maybe I'm interested to hear from out there because it is, I think, an interesting question you bring up. Are the people who are Team Iron Man Team Iron Man based on the actual policy and stance that he takes in the movie, or because they think Iron Man is a cooler character?
+[00:16:39] Norm: No, no, no, no, no. Maybe I'm interested to hear from out there because it is, I think, an interesting question you bring up. Are the people who are Team Iron Man based on the actual policy and stance that he takes in the movie, or because they think Iron Man is a cooler character?
 
 [00:16:55] Adam: Exactly.
 
@@ -494,7 +494,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:16:58] Norm: and Tom Robert Downey Jr. is like super, super cool.
 
-[00:17:02] Adam: Yeah, well, okay, that's that's a really good,
+[00:17:02] Adam: Yeah, well, okay, that's a really good,
 
 [00:17:04] Norm: like, more of a character.
 
@@ -526,13 +526,13 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:18:04] Will: Oh, that was so good!
 
-[00:18:05] Adam: I I that was a legolas
+[00:18:05] Adam: I that was a legolas
 
 [00:18:06] Will: moment. Yeah,
 
-[00:18:07] Adam: a legolas like doing anyway. Um, I thought there was nothing dumb in this movie. There were no plot points that made me like, oh come on. There was none of that shit.
+[00:18:07] Adam: a legolas like doing anyway. I thought there was nothing dumb in this movie. There were no plot points that made me like, oh come on. There was none of that shit.
 
-[00:18:17] Norm: And let's wait till two weeks later before we we revisit. Okay,
+[00:18:17] Norm: And let's wait till two weeks later before we revisit. Okay,
 
 [00:18:20] Will: but I think the characters were true to themselves though.
 
@@ -542,9 +542,9 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:18:38] Adam: It was totally, I thought it was completely competently done, and that sounds like damning by faint praise, but it's not. I think the Russo brothers are making some of the best action movies. It's just that the stakes felt lower than even Winter Soldier. Well,
 
-[00:18:52] Norm: okay, so and that's in the context like we're we're all at this table like we don't need the big stake. The world doesn't need to be at stake for a movie to be interesting.
+[00:18:52] Norm: okay, so and that's in the context like we're all at this table like we don't need the big stake. The world doesn't need to be at stake for a movie to be interesting.
 
-[00:19:01] Adam: No, I totally agree, but I still felt like it was a little minor. It's August Diehl, right? Is the is the villain in this one?
+[00:19:01] Adam: No, I totally agree, but I still felt like it was a little minor. It's August Diehl, right? Is the villain in this one?
 
 [00:19:07] Norm: Daniel Bruhl.
 
@@ -572,9 +572,9 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:19:36] Adam: I'm not even sure. I think it was. I'm not even sure. I'm going to say. I think it was technically better. I just cared more.
 
-[00:19:43] Norm: That's that's
+[00:19:43] Norm: That's
 
-[00:19:45] Adam: that really is what it comes down to to me. I like. I kept on watching all these action sequences and thinking, " There's nothing wrong with any of this. I love all of it. "
+[00:19:45] Adam: that really is what it comes down to me. I like. I kept on watching all these action sequences and thinking, " There's nothing wrong with any of this. I love all of it. "
 
 [00:19:52] Will: Yeah, the the big fight at the airport is incredible, dude. The little fight, the the one.
 
@@ -584,13 +584,13 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:20:04] Will: that's
 
-[00:20:05] Norm: are we are we going to jump into the spoiler moment?
+[00:20:05] Norm: are we going to jump into the spoiler moment?
 
 [00:20:07] Will: I mean,
 
 [00:20:07] Adam: I think we should at certain point.
 
-[00:20:09] Will: Like, I think this is a movie worth like, like I kind of feel like this about. I felt like most of the recent Marvel movies. It's really competent. It's really fun. It's a great way to spend a couple hours. And eat some popcorn. And drink Coke. But like,
+[00:20:09] Will: I think this is a movie worth like I kind of feel like this about. I felt like most of the recent Marvel movies. It's really competent. It's really fun. It's a great way to spend a couple hours. And eat some popcorn. And drink Coke. But like,
 
 [00:20:21] Adam: I liked it vastly more than Age of Ultron.
 
@@ -600,7 +600,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:20:26] Unknown speaker: Not good.
 
-[00:20:26] Norm: And here's and the the the fact that you that's a a potential downside of a movie being perfectly enjoyable but not having some resonance, and that you're saying that out of a superhero movie speaks to how great superhero movies have been. Well,
+[00:20:26] Norm: And here's and the fact that you that's a potential downside of a movie being perfectly enjoyable but not having some resonance, and that you're saying that out of a superhero movie speaks to how great superhero movies have been. Well,
 
 [00:20:42] Will: at least a handful.
 
@@ -614,7 +614,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:21:13] Adam: If this, if yeah, I think you're right. Superhero movies are great. This is one of the great superhero movies. It's just not as great as
 
-[00:21:21] Norm: would would you would you guys agree that the movie is the individual. Individual moments are better than the sum of the parts.
+[00:21:21] Norm: would you guys agree that the movie is the individual. Individual moments are better than the sum of the parts.
 
 [00:21:28] Will: Yes, absolutely.
 
@@ -626,7 +626,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:22:04] Norm: 19 years old.
 
-[00:22:06] Will: But he he looks like he's about 14.
+[00:22:06] Will: But he looks like he's about 14.
 
 [00:22:07] Adam: He looks like he's about 14. He
 
@@ -650,7 +650,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:22:30] Will: wow, like that was the least believable part of the whole thing. If you put Tony Stark and Marisa Tomei in the same room, he's not going to be able to control himself.
 
-[00:22:37] Adam: I love a little age appropriate flirting too. Yeah, thank you, thank you, movies.
+[00:22:37] Adam: I love a little age appropriate flirting too. Yeah, thank you, movies.
 
 [00:22:41] Will: Right. Um. Well, but
 
@@ -664,7 +664,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:22:53] Adam: Right, and there's a point at which Falcon says, " I don't know if you've been in a fight before, but there's not usually this much talking."
 
-[00:23:01] Will: He gets he gets called out like twice. Okay.
+[00:23:01] Will: He gets called out like twice. Okay.
 
 [00:23:04] Norm: Yeah. Yeah, to be fair, but to Andrew Garfield who played the last film and the creators and the writers that show because there was of that movie because he did that too
 
@@ -682,17 +682,17 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:23:13] Norm: There's a lot of the wisecracking, and that's I think Marvel's understood that about Spider-Man. What they Brought in about Spider-Man in this movie was how naive and young he is, and like he all he like Paul Rudd, both were great comedic relief because they played the parts of the audience. They were both excited to be there.
 
-[00:23:33] Adam: And Paul Rudd, yeah. I love him, big fan, big fan. Hey.
+[00:23:33] Adam: And Paul Rudd, yeah. I love him, big fan. Hey.
 
 [00:23:36] Norm: And grabs his shoulders, which was an impromptu moment. They wrote that like that morning. It was it that they like because Paul Rudd, likable guy.
 
-[00:23:46] Adam: Well, let's also point out that I mean, you say it's a great time for for for good action hero movies. You know, one of the reasons is is because all of the casts are top notch actors. Really, I mean, I will defend every single one of them as really among the best actors. Chris, Chris, sorry, Chris Evans is amazing as Cap. Um, all of the supporting smaller characters, I you know, Robert Downey Jr. Of course, it's like it's and again the
+[00:23:46] Adam: Well, let's also point out that I mean, you say it's a great time for good action hero movies. One of the reasons is is because all of the casts are top notch actors. Really, I mean, I will defend every single one of them as really among the best actors. Chris, Chris, sorry, Chris Evans is amazing as Cap. All of the supporting smaller characters, I Robert Downey Jr. Of course, it's like it's and again the
 
 [00:24:12] Norm: they got their money's worth when they paid for Robert Downey Jr.
 
 [00:24:14] Adam: Really, I thought
 
-[00:24:15] Will: well, and I was excited to see Robert Downey Jr. Not jammed into the Iron Man suit the entire time. Like they they they actually spent. Like Robert Downey Jr. being Tony Stark is much more interesting to me than Robert Downey Jr. being being Iron Man at this point. Like, like
+[00:24:15] Will: well, and I was excited to see Robert Downey Jr. Not jammed into the Iron Man suit the entire time. Like they actually spent. Like Robert Downey Jr. being Tony Stark is much more interesting to me than Robert Downey Jr. being being Iron Man at this point. Like
 
 [00:24:30] Adam: I think he feels the same way.
 
@@ -710,9 +710,9 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:24:48] Will: Oh yeah,
 
-[00:24:49] Adam: that was good. Black Panther. No, so again, one more thing with Spider Man. I thought the the physicality of the of the action scenes was fantastic, especially the the kinematics of Spider Man's moving through the space. And at the point when Spider Man goes, hey, okay, so that shield doesn't obey any of the laws of physics.
+[00:24:49] Adam: that was good. Black Panther. No, so again, one more thing with Spider Man. I thought the physicality of the action scenes was fantastic, especially the kinematics of Spider Man's moving through the space. And at the point when Spider Man goes, hey, okay, so that shield doesn't obey any of the laws of physics.
 
-[00:25:08] Will: Oh yeah, it's it's great.
+[00:25:08] Will: Oh yeah, it's great.
 
 [00:25:10] Adam: I did still keep hearing Tony Zhou’s Every Frame a Painting about Jackie Chan's fight scene choreography because the Russo brothers also cut on the punches. Like American directors,
 
@@ -726,29 +726,29 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:25:41] Norm: Wow, it's it's a lot. Yeah, and and it's not. It didn't feel like as much a war zone as you know Ultron did because that was in a city, or even First Avengers movie because that was in New York. And I think they had to, for the writing, just take civilians out of it, isolate these characters.
 
-[00:25:57] Adam: I'm glad that they dealt with the civilians because it's an it's an interesting issue.
+[00:25:57] Adam: I'm glad that they dealt with the civilians because it's an interesting issue.
 
-[00:26:02] Will: I mean, I feel like like we've been talking about that since the Watchmen,
+[00:26:02] Will: I mean, I feel like we've been talking about that since the Watchmen,
 
 [00:26:07] Adam: probably
 
-[00:26:08] Will: right, right, and or maybe Kingdom Come. I don't know, whatever some comic book arc 20 years ago. I hope that we can go back to just punching people and not thinking about the civilian casualties quite as much. Um, the the thing about the airport sequence to me. Is that it was it was incredibly coherent. This is the thing I loved about the Winter Soldier too. Is at no point did I get lost in action. At no point did I think, oh, where? Hold on, where is where is Black Widow and Black Panther? Where what are they doing standing?
+[00:26:08] Will: right, right, and or maybe Kingdom Come. I don't know, whatever some comic book arc 20 years ago. I hope that we can go back to just punching people and not thinking about the civilian casualties quite as much. The thing about the airport sequence to me. Is that it was incredibly coherent. This is the thing I loved about the Winter Soldier too. Is at no point did I get lost in action. At no point did I think, oh, where? Hold on, where is Black Widow and Black Panther? Where what are they doing standing?
 
 [00:26:34] Adam: It's almost like the opposite of Bayhem.
 
 [00:26:36] Will: yeah, it really is.
 
-[00:26:37] Norm: And And it's um day, uh, daytime, complete bright daytime. You can't hide things in shadows.
+[00:26:37] Norm: And it's day daytime, complete bright daytime. You can't hide things in shadows.
 
 [00:26:42] Will: Yeah.
 
-[00:26:42] Norm: Um, you know, like Batman v Superman, it's all nighttime fighting.
+[00:26:42] Norm: Like Batman v Superman, it's all nighttime fighting.
 
-[00:26:47] Will: But but even like Spider Man swinging,
+[00:26:47] Will: But even like Spider Man swinging,
 
 [00:26:49] Norm: it's yeah,
 
-[00:26:49] Will: you still know where he is. You know that he's swinging around the yeah, like it's it's really hard to do those tracking shots. Like the thing that that um J J Abrams did in the Force Awakens in the in the Jakku Millennium Falcon escape sequence,
+[00:26:49] Will: you still know where he is. You know that he's swinging around the yeah, like it's really hard to do those tracking shots. Like the thing that that J J Abrams did in the Force Awakens in the Jakku Millennium Falcon escape sequence,
 
 [00:27:01] Norm: right?
 
@@ -756,7 +756,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:27:07] Unknown speaker: Within space, yeah.
 
-[00:27:01] Will: and and like Spider Man's doing those same movements, Iron Man and and and um Iron Patriot and and and Falcon are doing the same movements.
+[00:27:01] Will: and like Spider Man's doing those same movements, Iron Man and Iron Patriot and Falcon are doing the same movements.
 
 [00:27:16] Norm: Yeah.
 
@@ -772,11 +772,11 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:27:46] Unknown speaker: Yes, totally.
 
-[00:27:46] Norm: I mean, he's a prince and now a king. And you know, the Black Panther as a character, it's it's interesting character because the island, the nation of Wakanda, is supposed to be completely isolated. And actually, has some parallels to the Wonder Woman character.
+[00:27:46] Norm: I mean, he's a prince and now a king. And you know, the Black Panther as a character, it's interesting character because the island, the nation of Wakanda, is supposed to be completely isolated. And actually, has some parallels to the Wonder Woman character.
 
 [00:28:01] Adam: Hmm.
 
-[00:28:01] Norm: You know, like completely isolated nation. Like, he's actually very ambivalent. They introduce him as a character because he doesn't pick a side. He has no side. He just has revenge
+[00:28:01] Norm: Like completely isolated nation. Like, he's actually very ambivalent. They introduce him as a character because he doesn't pick a side. He has no side. He just has revenge
 
 [00:28:12] Adam: right
 
@@ -784,7 +784,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:28:15] Will: he's his own interest.
 
-[00:28:16] Norm: Exactly, but they bring him in. Ties perfectly with you know the the vibranium storyline, so it makes sense in that universe, and completely equal to any character. Like
+[00:28:16] Norm: Exactly, but they bring him in. Ties perfectly with you know the vibranium storyline, so it makes sense in that universe, and completely equal to any character. Like
 
 [00:28:29] Adam: yeah,
 
@@ -792,17 +792,17 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:28:34] Adam: That was the only thing that got almost a little hokey with some of the quick running, but just barely. Just I mean, still incredibly enjoyable.
 
-[00:28:42] Will: The so that motorcycle, the thing that you called out, like that was one of those ones that had you had you done it badly. Like in terms of in terms of moments that could have ruined that entire sequence if it was executed poorly.
+[00:28:42] Will: The so that motorcycle, the thing that you called out, like that was one of those ones that had you done it badly. Like in terms of moments that could have ruined that entire sequence if it was executed poorly.
 
 [00:28:54] Adam: Yeah,
 
-[00:28:54] Will: like like that could have been John McClane jumping the motorcycle into the F-35 at the end of Die Hard four. Yeah, Die Hard four.
+[00:28:54] Will: like that could have been John McClane jumping the motorcycle into the F-35 at the end of Die Hard four. Yeah, Die Hard four.
 
 [00:29:03] Adam: There's a Die Hard four. Yeah,
 
 [00:29:05] Will: just don't watch it.
 
-[00:29:06] Norm: I mean, it was equivalent to you know Dark Knight when Batman does Joker gets the motorcycle around the the big trailer and then flips the Joker up and then he does that. spin with the Batpod. It's like just like nice little
+[00:29:06] Norm: I mean, it was equivalent to you know Dark Knight when Batman does Joker gets the motorcycle around the big trailer and then flips the Joker up and then he does that. spin with the Batpod. It's like just like nice little
 
 [00:29:18] Adam: right, right,
 
@@ -822,7 +822,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:29:35] Will: A bunch of arrows and then people die.
 
-[00:29:37] Norm: So I will agree and say the actual conflict of the Civil War was not the ended up not being the point of the movie, right? Because it it wasn't that that legislation wasn't what led the conflict actually that was complete red herring.
+[00:29:37] Norm: So I will agree and say the actual conflict of the Civil War was not the ended up not being the point of the movie, right? Because it wasn't that that legislation wasn't what led the conflict actually that was complete red herring.
 
 [00:29:51] Adam: Yeah,
 
@@ -838,9 +838,9 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:30:03] Adam: I didn’t see it coming.
 
-[00:30:03] Norm: It was very like like that made it actually have have impact and meaning because that's all of Tony Stark's character through the six movies he's been in his immaturity everything. It's all angst.
+[00:30:03] Norm: It was very like that made it actually have have impact and meaning because that's all of Tony Stark's character through the six movies he's been in his immaturity everything. It's all angst.
 
-[00:30:17] Adam: How about how about the 17-year-old Robert Downey Jr. The digitally, and he's like, " Shit, I feel like I'm looking at a John Hughes movie 25, 30 years ago."
+[00:30:17] Adam: How about the 17-year-old Robert Downey Jr. The digitally, and he's like, " Shit, I feel like I'm looking at a John Hughes movie 25, 30 years ago."
 
 [00:30:27] Norm: And they shot it that way, and then they perfectly explained it because any imperfections, even though it was damn near perfect, because it was a hologram.
 
@@ -850,7 +850,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:30:36] Will: and they did that. No, no, it was definitely creepy. Okay, I was like, " Is this just me?"
 
-[00:30:40] Norm: They've done the de aging. If you saw Ant Man, right? They they do digital de aging. They did it with
+[00:30:40] Norm: They've done the de aging. If you saw Ant Man, right? They do digital de aging. They did it with
 
 [00:30:45] Will: Paul Rudd. No, Michael Douglas. Michael Douglas.
 
@@ -860,21 +860,21 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:30:59] Adam: yeah, the Benjamin Button’s treatment.
 
-[00:31:01] Will: So so that that whole like the thing that was interesting to me about this movie structurally is that it simultaneously closed up a lot of the a lot of the loose threads from
+[00:31:01] Will: So so that that whole like the thing that was interesting to me about this movie structurally is that it simultaneously closed up a lot of the loose threads from
 
 [00:31:12] Norm: Ultron
 
-[00:31:12] Will: Phase One. Of the Marvel, like the the like you said, the the Tony Stark arc feels like it could be over at this point, right? I mean, I don't think it is, obviously, but but they opened up a new arc in the in the future and dumped off a lot of the baggage in the form of Gwyneth Paltrow and and and
+[00:31:12] Will: Phase One. Of the Marvel, like the like you said, the Tony Stark arc feels like it could be over at this point, right? I mean, I don't think it is, obviously, but they opened up a new arc in the future and dumped off a lot of the baggage in the form of Gwyneth Paltrow and
 
 [00:31:29] Adam: I’m sad Gwyneth wasn't in this movie. I love her Pepper Potts.
 
 [00:31:32] Will: She's a great Pepper Potts,
 
-[00:31:34] Norm: and her not being there kind of kind of explains why you know he has no conscience, like he can go completely like there's no balance. He's in this turmoil, emotional turmoil.
+[00:31:34] Norm: and her not being there kind of explains why you know he has no conscience, like he can go completely like there's no balance. He's in this turmoil, emotional turmoil.
 
 [00:31:44] Adam: Right.
 
-[00:31:44] Will: But they did a ton of work in this movie, like like in terms of they introduced new characters, they opened up an entire new like narrative arc that can run them, let's say, a shareholder interesting 10 or 12 movies.
+[00:31:44] Will: But they did a ton of work in this movie, like in terms of they introduced new characters, they opened up an entire new like narrative arc that can run them, let's say, a shareholder interesting 10 or 12 movies.
 
 [00:31:57] Norm: So I think that's where it falls apart a little bit because while it did its job absolutely of making you after wanting to watch after watching the movie wanting to watch a Black Panther movie and a Spider Man movie, your money is ready to be out there.
 
@@ -932,13 +932,13 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:33:21] Adam: even though he doesn't eat.
 
-[00:33:22] Norm: Yeah, and and wearing the sweater, like that's a great. interpretation of android.
+[00:33:22] Norm: Yeah, and wearing the sweater, like that's a great. interpretation of android.
 
-[00:33:26] Adam: I found myself wondering. I actually found myself wondering because, you know, Paul Bettany. It's probably three hours just to get in the face makeup.
+[00:33:26] Adam: I found myself wondering. I actually found myself wondering because Paul Bettany. It's probably three hours just to get in the face makeup.
 
 [00:33:34] Will: Oh yeah.
 
-[00:33:34] Adam: It's probably six or seven to do the full, the full treatment, and he. I can imagine him going, " I will do this movie, but you have to have at least four scenes in which I am wearing a goddamn cardigan, because I just just from the neck up, please. "
+[00:33:34] Adam: It's probably six or seven to do the full treatment, and he. I can imagine him going, " I will do this movie, but you have to have at least four scenes in which I am wearing a goddamn cardigan, because I just just from the neck up, please. "
 
 [00:33:49] Norm: What a brilliant piece of writing, though. To I mean, the idea that he's learning to be human and he doesn't understand he’s human.
 
@@ -946,7 +946,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:33:49] Norm: Yeah, it totally. He plays a great wearing a sweater.
 
-[00:33:58] Will: The sweater bit was funny. Is great. Like he walks through the wall wearing the sweater. You are like, oh, okay, I see what this is. So this is another interesting thing. They they set up a lot of duos, like duos that are opposed to each other. So Scarlet Witch and Vision.
+[00:33:58] Will: The sweater bit was funny. Is great. Like he walks through the wall wearing the sweater. You are like, oh, okay, I see what this is. So this is another interesting thing. They set up a lot of duos, like duos that are opposed to each other. So Scarlet Witch and Vision.
 
 [00:34:10] Adam: Oh, you are right.
 
@@ -962,7 +962,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:34:37] Adam: She defeats people with gang signs.
 
-[00:34:40] Will: Just like she has like a little bit of a gimpy hand, I guess. Yeah, so the the Black Black Widow Black Panther standoff is is clearly setting something up. I thought Scarlett Johansson got to do some some like she gets to do her best work in the Captain America movies. I think
+[00:34:40] Will: Just like she has like a little bit of a gimpy hand, I guess. Yeah, so the Black Black Widow Black Panther standoff is is clearly setting something up. I thought Scarlett Johansson got to do some some like she gets to do her best work in the Captain America movies. I think
 
 [00:34:54] Adam: I love her
 
@@ -978,17 +978,17 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:35:09] Adam: She did it like three times in this movie,
 
-[00:35:10] Norm: like in that first scene where where they're chasing Crossbones and his crew, like and that market fight scene.
+[00:35:10] Norm: like in that first scene where they're chasing Crossbones and his crew, like and that market fight scene.
 
 [00:35:18] Adam: Yes,
 
 [00:35:18] Norm: like the way they shoot that stuff is. crazy.
 
-[00:35:20] Will: She's just wearing normal street clothes too. That's that's so like this is this is the knock I have against the movie. It's the end of this movie. I walk through it normally. I guess partly because the the previously we're used to the normal structure where you have like the fight that they win, the fight that they lose, the fight that has the ambiguous ending, and then the
+[00:35:20] Will: She's just wearing normal street clothes too. That's so like this is the knock I have against the movie. It's the end of this movie. I walk through it normally. I guess partly because the previously we're used to the normal structure where you have like the fight that they win, the fight that they lose, the fight that has the ambiguous ending, and then the
 
 [00:35:37] Adam: big finish. Quiet bit at the end of Act Two before Act Three jumps in heavily.
 
-[00:35:41] Will: Yeah, right. I I couldn't remember the flow of this movie after seeing it.
+[00:35:41] Will: Yeah, right. I couldn't remember the flow of this movie after seeing it.
 
 [00:35:46] Adam: Yeah, it was. It's very complicated. Like I said, I'm really interested to see how this movie sits in a couple of years. How willing I am to watch? To because Winter Soldier comes on, I'm like, oh great! Now I know what I'm doing for the next hour. I’m watching the rest of this.
 
@@ -996,29 +996,29 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:36:00] Adam: Same thing. Yeah, so I'm curious how this will hold up. I feel like this movie may age better.
 
-[00:36:05] Will: I I think like if you look at this compared to say Guardians of the Galaxy or Ant Man, which I walked out of really positive, and then kind of can't be asked to watch again either of them.
+[00:36:05] Will: I think like if you look at this compared to say Guardians of the Galaxy or Ant Man, which I walked out of really positive, and then kind of can't be asked to watch again either of them.
 
 [00:36:13] Adam: Yeah.
 
-[00:36:13] Will: Um, I I feel like this will end up more on the on the high side of that. But I don’t know for sure.
+[00:36:13] Will: I feel like this will end up more on the high side of that. But I don’t know for sure.
 
 [00:36:18] Adam: I think you’re right. I think you're totally right. I think that's a fine place to pause at the end of our media consumptive weekend.
 
-[00:36:23] Will: Yeah. Um. So Norm, what's going on on Tested this week?
+[00:36:23] Will: Yeah. So Norm, what's going on Tested this week?
 
-[00:36:26] Norm: Uh oh. Uh, so last week we went to visit uh Ryan Nagata's shop, and we'll be back this week where Adam and Ryan talk more about spacesuits.
+[00:36:26] Norm: Uh oh. So last week we went to visit Ryan Nagata's shop, and we'll be back this week where Adam and Ryan talk more about spacesuits.
 
-[00:36:37] Adam: And um, I this this visiting shops, I really appreciate everyone's amazing comments and and questions. And I, it's clear to me that we got to visit a lot more shops.
+[00:36:37] Adam: And I this visiting shops, I really appreciate everyone's amazing comments and questions. And I, it's clear to me that we got to visit a lot more shops.
 
 [00:36:47] Norm: Yep.
 
-[00:36:47] Adam: Um, it's just a great thing to do to see other people's philosophies. I want to visit somebody's tiny bedroom shop, tiny little you know condo shop, and somebody's giant big you know facility. So
+[00:36:47] Adam: It's just a great thing to do to see other people's philosophies. I want to visit somebody's tiny bedroom shop, tiny little you know condo shop, and somebody's giant big you know facility. So
 
 [00:36:59] Will: I hope you'll get a Tom Sachs's studio next time you're in New York.
 
 [00:37:01] Adam: We at some point we will get a visit to Tom Sachs's amazing studio, which is a sculpture in and of itself.
 
-[00:37:08] Will: Um, so I guess that'll do it for us this week. Adam, you and I are talking at Maker Faire at the end of the month on different times and days.
+[00:37:08] Will: So I guess that'll do it for us this week. Adam, you and I are talking at Maker Faire at the end of the month on different times and days.
 
 [00:37:13] Adam: We are you're on Saturday.
 
@@ -1026,7 +1026,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:37:15] Adam: I'm on Sunday around midday.
 
-[00:37:16] Will: Yeah. So um, I don't know if that's final final yet, but that's the latest time and date I have. I’ll see you there. Yes.
+[00:37:16] Will: Yeah. So I don't know if that's final final yet, but that's the latest time and date I have. I’ll see you there. Yes.
 
 [00:37:22] Adam: All right.
 

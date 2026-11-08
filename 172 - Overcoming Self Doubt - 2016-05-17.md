@@ -38,11 +38,11 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:01:31] Norm: and it's a sexual awakening for a lot of the characters, Yes. or it’s just a character development.
 
-[00:01:35] Adam: It's a self-actualization awakening and sexual awakening for all these characters. But there's a point in which Er, hey, it's that guy J.T. Walsh who plays the villain in the movie. Am I right?
+[00:01:35] Adam: It's a self-actualization awakening and sexual awakening for all these characters. But there's a point in which hey, it's that guy J.T. Walsh who plays the villain in the movie. Am I right?
 
 [00:01:44] Will: Who's J.T. Walsh?
 
-[00:01:45] Adam: J.T. Walsh is if you look him up, you're like, oh, that guy. He is the ultimate Er. Hey, it's that guy.
+[00:01:45] Adam: J.T. Walsh is if you look him up, you're like, oh, that guy. He is the ultimate. Hey, it's that guy.
 
 [00:01:50] Will: Oh, okay.
 
@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:02:19] Adam: because you've you vend your allegory onto reality wrong.
 
-[00:02:24] Norm: It's too on the on the nose.
+[00:02:24] Norm: It's too on the nose.
 
 [00:02:24] Adam: Yeah. Exactly.
 
@@ -88,29 +88,29 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:03:03] Adam: You've had a lot of time to meditate.
 
-[00:03:04] Will: I've had a lot of time to think about it, and I've had a lot of exposure. But but yeah, like I I love movies. I love movies like that where where you have this idea and you get to watch it propagate out through a network of of fictional characters.
+[00:03:04] Will: I've had a lot of time to think about it, and I've had a lot of exposure. But yeah, like I I love movies. I love movies like that where you have this idea and you get to watch it propagate out through a network of fictional characters.
 
 [00:03:04] Adam: Totally.
 
 [00:03:04] Will: And I hadn't thought about Pleasantville as one of those movies, but it totally is.
 
-[00:03:20] Adam: You're right. Um, you should also, I guess, watch what is the um Ed TV? Is that the one?
+[00:03:20] Adam: You're right. You should also, I guess, watch what is the Ed TV? Is that the one?
 
 [00:03:24] Norm: Ed TV.
 
 [00:03:24] Adam: Yeah. Woody Harrelson.
 
-[00:03:26] Will: Woody Harrelson and and Matthew McConaughey.
+[00:03:26] Will: Woody Harrelson and Matthew McConaughey.
 
 [00:03:28] Norm: Matthew McConaughey. That's right.
 
 [00:03:28] Will: Prior to True Detective.
 
-[00:03:30] Adam: Prior to, prior to True Detective, and I think the same year that Truman Show came out.
+[00:03:30] Adam: Prior to True Detective, and I think the same year that Truman Show came out.
 
 [00:03:35] Norm: It is.
 
-[00:03:35] Will: Yeah, it's one of the it's one of the duos.
+[00:03:35] Will: Yeah, it's one of the duos.
 
 [00:03:37] Norm: It was one of those like Deep Impact Armageddon style. But
 
@@ -124,7 +124,7 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:03:55] Adam: Yeah, yeah.
 
-[00:03:55] Will: Ed TV, on the other hand, directly like I think I think Justin of Justin TV, which became Twitch, cites that as a hey that seems fun.
+[00:03:55] Will: Ed TV, on the other hand, directly like I think Justin of Justin TV, which became Twitch, cites that as a hey that seems fun.
 
 [00:04:05] Adam: I.
 
@@ -136,7 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:04:12] Adam: Yeah, Jenny Cam.
 
-[00:04:13] Will: Yeah, there was a there was a follow up. Like, hey what happened to this girl 20 years later? I saw that.
+[00:04:13] Will: Yeah, there was a follow up. Like, hey what happened to this girl 20 years later? I saw that.
 
 [00:04:17] Adam: I read that
 
@@ -160,11 +160,11 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:04:44] Adam: in our makers, that I repeatedly got the question: How do you deal with the fact that when? How do you deal with it when builds go really terribly and you feel terrible about it?
 
-[00:04:55] Will: And you are in a kind of unique situation for that because because like if you if you for a lot of people if they burn through materials and ruin materials then they they are at a stopping point for a while.
+[00:04:55] Will: And you are in a kind of unique situation for that because like if you for a lot of people if they burn through materials and ruin materials then they are at a stopping point for a while.
 
 [00:05:05] Adam: Yeah,
 
-[00:05:06] Will: right, and and that doesn't necessarily apply to you, but in a lot of ways, your time that you are spending in that shop is is much more valuable to you. Than than say the material the raw material cost of something that goes kind of sideways
+[00:05:06] Will: right, and that doesn't necessarily apply to you, but in a lot of ways, your time that you are spending in that shop is is much more valuable to you. Than than say the material the raw material cost of something that goes kind of sideways
 
 [00:05:17] Adam: yeah and I've said this before when you're first starting out it's materials that are expensive and your time that's cheap and later it's materials that get cheap and your time that gets expensive and you have to find that balance
 
@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:05:45] Adam: you were there on Monday shooting it
 
-[00:05:46] Norm: And we don't need to like specifically say what the build was but you were working in you know with with the bridgeport you were machining things
+[00:05:46] Norm: And we don't need to like specifically say what the build was but you were working in you know with the bridgeport you were machining things
 
 [00:05:52] Adam: I was messing things up all day long then you guys went away Joey came back for us to wrap up the one day build just a couple of hours of extra work to finish it off and I actually talked to the camera and said this was maybe one of the rougher builds I've done now the work I was doing was really really highly precise you know hopefully museum quality replicas. Of of certain hardware that I wanted to get right. This is a collaboration I'm doing with somebody who does really amazing work, and I wanted to send them good parts. And I was just in the wrong zone, and I basically had most of a week in which I seriously. So, sorry, just to go back, the AMA repeatedly in our makers. What do you? Three different people asked long, involved questions about dealing with negative consequences from building, like what do you do when you're despondent about how something went. And they were catching me. But one, it was fascinating to me that that was a recurring question because it's an important one. But two, that question caught me right in the middle of one of the shittiest weeks I've had in a long time, a week in which I finished. I felt multiple times during the week, " Holy cow, I have no business making things."
 
@@ -186,19 +186,19 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:07:14] Will: Everybody thinks that.
 
-[00:07:15] Adam: Everybody feels that way. I mean, everybody has at some point some. Piece of an imposter complex going on, especially when you know I'm sitting here. you— You guys are covering this. We're supposed to be getting some great footage, and I just feel like I'm wasting my time continually boning things by going too fast, going too slow, not thinking enough about order of operations, whatever it is. But it was it was precision work that was it was you know doing machining. [unclear: Brian Agata says, you know, machining operations, order of operations is everything / Brian Nagata says, you know, machining operations, order of operations is everything / And I got this. Yeah. It says, you know, machining operations, it’s order of operations is everything]. Yeah. And I wasn't thinking through all my order of operations as succinctly and clearly as I could have, and I was really suffering for it from a from a build quality standpoint and a personal standpoint. And so I just I really wanted to bring that up that like this like you said it happens to everybody.
+[00:07:15] Adam: Everybody feels that way. I mean, everybody has at some point some. Piece of an imposter complex going on, especially when you know I'm sitting here. you guys are covering this. We're supposed to be getting some great footage, and I just feel like I'm wasting my time continually boning things by going too fast, going too slow, not thinking enough about order of operations, whatever it is. But it was precision work that was it was you know doing machining. [unclear: Brian Agata says, you know, machining operations, order of operations is everything / Brian Nagata says, you know, machining operations, order of operations is everything / And I got this. Yeah. It says, you know, machining operations, it’s order of operations is everything] Yeah. And I wasn't thinking through all my order of operations as succinctly and clearly as I could have, and I was really suffering for it from a build quality standpoint and a personal standpoint. And so I just I really wanted to bring that up that like this like you said it happens to everybody.
 
 [00:08:05] Will: I mean, even if you don't, even if you don't have those bad weeks. Like I was talking to somebody the other day who just did an amazing photography project. We were talking about having she just worked on this three month project that she was really excited about and was really received well and. Then she was done with it, and she was like, " Well, I'm never, yeah, am I ever gonna be able to do anything as good as that again?" And and I like the same thing happens to everybody. Like I I literally said, " Look, I just we're not even we're not even finished anything. We just released something, and and now it's kind of like, well, shit. What do we do next? People really like that. They're not. There's no way they're gonna like the next thing as much as that. Right, right, right. Why bother?"
 
 [00:08:44] Norm: And then to tackle the next thing, and then feel like you did not succeed right in the middle of it. How did you get over it?
 
-[00:08:50] Adam: Well, this was so part of the thing is that I know this happens. I know this feeling happens, and my mechanism for dealing with it is to just push through it, just keep on making stuff. So my fidelity is to come in here and work. So that's what I did. I came in on Tuesday and I worked. Came in on Wednesday, Joey and I wrapped that sequence. I came in on Thursday and finished a part that some material had arrived for. Again, a lot of these builds are going to come up on one day builds, so we're not spoiling them. And then after I tackled that last bit of of hardware, I was like, you know, there's a project I've had sitting off to the side for a long time, and it's a much different project. It's organic. It's it involves materials I haven't used before. It involves technology that I have been thinking about but haven't really explored. Some stuff I learned recently, and I just dove into it. Now, this happens to me sometimes: is I will be working on a build, and it'll involve the next step of the build will involve a process that I have to kind of work myself up for. Um, and I was amazed at jumping into working with it's a sewing project, but jumping into working with this material, which I was unfamiliar with and haven't played with before, it was like that was the wheelhouse that I needed to get back into.
+[00:08:50] Adam: Well, this was so part of the thing is that I know this happens. I know this feeling happens, and my mechanism for dealing with it is to just push through it, just keep on making stuff. So my fidelity is to come in here and work. So that's what I did. I came in on Tuesday and I worked. Came in on Wednesday, Joey and I wrapped that sequence. I came in on Thursday and finished a part that some material had arrived for. Again, a lot of these builds are going to come up on one day builds, so we're not spoiling them. And then after I tackled that last bit of hardware, I was like there's a project I've had sitting off to the side for a long time, and it's a much different project. It's organic. It's it involves materials I haven't used before. It involves technology that I have been thinking about but haven't really explored. Some stuff I learned recently, and I just dove into it. Now, this happens to me sometimes: is I will be working on a build, and it'll involve the next step of the build will involve a process that I have to kind of work myself up for. And I was amazed at jumping into working with it's a sewing project, but jumping into working with this material, which I was unfamiliar with and haven't played with before, it was like that was the wheelhouse that I needed to get back into.
 
 [00:10:17] Will: So, was it something that was easy, or something that's new, or just you just needed to fire a different part of your brain off for a little while?
 
-[00:10:22] Adam: I think it was firing off a different part of the brain. It was like jump into a material you have no former experience with. And try and get something out of it, and I got something out of it. It wasn't perfect, and there were some learning difficulties with it, but that was what broke me out of the the rut of doing high precision machining work had sort of captured me in.
+[00:10:22] Adam: I think it was firing off a different part of the brain. It was like jump into a material you have no former experience with. And try and get something out of it, and I got something out of it. It wasn't perfect, and there were some learning difficulties with it, but that was what broke me out of the rut of doing high precision machining work had sort of captured me in.
 
-[00:10:42] Will: So you you did something you needed to be good enough, rather than something that needed to be perfect?
+[00:10:42] Will: So you did something you needed to be good enough, rather than something that needed to be perfect?
 
 [00:10:45] Adam: yeah, but also also
 
@@ -216,9 +216,9 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:10:58] Norm: and that accumulation helped you when you pivoted to project B get a nice jump start on it.
 
-[00:11:04] Adam: And that pivot really did sort of surprise me with how invigorating I felt to work with a brand new material and a new process. But, but—
+[00:11:04] Adam: And that pivot really did sort of surprise me with how invigorating I felt to work with a brand new material and a new process. But—
 
-[00:11:14] Will: the important thing the important thing isn't the project or or what you did. It's that you got back. You know the old saying: you get back on the horse when you get when you when you get thrown off.
+[00:11:14] Will: the important thing isn't the project or what you did. It's that you got back. You know the old saying: you get back on the horse when you get thrown off.
 
 [00:11:23] Adam: Success is failing with repeatedly with enthusiasm. Right,
 
@@ -226,15 +226,15 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:11:36] Will: Well, it depends on the athlete.
 
-[00:11:37] Adam: Yeah, well, yeah, but yeah, you know, you're you're right. There's like
+[00:11:37] Adam: Yeah, well, yeah, but yeah you're right. There's like
 
 [00:11:41] Norm: they don't have the luxury.
 
 [00:11:42] Adam: There's endless stories of things like professional runners getting totally boned by trying to change their running form in tiny, tiny ways,
 
-[00:11:48] Will: or or golfers trying to change their swing, or tennis players, or whatever. Yeah,
+[00:11:48] Will: or golfers trying to change their swing, or tennis players, or whatever. Yeah,
 
-[00:11:53] Adam: you know, look, there are ways in which you approach your practice. There are, you know, I would imagine. I think it is analogous, Norm. I think there are ways in which it's analogous. Like if you're a sports person, you’re, you’re attuned to what you know and don't know about your sport in a really deep way, and so I could see this being of like if I'm a golfer, it's not like I'm not going to go out and play around, but I might play a very different round or on a very different course or with a very different mindset.
+[00:11:53] Adam: Look, there are ways in which you approach your practice. There are I would imagine. I think it is analogous, Norm. I think there are ways in which it's analogous. Like if you're a sports person, you’re attuned to what you know and don't know about your sport in a really deep way, and so I could see this being of like if I'm a golfer, it's not like I'm not going to go out and play around, but I might play a very different round or on a very different course or with a very different mindset.
 
 [00:12:26] Norm: Change the state.
 
@@ -242,23 +242,23 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:12:34] Will: Bless him.
 
-[00:12:36] Adam: I was doing hard-edged, high-precision model making, and I wasn't in the mental space for getting that kind of work done. And pivoting to a new material, but a more organic, sort of sculptural form of making was the thing that broke me out of the rut. You know, I, it was, it was, it, it was surprising to me to spend like four days of a week feeling really crappy about making, and you know, slightly destabilizing.
+[00:12:36] Adam: I was doing hard-edged, high-precision model making, and I wasn't in the mental space for getting that kind of work done. And pivoting to a new material, but a more organic, sort of sculptural form of making was the thing that broke me out of the rut. I, it was surprising to me to spend like four days of a week feeling really crappy about making, and slightly destabilizing.
 
-[00:13:04] Will: Everybody has, but, but I mean, the important thing to reiterate here is that everybody who makes stuff, whether you're a screenwriter or a director, or you know, in your shop or a sculptor or whatever, everybody has off days.
+[00:13:04] Will: Everybody has, but I mean, the important thing to reiterate here is that everybody who makes stuff, whether you're a screenwriter or a director, or in your shop or a sculptor or whatever, everybody has off days.
 
-[00:13:18] Adam: Absolutely, and that's why I'm I'm so glad for that question. And our making, I want to pipe back into that to that subreddit. It's a terrific subreddit to to talk about exactly that. There's a need to to discuss that. I mean, this is, and this actually goes to me why making itself. Is, look, it's my mechanism, it's my hammer. So everything to me looks like a nail. I said this in the AMA. I think of making as the gateway drug to critical thinking, and I think one of the things that it gives you is whenever you set out to make something, I guarantee you, you will not end up with with the exact thing you thought you were going to make. It's going to be different in some way. It's going to inform the process, the material, the procedure, the collaboration will inform a slight shift. The path is never perfectly linear.
+[00:13:18] Adam: Absolutely, and that's why I'm I'm so glad for that question. And our making, I want to pipe back into that to that subreddit. It's a terrific subreddit to talk about exactly that. There's a need to discuss that. I mean, this is, and this actually goes to me why making itself. Is, look, it's my mechanism, it's my hammer. So everything to me looks like a nail. I said this in the AMA. I think of making as the gateway drug to critical thinking, and I think one of the things that it gives you is whenever you set out to make something, I guarantee you will not end up with the exact thing you thought you were going to make. It's going to be different in some way. It's going to inform the process, the material, the procedure, the collaboration will inform a slight shift. The path is never perfectly linear.
 
-[00:14:08] Norm: And what you take away from that path is the that's the the benefit and the utility.
+[00:14:08] Norm: And what you take away from that path is the that's the benefit and the utility.
 
-[00:14:13] Adam: Exactly. If you were if you if you always knew the outcome of what you were going to do, you might as you you'd just be rubber stamping something
+[00:14:13] Adam: Exactly. If you were if you always knew the outcome of what you were going to do, you might as you you'd just be rubber stamping something
 
 [00:14:13] [unclear: Will / Adam]: every single
 
 [00:14:13] Adam: day.
 
-[00:14:23] Will: There there is a place and time for that, but so what do you do to get out of the rut? Well, like this time you went and started a different project. Do you do you like? Sometimes I go read. Like if I'm stuck writing, I'll just go sit down and start reading books. Right? Yeah. Which isn't always always possible, but is the luxury that I have a lot of times.
+[00:14:23] Will: There is a place and time for that, but so what do you do to get out of the rut? Well, like this time you went and started a different project. Do you like? Sometimes I go read. Like if I'm stuck writing, I'll just go sit down and start reading books. Right? Yeah. Which isn't always always possible, but is the luxury that I have a lot of times.
 
-[00:14:23] Adam: Yeah. Um. You know, I love Mary Karr. Said that when she has a writer's block, she just chooses a piece of writing she loves and copies it longhand.
+[00:14:23] Adam: Yeah. I love Mary Karr. Said that when she has a writer's block, she just chooses a piece of writing she loves and copies it longhand.
 
 [00:14:41] Will: Oh, wow!
 
@@ -268,21 +268,21 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:14:58] Adam: to me, yeah, it's getting back into the shop and continuing to make, despite the fact that it doesn't feel like I know what I am doing.
 
-[00:15:04] Will: I I think that's a lot of the Yeah, yeah. like when I when I look when you look at novelists who are really successful. I mean, there, there’s two, there’s two opposite ends of that spectrum. Like there are many things, right? There is people that sit on one end that that write when they feel like writing and they produce some unbelievable work and and it's good, but it's a it's not at a workman like pace. On the other end, You have people like Scalzi who sits down and writes 3,000 or 4,000 words every day or something insane, and and cranks out two awesome books a year on a bad year.
+[00:15:04] Will: I think that's a lot of the Yeah, yeah. like when I look when you look at novelists who are really successful. I mean, there, there’s two opposite ends of that spectrum. Like there are many things, right? There is people that sit on one end that that write when they feel like writing and they produce some unbelievable work and it's good, but it's a it's not at a workman like pace. On the other end, You have people like Scalzi who sits down and writes 3,000 or 4,000 words every day or something insane, and cranks out two awesome books a year on a bad year.
 
 [00:15:04] Adam: Yeah.
 
-[00:15:04] Will: So, like, you have to find your own kind of pace and rhythm.
+[00:15:04] Will: So you have to find your own kind of pace and rhythm.
 
 [00:15:38] Norm: Have you ever felt that? We were saying earlier that feeling when you finish an awesome project. And you wonder, can you top this?
 
-[00:15:46] Adam: Oh, are you kidding? What welcome to the welcome to the first half of 2016. I mean, you know, I've just completed a 14 year project, and I'd love for it to happen again. No, totally. You have postpartum, slight postpartum blues at the end of. I mean, you know, I went down to LA a few weeks ago, and we pitched a bunch of networks on a show, and even that just a full week of pitching.
+[00:15:46] Adam: Oh, are you kidding? What welcome to the first half of 2016. I mean I've just completed a 14 year project, and I'd love for it to happen again. No, totally. You have postpartum, slight postpartum blues at the end of. I mean I went down to LA a few weeks ago, and we pitched a bunch of networks on a show, and even that just a full week of pitching.
 
 [00:16:08] Will: Yeah.
 
 [00:16:09] Adam: At the end of the week of pitching, I was like, Ah, wow, it's done, and I felt a little sad about it. It's look, any kind of significant creative push involves, on the other side, a little bit of sadness that it's over.
 
-[00:16:21] Will: One one of our former editors, Norm, told me when I was new that everything you write should be the best thing you've ever written. Right. You should you should literally, and this was it was a little bit ludicrous because I was writing 18 pages of magazine a month, so you know it's a it's a high bar, but you should try to make everything that you do the best thing that you've ever done, and if you can if you can do that, then you're always going to be improving, and it and it's it's You know, you're always pushing yourself a little bit harder.
+[00:16:21] Will: One one of our former editors, Norm, told me when I was new that everything you write should be the best thing you've ever written. Right. You should literally, and this was it was a little bit ludicrous because I was writing 18 pages of magazine a month, so you know it's a high bar, but you should try to make everything that you do the best thing that you've ever done, and if you can do that, then you're always going to be improving, and it and it's you're always pushing yourself a little bit harder.
 
 [00:16:49] Adam: Yeah, yeah.
 
@@ -292,13 +292,13 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:16:58] Adam: Yeah. Look, I—
 
-[00:16:59] Will: we're in a we're in a unique situation on that front.
+[00:16:59] Will: we're in a unique situation on that front.
 
-[00:17:01] Adam: But you know, I, I was just thinking about people who might come to this podcast this week, last week because of the AMA I did in R Makers, and I wanted to say, and I've said this on the podcast before, back when I was working at Industrial Light and Magic, and you know, I got in at the end of the wire, at the end of an era, and got to work with many of my heroes in a place that I'd been dreaming about working since I was 11 years old. It was Valhalla, and there wasn't a single job that I worked on at ILM that didn't, at some point in it, include the feeling from me of like, wow, someone's going to come up behind me and tap me on the shoulder and tell me to go home because I don't know, clearly don't know what the hell that I'm doing.
+[00:17:01] Adam: But I, I was just thinking about people who might come to this podcast this week, last week because of the AMA I did in R Makers, and I wanted to say, and I've said this on the podcast before, back when I was working at Industrial Light and Magic, and I got in at the end of the wire, at the end of an era, and got to work with many of my heroes in a place that I'd been dreaming about working since I was 11 years old. It was Valhalla, and there wasn't a single job that I worked on at ILM that didn't, at some point in it, include the feeling from me of like, wow, someone's going to come up behind me and tap me on the shoulder and tell me to go home because I don't know, clearly don't know what the hell that I'm doing.
 
 [00:17:01] Will: Yeah.
 
-[00:17:01] Adam: That feeling happened on every build, and I just learned that that's part of the process, and so that's the way I, that's the way I dealt with it is I intellectually understood. This is part of the process. You've just got to push past this, and it'll be fine in a day or so.
+[00:17:01] Adam: That feeling happened on every build, and I just learned that that's part of the process, and so that's the way I dealt with it is I intellectually understood. This is part of the process. You've just got to push past this, and it'll be fine in a day or so.
 
 [00:17:56] Will: They didn't have a name for it back then.
 
@@ -306,13 +306,13 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:17:58] Will: I don't think so. Yeah.
 
-[00:17:59] Adam: No, we didn't. I do believe the the DSM did, but I didn't.
+[00:17:59] Adam: No, we didn't. I do believe the DSM did, but I didn't.
 
-[00:18:05] Will: There was there was. If you want to know more about this, the first XOXO, all the talks are online. It was the topic. It was. It ended up. I don't know if they intended for it to be the topic, but it ended up being the topic
+[00:18:05] Will: There was. If you want to know more about this, the first XOXO, all the talks are online. It was the topic. It was. It ended up. I don't know if they intended for it to be the topic, but it ended up being the topic
 
 [00:18:05] Adam: Oh, really?
 
-[00:18:05] Will: for most of the talks. It's the one that you came in on the last day and spoke at. But a lot of people talked about it, and if you go to the the XOXO YouTube channel,
+[00:18:05] Will: for most of the talks. It's the one that you came in on the last day and spoke at. But a lot of people talked about it, and if you go to the XOXO YouTube channel,
 
 [00:18:22] Adam: Dan Harmon, I think did a tremendous job of talking about
 
@@ -324,7 +324,7 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:18:35] Adam: He really does that.
 
-[00:18:36] Will: But but yeah, it's um it was super good and and highly recommend you check out Dan's and and there were several other talks as well um that that would be relevant to the conversation. So I guess that'll do it for us this week.
+[00:18:36] Will: But yeah, it's it was super good and highly recommend you check out Dan's and there were several other talks as well that that would be relevant to the conversation. So I guess that'll do it for us this week.
 
 [00:18:47] Adam: I think this.
 
@@ -350,7 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:19:01] Will: Boom.
 
-[00:19:05] Norm: There's also at the end of this month at the Exploratorium is going to be an exhibit we've been waiting for for a long time.
+[00:19:05] Norm: There's also at the end of this month at the Exploratorium is going to be an exhibit we've been waiting for a long time.
 
 [00:19:14] Adam: The amazing Theo Jansen.
 
@@ -360,7 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:19:19] Norm: Stronbeest?
 
-[00:19:20] Adam: Stronbeest is Stronbeest is what I've been told on the comments section of Tested.
+[00:19:20] Adam: Stronbeest is what I've been told on the comments section of Tested.
 
 [00:19:26] Will: He's Dutch, right?
 

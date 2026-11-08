@@ -32,7 +32,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:00:34] Simone: Thank you. It's so good to be back.
 
-[00:00:39] Adam: It's it's good to have you back.
+[00:00:39] Adam: It's good to have you back.
 
 [00:00:40] Simone: Yeah, it was like because I was going to stay out of work for a week or something like that because I've been really tired and I just couldn't stay away. So Monday morning, I was like, " Hey, Tested office." But how was Comic Con? I wasn't there.
 
@@ -58,7 +58,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:01:10] Norm: It almost feels worse when you're there because you feel like it's right within your grasp, like this experience and that movie trailer and this freebie. But then you never can get any of it.
 
-[00:01:21] Adam: I will tell you that I felt less FOMO at this year's Comic Con than I have ever before, and a lot of it is because when I first got there 10 years ago, it was a big mystery, and now it's like a lot of the stuff that's happening is stuff with my friends, and I I know what they're doing, and I you know people like Chris Hardwick and Felicia Day and Zachary Levi. You know those guys are awesome, and I love what they're doing, and I did stuff with all of them at the con. It was it was a really good con. It felt weirdly calmer than other Comic Cons, and we couldn't put our finger on why.
+[00:01:21] Adam: I will tell you that I felt less FOMO at this year's Comic Con than I have ever before, and a lot of it is because when I first got there 10 years ago, it was a big mystery, and now it's like a lot of the stuff that's happening is stuff with my friends, and I I know what they're doing, and I you know people like Chris Hardwick and Felicia Day and Zachary Levi. You know those guys are awesome, and I love what they're doing, and I did stuff with all of them at the con. It was a really good con. It felt weirdly calmer than other Comic Cons, and we couldn't put our finger on why.
 
 [00:01:56] Simone: Maybe it's because you just turned 50, and you're now calmer and wiser.
 
@@ -74,7 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:02:18] Norm: It's just slightly. The slides just vary in length.
 
-[00:02:20] Adam: Here is one thing I've noticed: is that I've noticed that I've noticed now. I like. I enjoy calling everybody young person. So like, I see a cop, and I am like, " How are you today, young man?"
+[00:02:20] Adam: Here is one thing I've noticed: is that I've noticed now. I like. I enjoy calling everybody young person. So like, I see a cop, and I am like, " How are you today, young man?"
 
 [00:02:31] Norm: Wow,
 
@@ -92,11 +92,11 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:02:47] Adam: In the Alien Covenant spacesuit,
 
-[00:02:50] Norm: it was a beautiful, amazing spacesuit made by the the team at FBFX.
+[00:02:50] Norm: it was a beautiful, amazing spacesuit made by the team at FBFX.
 
 [00:02:50] Adam: Mm-hmm. Incredible! Incredible! You wouldn't believe the craftsmanship on this thing. It's mind blowing.
 
-[00:03:00] Simone: Which Which out of the costumes was the sweatiest one for you?
+[00:03:00] Simone: Which out of the costumes was the sweatiest one for you?
 
 [00:03:04] Adam: Oh, that's a good question. It was definitely that one. It was definitely the spacesuit was the sweatiest by far because the suit of armor was fairly breathable. Chewie is also fairly breathable, yes, but the
 
@@ -106,21 +106,21 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:03:23] Simone: Really, I've not touched it. I don't dare to touch things here.
 
-[00:03:27] Adam: You can you can touch it all.
+[00:03:27] Adam: You can touch it all.
 
 [00:03:29] Norm: So that afternoon, there was the we went to a party.
 
 [00:03:34] Adam: Bill Prady’s party.
 
-[00:03:34] Norm: Bill Prady’s party, which is a a really fun gathering of a lot of like the friends you mentioned.
+[00:03:34] Norm: Bill Prady’s party, which is a really fun gathering of a lot of like the friends you mentioned.
 
 [00:03:39] Adam: It's most of it's the place where yeah. Besides w00tstock, that's where I catch up with all my favorite people,
 
-[00:03:45] Norm: and it was really funny because you know you have a lot of people you guys say hi to. The tested team, we kind of huddled together and and ate our desserts
+[00:03:45] Norm: and it was really funny because you know you have a lot of people you guys say hi to. The tested team, we kind of huddled together and ate our desserts
 
 [00:03:45] Adam: Yeah.
 
-[00:03:45] Norm: and and like oh look that's that that person what's that person's name again oh my god that's the actor from that one TV show and then this year it was really funny because Danica was there and she spent a good so we're all hanging out. And then some people walk into the party and leave the party throughout. Right, it's a three-hour event, right? And at one point, Nichelle Nichols walks in.
+[00:03:45] Norm: and like oh look that's that that person what's that person's name again oh my god that's the actor from that one TV show and then this year it was really funny because Danica was there and she spent a good so we're all hanging out. And then some people walk into the party and leave the party throughout. Right, it's a three-hour event, right? And at one point, Nichelle Nichols walks in.
 
 [00:04:13] Adam: Lieutenant Uhura from the original Star Trek series.
 
@@ -128,11 +128,11 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:04:20] Adam: She's 90 plus and absolutely beautiful and amazing.
 
-[00:04:25] Norm: And she sits down, finds a corner. She and her her handler and her family, and it's one of those things like, do you say hi, you know? And and and Bobak, Bobak, you know Bobak, right? We were talking to Bobak. Bobak's like, yeah, I said I I did an event with her before, and I don't think she remembers me, but I I told her how much she meant to me, and I got my moment, and like that's the awesome. That's that's the that's kind of what I wanted to do, but I also don't want to bug her. Danica said she needed to have some meaningful interaction, and she she worked it, and we watched almost like from from like 30 feet away at a distance. We watched over the span of half an hour as she and and Rebecca,
+[00:04:25] Norm: And she sits down, finds a corner. She and her her handler and her family, and it's one of those things like, do you say hi? And Bobak, Bobak Bobak, right? We were talking to Bobak. Bobak's like, yeah, I said I I did an event with her before, and I don't think she remembers me, but I I told her how much she meant to me, and I got my moment, and like that's the awesome. That's the that's kind of what I wanted to do, but I also don't want to bug her. Danica said she needed to have some meaningful interaction, and she worked it, and we watched almost like from like 30 feet away at a distance. We watched over the span of half an hour as she and Rebecca,
 
 [00:04:25] Adam: Rebecca Watson,
 
-[00:04:25] Norm: Rebecca Watson, went up to Nichelle Nichols. Entered casually into a conversation, and then went from kneeling in front of her, in in terms of like being in conversation group, to slowly one person closer and one person closer.
+[00:04:25] Norm: Rebecca Watson, went up to Nichelle Nichols. Entered casually into a conversation, and then went from kneeling in front of her, in terms of like being in conversation group, to slowly one person closer and one person closer.
 
 [00:05:24] Adam: Were they were
 
@@ -144,11 +144,11 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:05:30] Norm: making her laugh. [unclear: that is / listening to song].
 
-[00:05:33] Simone: A talent doing it in a smooth way. Like I feel like I can I can kind of notice when I feel people are doing that to me. Like when they're inching closer, and you know, you can always tell that their face is like towards you, and they're kind of ready to like laugh at a joke or something like that. But still, like some people do it really smoothly, and it's impressive.
+[00:05:33] Simone: A talent doing it in a smooth way. Like I feel like I can kind of notice when I feel people are doing that to me. Like when they're inching closer, and you can always tell that their face is like towards you, and they're kind of ready to like laugh at a joke or something like that. But still, like some people do it really smoothly, and it's impressive.
 
 [00:05:52] Norm: I think it was very impressive.
 
-[00:05:53] Adam: So there's this thing I realized is that we have very good peripheral vision, but this the the social contract is that if I'm not looking at you, I don't notice you. So you can still believe that I haven't picked you up on my radar if I'm looking 20 degrees off. But the fact is, is there are sometimes you've been in a restaurant where I was in a restaurant once where Richard Gere was eating dinner, and that was kind of like subsumed our table because it was Richard Gere, like right over there. He's totally amazing and hot and incredible actor, and we couldn't believe that he was there. I have experienced the smaller version of that with my level of fame, where I can tell people can't take their eyes off me, right? Like they're they're watching me, and I can pick it up. But the the it gives me a little bit of a taste of what it's probably like to be a pretty girl, right? Where people are always like trying to smile at you in your periphery. And a friend of mine who is lovely, she said, " Yes, the hardest part for her was learning as a young girl, not as like you know 14, 15 years old, not to smile back." And because because that was an invitation, and that look, this is a much deeper and more complex subject than than I am making it. But just suffice to say, my tiny little bit of notoriety gives me some inclination of what it's like to be lovely. There, that's my point.
+[00:05:53] Adam: So there's this thing I realized is that we have very good peripheral vision, but this the social contract is that if I'm not looking at you, I don't notice you. So you can still believe that I haven't picked you up on my radar if I'm looking 20 degrees off. But the fact is, is there are sometimes you've been in a restaurant where I was in a restaurant once where Richard Gere was eating dinner, and that was kind of like subsumed our table because it was Richard Gere, like right over there. He's totally amazing and hot and incredible actor, and we couldn't believe that he was there. I have experienced the smaller version of that with my level of fame, where I can tell people can't take their eyes off me, right? Like they're watching me, and I can pick it up. But the it gives me a little bit of a taste of what it's probably like to be a pretty girl, right? Where people are always like trying to smile at you in your periphery. And a friend of mine who is lovely, she said, " Yes, the hardest part for her was learning as a young girl, not as like you know 14, 15 years old, not to smile back." And because that was an invitation, and that look, this is a much deeper and more complex subject than than I am making it. But just suffice to say, my tiny little bit of notoriety gives me some inclination of what it's like to be lovely. There, that's my point.
 
 [00:07:16] Norm: And creeped on.
 
@@ -160,7 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:07:18] Simone: I wouldn't know.
 
-[00:07:21] Norm: That that summed up Comic Con. It was it was fun.
+[00:07:21] Norm: That that summed up Comic Con. It was fun.
 
 [00:07:24] Simone: Yeah, being a pretty girl.
 
@@ -180,25 +180,25 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:08:06] Simone: Ah, okay. So I was in my homeland of Sweden to shoot a TV show.
 
-[00:08:12] Adam: And and in the summer, like the sun never sets there, right? Like it's light until like
+[00:08:12] Adam: And in the summer, like the sun never sets there, right? Like it's light until like
 
 [00:08:15] Simone: I mean, it sets, and so Stockholm is not in in the far north of Sweden. It never sets, and but in in Stockholm, it sets around like 11, 12 p.m.
 
 [00:08:25] Adam: That's awesome.
 
-[00:08:25] Simone: Yeah, yeah, yeah, yeah. It's it's it's beautiful. But I we filmed 12 episodes in two months.
+[00:08:25] Simone: Yeah, yeah, yeah, yeah. It's beautiful. But I we filmed 12 episodes in two months.
 
 [00:08:25] Adam: Wow!
 
-[00:08:25] Simone: So it was a lot of work, and it was a completely new series. And yeah, like we were kind of like the format is really fluffy in the sense that it's just like okay, we're just like playing around with fun things, which is really great. But it was it was a lot of work. So coming home to San Francisco from that, it's like I just like want to lay on my couch and watch sci-fi series all day.
+[00:08:25] Simone: So it was a lot of work, and it was a completely new series. And yeah we were kind of like the format is really fluffy in the sense that it's just like okay, we're just like playing around with fun things, which is really great. But it was a lot of work. So coming home to San Francisco from that, it's like I just like want to lay on my couch and watch sci-fi series all day.
 
-[00:08:57] Adam: Yeah, that ultimately you're excited about seeing how the how the show cuts together.
+[00:08:57] Adam: Yeah, that ultimately you're excited about seeing how the show cuts together.
 
-[00:09:03] Simone: Yeah, I I've seen some of the edits, and it's actually it's it's it's really fun. I'm I'm building stuff with this comedian and just playing around and doing like different stupid activities. Like I don't know, seeing like what. For for one episode, it was just all about toasted bread, and like, how can we make the ultimate toaster that like project or like shoots toast into your mouth? Is there a way you can get accuracy? Like, how do you work around the aerodynamics of toasted bread? Terrible, can't recommend it. But we were just like dicking around with random shit. Is my subconscious tagline for the whole show?
+[00:09:03] Simone: Yeah, I I've seen some of the edits, and it's actually it's really fun. I'm building stuff with this comedian and just playing around and doing like different stupid activities. Like I don't know, seeing like what. For one episode, it was just all about toasted bread, and how can we make the ultimate toaster that like project or shoots toast into your mouth? Is there a way you can get accuracy? Like, how do you work around the aerodynamics of toasted bread? Terrible, can't recommend it. But we were just like dicking around with random shit. Is my subconscious tagline for the whole show?
 
 [00:09:37] Adam: Is that maybe the title of your autobiography too?
 
-[00:09:39] Simone: Probably, yeah. Dicking around with random shit, dicking around. Yeah, it's. I I wish that there was a better version of saying that. Dicking around.
+[00:09:39] Simone: Probably, yeah. Dicking around with random shit, dicking around. Yeah, it's. I wish that there was a better version of saying that. Dicking around.
 
 [00:09:48] Adam: Um.
 
@@ -214,7 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:09:53] Adam: No. Well, I mean, yes, I think in some senses it could be, but mucking about is a British way of saying you know I was fooling around.
 
-[00:10:00] Simone: Oh, poop! I I ripped my pants last week.
+[00:10:00] Simone: Oh, poop! I ripped my pants last week.
 
 [00:10:00] Adam: You did.
 
@@ -224,9 +224,9 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:10:18] Simone: don't know.
 
-[00:10:18] Adam: Yeah. Yeah, that's up to others. But it was we had a tremendous amount of fun, and you were you were investigating something. I
+[00:10:18] Adam: Yeah. Yeah, that's up to others. But it was we had a tremendous amount of fun, and you were investigating something. I
 
-[00:10:26] Simone: was I was investigated. This is one of the proudest moments of my life. There was a pile of cow shit on the ground that I thought was so interesting that I squatted above it, squatted above it to look at it, and I ripped my pants. It
+[00:10:26] Simone: was I was investigated. This is one of the proudest moments of my life. There was a pile of cow shit on the ground that I thought was so interesting that I squatted above it to look at it, and I ripped my pants. It
 
 [00:10:39] Adam: was like wow. We got it on camera. We got the sound.
 
@@ -236,7 +236,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:10:44] Simone: this whole team, and I just couldn’t I I started crying a bit from laughing so hard.
 
-[00:10:49] Adam: You couldn't you couldn't speak for about two minutes.
+[00:10:49] Adam: You couldn't speak for about two minutes.
 
 [00:10:51] Simone: I don't think I've ever legitimately ripped my pants like that.
 
@@ -284,7 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:12:23] Norm: It's plumbed from two different places.
 
-[00:12:25] Adam: No, just plumbs from the from the
+[00:12:25] Adam: No, just plumbs from the
 
 [00:12:27] Unknown: [unclear: vicinity / in the vicinity / other side].
 
@@ -296,13 +296,13 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:12:33] Adam: Perfect timing.
 
-[00:12:33] Simone: But I, I was actually thinking that was one of the ideas that we have for the Swedish TV show. My co-host Nisse and I about you know like those automatic sensor water taps. You, They have like a motion or distance sensor, and you put your hands on it. They're terrible, but I would want I would want to do one that's reverse. So when you remove your hands, it starts. Yeah, it comes on, and when you put your hands in there, it comes off.
+[00:12:33] Simone: But I, I was actually thinking that was one of the ideas that we have for the Swedish TV show. My co-host Nisse and I about you know like those automatic sensor water taps. You, They have like a motion or distance sensor, and you put your hands on it. They're terrible, but I would want to do one that's reverse. So when you remove your hands, it starts. Yeah, it comes on, and when you put your hands in there, it comes off.
 
 [00:13:18] Adam: Yeah,
 
-[00:13:19] Simone: yeah, like a prank. It’s like a it’s like a petty prank.
+[00:13:19] Simone: yeah, like a prank. It’s like a petty prank.
 
-[00:13:22] Adam: What would be funny? Is if you go the the the water is one, and so is the paper towel dispenser, right? So you set up a paper towel dispenser, so it sits there, you know, inconspicuously, and then you go meow. and it starts to put out, and you tear it, and then it starts to just feed more, and you reach out, and when you put your hand under it, it stops, but when you take your hand away, it still spills paper towels out, and it means that that person probably end up staying in the bathroom. Yeah, it depends upon them. I hate all of the automatic sensor faucets because one, they don't work; two, they all require different amounts of proximity and movement; three, they make me look like I'm an idiot when I go to any sink that doesn't have them because I go and I wave my hands under the faucet and nothing happens, and I realize I've been conditioned against using faucets. This is the modern age where turning on a light bulb has been made more complicated by the Internet of Things, and so has using a faucet.
+[00:13:22] Adam: What would be funny? Is if you go the water is one, and so is the paper towel dispenser, right? So you set up a paper towel dispenser, so it sits there inconspicuously, and then you go meow. and it starts to put out, and you tear it, and then it starts to just feed more, and you reach out, and when you put your hand under it stops, but when you take your hand away, it still spills paper towels out, and it means that that person probably end up staying in the bathroom. Yeah, it depends upon them. I hate all of the automatic sensor faucets because one, they don't work; two, they all require different amounts of proximity and movement; three, they make me look like I'm an idiot when I go to any sink that doesn't have them because I go and I wave my hands under the faucet and nothing happens, and I realize I've been conditioned against using faucets. This is the modern age where turning on a light bulb has been made more complicated by the Internet of Things, and so has using a faucet.
 
 [00:14:22] Simone: Yes, so now there's an app for you to turn on the water in your faucet.
 
@@ -330,7 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:14:37] Adam: Oh, it's terrible.
 
-[00:14:37] Norm: Did you guys do anything to to detox from from your travels from from your comic cons?
+[00:14:37] Norm: Did you guys do anything to detox from your travels from your comic cons?
 
 [00:14:47] Adam: No, we jumped right into working on this project,
 
@@ -348,7 +348,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:15:21] Norm: What's wrong with Adam?
 
-[00:15:23] Adam: It was. It was my wife and I both. We we we woke up between like seven and eight and like check the internet. I think I even made some coffee and then we made had a coffee nap.
+[00:15:23] Adam: It was. It was my wife and I both. We woke up between like seven and eight and like check the internet. I think I even made some coffee and then we made had a coffee nap.
 
 [00:15:35] Norm: Yeah, those are the best. Drink coffee and then immediately go right back to sleep.
 
@@ -370,7 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:17:52] Adam: Yeah.
 
-[00:17:52] Simone: or I didn't have enough materials for for things, and it's just this really because you're like I just want it, like I just want to saw some wood, and you just don't know what you would do it for.
+[00:17:52] Simone: or I didn't have enough materials for things, and it's just this really because you're like I just want it, like I just want to saw some wood, and you just don't know what you would do it for.
 
 [00:18:14] Adam: Yeah,
 
@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:18:16] Norm: I like that you're measuring something to better know it, and also
 
-[00:18:20] Adam: Yeah, like, no, it’s how I wrap my head around it.
+[00:18:20] Adam: Yeah no, it’s how I wrap my head around it.
 
 [00:18:22] Norm: Right, right. And
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:19:16] Adam: Ooh.
 
-[00:19:16] Norm: and. Not because the movie's great, but because the design of that airplane—it's almost like the the alien character. Like it's in the film for very short period.
+[00:19:16] Norm: and. Not because the movie's great, but because the design of that airplane—it's almost like the alien character. Like it's in the film for very short period.
 
 [00:19:16] Adam: Yeah.
 
@@ -416,9 +416,9 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:19:34] Adam: Yeah.
 
-[00:19:34] Norm: Ben Affleck's bat plane—you would be hard pressed to do it. But it was obviously a a 3D model or miniature. Yeah. And so to see that geometrically from different perspectives in a physical model form—that was like that's why I got it.
+[00:19:34] Norm: Ben Affleck's bat plane—you would be hard pressed to do it. But it was obviously a 3D model or miniature. Yeah. And so to see that geometrically from different perspectives in a physical model form—that was like that's why I got it.
 
-[00:19:48] Adam: Nice. Yeah. I didn't. I I never got to walk the floor this year.
+[00:19:48] Adam: Nice. Yeah. I didn't. I never got to walk the floor this year.
 
 [00:19:51] Norm: For yourself,
 
@@ -442,11 +442,11 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:20:25] Simone: Yeah,
 
-[00:20:25] Adam: I think so. Because I've worn a cap and sort of barreled towards, you know, going to see Brandon and Stephen at the prop store booth or the Weta guys. I did get to see Richard Taylor very briefly, but only at the Blade Runner event. He wasn't at. He wasn't at the Weta booth when I stopped by there.
+[00:20:25] Adam: I think so. Because I've worn a cap and sort of barreled towards going to see Brandon and Stephen at the prop store booth or the Weta guys. I did get to see Richard Taylor very briefly, but only at the Blade Runner event. He wasn't at. He wasn't at the Weta booth when I stopped by there.
 
 [00:20:43] Norm: Yeah, no, and that's the Blade Runner event is one I didn't get to see.
 
-[00:20:47] Adam: That was that was actually really fun. So, Blade Runner 2049 had a tent set up in the Gaslamp across the street from Comic Con, and on display they set up a piece of the world of Blade Runner, which is all in this you know sort of it's post the big war and there is a lot of nuclear winter fallout. So they had ground rock salt on the floor to look like snow slush, which was really awesome. They had props and costumes on display, and by the way, Ryan Gosling's jacket
+[00:20:47] Adam: That was actually really fun. So, Blade Runner 2049 had a tent set up in the Gaslamp across the street from Comic Con, and on display they set up a piece of the world of Blade Runner, which is all in this you know sort of it's post the big war and there is a lot of nuclear winter fallout. So they had ground rock salt on the floor to look like snow slush, which was really awesome. They had props and costumes on display, and by the way, Ryan Gosling's jacket
 
 [00:21:17] Norm: from the Blade Runner,
 
@@ -462,9 +462,9 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:21:31] Norm: The costumes were right there on the.
 
-[00:21:32] Adam: The costumes were there, and some props were there. I got some photos of the props, but the the big thing that they were doing was a VR experience in Blade Runner 2049 in chairs, and the chairs were articulated and they were robotic, and it was this great solution to VR where if you're, how do you move around in a world in VR when you want to put a few hundred people a day through it? Well, you sat in these chairs, and the chairs had this way of moving you in conjunction with the VR you were watching that felt incredibly realistic. You were in a spinner moving through the city, looking out the window, and I met the guy that designed the designed the digital stuff for that, and it was really really well done.
+[00:21:32] Adam: The costumes were there, and some props were there. I got some photos of the props, but the big thing that they were doing was a VR experience in Blade Runner 2049 in chairs, and the chairs were articulated and they were robotic, and it was this great solution to VR where if you're, how do you move around in a world in VR when you want to put a few hundred people a day through it? Well, you sat in these chairs, and the chairs had this way of moving you in conjunction with the VR you were watching that felt incredibly realistic. You were in a spinner moving through the city, looking out the window, and I met the guy that designed the digital stuff for that, and it was really really well done.
 
-[00:22:15] Norm: That’s cool. I mean, it's what motion roller coasters are sometimes doing too, like not like the some of the big ones even, but even like small train like your your mom and pop.
+[00:22:15] Norm: That’s cool. I mean, it's what motion roller coasters are sometimes doing too, like not like the some of the big ones even, but even like small train like your mom and pop.
 
 [00:22:27] Adam: The chairs will move.
 
@@ -484,13 +484,13 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:22:44] Simone: Just for your house.
 
-[00:22:45] Adam: [unclear: gimbal chair / this was really]. Because it really simulated. They did a really good job. So the chair will do something like it'll move you slightly off balance, but because the video is showing you something different than you're tilting to the left, it'll feel like you're sustaining a few G's in a in a in a low grade turn.
+[00:22:45] Adam: [unclear: gimbal chair / this was really] Because it really simulated. They did a really good job. So the chair will do something like it'll move you slightly off balance, but because the video is showing you something different than you're tilting to the left, it'll feel like you're sustaining a few G's in a low grade turn.
 
 [00:23:03] Norm: Yeah, the synchronization really needs to be there,
 
-[00:23:06] Adam: and it also helped. I have we all know I have the weak weak stomach. Um, that helped me because I wasn't moving my whole upper body. I was literally just looking out the window, right, and and watching what they did. So the the Blade Runner 2049 display was great. I got hundreds of pictures of the costumes and props.
+[00:23:06] Adam: and it also helped. I have we all know I have the weak weak stomach. That helped me because I wasn't moving my whole upper body. I was literally just looking out the window, right, and watching what they did. So the Blade Runner 2049 display was great. I got hundreds of pictures of the costumes and props.
 
-[00:23:20] Norm: You know, we can also I was checking the calendar, and it is coming out this week. We can reveal that we did something. We brought back a feature for tested members, and we had Simone. You watch Alien for the first time. So this is something that
+[00:23:20] Norm: We can also I was checking the calendar, and it is coming out this week. We can reveal that we did something. We brought back a feature for tested members, and we had Simone. You watch Alien for the first time. So this is something that
 
 [00:23:36] Adam: unauthorized commentary of Alien.
 
@@ -510,7 +510,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:24:01] Simone: I were on the internet. I've seen way more disturbing things. No, it was a good movie. I was really surprised by it. Yeah, but yeah, we should definitely maybe Blade Runner.
 
-[00:24:12] Norm: Oh yeah, oh yeah, future movies. Do we definitely want to do Aliens sequel and then around the time maybe when Blade Runner 2049 comes out, we'll do Blade Runner.
+[00:24:12] Norm: Oh yeah, future movies. Do we definitely want to do Aliens sequel and then around the time maybe when Blade Runner 2049 comes out, we'll do Blade Runner.
 
 [00:24:22] Simone: So many things I need to watch.
 
@@ -524,7 +524,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:24:47] Adam: Understandable,
 
-[00:24:47] Norm: yeah, and and we'll help.
+[00:24:47] Norm: yeah, and we'll help.
 
 [00:24:47] Adam: We will help with some unauthorized commentaries.
 
@@ -532,7 +532,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:24:54] Adam: What else is I think that reasonably covers it.
 
-[00:24:57] Norm: Yeah, uh, I got some recommendations. Yeah. Um, I know we haven't done we're not doing spoiler casts of these, but Dunkirk is a movie that deserves to be watched in theaters
+[00:24:57] Norm: Yeah I got some recommendations. Yeah. I know we haven't done we're not doing spoiler casts of these, but Dunkirk is a movie that deserves to be watched in theaters
 
 [00:25:06] Adam: in 70 millimeter.
 
@@ -540,7 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:25:13] Adam: A fictionalized film about a real event in World War Two
 
-[00:25:16] Norm: the the rescuing of the British soldiers stranded on Dunkirk. Highly recommend that. The Big Sick.
+[00:25:16] Norm: the rescuing of the British soldiers stranded on Dunkirk. Highly recommend that. The Big Sick.
 
 [00:25:24] Adam: The Big Sick, yes,
 

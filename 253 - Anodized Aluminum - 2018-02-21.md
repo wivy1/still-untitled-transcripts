@@ -22,7 +22,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:00:45] Adam: I’m cold as hell. You
 
-[00:00:46] Will: guys are wearing t-shirts. You're maniacs. I have a look. I have a. I have a. I have a warm cap in my in my in my jacket pocket.
+[00:00:46] Will: guys are wearing t-shirts. You're maniacs. I have a look. I have a. I have a. I have a warm cap in my jacket pocket.
 
 [00:00:54] Norm: We can’t talk about the cold.
 
@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:02:20] Adam: Well, king of the transitions.
 
-[00:02:22] Norm: Yeah, Norman Chan. You know this is this is the reason you got to watch the video, or you are just listening to the podcast. You'll get the tested video in like a couple days, but something arrived at the cave today, and we had to shoot a video about it.
+[00:02:22] Norm: Yeah, Norman Chan. You know this is the reason you got to watch the video, or you are just listening to the podcast. You'll get the tested video in like a couple days, but something arrived at the cave today, and we had to shoot a video about it.
 
 [00:02:32] Adam: We did
 
@@ -86,7 +86,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:02:49] Will: It was like it was a 50/50 split back in the day.
 
-[00:02:52] Adam: But if you watch the podcast, you see behind me frequently, or in the thumbnail, you'll see behind us frequently a Apollo A seven L suit. Made by Ryan Nagata with some parts contributed by me, but it's Ryan's amazing, incredible, beautiful work, including couplers like this, which is cast resin, but it looks really metallic and it's got weathering in the corners, and it's it's just his work is top-notch.
+[00:02:52] Adam: But if you watch the podcast, you see behind me frequently, or in the thumbnail, you'll see behind us frequently a Apollo A seven L suit. Made by Ryan Nagata with some parts contributed by me, but it's Ryan's amazing, incredible, beautiful work, including couplers like this, which is cast resin, but it looks really metallic and it's got weathering in the corners, and it's just his work is top-notch.
 
 [00:03:15] Norm: And you talked about how he had gotten some of the effect by treating the mold before he poured his resin.
 
@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:04:22] Norm: What is that process of anodizing aluminum?
 
-[00:04:24] Will: It's like electroplating, isn't it? You put it in an acid bath with a with a.
+[00:04:24] Will: It's like electroplating, isn't it? You put it in an acid bath with a.
 
 [00:04:27] Adam: It's not a dimensional. Electroplating is a dimensional process where coating gets added. Anodizing is it doesn't add, it might add microns, but it is effectively doesn't add any dimension to the parts. It is an acid bath that opens up the outside, and then what you're carefully doing with anodizing is oxidizing the outer layer.
 
@@ -132,19 +132,19 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:05:22] Norm: It turns out you needed the red, blue, and the gold.
 
-[00:05:24] Adam: I needed the red, blue, and the gold, and so yeah, I made I made one extra of these. I actually started by making two extra couplers, messed one up in the middle, so I ended up with enough for a suit plus an extra that I could practice weathering on, and we shot a video of me opening this box for the first time.
+[00:05:24] Adam: I needed the red, blue, and the gold, and so yeah, I made one extra of these. I actually started by making two extra couplers, messed one up in the middle, so I ended up with enough for a suit plus an extra that I could practice weathering on, and we shot a video of me opening this box for the first time.
 
 [00:05:42] Norm: You can’t see it in the video right now, and you will see in the future video. But the complexity of these couplers as something to machine was something of a education for you.
 
-[00:05:51] Adam: I I have again not machined. This is the first time I've sent something out. It's also the first time I've done something that required so many operations, like. For instance, on this little part here, this is the flange. Now, this is a pretty straightforward part. It's got six holes around its perimeter. It's got a little shoulder. I had to I had to machine for the lathe a round a rounded edge lathing bit to make that radius exactly right
+[00:05:51] Adam: I have again not machined. This is the first time I've sent something out. It's also the first time I've done something that required so many operations, like. For instance, on this little part here, this is the flange. Now, this is a pretty straightforward part. It's got six holes around its perimeter. It's got a little shoulder. I had to machine for the lathe a round a rounded edge lathing bit to make that radius exactly right
 
 [00:06:18] Norm: on the inner inner
 
 [00:06:18] Norm and Adam: edge of the flange. Yeah. Yeah.
 
-[00:06:20] Adam: And then I had to countersink these holes. I also had to. This one was done in a single operation, so I was able to drill the center hole, mill it to the, lathe it to the correct depth, cut it, and then do this. And then I had to hold it in a dividing head on my mill to drill the holes in each of them. So this is a multiple step operation where I'm doing each part one step at a time. Yeah. Then these guys, these guys got turned down. Then they got chucked in, and these notches got made. Then these notches got made. Then turned on its side. Then these notches. got made, then it had to be remounted from the backside. So I had to make a tool. I had to machine a tool for holding the parts so that I could machine them.
+[00:06:20] Adam: And then I had to countersink these holes. I also had to. This one was done in a single operation, so I was able to drill the center hole, mill it to the, lathe it to the correct depth, cut it, and then do this. And then I had to hold it in a dividing head on my mill to drill the holes in each of them. So this is a multiple step operation where I'm doing each part one step at a time. Yeah. Then these guys got turned down. Then they got chucked in, and these notches got made. Then these notches got made. Then turned on its side. Then these notches. got made, then it had to be remounted from the backside. So I had to make a tool. I had to machine a tool for holding the parts so that I could machine them.
 
-[00:07:07] Norm: And every additional one requires just as much as much work.
+[00:07:07] Norm: And every additional one requires just as much work.
 
 [00:07:12] Adam: Yeah. No, it was. This was. I. I think I did seven, six of these connectors, six and a half of these connectors,
 
@@ -156,7 +156,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:07:25] Unknown speaker (Norm and Adam boundary): [Norm] Oh, no. [Adam] No, no, no.
 
-[00:07:29] Adam: just a set for just a set for me. Ryan can go to hell.
+[00:07:29] Adam: just a set for me. Ryan can go to hell.
 
 [00:07:34] Norm: So did you think about
 
@@ -168,9 +168,9 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:07:57] Norm: to make a do a run because you were figuring out the order of operations as you were going. So If you had the wrong order of operations, you were doing five at a time. That's five pieces wasted.
 
-[00:08:06] Will: And and with hand machining, it's not like making 50 of them. You not. It's not like there's efficiencies in making 50 of them versus three. Like once you once you get the process down, you'll be a little bit faster each time. But you're not going to be an order of magnitude faster each time, like you would with casting or something like that.
+[00:08:06] Will: And with hand machining, it's not like making 50 of them. You not. It's not like there's efficiencies in making 50 of them versus three. Like once you get the process down, you'll be a little bit faster each time. But you're not going to be an order of magnitude faster each time, like you would with casting or something like that.
 
-[00:08:21] Adam: You know, I lost a lot of time double and triple checking everything. Yeah. This is where just basic experience helps you run the disasters off at the pass. Where I was really nervous about running into disasters.
+[00:08:21] Adam: I lost a lot of time double and triple checking everything. Yeah. This is where just basic experience helps you run the disasters off at the pass. Where I was really nervous about running into disasters.
 
 [00:08:36] Will: So this one, this one's still not functional, right? This is just.
 
@@ -194,15 +194,15 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:09:17] Will: That's really cool, Adam.
 
-[00:09:18] Adam: So this is this is a red letter day. It's the first time I've ever had a part I machine anodized. It's very exciting.
+[00:09:18] Adam: So this is a red letter day. It's the first time I've ever had a part I machine anodized. It's very exciting.
 
 [00:09:23] Will: Very cool.
 
-[00:09:23] Norm: Is that something you plan on doing in the future, just for the hell of it, get a finish and weather it? Because it's it's a really cool look.
+[00:09:23] Norm: Is that something you plan on doing in the future, just for the hell of it, get a finish and weather it? Because it's a really cool look.
 
 [00:09:23] Adam: It is.
 
-[00:09:23] Norm: If you're machining, like you know, replica gun parts or
+[00:09:23] Norm: If you're machining, like replica gun parts or
 
 [00:09:33] Adam: or or I could even take it's it's less expensive than I thought it was. It's not cheap, but it's less expensive than I thought it was. And it occurred to me to take some of the things I've machined to be custom pieces for machines I have to take those parts out and send them out and have them anodized, and then they're much more durable.
 
@@ -210,9 +210,9 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:09:55] Adam: Yes, this is true.
 
-[00:09:57] Will: That you blued with with bluing,
+[00:09:57] Will: That you blued with bluing,
 
-[00:09:59] Adam: except no, I blued it with with Dykem marking fluid for machinists. But that's how the real one's done.
+[00:09:59] Adam: except no, I blued it with Dykem marking fluid for machinists. But that's how the real one's done.
 
 [00:09:59] Will: Oh, okay.
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:11:00] Norm: like a new cassette tape player that's going to you know bring back analog or something. Like the things that people typically share are sometimes too. Too good to be true. Many, many times
 
-[00:11:10] Will: it turns out in this country we might have a problem with people and their understanding of media and their their critical analysis of media. Who knew?
+[00:11:10] Will: it turns out in this country we might have a problem with people and their understanding of media and their critical analysis of media. Who knew?
 
 [00:11:17] Norm: Who knew? I was my immediate reaction was to be a little dismissive, but we looked it up and it turns out this guy Josh, he's local, which and then piqued our interest again in Emeryville. He is a product designer, industrial designer, and designed his own single person boat, a motorized boat,
 
@@ -260,17 +260,17 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:12:18] Will: That sounds great.
 
-[00:12:18] Norm: And the handling with a motor, unbelievable. A motor, like a like a four horsepower motor, something two horsepower
+[00:12:18] Norm: And the handling with a motor, unbelievable. A motor, like a four horsepower motor, something two horsepower
 
-[00:12:24] Will and Norm: [Will] But it’s a, but it’s a. [Norm] Two horsepower motor. Yeah. Four miles per hour.
+[00:12:24] Will and Norm: [Will] But it’s a. [Norm] Two horsepower motor. Yeah. Four miles per hour.
 
 [00:12:27] Will and Norm: [Will] Electric. [Norm] Electric.
 
-[00:12:29] Norm: literally, they they put a 12 volt car battery.
+[00:12:29] Norm: literally, they put a 12 volt car battery.
 
 [00:12:29] Will: Yep.
 
-[00:12:29] Norm: As as as also as balance
+[00:12:29] Norm: As also as balance
 
 [00:12:35] Unknown speaker (Will or Adam): as balance
 
@@ -282,13 +282,13 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:13:06] Will: we're gonna move on and do something else now.
 
-[00:13:11] Norm: We do not have necessarily the expertise. And how would you do that for a big boat? His is all done with a method called stitch and glue, zip tied pieces together, and then epoxy the the hinges. And it formed. There's no jig. It's the the shell, the boat, the um, the the
+[00:13:11] Norm: We do not have necessarily the expertise. And how would you do that for a big boat? His is all done with a method called stitch and glue, zip tied pieces together, and then epoxy the hinges. And it formed. There's no jig. It's the shell, the boat, the
 
 [00:13:27] Will: holes. So there's holes. So there's ribs.
 
 [00:13:27] Norm: Yep.
 
-[00:13:27] Will: And there's holes that line up with the ribs and the and the outer pieces.
+[00:13:27] Will: And there's holes that line up with the ribs and the outer pieces.
 
 [00:13:33] Norm: And they all just zip tied, and that perfectly bends the boat, the wood, the plywood.
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:14:01] Will: Okay.
 
-[00:14:02] Adam: So when you when you laser cut plywood. Cheap plywood will have voids sometimes between, and those can help; those can assist your laser cutter in burning your house down, because you can get hot gases in there, and then a little fire will shoot out. That's why at industrial light and magic, it was required that you only use marine grade plywood for plywood cutting.
+[00:14:02] Adam: So when you laser cut plywood. Cheap plywood will have voids sometimes between, and those can help; those can assist your laser cutter in burning your house down, because you can get hot gases in there, and then a little fire will shoot out. That's why at industrial light and magic, it was required that you only use marine grade plywood for plywood cutting.
 
 [00:14:02] Will: Well, that’s interesting.
 
@@ -326,7 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:14:22] Adam: Yeah.
 
-[00:14:22] Norm: At most, you know, no machining, right? No metal parts.
+[00:14:22] Norm: At most no machining, right? No metal parts.
 
 [00:14:38] Unknown speaker (Will or Adam): Yeah,
 
@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:15:41] Adam: so I shall.
 
-[00:15:42] Will: You know, I'm going to tell you, spoilers aren't going to detract from your enjoyment of that film. So, you know, if you want, we can just drop everything right now.
+[00:15:42] Will: I'm going to tell you, spoilers aren't going to detract from your enjoyment of that film. So, you know, if you want, we can just drop everything right now.
 
 [00:15:48] Adam: Nope don't want to hear any. I haven't even seen a trailer for it. Wow, I’ve been, this is one of the first times I've been that good.
 
@@ -398,7 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:16:13] Adam: Underoos, yeah, terrific. It's great. I mean,
 
-[00:16:16] Norm: you know, there's a scene in Civil War where T'Challa, the Black Panther, you know, he's the the Prince of Wakanda. He's walking to his car with his entourage of his bodyguards. These women with shaved heads. And
+[00:16:16] Norm: There's a scene in Civil War where T'Challa, the Black Panther he's the Prince of Wakanda. He's walking to his car with his entourage of his bodyguards. These women with shaved heads. And
 
 [00:16:31] Will: Scarlett Johansson, Black Widow.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:16:45] Norm: It delivers the promise of that scene.
 
-[00:16:47] Adam: yeah, but what I What I wanted to point out was that I found a there was a story that that was making the rounds yesterday of Michael B. Jordan going to a sneaker shop in L. A. And going sneaker shopping as
+[00:16:47] Adam: yeah, but what I wanted to point out was that I found a there was a story that that was making the rounds yesterday of Michael B. Jordan going to a sneaker shop in L. A. And going sneaker shopping as
 
 [00:16:49] Norm: New York.
 
@@ -426,7 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:17:00] Norm: Yeah, Complex.
 
-[00:17:01] Adam: Right, he goes to complex in New York, and he goes sneaker shopping, and I saw out of the corner of my eye in the thumbnail something that looked familiar, and sure enough, I was right. He he buys a pair of Tom Sachs Mars Yard shoes. Cut to him wearing them on the red carpet.
+[00:17:01] Adam: Right, he goes to complex in New York, and he goes sneaker shopping, and I saw out of the corner of my eye in the thumbnail something that looked familiar, and sure enough, I was right. He buys a pair of Tom Sachs Mars Yard shoes. Cut to him wearing them on the red carpet.
 
 [00:17:18] Will: Oh my God, that's one less pair of those in the world.
 
@@ -460,7 +460,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:17:57] Will: Oh. is it still the same premise though? Like like people with good taste come in and and fashion you up.
 
-[00:18:02] Adam: It is yes, it is that and the Fab Five, as they call themselves, are an excellent new mix of a large swath of of diverse talents and specialties and personalities, and they're great. I've watched episodes one, two, and three. Episode three involves a Trump voting cop.
+[00:18:02] Adam: It is yes, it is that and the Fab Five, as they call themselves, are an excellent new mix of a large swath of diverse talents and specialties and personalities, and they're great. I've watched episodes one, two, and three. Episode three involves a Trump voting cop.
 
 [00:18:02] Unknown speaker (Will or Adam): Great,
 
@@ -474,37 +474,37 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:18:39] Norm: unless you're on Amazon because they do a whole pilot.
 
-[00:18:41] Adam: This is Netflix. Yeah. So episode one is with this old Kentucky guy named Tom, big beard, rosacea, you know, trying to trying to get himself out of a rut. This seems to be the theme, and Tom is so open. To everything, that it is very moving to watch the episode.
+[00:18:41] Adam: This is Netflix. Yeah. So episode one is with this old Kentucky guy named Tom, big beard, rosacea trying to get himself out of a rut. This seems to be the theme, and Tom is so open. To everything, that it is very moving to watch the episode.
 
-[00:19:04] Will: It's funny hearing that because, like, the first time they did this, which was what probably 15 years ago now, 10, 15 years ago, it was very much a like here's coastal people and then here's rubes in the middle of the country, and it wasn't like it wasn't poking fun, but it could have it could have been very easily.
+[00:19:04] Will: It's funny hearing that because the first time they did this, which was what probably 15 years ago now, 10, 15 years ago, it was very much a like here's coastal people and then here's rubes in the middle of the country, and it wasn't like it wasn't poking fun, but it could have been very easily.
 
 [00:19:22] Norm: Well, just the premise, right? Yeah, the name Queer Eye for the Straight Guy
 
 [00:19:26] Will: was controversial.
 
-[00:19:27] Norm: The the premise takes advantage of preconceptions you have,
+[00:19:27] Norm: The premise takes advantage of preconceptions you have,
 
 [00:19:27] Unknown speaker (Adam or Norm): right? Yeah,
 
 [00:19:27] Norm: that. But the whole the show isn't leaning into those.
 
-[00:19:35] Adam: Well, but the original one did. I mean, Carson Carson leaned way into all the stereotypes that any Midwestern rube might have about gay people, yeah, and played them way up. And not to say that this this show seems like I was thinking, telling my wife, I was like, wow, I bet the producer has a checklist of like every transition needs someone going. Here we go! You know, some crazy, fay specific. Yeah. Forgive me for that. I made that impression
+[00:19:35] Adam: Well, but the original one did. I mean, Carson Carson leaned way into all the stereotypes that any Midwestern rube might have about gay people, yeah, and played them way up. And not to say that this show seems like I was thinking, telling my wife, I was like, wow, I bet the producer has a checklist of like every transition needs someone going. Here we go! Some crazy, fay specific. Yeah. Forgive me for that. I made that impression
 
 [00:20:05] Will: to illustrate the point.
 
 [00:20:05] Adam: To illustrate a point, but they are not just talking about the look; they're talking about the life, they're talking about the health, they're talking about the food, and they're talking about the rut, and they get into some really genuinely sophisticated psychological stuff. And the stuff they get to with each of these people is really impressive.
 
-[00:20:26] Will: Do they actually have a psychologist or or psychiatrist this go round? They don't. Like that was the thing I watched very much of the first the first pass. But my my feeling on a lot of those shows where they get where they're breaking people down and then building them back up again because that's essentially what this what the first one was at least.
+[00:20:26] Will: Do they actually have a psychologist or psychiatrist this go round? They don't. Like that was the thing I watched very much of the first pass. But my feeling on a lot of those shows where they get where they're breaking people down and then building them back up again because that's essentially what this what the first one was at least.
 
-[00:20:41] Adam: This is a little less breaking. Well, they also begin the very first episode saying, " Last time it was about tolerance. This time it's about acceptance." And that is actually a really lovely, like, flag in the ground of clearly what was their producing rubric, yeah, and about where it really goes. And it's when we. When they say acceptance, what they really mean is self acceptance. Of course, what these people are looking for is a way to kind of get out of a rut that has shielded them from the world or pushed away part of the world that they would like to bring to them. But really, that's what most of the discussions are about: about self acceptance and realizing. And
+[00:20:41] Adam: This is a little less breaking. Well, they also begin the very first episode saying, " Last time it was about tolerance. This time it's about acceptance." And that is actually a really lovely flag in the ground of clearly what was their producing rubric, yeah, and about where it really goes. And it's when we. When they say acceptance, what they really mean is self acceptance. Of course, what these people are looking for is a way to kind of get out of a rut that has shielded them from the world or pushed away part of the world that they would like to bring to them. But really, that's what most of the discussions are about: about self acceptance and realizing. And
 
 [00:21:19] Norm: you're talking about the subject that they,
 
 [00:21:21] Adam: yeah,
 
-[00:21:21] Norm: that they're they're working on
+[00:21:21] Norm: that they're working on
 
-[00:21:22] Adam: the person they're working on, and and and they get into the real weeds with it. So anyway, I'm just I can't like I really enjoyed this bit out of this reboot, and I didn't think I would.
+[00:21:22] Adam: the person they're working on, and they get into the real weeds with it. So anyway, I'm just I can't like I really enjoyed this bit out of this reboot, and I didn't think I would.
 
 [00:21:32] Will: So I've watched most of the first season of The Good Place now.
 
@@ -514,7 +514,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:21:41] Adam: they're little nuggets. Yeah, they are 20, like
 
-[00:21:44] Will: 23 minutes. Yeah, that knowing the big spoiler, we're not going to spoil it again. But if you didn't listen to the back half of last week because you didn't want to spoil the show, you're probably okay. Like I can I can safely say, I think that I'm I'm really enjoying watching this show, knowing what's coming.
+[00:21:44] Will: 23 minutes. Yeah, that knowing the big spoiler, we're not going to spoil it again. But if you didn't listen to the back half of last week because you didn't want to spoil the show, you're probably okay. Like I can safely say, I think that I'm I'm really enjoying watching this show, knowing what's coming.
 
 [00:21:44] Adam and Will: [Adam] It’s a spoiler. [Will] Because they did a. [Adam] Spoiler proof.
 
@@ -562,7 +562,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:23:27] Will: Yeah,
 
-[00:23:27] Norm: you know, completely unrelated, but spoiler related. We do talk about spoilers a lot in the show, and something we've started doing on our other podcasts is put LED lights in the back that we can change the colors.
+[00:23:27] Norm: Completely unrelated, but spoiler related. We do talk about spoilers a lot in the show, and something we've started doing on our other podcasts is put LED lights in the back that we can change the colors.
 
 [00:23:37] Adam: Oh, so you can
 
@@ -598,7 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:24:34] Adam: Yeah,
 
-[00:24:34] Norm: even though they inhabit the same New York world, production design beautiful, beautiful. The costumes are beautiful. The apartments they live in are amazing, and the lead actress Rachel Brosnahan, who is in House of Cards as as as I guess also Rachel, is it? I think she is. She's wonderful.
+[00:24:34] Norm: even though they inhabit the same New York world, production design beautiful, beautiful. The costumes are beautiful. The apartments they live in are amazing, and the lead actress Rachel Brosnahan, who is in House of Cards as I guess also Rachel, is it? I think she is. She's wonderful.
 
 [00:25:00] Adam: I have also been listening to a lot of podcasts. I've mentioned Pod Save America, haven't I? I've listened to a whole bunch of that. I'm pretty religiously listening to Lovett or Leave It.
 
@@ -612,11 +612,11 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:25:18] Will: Daily Pod? It's like a news wrap up. That's what I wanted for a long time.
 
-[00:25:22] Adam: Every morning, and it's really wonderful. And the the guy the the guy who hosts it, whose name right now escapes me, I didn't do my research before the podcast. I'm sorry. He's terrific.
+[00:25:22] Adam: Every morning, and it's really wonderful. And the guy who hosts it, whose name right now escapes me, I didn't do my research before the podcast. I'm sorry. He's terrific.
 
 [00:25:30] Will: How long is it?
 
-[00:25:31] Adam: Um, it's like 20 to 40 minutes.
+[00:25:31] Adam: It's like 20 to 40 minutes.
 
 [00:25:33] Will: As long as it needs to be.
 
@@ -636,7 +636,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:26:05] Will: Yeah.
 
-[00:26:06] Adam: [unclear speaker: Adam or Will carry] Nina Totenberg, Nina Totenberg, because she's always talking about the Supreme Court. So I've got this huge, like, I've got this huge, like, legal crush on Nina Totenberg. In fact, that was actually that was my that was that was a mission that I concocted when I went to the White House Press Correspondents Dinner in 2012. I think is that yeah, is that I tried to find Nina Totenberg, but I couldn't.
+[00:26:06] Adam: [unclear speaker: Adam or Will carry] Nina Totenberg, because she's always talking about the Supreme Court. So I've got this huge I've got this huge legal crush on Nina Totenberg. In fact, that was actually that was my that was a mission that I concocted when I went to the White House Press Correspondents Dinner in 2012. I think is that yeah, is that I tried to find Nina Totenberg, but I couldn't.
 
 [00:26:29] Norm: Those are my favorite voices on NPR.
 
@@ -648,7 +648,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:26:44] Adam: Did you make her listen to S-Town?
 
-[00:26:46] Will: Yeah, we yeah we went we went straight to S-Town, and then
+[00:26:46] Will: Yeah, we went straight to S-Town, and then
 
 [00:26:49] Adam: I got a real little dick, so I just slid it over the sink.
 
@@ -656,9 +656,9 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:26:55] Norm: Spoiler alert!
 
-[00:26:56] Adam: That's that's that's not a spoiler. I was and that's I'm quoting a line from S-Town.
+[00:26:56] Adam: That's not a spoiler. I was and that's I'm quoting a line from S-Town.
 
-[00:27:02] Will: Oh my god. Um, yeah. So after S Town, Science Friday does a kids show that's really good. I don't remember the name of it. Um, but the thing that she really hooked onto is like a episodic, serialized show that's done by WHYY, which is where where Fresh Air, Terry Gross, and like that
+[00:27:02] Will: Oh my god. Um, yeah. So after S Town, Science Friday does a kids show that's really good. I don't remember the name of it. But the thing that she really hooked onto is like a episodic, serialized show that's done by WHYY, which is where Fresh Air, Terry Gross, and like that
 
 [00:27:19] Norm: From WHYY in Philadelphia.
 
@@ -666,7 +666,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:27:20] Norm: Yeah.
 
-[00:27:20] Will: Um, they do a show called Eleanor Amplified. That’s like a serialized radio drama about a NPR reporter named Eleanor Amplified who has a bunch of adventures, and it is it is eminently tolerable for adults when you’re in the car.
+[00:27:20] Will: They do a show called Eleanor Amplified. That’s like a serialized radio drama about a NPR reporter named Eleanor Amplified who has a bunch of adventures, and it is eminently tolerable for adults when you’re in the car.
 
 [00:27:36] Norm: That’s really good to know.
 
@@ -678,9 +678,9 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:27:36] Norm: Yeah,
 
-[00:27:36] Will: and they do like full foley work and everything. So it's and fully fully voice acted. So it's it's bonkers. It's really really funny.
+[00:27:36] Will: and they do like full foley work and everything. So it's and fully fully voice acted. So it's bonkers. It's really really funny.
 
-[00:27:52] Adam: Um. Wait, there was something else I was going to mention.
+[00:27:52] Adam: Wait, there was something else I was going to mention.
 
 [00:27:55] Will: Podcast wise,
 
@@ -692,7 +692,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:27:58] Adam: I don't know.
 
-[00:27:59] Will: I started reading * Neuromancer*. It is it's astounding. Like the the do you want me to spoil the one thing that William Gibson completely missed?
+[00:27:59] Will: I started reading * Neuromancer*. It is it's astounding. Like the do you want me to spoil the one thing that William Gibson completely missed?
 
 [00:27:59] Adam: Yeah,
 
@@ -708,7 +708,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:28:20] Adam: Amazing, yeah. I can't wait to jump in. I am still reading the Silk Roads, a new book about the history of the world through the Silk Roads, which is a completely riveting. I just finished Mary Beard's SPQR, kind of an overall history of Rome from about 600 BC to 200 AD.
 
-[00:28:20] Will: Okay, so so like the time when the Roman Empire was the was the prime force in the world,
+[00:28:20] Will: Okay, so so like the time when the Roman Empire was the prime force in the world,
 
 [00:28:38] Adam: right?
 
@@ -718,9 +718,9 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:28:44] Will: Yeah.
 
-[00:28:44] Adam: And at that point, Western trade just disappears. Like there are no more vessels full of amphora of olive oil from Spain. There are no more. You know, it just stops, and so that was still happening. Though it just was no longer happening in Europe and on the northeastern side of the Mediterranean. It was all happening on the southern and western side, eastern side of the Mediterranean, in the Fertile Crescent and Persia, and all of that. Like tremendous advances in like complex financial instruments being developed, and huge family networks developing these trade routes, thousands of miles long, bringing silks and I mean coins deep into India and China, and all the way as far as Spain. And it's really incredible to read what we consider the What we, what what what Western white people consider the Dark Ages was only dark for, for Western Europe.
+[00:28:44] Adam: And at that point, Western trade just disappears. Like there are no more vessels full of amphora of olive oil from Spain. There are no more. You know, it just stops, and so that was still happening. Though it just was no longer happening in Europe and on the northeastern side of the Mediterranean. It was all happening on the southern and western side, eastern side of the Mediterranean, in the Fertile Crescent and Persia, and all of that. Like tremendous advances in like complex financial instruments being developed, and huge family networks developing these trade routes, thousands of miles long, bringing silks and I mean coins deep into India and China, and all the way as far as Spain. And it's really incredible to read what we consider the What we, what Western white people consider the Dark Ages was only dark for Western Europe.
 
-[00:29:54] Will: Yeah, England to to Italy, basically. Yeah.
+[00:29:54] Will: Yeah, England to Italy, basically. Yeah.
 
 [00:29:58] Adam: Yeah, it's fascinating. So it's a riveting, riveting look at what was going on in the world.
 
@@ -728,7 +728,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:30:04] Adam: Well, no, that was SPQR. That was the history of Rome. This one's called Silk Road.
 
-[00:30:08] Will: Okay. Um. Very cool.
+[00:30:08] Will: Okay. Very cool.
 
 [00:30:11] Adam: Yeah. Really, really. And recommendable.
 
@@ -768,13 +768,13 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:30:48] Adam: I remember thinking this will be tolerable and being and finishing it, going that was excellent.
 
-[00:30:52] Will: Yeah, I I would watch I would watch, mean yeah I'll watch his movies anytime.
+[00:30:52] Will: Yeah, I I would watch, mean yeah I'll watch his movies anytime.
 
 [00:30:56] Adam: Banks,
 
 [00:30:57] Norm: no
 
-[00:30:57] Will: no it's uh
+[00:30:57] Will: no it's
 
 [00:30:59] Norm: [unclear speaker: Norm or Will carry] It’s Michelle Michelle Monaghan
 
@@ -810,9 +810,9 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:31:41] Will: wow, really?
 
-[00:31:42] Norm: Yes, and you can see if you freeze frame it, it looks painful.
+[00:31:42] Norm: Yes, and you can see if you freeze frame it looks painful.
 
-[00:31:45] Will: Is it the the thing where he's dangling?
+[00:31:45] Will: Is it the thing where he's dangling?
 
 [00:31:47] Norm: No, it's a jumping scene, and he hits the wall with his foot. Wow. From one building to another.
 
@@ -822,17 +822,17 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:31:54] Unknown speaker (Norm or Will): Yeah,
 
-[00:31:54] Will: I, I like. How many times can the government of the United States of America screw over Tom Cruise? That's really the question we should be asking ourselves.
+[00:31:54] Will: I like. How many times can the government of the United States of America screw over Tom Cruise? That's really the question we should be asking ourselves.
 
 [00:32:03] Norm: You guys got real deep.
 
-[00:32:04] Adam: I've also been doing a lot of work this week on Savage merchandising the EDC bag and future products, and so I just watch this space because we're going to be announcing some new stuff in the next couple, in the next, in the next few weeks.
+[00:32:04] Adam: I've also been doing a lot of work this week on Savage merchandising the EDC bag and future products, and so I just watch this space because we're going to be announcing some new stuff in the next couple, in the next few weeks.
 
 [00:32:17] Norm: Cool.
 
 [00:32:17] Adam: Yeah.
 
-[00:32:17] Norm: Awesome. Great stuff. You as usual on the site. The the boat video, mini boat video.
+[00:32:17] Norm: Awesome. Great stuff. You as usual on the site. The boat video, mini boat video.
 
 [00:32:17] Adam and Will: [Adam] I can’t wait. [Will] This week.
 
@@ -848,13 +848,13 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:32:47] Will: I, I. I just can't imagine working on anything over that kind of a timeline, like like spending three years. I mean, it's the same thing at all the stop motion houses. Like,
 
-[00:32:57] Adam: I was asking Lee Unkrich after Coco, like, what are you going to do next? And he's like, I have no idea.
+[00:32:57] Adam: I was asking Lee Unkrich after Coco what are you going to do next? And he's like, I have no idea.
 
-[00:33:03] Will: He's going to Disneyland, Adam. That's what that's what he does after. Yeah, I mean, what what what do you do after you worked on something for three or four years?
+[00:33:03] Will: He's going to Disneyland, Adam. That's what he does after. Yeah, I mean, what do you do after you worked on something for three or four years?
 
-[00:33:11] Adam: I think you freak out a little bit. You know, your life is radically changed because you eat, sleep, slept and breathe this thing for so long. Then it goes out into the world, and hopefully, you enjoy some success from that. But yeah, I think you know, I think it's a modified version of what it goes through, what you go through with any like big life change, except as an animation director like that, you go through that with every movie.
+[00:33:11] Adam: I think you freak out a little bit. You know, your life is radically changed because you eat, sleep, slept and breathe this thing for so long. Then it goes out into the world, and hopefully, you enjoy some success from that. But yeah, I think I think it's a modified version of what it goes through, what you go through with any like big life change, except as an animation director like that, you go through that with every movie.
 
-[00:33:32] Will: I mean one of one of the things game developers are kind of on the same time frame a lot of times because they're anywhere from like 18 months to four or five years sometimes. And and usually when you ask them what what they want to get out of the thing that they're making right then, they they tell you they say, look, we just want to sell enough of these that we get to do this again,
+[00:33:32] Will: I mean one of the things game developers are kind of on the same time frame a lot of times because they're anywhere from like 18 months to four or five years sometimes. And usually when you ask them what they want to get out of the thing that they're making right then, they tell you they say, look, we just want to sell enough of these that we get to do this again,
 
 [00:33:32] Adam: right?
 
@@ -882,9 +882,9 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:34:35] Will: It's like Lacroix.
 
-[00:34:36] Adam: They have, they have like, they have like lemon lime with bitters, Bundaberg ginger beer.
+[00:34:36] Adam: They have like lemon lime with bitters, Bundaberg ginger beer.
 
-[00:34:45] Norm: You even talked about the thing that changed your life—the the zero
+[00:34:45] Norm: You even talked about the thing that changed your life—the zero
 
 [00:34:48] Adam: Asahi Zero. Okay, Asahi. Apparently, it's the number one. N a beer in Japan, Asahi, makers of one of my favorite beers back when I was a person who drank, makes a zero alcohol, zero calorie beer called Asahi Zero.
 
@@ -900,7 +900,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:35:22] Adam: I know you should put that at the tail of the podcast. And Asahi Zero, man, if you know where I can get it in San Francisco, please let me know because I I have one of my people looking for it and we're not having any luck.
 
-[00:35:34] Will: You know, one of the things I realized is that you people don't sell birch beer on the West Coast.
+[00:35:34] Will: One of the things I realized is that you people don't sell birch beer on the West Coast.
 
 [00:35:34] Adam: Oh,
 

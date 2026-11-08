@@ -34,17 +34,17 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:00:21] Adam: spent the last couple of days in pre-production on the next show I'm working on for Science Channel. The production team is amazing. I love the people that I'm working with. We've just been we've just spent like seven and a half solid hours bandying back and forth a bunch of episodic plans and stuff, and it's really exciting. This is just a tease because I I can't give out much information at this point, but we're going to have a really really fun shoot.
 
-[00:00:50] Norm: But this gives you the sense of that mental state you're in that people never get to see. They think that making a TV show is all fun and games, showing up and you know blowing things up, but it's it's a lot of if it just lives in your head.
+[00:00:50] Norm: But this gives you the sense of that mental state you're in that people never get to see. They think that making a TV show is all fun and games, showing up and you know blowing things up, but it's a lot of if it just lives in your head.
 
-[00:01:03] Adam: Well, and And there's a respect for what it's there's trying to be respectful of what it wants to be. We deal with this on Tested all the time, right? Gunther and Joey are always cutting stuff, and there's no formula for cutting a Tested video. Each video kind of lives on its own, and you kind of have to figure out how it wants to be cut, right? You take all this material, and a TV show is no like this is no different. You know, we have ideas for things I'd like to do, thing people I want to play with, and parameters under which we can want to make that narratively interesting. And then the real trick is, okay, so those are rough frameworks. Let's take some solid ideas and start gaming them out into how they would beat out as to a six act normal television structure. And even then, you know, you'll shoot everything, but you're not sure how it's going to feel until you're in the cutting room. So it's always about like trying to trying to be awake to what the project itself wants.
+[00:01:03] Adam: Well, and there's a respect for what it's there's trying to be respectful of what it wants to be. We deal with this on Tested all the time, right? Gunther and Joey are always cutting stuff, and there's no formula for cutting a Tested video. Each video kind of lives on its own, and you kind of have to figure out how it wants to be cut, right? You take all this material, and a TV show is no like this is no different. We have ideas for things I'd like to do, thing people I want to play with, and parameters under which we can want to make that narratively interesting. And then the real trick is, okay, so those are rough frameworks. Let's take some solid ideas and start gaming them out into how they would beat out as to a six act normal television structure. And even then you'll shoot everything, but you're not sure how it's going to feel until you're in the cutting room. So it's always about like trying to be awake to what the project itself wants.
 
 [00:02:01] Will: I mean, but it always starts in the room with a few people sitting around talking about what the idea is for
 
 [00:02:06] Adam: several weeks, usually.
 
-[00:02:07] Will: Yeah, and and then and then I don't. I assume you on real television you don't do this, but one of the things that always blew me away about the way Joey works is that when he's shooting, he's cutting he's cutting that video in his head as he's shooting.
+[00:02:07] Will: Yeah, and then I don't. I assume you on real television you don't do this, but one of the things that always blew me away about the way Joey works is that when he's shooting, he's cutting that video in his head as he's shooting.
 
-[00:02:18] Adam: Well, Joey, so Joey, like, just like the lead MythBusters cameraman Scott Sorensen, who's a friend of ours and has worked with us on several things,
+[00:02:18] Adam: Well, Joey, so Joey just like the lead MythBusters cameraman Scott Sorensen, who's a friend of ours and has worked with us on several things,
 
 [00:02:27] Will: love Scott.
 
@@ -68,7 +68,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:04:05] Norm: And that's exactly it.
 
-[00:04:06] Adam: And and there are multiple. There's no right way, right? Like so. After you and Joey went to the Arctic Circle and we featured all those wonderful videos, both you and Joey dove into telling a personal story about the trip. Two separate personal stories. You did yours on stage at Tested Live, which is one of my favorite things I've ever seen you do. I just I really love that telling of the story.
+[00:04:06] Adam: And there are multiple. There's no right way, right? Like so. After you and Joey went to the Arctic Circle and we featured all those wonderful videos, both you and Joey dove into telling a personal story about the trip. Two separate personal stories. You did yours on stage at Tested Live, which is one of my favorite things I've ever seen you do. I just I really love that telling of the story.
 
 [00:04:30] Will: The video is on the site. You should go check it.
 
@@ -108,39 +108,39 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:06:58] Norm: And this is a realization that you came to. Not in the day, and you actually—I think—you answered a question about this at New York Comic Con in the Q and A. It was an aha moment you had, like middle of the night, very similar to when you did the Exploratorium project for your Strandbeest.
 
-[00:07:12] Adam: Yeah, and and frankly, I was pissed. I thought I I did I did some pre work on this one day build so that we could get it done in a day because I really wanted to.
+[00:07:12] Adam: Yeah, and frankly, I was pissed. I thought I I did some pre work on this one day build so that we could get it done in a day because I really wanted to.
 
 [00:07:22] Will: Every once in a while, they happen in one day. Every once in a while.
 
 [00:07:25] Adam: Do you know any only ones that happened in a single day? Is that Totoro, that giant Totoro?
 
-[00:07:30] Will: Uh, you did one of the Beaver Boxes. I think you did the we did the Beaver Box in one day.
+[00:07:30] Will: You did one of the Beaver Boxes. I think you did the we did the Beaver Box in one day.
 
 [00:07:33] Adam: Yeah, yeah, yeah.
 
 [00:07:34] Norm: Very long day.
 
-[00:07:34] Adam: Um, but but yeah, you know, I was pissed at the end of that day, and I was like, uh, it's I was just mad at myself. I wasn't shitty with anybody else. I mean, it's
+[00:07:34] Adam: But yeah I was pissed at the end of that day, and I was like it's I was just mad at myself. I wasn't shitty with anybody else. I mean, it's
 
 [00:07:45] Will: frustrating.
 
-[00:07:45] Adam: Yeah, it was frustrating. I I didn't want this not to work. but
+[00:07:45] Adam: Yeah, it was frustrating. I didn't want this not to work. but
 
 [00:07:48] Norm: Guess what, Adam? That makes good video. It's all right because it's gonna you saw we can talk about it now because you came to the realization. Yeah. And even though cross our fingers, we haven't you know it'll it'll actually finish when we shoot it a couple days from now and wrap it up. You've already come on over the hump.
 
-[00:08:05] Will: I mean, the thing is, like, I think Norm and I at this point have both seen you pretty frustrated in the shop over different things, and it's never, it's never like a, it's never like a grabbing the rubber mallet and smashing stuff in the shop. I mean, we've never seen that. I don't think. I haven't. Norm may have.
+[00:08:05] Will: I mean, the thing is, like, I think Norm and I at this point have both seen you pretty frustrated in the shop over different things, and it's never like a grabbing the rubber mallet and smashing stuff in the shop. I mean, we've never seen that. I don't think. I haven't. Norm may have.
 
 [00:08:05] Norm: No.
 
-[00:08:05] Will: But like, how do you, how do you turn that around and make it constructive? Can't do you or can you?
+[00:08:05] Will: But like, how do you turn that around and make it constructive? Can't do you or can you?
 
 [00:08:31] Adam: It's there's no thing that you can do with it. It just is.
 
 [00:08:31] Will: Yeah.
 
-[00:08:31] Adam: Right. So, and just in the same way, it was a revelation when someone explained to me. I was having a fight with my then girlfriend. This is 30 years ago. I was having a fight with his girlfriend, and a friend said, " Well, that's what it is when you share a life with someone. You share all the good stuff and all the bad stuff. So you you get dark and crappy and feel awful sometimes, and that's part of the life you're sharing with someone." And I was like, " Oh yeah, so it is. So there's no way to turn it around." I left here. I dutifully cleaned the shop. That felt like I was achieving something, and then I went home and I I went upstairs onto the deck of the back of our house. My wife was out there, and she took one look at my face and she went hard day. She could totally see it, and I was like, oh yeah, man, I just totally screwed something up. Ah, it was so awful, just spinning my wheels. Thought I'd get a lot more done, didn't get it done, and you know, then we figured out what we were gonna have for dinner. And within a couple of hours, I felt pretty fine. And then, literally at like one o'clock that morning, I was like, oh, two different types of aluminum, you dummy.
+[00:08:31] Adam: Right. So, and just in the same way, it was a revelation when someone explained to me. I was having a fight with my then girlfriend. This is 30 years ago. I was having a fight with his girlfriend, and a friend said, " Well, that's what it is when you share a life with someone. You share all the good stuff and all the bad stuff. So you you get dark and crappy and feel awful sometimes, and that's part of the life you're sharing with someone." And I was like, " Oh yeah, so it is. So there's no way to turn it around." I left here. I dutifully cleaned the shop. That felt like I was achieving something, and then I went home and I I went upstairs onto the deck of the back of our house. My wife was out there, and she took one look at my face and she went hard day. She could totally see it, and I was like, oh yeah, man, I just totally screwed something up. Ah, it was so awful, just spinning my wheels. Thought I'd get a lot more done, didn't get it done, and then we figured out what we were gonna have for dinner. And within a couple of hours, I felt pretty fine. And then, literally at like one o'clock that morning, I was like, oh, two different types of aluminum, you dummy.
 
-[00:09:41] Will: Well, I mean, but but but like that cleaning the shop is is a key thing there, right? Like when I have a day that I spend all day doing something, and then I get to the end and it doesn't work out, and I feel like I wasted an entire day, which is like on my scale of worst feelings, it's like something bad happens to my kid, and then that one, right?
+[00:09:41] Will: Well, I mean, but like that cleaning the shop is is a key thing there, right? Like when I have a day that I spend all day doing something, and then I get to the end and it doesn't work out, and I feel like I wasted an entire day, which is like on my scale of worst feelings, it's like something bad happens to my kid, and then that one, right?
 
 [00:09:58] Adam: When you have get it done itis,
 
@@ -148,7 +148,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:09:58] Adam: and you want to achieve a thing by by a time, yeah, that sucks.
 
-[00:10:05] Will: And and like when I come home, I mean when I say I say come home, I mean walk across the hall from my office to the kitchen to see Gina. She will look at me and be like, " Look, you need to go out and mow the lawn or something." And and it's just that act of doing something like so that I feel like I did something productive that day.
+[00:10:05] Will: And like when I come home, I mean when I say come home, I mean walk across the hall from my office to the kitchen to see Gina. She will look at me and be like, " Look, you need to go out and mow the lawn or something." And it's just that act of doing something like so that I feel like I did something productive that day.
 
 [00:10:05] Adam: Yeah,
 
@@ -158,13 +158,13 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:10:39] Will: This is why getting bogged down in the news feels so bad.
 
-[00:10:42] Adam: Well, it's it's it's that grace of doing something in service. Frankly, whenever I get pissed off and I realize that I'm angry at different people for all sorts of different things, I realize the asshole is me, number one. But then I also think the way out of that for me is always like. You know, if I'm if I'm mad at everybody, it's not because everyone's being a jerk. And often the way through that to me is thinking about how I can be of service to the people around me. And cleaning the shop is absolutely part of that. Because at the end of that day, my shop was like, I was like, " F you, shop! You have not you've not lived up to my expectations today." And by you, I mean me. And I didn't want to clean up, but I was like, you know, tomorrow, future you is going to feel like you did the right thing by doing this. So just spend another eight minutes and put all these tools away. Yeah. And that, yeah, that started me back towards feeling a little better. Yeah, this happens to everybody. I mean, this is it's we don't talk about it enough.
+[00:10:42] Adam: Well, it's that grace of doing something in service. Frankly, whenever I get pissed off and I realize that I'm angry at different people for all sorts of different things, I realize the asshole is me, number one. But then I also think the way out of that for me is always like. You know, if I'm mad at everybody, it's not because everyone's being a jerk. And often the way through that to me is thinking about how I can be of service to the people around me. And cleaning the shop is absolutely part of that. Because at the end of that day, my shop was like, I was like, " F you, shop! You have not you've not lived up to my expectations today." And by you, I mean me. And I didn't want to clean up, but I was like tomorrow, future you is going to feel like you did the right thing by doing this. So just spend another eight minutes and put all these tools away. Yeah. And that, yeah, that started me back towards feeling a little better. Yeah, this happens to everybody. I mean, this is it's we don't talk about it enough.
 
-[00:11:52] Will: I mean, we should we we I feel like we I feel like we do a good job showing it, but but as a society, we don't talk about stuff like this.
+[00:11:52] Will: I mean, we should we I feel like we do a good job showing it, but as a society, we don't talk about stuff like this.
 
-[00:11:58] Adam: Yeah. Culturally, it's really important to say you know that that we all suffer from imposter complex. We all feel at times like we're total frauds. I I I said this on the podcast a few months. Actually, probably more than a couple of years ago now. But I was having lunch with a friend who's my age who had never heard about imposter complex and thought it was only him.
+[00:11:58] Adam: Yeah. Culturally, it's really important to say you know that that we all suffer from imposter complex. We all feel at times like we're total frauds. I said this on the podcast a few months. Actually, probably more than a couple of years ago now. But I was having lunch with a friend who's my age who had never heard about imposter complex and thought it was only him.
 
-[00:12:18] Will: I'd never heard about until I went to XO the first the year that you spoke the first year in 2012. That was that was my first. They did a whole conference about imposter syndrome. So
+[00:12:18] Will: I'd never heard about until I went to XO the first the year that you spoke the first year in 2012. That was my first. They did a whole conference about imposter syndrome. So
 
 [00:12:27] Adam: great.
 
@@ -182,7 +182,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:12:50] Will: I mean, if you don't have it, you're probably a little bit of a narcissist, and we see how that works
 
-[00:12:50] Adam: a little bit, a little bit,
+[00:12:50] Adam: a little bit,
 
 [00:12:56] Will: a little bit.
 
@@ -194,19 +194,19 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:14:34] Will: It's one of the when I so
 
-[00:14:36] Adam: she she said that she laid out this beautiful talk, and I I want to link to put on
+[00:14:36] Adam: she said that she laid out this beautiful talk, and I I want to link to put on
 
-[00:14:36] Will: Yeah, yeah. the site. I'd love to watch that. Um, when when I started at Ars Technica a long time ago, I was working for a bunch of people who went to Harvard Divinity School, and their stated goal when we started that website was, " Hey, we don't want to ever publish a mistake, right? " And it's it's the web, right? It's it's the web in like 1998, so you could edit pages.
+[00:14:36] Will: Yeah, yeah. the site. I'd love to watch that. When I started at Ars Technica a long time ago, I was working for a bunch of people who went to Harvard Divinity School, and their stated goal when we started that website was, " Hey, we don't want to ever publish a mistake, right? " And it's the web, right? It's the web in like 1998, so you could edit pages.
 
 [00:14:40] Adam: Yeah,
 
-[00:14:40] Will: nobody would ever have known back then because it was pre Google, pre Google Cache,
+[00:14:40] Will: nobody would ever have known back then because it was pre Google Cache,
 
 [00:15:06] Adam: pre way back.
 
-[00:15:07] Will: Yeah, and and but the goal was, look, we want to we want to spend enough time on everything that we rigorously get. Everything right, and as a result, they're the site that I know from that era that still exists in the in the form and is has flourished and grown and and like they they that happened because they got people with a diverse set of backgrounds right. It started out as a bunch of white kids who went to Harvard Divinity School, and then they brought in people from different areas and they hired they hired one of their first hires was a woman, and it was like she was I think the only person I knew working in Enthusiast Press at that time that that was a woman, and and like it makes everything gets better.
+[00:15:07] Will: Yeah, and but the goal was, look, we want to spend enough time on everything that we rigorously get. Everything right, and as a result, they're the site that I know from that era that still exists in the form and is has flourished and grown and like they that happened because they got people with a diverse set of backgrounds right. It started out as a bunch of white kids who went to Harvard Divinity School, and then they brought in people from different areas and they hired one of their first hires was a woman, and it was like she was I think the only person I knew working in Enthusiast Press at that time that that was a woman, and like it makes everything gets better.
 
-[00:15:47] Adam: Well, and this is this is a long way of me wheeling back around towards lower confidence in your in your output is doesn't mean you're not doing the right job. In fact, I submit we submit that that it's that that's how it feels. Like you never feel like I've nailed it. Every time I felt like that in my life, life was just about to reach out and pimp slap me.
+[00:15:47] Adam: Well, and this is a long way of me wheeling back around towards lower confidence in your output is doesn't mean you're not doing the right job. In fact, I submit we submit that that it's that that's how it feels. Like you never feel like I've nailed it. Every time I felt like that in my life, life was just about to reach out and pimp slap me.
 
 [00:16:11] Will: This is really perfect. Good job, self.
 
@@ -224,15 +224,15 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:18:42] Norm: Oh, my gosh,
 
-[00:18:42] Will: Jude and Dan were Dan mostly sang he played a little bit of guitar. Jude plays keyboards and sings a little bit for a couple of the songs. He's not a he's not a not a Comfortable singer, but he he did his he did his Darth Vader parts, and oh my god, it was it was like it was one of those times where you know when you when you see somebody performing and they're performing in front of a big crowd and the crowd gets excited and that feeds the performer and then the performer gets excited and that feeds the crowd and it just has this great positive feedback loop.
+[00:18:42] Will: Jude and Dan were Dan mostly sang he played a little bit of guitar. Jude plays keyboards and sings a little bit for a couple of the songs. He's not a Comfortable singer, but he did his Darth Vader parts, and oh my god, it was like it was one of those times where you know when you see somebody performing and they're performing in front of a big crowd and the crowd gets excited and that feeds the performer and then the performer gets excited and that feeds the crowd and it just has this great positive feedback loop.
 
 [00:19:35] Adam: amazing moments in time. Yeah, get to witness that,
 
-[00:19:37] Will: and it was it was one of those. So because it's obviously content that is copyrighted on two or three different fronts, they did the concert for charity and basically you know took out enough money to cover the the venue and and and then you know everything else went to I think a charity that Carrie Fisher backed, but I can't remember. And and it was great. It was a lovely show. Highly recommended. I think they're going to post MP3s at some point of that. But if you want to hear the album, you can just go to Palette Swap Ninja. Just search for Princess Leia's stolen Death Star plans.
+[00:19:37] Will: and it was one of those. So because it's obviously content that is copyrighted on two or three different fronts, they did the concert for charity and basically you know took out enough money to cover the venue and then you know everything else went to I think a charity that Carrie Fisher backed, but I can't remember. And it was great. It was a lovely show. Highly recommended. I think they're going to post MP3s at some point of that. But if you want to hear the album, you can just go to Palette Swap Ninja. Just search for Princess Leia's stolen Death Star plans.
 
 [00:19:37] Adam: Oh my god, that's amazing!
 
-[00:19:37] Will: And it pops right up, and it is it is like it's very good. It's a very good piece of work.
+[00:19:37] Will: And it pops right up, and it is like it's very good. It's a very good piece of work.
 
 [00:20:14] Norm: What what part of your brain did satisfy the most? Was it the Sergeant Pepper's? Beatles fan because that's where the music is, or is it the Star Wars fan of like? I mean, obviously, if you're a fan of both, right? The the but it's not John Williams' score, so like you don't get that emotional connection. So
 
@@ -248,21 +248,21 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:21:08] Adam: well, yeah.
 
-[00:21:14] Will: And this was fun because the orchestra had rehearsed the songs that they played on, but on * Sgt. Pepper*, that's only like four of the 12 songs or 13 songs. So most of the most of the album, they were hearing it for the very first time, and and like watching the orchestra come around was very cool.
+[00:21:14] Will: And this was fun because the orchestra had rehearsed the songs that they played on, but on * Sgt. Pepper*, that's only like four of the 12 songs or 13 songs. So most of the album, they were hearing it for the very first time, and like watching the orchestra come around was very cool.
 
 [00:21:31] Adam: Oh, that's cool.
 
-[00:21:32] Will: People were in like Dan Dan and Kat had made costumes. Kat is Katrin Auch is Dan's wife, and she did costume design for a lot of the performers, including like a Chewbacca vest for the bassist, and like it was it was very good. But the orchestra came in costume, like the the harmony singers were in costume, and it was all super super well done, and and you know fun to see the range of and and a lot of the attendees were in costume. There were a bunch of there were a bunch of like let's say preteen Reys
+[00:21:32] Will: People were in like Dan Dan and Kat had made costumes. Kat is Katrin Auch is Dan's wife, and she did costume design for a lot of the performers, including like a Chewbacca vest for the bassist, and like it was very good. But the orchestra came in costume, like the harmony singers were in costume, and it was all super super well done, and you know fun to see the range of and a lot of the attendees were in costume. There were a bunch of there were a bunch of like let's say preteen Reys
 
 [00:21:32] Norm: That's awesome.
 
-[00:21:32] Will: and some Princess Leias, and it was it was really good. It was a good time.
+[00:21:32] Will: and some Princess Leias, and it was really good. It was a good time.
 
 [00:22:12] Norm: We're very lucky to live in the Bay Area, where there are. I think SF Symphony does a regular event where they do the full movie, and a live orchestra plays the score. So they have a version of the movie without the score, and the orchestra plays the music. And I think they did Batman last past year, which was every song but the Prince song. The Prince song was the only one where it was on the soundtrack.
 
 [00:22:37] Will: There were a bunch of Prince songs.
 
-[00:22:38] Norm: Uh, with the the Joker,
+[00:22:38] Norm: With the Joker,
 
 [00:22:40] Will: the Batdance.
 
@@ -278,7 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:22:52] Norm: yes. Yeah.
 
-[00:22:53] Will: Oh my god! Yeah. Like I mean, just it's it's it. If you want to know how much how important the music is to Jurassic Park, watch the Jurassic Park Brontosaurus reveal with the Melodica instead of the instead of the orchestra.
+[00:22:53] Will: Oh my god! Yeah. Like I mean, just it's it. If you want to know how much how important the music is to Jurassic Park, watch the Jurassic Park Brontosaurus reveal with the Melodica instead of the orchestra.
 
 [00:23:07] Adam: Is that Chris Hardwick's favorite of the Plastic Winds?
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:23:41] Will: Yeah.
 
-[00:23:42] Norm: I have a recommendation. If you have AMC Network, there is a six-part series airing right now that Eli Roth produced. AMC is doing this cool thing where they have they're producing these six-part documentary series on different topics. The one that's airing right now is a horror theme. It's called Eli Roth's History of Horror. I want to believe. And earlier this year, there was James Cameron was did one, a story of science fiction, which a lot of people that we know were were guests on there. Annalee Newitz was on, which was really cool to see, like James Cameron talking with like George Lucas about their movies, talking to each other about their movies.
+[00:23:42] Norm: I have a recommendation. If you have AMC Network, there is a six-part series airing right now that Eli Roth produced. AMC is doing this cool thing where they have they're producing these six-part documentary series on different topics. The one that's airing right now is a horror theme. It's called Eli Roth's History of Horror. I want to believe. And earlier this year, there was James Cameron was did one, a story of science fiction, which a lot of people that we know were guests on there. Annalee Newitz was on, which was really cool to see, like James Cameron talking with like George Lucas about their movies, talking to each other about their movies.
 
 [00:24:07] Will: Oh man, really?
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:24:24] Adam: meta coverage.
 
-[00:24:25] Norm: Yes, it's like it's like the the the schoolbook academic.
+[00:24:25] Norm: Yes, it's like the schoolbook academic.
 
 [00:24:25] Adam: Right, right.
 
@@ -330,17 +330,17 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:24:36] Will: Just checking.
 
-[00:24:37] Norm: No, I just I just won't watch the film.
+[00:24:37] Norm: No, I just won't watch the film.
 
 [00:24:39] Will: Um,
 
-[00:24:40] Norm: but it like he chats with you know I think the first episode is about zombies and there's just a great from you know George George Romero's zombies all the way to you know what Greg Nicotero is doing right now on Walking Dead and and social implications and why that's the talk of why people like zombies
+[00:24:40] Norm: but it like he chats with you know I think the first episode is about zombies and there's just a great from you know George George Romero's zombies all the way to you know what Greg Nicotero is doing right now on Walking Dead and social implications and why that's the talk of why people like zombies
 
 [00:24:40] Adam: right and
 
 [00:24:40] Norm: Max Brooks talking about zombies because you know right World War Z and all that stuff yeah yeah yeah it's
 
-[00:25:02] Adam: aren't they aren't they there's a there's a sequel coming out right
+[00:25:02] Adam: aren't they there's a sequel coming out right
 
 [00:25:04] Norm: David Fincher is making that sequel
 
@@ -364,9 +364,9 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:25:25] Adam: That was Matthew Fox.
 
-[00:25:25] Norm: Wow, you're right. And that was the the part of the script they got. Yeah.
+[00:25:25] Norm: Wow, you're right. And that was the part of the script they got. Yeah.
 
-[00:25:30] Adam: They so they cut the last third of the movie out and reshoot it. Uh, Damon Lindelof famously rewrote the whole end, and they spent millions, tens of millions of dollars reshooting it. And in the original screenplay, Brad Pitt finally makes it back home, and his wife is now married to to to Matthew Fox,
+[00:25:30] Adam: They so they cut the last third of the movie out and reshoot it. Damon Lindelof famously rewrote the whole end, and they spent millions, tens of millions of dollars reshooting it. And in the original screenplay, Brad Pitt finally makes it back home, and his wife is now married to Matthew Fox,
 
 [00:25:47] Norm: and he's cut out of the movie essentially.
 
@@ -378,29 +378,29 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:25:53] Adam: The book is like the Good War as science fiction zombie.
 
-[00:25:55] Norm: It's it's prepper porn essentially, right? It's like
+[00:25:55] Norm: It's prepper porn essentially, right? It's like
 
-[00:25:59] Will: that's that's the How to Survive the Zombie Apocalypse, the first one.
+[00:25:59] Will: that's the How to Survive the Zombie Apocalypse, the first one.
 
-[00:26:01] Norm: They're all kind of the same. It's like it taps into the part of the brain where people's loves they love. The the deep dive into the what ifs and how the I mean that's what Max Brooks does. Did you know that he like he works for a think tank and studies ways in which governments can attack each other non traditional methods and the social and the economic ways in which societies break down like raising the price of corn or something
+[00:26:01] Norm: They're all kind of the same. It's like it taps into the part of the brain where people's loves they love. The deep dive into the what ifs and how the I mean that's what Max Brooks does. Did you know that he like he works for a think tank and studies ways in which governments can attack each other non traditional methods and the social and the economic ways in which societies break down like raising the price of corn or something
 
 [00:26:25] Will: or just posting stuff on social media that's factually untrue and half the public buys into like
 
-[00:26:31] Adam: like the fact that the entire idea that a whole bunch of Star Wars fans hate Episode Eight is complete fiction, complete fiction. It's mostly fiction. It turns out that most of those messages on Twitter came from Russian troll farms.
+[00:26:31] Adam: like the fact that the entire idea that a whole bunch of Star Wars fans hate Episode Eight is complete fiction. It's mostly fiction. It turns out that most of those messages on Twitter came from Russian troll farms.
 
 [00:26:48] Will: Yeah, because Star Wars is tearing us apart.
 
-[00:26:51] Adam: But I think what find what I find really chilling about that is the idea that that these bad actors are going right towards the roots of culture to find to to foment bifurcation.
+[00:26:51] Adam: But I think what find what I find really chilling about that is the idea that that these bad actors are going right towards the roots of culture to find to foment bifurcation.
 
-[00:27:03] Will: Well, of course, I mean culture drives us forward. So why not why not take the yeah
+[00:27:03] Will: Well, of course, I mean culture drives us forward. So why not take the yeah
 
 [00:27:08] Adam: Hey, vote, vote.
 
-[00:27:10] Will: Yeah, we forgot to we forgot to say it last week, but but please.
+[00:27:10] Will: Yeah, we forgot to say it last week, but please.
 
 [00:27:13] Adam: Yeah, please vote.
 
-[00:27:14] Will: It's uh, it's it's too late to register almost everywhere now, but you should please go vote. It's really important. It's
+[00:27:14] Will: It's too late to register almost everywhere now, but you should please go vote. It's really important. It's
 
 [00:27:20] Adam: really, really, really important. If you're thinking, I don't need to vote.
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:27:26] Adam: This is the one.
 
-[00:27:27] Will: Yeah, people look and and the way to look at it is people think their votes don't matter on midterm elections where turnout is traditionally really really low. Your vote is worth more because the only people who come out to vote on midterm elections are the people at the far extremes. So if you're near the middle and you feel like you don't get represented because it's crazy people on one side and crazy people on the other side, go vote
+[00:27:27] Will: Yeah, people look and the way to look at it is people think their votes don't matter on midterm elections where turnout is traditionally really really low. Your vote is worth more because the only people who come out to vote on midterm elections are the people at the far extremes. So if you're near the middle and you feel like you don't get represented because it's crazy people on one side and crazy people on the other side, go vote
 
 [00:27:47] Adam: and vote for sanity.
 
@@ -420,7 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:27:56] Will: You'd be exhausted. He talks about it so much.
 
-[00:28:00] Adam: We can't take the the workload.
+[00:28:00] Adam: We can't take the workload.
 
 [00:28:04] Will: I, speaking of people who can't make decisions, I've I've gotten all the way through season two of The Good Place,
 
@@ -438,11 +438,11 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:28:32] Adam: no, she's fine in that. She's terrific. She's
 
-[00:28:34] Will: a bad character. I don't like the character, but I like Maya. I like Maya Rudolph. Yeah, like that movie. Like she, she's fantastic in Good Place. Yeah, it's really, really good.
+[00:28:34] Will: a bad character. I don't like the character, but I like Maya. I like Maya Rudolph. Yeah that movie. Like she, she's fantastic in Good Place. Yeah, it's really, really good.
 
 [00:28:34] Adam: Love that show.
 
-[00:28:34] Will: The the the the character brought in to help Janet, the Janet's boyfriend, is brilliant.
+[00:28:34] Will: The character brought in to help Janet, the Janet's boyfriend, is brilliant.
 
 [00:28:51] Adam: Do you know how they wrote his character?
 
@@ -466,13 +466,13 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:29:27] Adam: Well, just when Bad Janet, you ask Bad Janet for something, and she goes. First of all, she never looks at you. She's always looking at her phone, and she goes, " Why don't you roll off your mom and do it yourself?"
 
-[00:29:39] Will: The thing, the thing, the undercurrent that I like most about that show is that they hate phones. They hate phones more than anything. Like, like when there's a there's a there's a moment when when Eleanor is thinking about things that she misses from Earth, and the first thing she comes up with is her phone. And I'm just like, oh, oh, this is too real. I'm going to put my phone down now and maybe pay attention to the TV show for five minutes.
+[00:29:39] Will: The thing, the undercurrent that I like most about that show is that they hate phones. They hate phones more than anything. Like when there's a moment when Eleanor is thinking about things that she misses from Earth, and the first thing she comes up with is her phone. And I'm just like, oh, oh, this is too real. I'm going to put my phone down now and maybe pay attention to the TV show for five minutes.
 
-[00:30:06] Adam: It's so good. Um, we spent some time this weekend rewatching because my wife loves this documentary, the first part of Martin Scorsese's long documentary on Bob Dylan.
+[00:30:06] Adam: It's so good. We spent some time this weekend rewatching because my wife loves this documentary, the first part of Martin Scorsese's long documentary on Bob Dylan.
 
 [00:30:06] Will: Oh,
 
-[00:30:06] Adam: which is so watchable and so incredible—an incredible deep dive. The interview it is really anchored by this incredible interview with Dylan himself, who is so forthcoming. I could only imagine it's just him and Marty in the room alone together because it feels that intimate the way he's talking. But then supported by everyone who was who was around at the time, and just really a remarkable view on an important time in history from a really important artist who is still really pretty incredibly articulate about exactly how important they were. Like Dylan really got it back then. Why? What he was doing was important, and still is right there. Really a lovely mind.
+[00:30:06] Adam: which is so watchable and so incredible—an incredible deep dive. The interview it is really anchored by this incredible interview with Dylan himself, who is so forthcoming. I could only imagine it's just him and Marty in the room alone together because it feels that intimate the way he's talking. But then supported by everyone who was around at the time, and just really a remarkable view on an important time in history from a really important artist who is still really pretty incredibly articulate about exactly how important they were. Like Dylan really got it back then. Why? What he was doing was important, and still is right there. Really a lovely mind.
 
 [00:31:06] Norm: Is Martin Scorsese? He put himself in the documentaries.
 
@@ -488,7 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:31:22] Norm: and makes it too much about their relationship with the
 
-[00:31:24] Adam: material. It was the what was that real life crime drama about the about the bad guy with the lizard eyes who like supposedly killed his ex girlfriend?
+[00:31:24] Adam: material. It was the what was that real life crime drama about the bad guy with the lizard eyes who like supposedly killed his ex girlfriend?
 
 [00:31:34] Will: Manhunter?
 
@@ -516,7 +516,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:32:11] Norm: And afterward, watching documentary again, I think they were great companion pieces as well. It's the documentary is called Five Foot Two, and it leads up to her performance at the Super Bowl.
 
-[00:32:23] Will: Did you did you see the Dylan film from what?
+[00:32:23] Will: Did you see the Dylan film from what?
 
 [00:32:26] Adam: Ah, The Jinx.
 
@@ -526,7 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:32:33] Norm: Robert Durst got it. That's right. That's it. Where he like basically confesses at the very end.
 
-[00:32:36] Adam: And and I felt like the filmmakers put themselves into that more than I am comfortable with. But I love when Errol Morris is interviewing someone using the Interrotron. Do you know about this?
+[00:32:36] Adam: And I felt like the filmmakers put themselves into that more than I am comfortable with. But I love when Errol Morris is interviewing someone using the Interrotron. Do you know about this?
 
 [00:32:47] Will: No.
 
@@ -534,11 +534,11 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:32:49] Will: Sounds terrifying.
 
-[00:32:49] Adam: Oh no, no, no. Okay, so Errol Morris is up there with Werner Herzog as, like, to me, one of the great documentary filmmakers in history. And he, if you'll notice, his documentaries, his subjects are always staring right down the camera. And what Errol does is he has built a box called the Interrotron that is that uses a two-way mirror in front of the camera lens to project his face there. So he is the interviewer talking to his subject, and they are staring him in the eyes. Right down the camera barrel, and every now and then you'll hear Errol Morris ask a question. Did that upset you? You'll hear from the from the background because he's yelling all the way around,
+[00:32:49] Adam: Oh no, no, no. Okay, so Errol Morris is up there with Werner Herzog as to me, one of the great documentary filmmakers in history. And he, if you'll notice, his documentaries, his subjects are always staring right down the camera. And what Errol does is he has built a box called the Interrotron that is that uses a two-way mirror in front of the camera lens to project his face there. So he is the interviewer talking to his subject, and they are staring him in the eyes. Right down the camera barrel, and every now and then you'll hear Errol Morris ask a question. Did that upset you? You'll hear from the background because he's yelling all the way around,
 
 [00:32:49] Will: Yeah, yeah.
 
-[00:32:49] Adam: so that they can hear him. But it's it's it's how he interviewed Robert McNamara for Fog of War, which is a mind blowing documentary. So to me, I love that. Like I don't mind hearing Errol Morris call out from behind the [unclear: intercom / Interratron].
+[00:32:49] Adam: so that they can hear him. But it's how he interviewed Robert McNamara for Fog of War, which is a mind blowing documentary. So to me, I love that. Like I don't mind hearing Errol Morris call out from behind the [unclear: intercom / Interratron]
 
 [00:33:44] Norm: Yeah,
 
@@ -552,11 +552,11 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:33:48] Adam: This is the parody.
 
-[00:33:49] Will: Yeah, this is the high school parody of Serial and Mindhunter and all that stuff. Yeah, it's it's Norm. Norm told me I should watch it. He was absolutely right. It's exceptional.
+[00:33:49] Will: Yeah, this is the high school parody of Serial and Mindhunter and all that stuff. Yeah, it's Norm. Norm told me I should watch it. He was absolutely right. It's exceptional.
 
 [00:33:49] Adam: Okay,
 
-[00:33:49] Will: if you like that kind of documentary, you you will.
+[00:33:49] Will: if you like that kind of documentary, you will.
 
 [00:33:59] Adam: I'm still working through the Americans, man. There's a lot to get.
 
@@ -578,7 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:34:30] Norm: Judy Garland.
 
-[00:34:32] Adam: Judy Garland and James Mason, and then there's one less than 10 years before that. Okay. Um. But I'm a fan of the Kris Kristofferson Barbra Streisand one.
+[00:34:32] Adam: Judy Garland and James Mason, and then there's one less than 10 years before that. Okay. But I'm a fan of the Kris Kristofferson Barbra Streisand one.
 
 [00:34:42] Will: I saw that one probably 20 years ago. I haven't seen it since then. But this was a fine film.
 
@@ -604,7 +604,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:35:15] Adam: Talent.
 
-[00:35:20] Will: Yes. Um, I'm reading Scalzi's new book. The follow-up to the collapsing empire, which I can’t remember what the name is.
+[00:35:20] Will: Yes. I'm reading Scalzi's new book. The follow-up to the collapsing empire, which I can’t remember what the name is.
 
 [00:35:27] Adam: And I haven't yet read collapsing empire.
 
@@ -680,7 +680,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:36:43] Will: Okay. Yeah, my kids get dressed up as Fixit Felix because she's excited about the new Wreck-It Ralph
 
-[00:36:48] Adam: movie. You, you,
+[00:36:48] Adam: movie. You,
 
 [00:36:49] Norm: I will probably be playing the role of new new father.
 
@@ -706,15 +706,15 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:36:59] Adam: Excellent.
 
-[00:36:59] Norm: With Melissa Ng and and also Ruby Taki who did a Metal Gear Online helmet.
+[00:36:59] Norm: With Melissa Ng and also Ruby Taki who did a Metal Gear Online helmet.
 
 [00:37:42] Adam: Amazing.
 
 [00:37:42] Norm: Yeah, a lot of cool stuff.
 
-[00:37:42] Will: Is that is that arcade cabinet here? Is it over it? Mike Mike’s shop?
+[00:37:42] Will: Is that arcade cabinet here? Is it over it? Mike Mike’s shop?
 
-[00:37:46] Norm: It’s it’s at Other Ocean.
+[00:37:46] Norm: It’s at Other Ocean.
 
 [00:37:48] Will: Okay, I want to go see that thing. I heard good things about that.
 
@@ -748,7 +748,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:38:22] Norm: I’m happy to stay at home with a baby.
 
-[00:38:23] Will: But yeah, well, if this is if this is the last one for a while, then good luck, Norm, and
+[00:38:23] Will: But yeah, well, if this is the last one for a while, then good luck, Norm, and
 
 [00:38:29] Norm: see you after Thanksgiving.
 

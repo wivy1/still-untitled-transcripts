@@ -22,7 +22,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:00:15] Will: Yeah, exactly. How are your lads doing today?
 
-[00:00:19] Adam: Very good, very good. It is my 14th wedding anniversary today.
+[00:00:19] Adam: Very good. It is my 14th wedding anniversary today.
 
 [00:00:22] Will: Congratulations.
 
@@ -38,7 +38,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:00:46] Norm: Yes, I love that stuff.
 
-[00:00:47] Adam: And I had I had gone deep into the whole Nerve thing.
+[00:00:47] Adam: And I had gone deep into the whole Nerve thing.
 
 [00:00:52] Will: Nerve was a neat man. It was great. An artsy fartsy internet community.
 
@@ -50,7 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:01:02] Will: Yeah, I can see that.
 
-[00:01:03] Adam: Yeah, and I, I, so 2003, I was in the middle of the first season of MythBusters, and I decided stop dating, stop concentrating on anything else but what this brand new weird job I have is, and I did, and I spent like the last five months of the first season of MythBusters hunkering down and kind of getting to know it, and then I we've wrapped in August, but then we got back together in October, November, late October, early November to do some ancillary shoots to travel to different places. Went to NOAA in Asheville and interviewed different people around the country, finishing up at the Empire State Building, I believe, if I'm not incorrect, and then getting on a plane, coming home, and thinking, oh, it's time to date again, and I found a message in my inbox from Julia. As now, if anyone who's been out there dating as a man, you know that getting messages from women is a is a real rarity. It's much more Lean to the it leads much more to the other side.
+[00:01:03] Adam: Yeah, and I, I, so 2003, I was in the middle of the first season of MythBusters, and I decided stop dating, stop concentrating on anything else but what this brand new weird job I have is, and I did, and I spent like the last five months of the first season of MythBusters hunkering down and kind of getting to know it, and then I we've wrapped in August, but then we got back together in October, November, late October, early November to do some ancillary shoots to travel to different places. Went to NOAA in Asheville and interviewed different people around the country, finishing up at the Empire State Building, I believe, if I'm not incorrect, and then getting on a plane, coming home, and thinking, oh, it's time to date again, and I found a message in my inbox from Julia. As now, if anyone who's been out there dating as a man, you know that getting messages from women is a real rarity. It's much more Lean to the it leads much more to the other side.
 
 [00:02:06] Norm, possibly Will: Okay,
 
@@ -58,7 +58,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:02:12] Norm: Classy.
 
-[00:02:13] Adam: And so we we we started dating, and almost immediately we had moved in with each other within three months.
+[00:02:13] Adam: And so we started dating, and almost immediately we had moved in with each other within three months.
 
 [00:02:22] Norm, possibly Will: Wow.
 
@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:04:03] Norm: It's the maker's equivalent of Clerks.
 
-[00:04:05] Adam: Yeah, and and there's a way in which people say no that I have learned to not believe. If they say no too quickly, I'm like, you don't have all this information in your head, and I don't believe you. And so we called the Marin Headlands Art Center, who are delightful to deal with, by the way. But they said no, we have no Saturdays. I'm like, no Saturdays. They're like, December 27th, and I'm like, okay, get you, but we're not going to get married on that day.
+[00:04:05] Adam: Yeah, and there's a way in which people say no that I have learned to not believe. If they say no too quickly, I'm like, you don't have all this information in your head, and I don't believe you. And so we called the Marin Headlands Art Center, who are delightful to deal with, by the way. But they said no, we have no Saturdays. I'm like, no Saturdays. They're like, December 27th, and I'm like, okay, get you, but we're not going to get married on that day.
 
 [00:04:26] Will: You called my bluff.
 
@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:04:36] Will: Oh boy.
 
-[00:04:36] Adam: And we thought, you know what? Let's let's make this a good day. I. It is a day of serious remembrance and a day that affected all of us really deeply. And we were not making light of it by getting married on that day, but we really it's a testament to the fact that we knew what we wanted and we knew we had found each other, and that was really important to us. And so we we we took that day.
+[00:04:36] Adam: And we thought, you know what? Let's let's make this a good day. I. It is a day of serious remembrance and a day that affected all of us really deeply. And we were not making light of it by getting married on that day, but we really it's a testament to the fact that we knew what we wanted and we knew we had found each other, and that was really important to us. And so we took that day.
 
 [00:05:01] Norm: That's awesome.
 
@@ -116,7 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:05:20] Adam: Oh yeah, we had an open mojito bar. It was phenomenal, and Cha Cha Cha was fantastic. I will tell you, if you're going to cater a wedding and you can get restaurant workers as opposed to caterers, restaurant workers are in the service industry, and Cha Cha Cha's team could not have been a better service team for our wedding. They were like, they showed up early, they rolled up their sleeves, they helped with everything.
 
-[00:05:44] Will: It's a tapas place, yeah. For people who don't know. So it's like a lot of small plates, and it's perfect for wedding because like it's it's a million little bites, and yeah, that sounds really good.
+[00:05:44] Will: It's a tapas place, yeah. For people who don't know. So it's like a lot of small plates, and it's perfect for wedding because like it's a million little bites, and yeah, that sounds really good.
 
 [00:05:52] Adam: And legendary San Francisco tapas place, Yes. a place up in the Haight, has had a line since I lived here in 19, since I moved here in 1990.
 
@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:06:26] Will: What helps the time is decimal too. Yeah. That makes things more complicated.
 
-[00:06:29] Norm: Anniversaries, though, you know, there are traditions for the first couple years of anniversaries. Things you're supposed to make things out of.
+[00:06:29] Norm: Anniversaries, though there are traditions for the first couple years of anniversaries. Things you're supposed to make things out of.
 
 [00:06:37] Unknown speaker (Norm or Adam): Well,
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:06:48] Will: Gina and I said after our daughter was born that each anniversary has become the taking each other for granted anniversary. After that, Wow. which is kind of a joke, but maybe not as much as it should be.
 
-[00:06:59] Adam: Oh, You know, yeah. When you live in each other's pockets, you know all the things.
+[00:06:59] Adam: Oh yeah. When you live in each other's pockets all the things.
 
 [00:07:03] Will: Yeah, I mean, working at home in a small house, maybe not not great. Don't do that. Probably.
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:07:23] Adam: and I filled it full of custom letterpress stationery because we are big fans of letterpress. We order a lot of it from Etsy and from local sellers here in the Bay Area. We have stuff custom made, thank you cards, and things like that.
 
-[00:07:37] Norm: Quite a few letterpress places in in the Bay Area.
+[00:07:37] Norm: Quite a few letterpress places in the Bay Area.
 
 [00:07:40] Adam: It's a great place to be into letterpress. Yeah,
 
@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:08:06] Adam: Yeah.
 
-[00:08:06] Will: And because it was in crayon, when I vectorized it, it made like it made it all speckledy and interesting. And so then I burned that into the surface, so it was personalized.
+[00:08:06] Will: And because it was in crayon, when I vectorized it made like it made it all speckledy and interesting. And so then I burned that into the surface, so it was personalized.
 
 [00:08:15] Adam: That's very cool. So like 10 minutes.
 
@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:08:35] Norm: Wow, ivory color or something so far.
 
-[00:08:38] Adam: You know the thing is, is that my wife has a has a real penchant, as every sentient human does, for elephants. They are magical and incredible creatures, and so perhaps she's going to get something to do with elephants.
+[00:08:38] Adam: You know the thing is, is that my wife has a real penchant, as every sentient human does, for elephants. They are magical and incredible creatures, and so perhaps she's going to get something to do with elephants.
 
 [00:08:52] Will: So you’re getting her a pet elephant?
 
@@ -234,7 +234,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:09:31] Adam: That is hilarious. Well, hello, gentlemen. So I,
 
-[00:09:35] Will: I had not to not to bag on Etsy, but I had a conversation with some artist friends of mine the other day. Yeah. Who were talking about the problem of bootlegging, right? People who make prints in the, I don't, I don't want to out anybody, but people who make like custom art prints and they're finding constantly people are hitting them on Instagram and saying, " Hey, I saw one of your things over here, and it doesn't look like it's your store." And they mentioned like Teespring and some of the like the DIY t-shirt places, but then they also said Etsy is a big home to that kind of bootlegging, and I was kind of surprised because I had never really seen it there, but I also kind of don't
+[00:09:35] Will: I had not to bag on Etsy, but I had a conversation with some artist friends of mine the other day. Yeah. Who were talking about the problem of bootlegging, right? People who make prints in the, I don't want to out anybody, but people who make like custom art prints and they're finding constantly people are hitting them on Instagram and saying, " Hey, I saw one of your things over here, and it doesn't look like it's your store." And they mentioned like Teespring and some of the like the DIY t-shirt places, but then they also said Etsy is a big home to that kind of bootlegging, and I was kind of surprised because I had never really seen it there, but I also kind of don't
 
 [00:10:11] Norm: Etsy and eBay.
 
@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:10:13] Adam: there is a Twitter Twitter account that I follow called For Exposure.
 
-[00:10:17] Will: Oh yeah, that's that's
+[00:10:17] Will: Oh yeah, that's
 
 [00:10:19] Adam: I and it's basically all the shitty, awful messages people get from people who are stealing their stuff. Yeah. So this is you reach out to someone on Instagram and say, " Hey, you're posting this without attribution. It's mine." And they get like, " F you, you stupid! You're just an artist, and I’m giving you exposure. You should give it to me for free."
 
@@ -266,11 +266,11 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:11:26] Norm: I'm also interested from the artist perspective how important having something licensed is to them. Like if an artist is great and they're doing their own professional work, but also on the loves drawing something out of Star Wars, for example, how important is it that they work with a company that gets them in a quote unquote approved license to do a Star Wars print? If then that means
 
-[00:11:48] Will: Like, like Holly?
+[00:11:48] Will: Like Holly?
 
-[00:11:49] Norm: yeah, but then that means that they they give away the rights to their work to Disney, and Disney gets to put all of their work on T-shirts, and they never see a cent of that.
+[00:11:49] Norm: yeah, but then that means that they give away the rights to their work to Disney, and Disney gets to put all of their work on T-shirts, and they never see a cent of that.
 
-[00:11:57] Will: Well, I think you, if you're the artist and you're doing that work for hire and you're established, then you charge what you charge and know that you're never going to see residuals. You know, continue to income from that.
+[00:11:57] Will: Well, I think you, if you're the artist and you're doing that work for hire and you're established, then you charge what you charge and know that you're never going to see residuals. Continue to income from that.
 
 [00:12:07] Adam: No, So if you're making a transformative piece of art, it doesn't matter that it's somebody else's IP necessarily if it's a transformation of the original work and you're making cultural commentary on it.
 
@@ -282,11 +282,11 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:12:27] Unknown speaker (Adam or Will): I don't.
 
-[00:12:30] Adam: I don't think it's very important at all. Because we're talking about if you're some small person wanting to make a little, you know, wanting to draw something from Star Wars, Lucasfilm has no interest in talking to you about that.
+[00:12:30] Adam: I don't think it's very important at all. Because we're talking about if you're some small person wanting to make a little wanting to draw something from Star Wars, Lucasfilm has no interest in talking to you about that.
 
 [00:12:45] Will: Well, unless right up until the moment that you start selling it,
 
-[00:12:47] Adam: I'm I'm not even sure that's true. I think a lot of companies pay attention to who is selling and at what level they're selling, and they're really only like. I remember somebody from high up in Lucasfilm explaining to me this is 15 years ago that they know everyone who's selling stuff. They really only concern themselves with people who are trying to make a big profit.
+[00:12:47] Adam: I'm not even sure that's true. I think a lot of companies pay attention to who is selling and at what level they're selling, and they're really only like. I remember somebody from high up in Lucasfilm explaining to me this is 15 years ago that they know everyone who's selling stuff. They really only concern themselves with people who are trying to make a big profit.
 
 [00:13:10] Norm: You think there's a spreadsheet somewhere that they're like, " Here's a spreadsheet of all the Etsy stores," and they're going, " You know." Executive Order 66, or whatever, to send it all the C and Ds.
 
@@ -296,7 +296,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:13:31] Norm: Yeah,
 
-[00:13:31] Adam: right. But Lucasfilm has actually been really terrific about letting its fandom explore itself without without molestation. Now they do send C and Ds all the time, but they send them to people who they can tell are attempting to make a real dime on on their IP.
+[00:13:31] Adam: right. But Lucasfilm has actually been really terrific about letting its fandom explore itself without without molestation. Now they do send C and Ds all the time, but they send them to people who they can tell are attempting to make a real dime on their IP.
 
 [00:13:50] Norm: Well, or sometimes when the thing that they're making dime on is in direct conflict with a license that they have a contractual relationship
 
@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:13:59] Adam: and those contractual relationships come with responsibilities for policing that IP. That's totally understandable.
 
-[00:14:05] Will: But then they also clearly take like a blind eye to things like RPF runs, where people are you know banding together to recreate props, because in a lot of cases, like the fact that there's a big community, people make stormtrooper armor and R2-D2s and Boba Fett armor, and all of the different kind of Kind of cosplay stuff has a massive follow-on benefit for Lucas
+[00:14:05] Will: But then they also clearly take like a blind eye to things like RPF runs, where people are you know banding together to recreate props, because in a lot of cases, like the fact that there's a big community, people make stormtrooper armor and R2-D2s and Boba Fett armor, and all of the different kind of cosplay stuff has a massive follow-on benefit for Lucas
 
 [00:14:24] Will, possibly Unknown short replies: It does. It does. It does. It does. It does.
 
@@ -326,7 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:15:03] Norm: It is not canon when you cross them and they do not create the sparks.
 
-[00:15:07] Adam: Yeah, some. I mean, you know, clearly that's the hill that they decided to die on for their IP, and I totally understood that. For the rest of it, was totally they were totally great.
+[00:15:07] Adam: Yeah, some. I mean clearly that's the hill that they decided to die on for their IP, and I totally understood that. For the rest of it, was totally they were totally great.
 
 [00:15:14] Will: Maybe they just don't want to deal with somebody doing a fake decapitation with a lightsaber.
 
@@ -336,11 +336,11 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:15:41] Adam: exactly,
 
-[00:15:42] Norm: and and that's how you get to a place where you can create your own stuff. Like that's the pathway,
+[00:15:42] Norm: and that's how you get to a place where you can create your own stuff. Like that's the pathway,
 
 [00:15:48] Adam: sure, right? Yeah,
 
-[00:15:49] Norm: you you make what you can't not make because you are a fan of these things, and then you can, after doing that, maybe get bored of it, and maybe that's you start making derivatives, and then becomes original.
+[00:15:49] Norm: you make what you can't not make because you are a fan of these things, and then you can, after doing that, maybe get bored of it, and maybe that's you start making derivatives, and then becomes original.
 
 [00:16:00] Adam: So, so obviously, the internet's packed with people doing doing exactly this, but there is the other half of this equation which you were talking about in the beginning, Will, which is you make prints of your own thing, and somebody else rips it and is selling it somewhere else in the world as theirs.
 
@@ -348,9 +348,9 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:16:15] Adam: and this is one of those ones where. That is a. It's a complicated issue. It's not complicated. Whoever's doing that with other people's IP is shitty, and like that's bad. But how much energy should you expend as an artist and someone who hopes to make a living from your work? How much is it worth your time to go deal with that? My thinking is, in most cases, probably not much.
 
-[00:16:39] Will: I mean, that's the place that this conversation went. Is I just mostly say thanks and ignore those because it's not worth chasing those down, because the takedown process for all the different sites is involved enough that it's not worth it's not worth the hassle to stop somebody from selling three T-shirts.
+[00:16:39] Will: I mean, that's the place that this conversation went. Is I just mostly say thanks and ignore those because it's not worth chasing those down, because the takedown process for all the different sites is involved enough that it's not worth the hassle to stop somebody from selling three T-shirts.
 
-[00:16:56] Norm: Well, isn't that the problem with the the infrastructure of that?
+[00:16:56] Norm: Well, isn't that the problem with the infrastructure of that?
 
 [00:16:59] Will: But I mean, it's absolutely the problem with the infrastructure.
 
@@ -360,7 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:17:07] Adam: Yeah,
 
-[00:17:07] Will: and and like even YouTube, which has massive content ID, like this,
+[00:17:07] Will: and like even YouTube, which has massive content ID, like this,
 
 [00:17:12] Norm: that's the flip side of it.
 
@@ -382,19 +382,19 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:18:01] Will: those people always figure it out. Is the point?
 
-[00:18:02] Adam: I want to go to a thing that Bill Hicks once said. The comedian, famous comedian Bill Hicks, talking about people stealing jokes. He, I'm going to munge this because I don't remember the exact quote, but I think he was defending the idea that you shouldn't worry too much about people stealing your jokes because if you think your career is based on The jokes, you're you're wrong. What he points out is that the more your jokes are have intimately to do with you, the more you they are. You have the monopoly on being you, and no one else can steal that monopoly from you. And it's a like to me that's a a fascinating thing to hold in your head. It's it's not necessarily like someone selling something in another part of the world is bastardizing your income, even though what they're doing and what they're representing is really like it's awful to see that happening.
+[00:18:02] Adam: I want to go to a thing that Bill Hicks once said. The comedian, famous comedian Bill Hicks, talking about people stealing jokes. He, I'm going to munge this because I don't remember the exact quote, but I think he was defending the idea that you shouldn't worry too much about people stealing your jokes because if you think your career is based on The jokes, you're wrong. What he points out is that the more your jokes are have intimately to do with you, the more you they are. You have the monopoly on being you, and no one else can steal that monopoly from you. And it's a like to me that's a fascinating thing to hold in your head. It's not necessarily like someone selling something in another part of the world is bastardizing your income, even though what they're doing and what they're representing is really like it's awful to see that happening.
 
 [00:19:55] Will: I mean, it's it's one of those things. It's in in startup world, people say you know ideas are worth nothing because it's the execution and the time you spend making the idea into a thing. But one of the questions you always get when you are talking about ideas with people is how defensible is something? And in startup world, that means you know patents or you know do you have a technology lead? Do you have some sort of core technology that nobody else has developed?
 
 [00:20:18] Adam: How unique is it?
 
-[00:20:19] Will: Yeah. is it something? Is it something that once you establish a market, then nobody else will be able to come in and take from you? Or if Facebook comes and does the same thing, are they going to immediately decimate you and and and just because of their sense of scale?
+[00:20:19] Will: Yeah. is it something? Is it something that once you establish a market, then nobody else will be able to come in and take from you? Or if Facebook comes and does the same thing, are they going to immediately decimate you and just because of their sense of scale?
 
 [00:20:29] Adam: Right.
 
-[00:20:29] Will: And for an artist, it's very it's very different because you know you're much better off just going on and making more, doing more work, making more work, and then and moving your art forward. So you're always making something that's newer and more interesting and better than what you've done before.
+[00:20:29] Will: And for an artist, it's very different because you know you're much better off just going on and making more, doing more work, making more work, and then and moving your art forward. So you're always making something that's newer and more interesting and better than what you've done before.
 
-[00:20:46] Adam: We we did come across in the early days of MythBusters, probably like 2007 2008. We came across a evangelical abstinence based church camp that was myth busting about birth control.
+[00:20:46] Adam: We did come across in the early days of MythBusters, probably like 2007 2008. We came across a evangelical abstinence based church camp that was myth busting about birth control.
 
 [00:21:03] Unknown speaker (Norm or Will): Wow.
 
@@ -402,9 +402,9 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:21:07] Adam: Mythbuster logos and calling it like myth busting camp about you know here's why abstinence is better than any. I mean, it was was one of those like
 
-[00:21:16] Will: at that point you take them to court and you the the all you ask for out of them is for them to go back and teach those same kids the actual truth. 17 children were born at that camp. The next year, it turns out.
+[00:21:16] Will: at that point you take them to court and you the all you ask for out of them is for them to go back and teach those same kids the actual truth. 17 children were born at that camp. The next year, it turns out.
 
-[00:21:28] Adam: I mean, this gets talked about all the time on the RPF under the under the header of recasting. We've talked about recasting on the podcast before,
+[00:21:28] Adam: I mean, this gets talked about all the time on the RPF under the header of recasting. We've talked about recasting on the podcast before,
 
 [00:21:37] Will: a long time ago.
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:21:40] Will: because somebody did. There's original work done by whoever did the initial sculpture cast, or
 
-[00:21:45] Adam: whatever. But they were doing it for. Look, I mean, all all prop collecting. When you're collecting replicas, unless it's from NECA or you know any one of those other places that has licenses to do this stuff, you know, half of these helmets are somebody having custom sculpted somebody else's IP, and I bought a casting of that.
+[00:21:45] Adam: whatever. But they were doing it for. Look, I mean, all all prop collecting. When you're collecting replicas, unless it's from NECA or you know any one of those other places that has licenses to do this stuff half of these helmets are somebody having custom sculpted somebody else's IP, and I bought a casting of that.
 
 [00:22:01] Will: Yeah, it's all all stolen goods, Adam.
 
@@ -424,13 +424,13 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:22:27] Will: like the cosmonaut that you guys did a few years ago.
 
-[00:22:30] Norm: Yeah, yeah, and and because it, because like I have a lot of the stuff, and if I wanted Star Wars stuff, I could go to Target and I could buy something licensed. I like celebrating a lot of the original stuff more, and when I go to conventions, it's the same thing. But I have no problem with the garage kits that are Star Wars based or Star Trek based or licensed based
+[00:22:30] Norm: Yeah, yeah, and because it, because like I have a lot of the stuff, and if I wanted Star Wars stuff, I could go to Target and I could buy something licensed. I like celebrating a lot of the original stuff more, and when I go to conventions, it's the same thing. But I have no problem with the garage kits that are Star Wars based or Star Trek based or licensed based
 
 [00:22:49] Adam: No, no.
 
 [00:22:49] Norm: because they fulfill. They exist because someone else hasn't made that product yet.
 
-[00:22:54] Adam: Absolutely, and there, I mean, the high end, the high end tricorder market for tricorders from across the Star Wars spectrum is really, really wonderful. And no, there's, it's as master replicas and every other prop company that has gone out of business. It is really hard to service this this fandom. Either you have people with so much investment in the knowledge of the prop that they're going to find problems no matter what you do, or you have people who aren’t invested in the product. They’re not invested and can't see why they should spend $750 on a noisy cricket from Men in Black.
+[00:22:54] Adam: Absolutely, and there, I mean, the high end tricorder market for tricorders from across the Star Wars spectrum is really, really wonderful. And no, there's, it's as master replicas and every other prop company that has gone out of business. It is really hard to service this fandom. Either you have people with so much investment in the knowledge of the prop that they're going to find problems no matter what you do, or you have people who aren’t invested in the product. They’re not invested and can't see why they should spend $750 on a noisy cricket from Men in Black.
 
 [00:23:27] Will: Yeah,
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:23:38] Will: I'm good.
 
-[00:23:39] Adam: Oh, it's it's for sale in here. [unclear: This this auction / Hold on, did you use Segway S?]
+[00:23:39] Adam: Oh, it's for sale in here. [unclear: This this auction / Hold on, did you use Segway S?]
 
 [00:23:42] Norm: segue.
 
@@ -452,7 +452,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:23:44] Norm: Yeah.
 
-[00:23:44] Adam: Have you have you cracked this, Will?
+[00:23:44] Adam: Have you cracked this, Will?
 
 [00:23:46] Will: No, I don't get those anymore. Nobody sends me anything cool anymore.
 
@@ -510,7 +510,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:24:59] Will: Well, I may or may not have touched it too. That is an impressive catalog. I'm going to have to take one of those home. That's amazing.
 
-[00:25:06] Adam: Yeah, it's it's an. This is maybe the the the most impressive collection I've ever seen being auctioned at once.
+[00:25:06] Adam: Yeah, it's an. This is maybe the most impressive collection I've ever seen being auctioned at once.
 
 [00:25:11] Will: Sell my house and buy an Indiana Jones hat, Adam. What's that? Sell my house and buy an Indiana Jones. Kid, I got good news for you.
 
@@ -528,25 +528,25 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:25:33] Will: Yeah, my head is a lot bigger. than that.
 
-[00:25:34] Adam: So my my Raiders hats are canon. Ooh.
+[00:25:34] Adam: So my Raiders hats are canon. Ooh.
 
 [00:25:40] Norm: The best part is going to like a prop meetup event where there are some FX guys who worked on these movies, and they'll flip through a catalog list and like, " What? That's going for £15,000, and I made that in two hours that one night before shoot day because the set decorator needed it."
 
 [00:25:56] Will: But it has intrinsic value.
 
-[00:25:57] Adam: the flip side is much more common, which is the spaceship from the movie will be the miniature spaceship from this B grade movie will sell for you know $3,000 when the production company charged $25,000 to make it. But, but back to your point about garage kits, I am going to speak right now to people who might be considering doing a small run of garage kits and say, go for it! Like, just go for it. The fact is, is these big companies like Sony and Lucasfilm they don't sue you out of the gate; they send you a cease and desist letter, and that's the shot across the bow that says you are bad. Stop doing this.
+[00:25:57] Adam: the flip side is much more common, which is the spaceship from the movie will be the miniature spaceship from this B grade movie will sell for you know $3,000 when the production company charged $25,000 to make it. But back to your point about garage kits, I am going to speak right now to people who might be considering doing a small run of garage kits and say, go for it! Like, just go for it. The fact is, is these big companies like Sony and Lucasfilm they don't sue you out of the gate; they send you a cease and desist letter, and that's the shot across the bow that says you are bad. Stop doing this.
 
 [00:26:36] Will: Yeah, in a garage kit, you've probably already you've already sent them all out. You're already done. You're just not going to sell anymore. Right. So you've already won.
 
 [00:26:43] Adam: Yeah, and nobody's nobody's getting rich on garage kits. They're expensive to produce. They're hard to make right. And anyone who's buying garage kits and then recasting them with bubbles and crap on eBay just deserves to be beaten about the head and neck with like a wet noodle.
 
-[00:26:59] Norm: Wait, and and there's a whole level of buyer beware there.
+[00:26:59] Norm: Wait, and there's a whole level of buyer beware there.
 
 [00:27:01] Adam: Yeah, that was elaborate, wasn’t it?
 
 [00:27:02] Will: really intense.
 
-[00:27:03] Norm: Like like getting in.
+[00:27:03] Norm: Like getting in.
 
 [00:27:05] Adam: I didn't want to advocate violence.
 
@@ -578,7 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:28:36] Norm: in the you know in in the collectible market. But the reason to make garage kits and the reason to buy garage kits is because they, for the most part, offer something that you can't buy from the store, which is an opportunity to make it your own. Mm-hmm. Like you are not buying a finished thing; you are buying you are buying the potential to turn it into something your own. And unless I can buy that readily and easily from you know from Target, from Toys R Us, which doesn't exist anymore, I am still going to buy the kit.
 
-[00:29:02] Adam: And you know, if you want, like many years ago, before I did MythBusters, I when I was working at Lucasfilm, I decided to replicate Henry Jones' Grail Diary from the third Raiders film, and I actually made an edition of 10, and I sold them, and I traded the others away. And like I've always said, it's not much harder to make 10 of something than it is to make one of something. Although I sat there sewing book signatures and printing it all out, and it no double sided Xerox machine actually has. Correct alignment. So I had to hand the alignment of two-sided printing is absolutely terrible when you need it to be mission critical. Like you need marks to line up. It's amazing how far I had to hand feed every single page of 10 of 2,000 pages. Yeah, it was a lot of work. But I look, you know, to me that was an endeavor of love, and I didn't consider myself legally exposed to any part of that process because it's such an esoteric piece, and no company is ever going to make dough trying to make one of those accurately.
+[00:29:02] Adam: And you know, if you want, like many years ago, before I did MythBusters, I when I was working at Lucasfilm, I decided to replicate Henry Jones' Grail Diary from the third Raiders film, and I actually made an edition of 10, and I sold them, and I traded the others away. And like I've always said, it's not much harder to make 10 of something than it is to make one of something. Although I sat there sewing book signatures and printing it all out, and it no double sided Xerox machine actually has. Correct alignment. So I had to hand the alignment of two-sided printing is absolutely terrible when you need it to be mission critical. Like you need marks to line up. It's amazing how far I had to hand feed every single page of 10 of 2,000 pages. Yeah, it was a lot of work. But I look to me that was an endeavor of love, and I didn't consider myself legally exposed to any part of that process because it's such an esoteric piece, and no company is ever going to make dough trying to make one of those accurately.
 
 [00:30:05] Will: Time to even send you a cease and desist for 10
 
@@ -596,9 +596,9 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:30:28] Norm: to use that as a prototype. Get that turned into a real product
 
-[00:30:32] Adam: because the fact is, is that while the corporation itself may be like you shouldn't do that, I guarantee you, if you're making a lovely piece of Guardians in the Galaxy, Guardians of the Galaxy, the the director or cast or art director or different people in the production probably are aware and really think your work is awesome.
+[00:30:32] Adam: because the fact is, is that while the corporation itself may be like you shouldn't do that, I guarantee you, if you're making a lovely piece of Guardians in the Galaxy, Guardians of the Galaxy, the director or cast or art director or different people in the production probably are aware and really think your work is awesome.
 
-[00:30:48] Will: It's it's funny because Lego has actually made this a part of their business,
+[00:30:48] Will: It's funny because Lego has actually made this a part of their business,
 
 [00:30:52] Adam: right?
 
@@ -614,13 +614,13 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:31:03] Adam: Yeah,
 
-[00:31:03] Will: but but it's I mean, there's an argument for engaging with the community on this if you're one of the big IP holders.
+[00:31:03] Will: but it's I mean, there's an argument for engaging with the community on this if you're one of the big IP holders.
 
 [00:31:10] Norm: Total missed opportunity. Once Disney owns all the brands, all the characters,
 
 [00:31:14] Will: I mean, two years from now,
 
-[00:31:15] Norm: right? They they can do mashups. The official official licensed mashup.
+[00:31:15] Norm: right? They can do mashups. The official official licensed mashup.
 
 [00:31:20] Will: Right. I mean, Lego did that for a long time.
 
@@ -632,7 +632,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:31:26] Norm: At Dragon Con, why can't? Yeah,
 
-[00:31:29] Will: I I um it was the Lego Dimensions stuff which was like their Toys to Life game their Skylanders type thing.
+[00:31:29] Will: I it was the Lego Dimensions stuff which was like their Toys to Life game their Skylanders type thing.
 
 [00:31:34] Adam: Mm-hmm.
 
@@ -646,13 +646,13 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:31:49] Will: Yeah.
 
-[00:31:49] Adam: How would how would Spider Man do against a lightsaber? I don't think he'd do very well.
+[00:31:49] Adam: How would Spider Man do against a lightsaber? I don't think he'd do very well.
 
 [00:31:53] Will: He's pretty fast though.
 
 [00:31:54] Adam: I guess so.
 
-[00:31:55] Will: I mean, I feel like I feel like being able to see a little bit in the future works for both of them.
+[00:31:55] Will: I mean, I feel like being able to see a little bit in the future works for both of them.
 
 [00:31:59] Norm: That's a phrase you've heard many of these debate panels. 
 
@@ -686,7 +686,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:32:38] Norm: Oh, really?
 
-[00:32:38] Will: We would, we you know which folds are going to be the ones that that open easier because of the way the the printing works.
+[00:32:38] Will: We would, we you know which folds are going to be the ones that that open easier because of the way the printing works.
 
 [00:32:44] Adam: Ah,
 
@@ -696,9 +696,9 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:32:47] Adam: Oh, nice.
 
-[00:32:48] Will: or or you ads.
+[00:32:48] Will: or you ads.
 
-[00:32:50] Adam: Before I forget, I need to. I'm going to say this on on the podcast. We need to give my mom a premium tested membership.
+[00:32:50] Adam: Before I forget, I need to. I'm going to say this on the podcast. We need to give my mom a premium tested membership.
 
 [00:32:58] Norm: Oh yeah, no problem.
 
@@ -834,7 +834,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:35:31] Will: I have hedgehogs for that.
 
-[00:35:32] Adam: Um, I remember when I was a kid, and my mom used to wash the down blankets. You'd throw a sneaker in there to keep punching the blanket to keep it puffy, so it doesn't all gather in one section.
+[00:35:32] Adam: I remember when I was a kid, and my mom used to wash the down blankets. You'd throw a sneaker in there to keep punching the blanket to keep it puffy, so it doesn't all gather in one section.
 
 [00:35:42] Will: We, I did the down blanket last weekend, and it turned out that this weekend I learned that there was a tiny little hole in the down blanket. And let me tell you, when you open the dryer after that, it's a big surprise.
 
@@ -846,7 +846,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:36:00] Will: Oh no!
 
-[00:36:00] Adam: And one of the pillows totally exploded, which I mean, you know, fills the room.
+[00:36:00] Adam: And one of the pillows totally exploded, which I mean fills the room.
 
 [00:36:06] Will: Oh yeah,
 

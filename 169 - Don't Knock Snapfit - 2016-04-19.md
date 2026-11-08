@@ -4,7 +4,7 @@
 **Duration:** 25m 31s  
 Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
-[00:00:00] Will: Um. What else do we want to tackle? Welcome to Still Untitled, the Adam Savage Project. I'm Will Smith.
+[00:00:00] Will: What else do we want to tackle? Welcome to Still Untitled, the Adam Savage Project. I'm Will Smith.
 
 [00:00:08] Adam: I'm Adam Savage.
 
@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:01:15] Unknown speaker: Spoiler alert, explains a lot.
 
-[00:01:12] Norm: Were influenced by the mecha anime craze in in Japan, and I didn't know that there was like a difference. There's there's mecha, which is mechanical suits, which is what like Pacific Rim is,
+[00:01:12] Norm: Were influenced by the mecha anime craze in Japan, and I didn't know that there was like a difference. There's there's mecha, which is mechanical suits, which is what like Pacific Rim is,
 
 [00:01:27] Unknown speaker: It’s like armor.
 
@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:01:46] Will: Jackhammering
 
-[00:01:47] Norm: still from last week. The water problem is still there. Um, but uh, Bandai makes um they own Gundam and the whole Gundam universe. But they make they've perfected the art of making these model kits that are just snap kits.
+[00:01:47] Norm: still from last week. The water problem is still there. But Bandai makes they own Gundam and the whole Gundam universe. But they make they've perfected the art of making these model kits that are just snap kits.
 
 [00:02:02] Will: Oh, they're snap kits. They're not glue.
 
@@ -88,7 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:02:26] Adam: That's amazing.
 
-[00:02:26] Norm: All you need are snips. You know, it's all color.
+[00:02:26] Norm: All you need are snips. It's all color.
 
 [00:02:29] [unclear speaker: Adam / Will]: Okay,
 
@@ -112,13 +112,13 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:03:02] Adam: I've got to get myself one of these.
 
-[00:03:04] Will: Yeah, this sounds like the the right thing to scratch my OCD itch.
+[00:03:04] Will: Yeah, this sounds like the right thing to scratch my OCD itch.
 
 [00:03:06] Norm: Totally.
 
-[00:03:06] Will: And and then so then you assemble it. It's all this brightly colored. There's like four or five different colors of plastic, right?
+[00:03:06] Will: And then so then you assemble it. It's all this brightly colored. There's like four or five different colors of plastic, right?
 
-[00:03:14] Norm: Right, and the thing we were most impressed by is not only are there different colors of plastic, but just the injection molding technology that they have. You can have one one big piece, you know, one frame that's made of maybe four different types of plastic, four different colors, and in an injection molded. So you have the rubberized piece alongside.
+[00:03:14] Norm: Right, and the thing we were most impressed by is not only are there different colors of plastic, but just the injection molding technology that they have. You can have one one big piece one frame that's made of maybe four different types of plastic, four different colors, and in an injection molded. So you have the rubberized piece alongside.
 
 [00:03:35] Adam: Oh, it's co-molded.
 
@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:03:38] Norm: in one piece.
 
-[00:03:40] Adam: I'm speechless. I had no idea that it. I mean, you know, I knew my knowledge of that had extended only to that Tamiya had the best molds because they had the tightest castings. But I am but a baby in the woods in my knowledge. Given this is amazing.
+[00:03:40] Adam: I'm speechless. I had no idea that it. I mean I knew my knowledge of that had extended only to that Tamiya had the best molds because they had the tightest castings. But I am but a baby in the woods in my knowledge. Given this is amazing.
 
 [00:03:58] Norm: Yeah,
 
@@ -146,11 +146,11 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:04:26] Adam: Amazing
 
-[00:04:26] Norm: are these are these kits and sets.
+[00:04:26] Norm: are these kits and sets.
 
 [00:04:29] Adam: So, so did you get any? That's where you
 
-[00:04:31] Norm: got. Yeah, I did get some there, and also use that as an opportunity to kind of inventory and and
+[00:04:31] Norm: got. Yeah, I did get some there, and also use that as an opportunity to kind of inventory and
 
 [00:04:37] Adam: see what's out there. So then you can help me pick out a good one.
 
@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:04:47] Adam: Yeah,
 
-[00:04:47] Norm: where people and a lot of those a lot of those first posts are posts where people it's their first time building
+[00:04:47] Norm: where people and a lot of those first posts are posts where people it's their first time building
 
 [00:04:52] Adam: Gunpla doesn't not roll off.
 
@@ -166,13 +166,13 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:04:55] Norm: Yeah,
 
-[00:04:55] Adam: I don't mean to insult your your
+[00:04:55] Adam: I don't mean to insult your
 
 [00:04:57] Will: Gunplay. Maybe Gunpla.
 
 [00:04:59] Adam: No Gunpla.
 
-[00:05:00] Norm: You know, I mistakenly thought it was short for Gundam play, but it's Gundam plastic. It's short for plastic, so I assume it's pronounced that way.
+[00:05:00] Norm: I mistakenly thought it was short for Gundam play, but it's Gundam plastic. It's short for plastic, so I assume it's pronounced that way.
 
 [00:05:07] Will: Well, because when I was a kid, those Those toys were made of metal,
 
@@ -184,11 +184,11 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:05:15] Adam: Those are plastic with die diecast metal in there. That was really
 
-[00:05:20] Will: all I know. Is I had I had a couple of aunts and uncles that were like young enough. My dad was the oldest one, and I was the first kid in the generation. So like, I have an aunt who's 13 years older than me.
+[00:05:20] Will: all I know. Is I had a couple of aunts and uncles that were like young enough. My dad was the oldest one, and I was the first kid in the generation. So like, I have an aunt who's 13 years older than me.
 
 [00:05:30] Adam: Oh, nice!
 
-[00:05:30] Will: And when I went to visit the grandparents and would play, she like she had dope, super dope toys, like like a like a Oscar Oscar from the Six Million Dollar Man.
+[00:05:30] Will: And when I went to visit the grandparents and would play, she had dope, super dope toys a Oscar Oscar from the Six Million Dollar Man.
 
 [00:05:41] Adam: Oh, Oscar Madison.
 
@@ -212,13 +212,13 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:06:19] Adam: Exactly, that's what I'm saying.
 
-[00:06:20] Will: You know, there's another there's another guy who needs his own film festival.
+[00:06:20] Will: There's another guy who needs his own film festival.
 
 [00:06:24] Adam: Michael Ironsides totally needs his own.
 
 [00:06:26] Will: Oh, Starship Troop! It's just Starship Troopers like six times.
 
-[00:06:30] Adam: You got you got
+[00:06:30] Adam: You got
 
 [00:06:31] Will: who's in Robocop?
 
@@ -270,13 +270,13 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:07:32] Adam: Exactly. Um,
 
-[00:07:33] Will: but we were talking about Gunpla. I I totally just distracted.
+[00:07:33] Will: but we were talking about Gunpla. I totally just distracted.
 
-[00:07:37] Norm: we're we're going to find some model kits and maybe bring them into the cave. And I think it's more to find one that you like aesthetically.
+[00:07:37] Norm: we're going to find some model kits and maybe bring them into the cave. And I think it's more to find one that you like aesthetically.
 
 [00:07:44] Adam: Yeah, yeah, yeah, absolutely.
 
-[00:07:45] Will: But I mean, you you want a kit that's going to be fun to assemble too. I'm sure there's some that are not.
+[00:07:45] Will: But I mean, you want a kit that's going to be fun to assemble too. I'm sure there's some that are not.
 
 [00:07:49] Norm: I mean, they're all different grades.
 
@@ -286,7 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:07:54] Adam: In general, my knowledge, my experience with Snap Together kits is they're just like regular kits, only worse.
 
-[00:07:59] Will: Yeah, and and for babies.
+[00:07:59] Will: Yeah, and for babies.
 
 [00:08:01] Adam: Yeah,
 
@@ -324,13 +324,13 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:08:36] Will: Oh.
 
-[00:08:38] Adam: For me, it was a a Patton tank, a Tamiya the Tamiya Patton.
+[00:08:38] Adam: For me, it was a Patton tank, a Tamiya the Tamiya Patton.
 
-[00:08:42] Will: That's a that's a good one.
+[00:08:42] Will: That's a good one.
 
 [00:08:43] Adam: I painted the crap out of that with like mud on the you know yeah.
 
-[00:08:47] Will: I did I did I did a Mig 29 and an F16 and I did appropriate paints like I masked out the the the straight edge camouflage and all that stuff which was a nightmare.
+[00:08:47] Will: I did a Mig 29 and an F16 and I did appropriate paints like I masked out the straight edge camouflage and all that stuff which was a nightmare.
 
 [00:08:59] Adam: Wow.
 
@@ -350,7 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:09:15] Adam: this is something I see on I love cockpits I have a whole folder full of pictures of them and I sometimes glory over the online community of people who just do cockpits every instrument every button every switch it's really lovely I was also recently looking at amazing paper models of the Mercury cockpit from Mercury capsule so
 
-[00:09:40] Norm: so that's that's the thing that's going to go away sometime in the future the cockpits will lose all their buttons
+[00:09:40] Norm: so that's the thing that's going to go away sometime in the future the cockpits will lose all their buttons
 
 [00:09:46] Adam: yeah
 
@@ -380,11 +380,11 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:10:03] Will: there's There's two, I think, that they made by hand, so they're the most expensive cheap Teslas ever. Wow! Because you know their process, right? They first they carve out the body shape with a giant industrial mill, and then they take all the components of one and build it by hand, like engineers not on the line, to make sure that it all goes together and works, and then do the road tests and stuff like that.
 
-[00:10:25] Norm: I'm sorry, I forced the segue. I want to continue talking about model the the
+[00:10:25] Norm: I'm sorry, I forced the segue. I want to continue talking about model the
 
 [00:10:28] Will: oh really
 
-[00:10:28] Norm: yeah cockpits. I I thought that was such a good no
+[00:10:28] Norm: yeah cockpits. I thought that was such a good no
 
 [00:10:30] Adam: it was a good segue,
 
@@ -392,7 +392,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:10:33] Will: I'm so glad, Norm.
 
-[00:10:33] Norm: The cockpits the cockpits were interesting.
+[00:10:33] Norm: The cockpits were interesting.
 
 [00:10:35] Adam: The cockpits were
 
@@ -402,19 +402,19 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:10:42] Adam: Yeah,
 
-[00:10:42] Will: which basically it's it's it's narrated by Buzz Aldrin. I think they go through and they use they use the actual stock recordings.
+[00:10:42] Will: which basically it's narrated by Buzz Aldrin. I think they go through and they use the actual stock recordings.
 
 [00:10:51] Adam: Right. Oh, but the Capcom
 
-[00:10:53] Will: from Capcom and like all all that stuff. The amazing thing about it is that it puts you in the cockpit of both the Columbia command module. And the lem at different times, and you can like because it's VR, you can just lean forward and look at the the knobs and dials.
+[00:10:53] Will: from Capcom and like all all that stuff. The amazing thing about it is that it puts you in the cockpit of both the Columbia command module. And the lem at different times, and you can like because it's VR, you can just lean forward and look at the knobs and dials.
 
 [00:11:09] Adam: Wow,
 
-[00:11:09] Will: like I was a little bummed because they weren't all articulated; they aren't all like actually animated and stuff. But even the ones that aren't, it's it's like you never get to look at that stuff up close anymore. Because when I was a kid, you used to be able to get in the command modules at science museums, and I think they don't even let you in those anymore.
+[00:11:09] Will: like I was a little bummed because they weren't all articulated; they aren't all like actually animated and stuff. But even the ones that aren't, it's like you never get to look at that stuff up close anymore. Because when I was a kid, you used to be able to get in the command modules at science museums, and I think they don't even let you in those anymore.
 
-[00:11:25] Adam: Yeah, probably for the best. climbing into the gunners, the circular polycarbonate gunners turret on a on a bomber,
+[00:11:25] Adam: Yeah, probably for the best. climbing into the gunners, the circular polycarbonate gunners turret on a bomber,
 
-[00:11:31] Will: the bottom of a the the which is the death cannon on a B-17.
+[00:11:31] Will: the bottom of a the which is the death cannon on a B-17.
 
 [00:11:35] Adam: All you have to do is look at that and see all of Star Wars in that one piece of equipment.
 
@@ -440,11 +440,11 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:11:56] Will: I've it's been documented.
 
-[00:11:58] Adam: It's been documented. But wait, there is a there is an instrument on the On the dashboard, a dashboard of Apollo 11
+[00:11:58] Adam: It's been documented. But wait, there is a there is an instrument on the dashboard, a dashboard of Apollo 11
 
 [00:12:05] Will: control panel.
 
-[00:12:06] Adam: Control panel. It's the Earth, it's the Earth gauge that shows you where you are above Earth. So it's a globe that turns depending on where you are over the Earth.
+[00:12:06] Adam: Control panel. It's the Earth gauge that shows you where you are above Earth. So it's a globe that turns depending on where you are over the Earth.
 
 [00:12:18] Norm: Yeah, only useful on orbit.
 
@@ -466,7 +466,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:13:06] Adam: right
 
-[00:13:06] Will: and and things like self driving cars. We're not going to have dashboards in cars in 20 years. You're not going to. There's no reason to put a dashboard in a self driving car.
+[00:13:06] Will: and things like self driving cars. We're not going to have dashboards in cars in 20 years. You're not going to. There's no reason to put a dashboard in a self driving car.
 
 [00:13:14] Adam: Right.
 
@@ -480,7 +480,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:13:34] Norm: let's just say Tesla superchargers.
 
-[00:13:35] Adam: And I'm secretly a prepper in my in my.
+[00:13:35] Adam: And I'm secretly a prepper in my.
 
 [00:13:38] Will: You are a prepper. Yes,
 
@@ -488,7 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:13:41] Will: Wouldn't you like
 
-[00:13:42] Norm: preppers are all self? They they all want to self fulfill their prophecies.
+[00:13:42] Norm: preppers are all self? They all want to self fulfill their prophecies.
 
 [00:13:45] Will: Have you seen Cloverfield yet?
 
@@ -496,9 +496,9 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:13:49] Will: Oh. Okay, so it's
 
-[00:13:54] Adam: a lot to do. I I just haven't gotten around to. all of it.
+[00:13:54] Adam: a lot to do. I just haven't gotten around to. all of it.
 
-[00:13:56] Will: I know, I know, I know. The the cockpit thing, like, so have you seen Jeremy's pinball VR pinball game?
+[00:13:56] Will: I know. The cockpit thing, like, so have you seen Jeremy's pinball VR pinball game?
 
 [00:14:03] Adam: I haven't played it.
 
@@ -506,9 +506,9 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:14:06] Adam: Oh, right. He built a console that is, yeah.
 
-[00:14:08] Will: It's just the the the end of the pinball machine that you interact with, and he uses it when he's playing the VR pinball game. Lines it up and works works brilliantly. There's a whole world of those kinds of crazy sim games. There was a great article, and I think The Guardian the other day about about people who play things like London Subway Simulator and Bus Driving Simulator and Euro Truck Simulator and Farm Simulator. And I think that all there's a cottage industry in building custom control panels for like your London subway train, so that you have a you have all the physical switches and knobs and dials in the right place.
+[00:14:08] Will: It's just the end of the pinball machine that you interact with, and he uses it when he's playing the VR pinball game. Lines it up and works works brilliantly. There's a whole world of those kinds of crazy sim games. There was a great article, and I think The Guardian the other day about about people who play things like London Subway Simulator and Bus Driving Simulator and Euro Truck Simulator and Farm Simulator. And I think that all there's a cottage industry in building custom control panels for like your London subway train, so that you have a you have all the physical switches and knobs and dials in the right place.
 
-[00:14:42] Adam: I I totally agree
+[00:14:42] Adam: I totally agree
 
 [00:14:43] Will: when you're in your VRs.
 
@@ -532,7 +532,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:15:23] Will: I want to hear about your Model X ride.
 
-[00:15:24] Norm: Yeah, so one of our listeners and viewers, Christian, who actually gave us a test ride on his Model S a couple years ago, he got his Model X, which is the the one they just released. It's basically an SUV crossover,
+[00:15:24] Norm: Yeah, so one of our listeners and viewers, Christian, who actually gave us a test ride on his Model S a couple years ago, he got his Model X, which is the one they just released. It's basically an SUV crossover,
 
 [00:15:38] Will: Doors go like this.
 
@@ -542,13 +542,13 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:15:41] Norm: that go like this.
 
-[00:15:43] Will: That's just the the back doors, though, right?
+[00:15:43] Will: That's just the back doors, though, right?
 
-[00:15:44] Norm: It's just the the passenger doors, the not the front doors, but it also has Tesla's autopilot. Which is a feature they started putting in their cars last year. It's an optional feature.
+[00:15:44] Norm: It's just the passenger doors, the not the front doors, but it also has Tesla's autopilot. Which is a feature they started putting in their cars last year. It's an optional feature.
 
 [00:15:58] Will: Yeah. Well, no, there's some sensors. Okay. and stuff.
 
-[00:15:59] Norm: Yes, you have to have a car that has not only your radar sensors, your proximity sensors, your radar sensors for adaptive cruise control, but also optical cameras that look at the road. And you know, if you if you told me that Tesla, you know, put 50 people on the team to develop a system that could then send your car to drive to L.A. by itself, that sounds crazy. But it works. It totally, totally works, and it is freaky.
+[00:15:59] Norm: Yes, you have to have a car that has not only your radar sensors, your proximity sensors, your radar sensors for adaptive cruise control, but also optical cameras that look at the road. And you know, if you told me that Tesla put 50 people on the team to develop a system that could then send your car to drive to L.A. by itself, that sounds crazy. But it works. It totally, totally works, and it is freaky.
 
 [00:16:25] Adam: Wow.
 
@@ -558,7 +558,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:16:27] Adam: Changing lanes and stuff.
 
-[00:16:28] Norm: Changing lanes. No! You sit in the driver's seat and the cruise control button, which which is just like your light switch, your turn signal. You flip it and you flip it again, twice, and then two lights turn on, and it basically is smart adaptive cruise control. So
+[00:16:28] Norm: Changing lanes. No! You sit in the driver's seat and the cruise control button, which is just like your light switch, your turn signal. You flip it and you flip it again, twice, and then two lights turn on, and it basically is smart adaptive cruise control. So
 
 [00:16:42] Adam: that's how you wake up Skynet.
 
@@ -580,7 +580,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:17:20] Adam: That's terrifying.
 
-[00:17:20] Norm: Off the pedal, off the the brake, and then you can say, " I want to change lanes," and it will change lanes.
+[00:17:20] Norm: Off the pedal, off the brake, and then you can say, " I want to change lanes," and it will change lanes.
 
 [00:17:27] Will: But you signal with the turn signal?
 
@@ -594,7 +594,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:17:41] Adam: Wow.
 
-[00:17:41] Norm: If you tap the accelerator, gives you full control back. So we're all comfortable with the idea. You know, maybe in 10 years, in 15 years, of self-driving cars, fully autonomous cars.
+[00:17:41] Norm: If you tap the accelerator, gives you full control back. So we're all comfortable with the idea. Maybe in 10 years, in 15 years, of self-driving cars, fully autonomous cars.
 
 [00:17:51] [unclear speaker: Adam / Will]: I'm fine with it right now.
 
@@ -602,13 +602,13 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:17:53] Adam: Right.
 
-[00:17:53] Norm: Right and and when you get into the car, maybe it's Google's car, and there won't even be a steering wheel in their car because they don't even they believe so much in their system. Right.
+[00:17:53] Norm: Right and when you get into the car, maybe it's Google's car, and there won't even be a steering wheel in their car because they don't even they believe so much in their system. Right.
 
 [00:18:01] Adam: No, I've been reading about that. That is a bad idea to have a steering wheel in a in an autonomous car because you're not paying enough attention to for that to be useful to you.
 
-[00:18:09] Will: Well, if it's if it's mechanically connected and it's actually turning, you could hurt yourself if it needs to swerve or something like that.
+[00:18:09] Will: Well, if it's mechanically connected and it's actually turning, you could hurt yourself if it needs to swerve or something like that.
 
-[00:18:14] Norm: So to be in the full mindset of a passenger, if we trust the car, that's going to be fine. If everyone trusts the car, you know, statistically there will be fewer accidents. But until we get there, we're going to be in these stopgap situations where you have cars that have both,
+[00:18:14] Norm: So to be in the full mindset of a passenger, if we trust the car, that's going to be fine. If everyone trusts the car statistically there will be fewer accidents. But until we get there, we're going to be in these stopgap situations where you have cars that have both,
 
 [00:18:29] Adam: Right.
 
@@ -690,17 +690,17 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:21:00] Adam: Oh, really?
 
-[00:21:00] Will: You can build a robot, a rocket in Kerbal that will let you land the first stage on the on the the maybe not a barge, but on the ground again.
+[00:21:00] Will: You can build a robot, a rocket in Kerbal that will let you land the first stage on the maybe not a barge, but on the ground again.
 
 [00:21:10] Adam: Okay,
 
-[00:21:10] Will: and and even in a video game, it's incredibly difficult. Um, the the the the fact that they come in basically uncontrolled, not uncontrolled, but just enough thrust to keep it in the right orientation,
+[00:21:10] Will: and even in a video game, it's incredibly difficult. The fact that they come in basically uncontrolled, not uncontrolled, but just enough thrust to keep it in the right orientation,
 
 [00:21:23] Adam: yeah,
 
-[00:21:23] Will: and then at the last minute goose it when it's the least fuel in the system, and it's it's incredible.
+[00:21:23] Will: and then at the last minute goose it when it's the least fuel in the system, and it's incredible.
 
-[00:21:28] Adam: It's an amazing, amazing achievement, and it is it's the it's one of the high watermarks for for for the commercial space industry.
+[00:21:28] Adam: It's an amazing, amazing achievement, and it is it's the it's one of the high watermarks for the commercial space industry.
 
 [00:21:36] Will: Well, it's important for two reasons. One is that something like 60 or 70% of the cost of a launch is in that first stage. So being able to reuse that is incredibly, incredibly powerful. It's an it's. I got conflicting things, I guess, depending on how you measure stories, but it's the equivalent of an 18 to 25 story building high.
 
@@ -714,7 +714,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:22:05] Adam: I mean, all this amazing technology for the two to be able to talk to each other,
 
-[00:22:08] Will: and um, yeah, I mean that that's just it. Like, if you can reduce the cost of of a launch, now of course we've heard this reusable space stuff is going to make things really cheap before, because that was the promise of the space shuttle.
+[00:22:08] Will: and um, yeah, I mean that that's just it. Like, if you can reduce the cost of a launch, now of course we've heard this reusable space stuff is going to make things really cheap before, because that was the promise of the space shuttle.
 
 [00:22:21] Adam: Yeah.
 
@@ -722,7 +722,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:22:25] Adam: Well, they apparently they they're retiring that engine, but they did test fire it and it fired up perfectly.
 
-[00:22:30] Norm: I think I mean it's incredible, but the hesitation is that it's so difficult to see space scaling because we've never seen it scale before. We've done, you know, we've. Built, you can count on the number of your fingers how many shuttles and how many of these rockets we've done, and I think you have to look to maybe a different part of space, maybe just how routines like satellite launches are these days. And in fact, like you looked at like something like that, and that's where SpaceX wants to take spaceflight
+[00:22:30] Norm: I think I mean it's incredible, but the hesitation is that it's so difficult to see space scaling because we've never seen it scale before. We've done we've. Built, you can count on the number of your fingers how many shuttles and how many of these rockets we've done, and I think you have to look to maybe a different part of space, maybe just how routines like satellite launches are these days. And in fact you looked at like something like that, and that's where SpaceX wants to take spaceflight
 
 [00:22:58] Adam: Right.
 
@@ -742,7 +742,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:23:08] Adam: to end. Mad props to SpaceX for their successful landing
 
-[00:23:13] Norm: from from Gundam to the from the mechanized robots to
+[00:23:13] Norm: from Gundam to the from the mechanized robots to
 
 [00:23:16] Adam: the mechanized
 
@@ -752,17 +752,17 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:23:20] Will: When can we get exosuits? That's all I want. I want something that lets me lift up a car.
 
-[00:23:24] Adam: They're they're here. It's the they're here,
+[00:23:24] Adam: They're here. It's the they're here,
 
 [00:23:28] Will: but they're assistive. I want something that makes me super strong, superhero suit.
 
-[00:23:31] Adam: No, but it's the the MegaBots. The
+[00:23:31] Adam: No, but it's the MegaBots. The
 
 [00:23:35] Will: oh, the MegaBots.
 
 [00:23:36] Adam: Yeah, the MegaBots.
 
-[00:23:37] Will: But those aren't those are those are those are like tanks.
+[00:23:37] Will: But those aren't those are like tanks.
 
 [00:23:39] Adam: I'll take you out there. I have an invite.
 
@@ -770,7 +770,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:23:42] Adam: we can go see just how close to your childhood  fantasy.
 
-[00:23:45] Will: I will totally go and shoot some giant cannons with you at the at the robots.
+[00:23:45] Will: I will totally go and shoot some giant cannons with you at the robots.
 
 [00:23:49] Adam: Good.
 
@@ -786,7 +786,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:24:27] Norm: Yeah.
 
-[00:24:27] Will: But it turns out the moment the lights come down in the in the theater and the robots line up and they start spinning these massive amounts of kinetic energy around, and you know that they're about to connect with 250 pounds of robot, well, 500 pounds total is gonna. You just, it's really exciting,
+[00:24:27] Will: But it turns out the moment the lights come down in the theater and the robots line up and they start spinning these massive amounts of kinetic energy around, and you know that they're about to connect with 250 pounds of robot, well, 500 pounds total is gonna. You just, it's really exciting,
 
 [00:24:44] Adam: and I have seen some of the contestants. I've seen some preliminary pictures of some of the robots, and it's amazing. And I want to point out that when you see spinning robots, you have Jamie Hyneman to thank. Blendo was the very first of all the centrifugally powered nightmare death machines.
 
@@ -798,7 +798,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:25:14] Will: Oh, yeah, I'd love to hear that.
 
-[00:25:15] Adam: 1993, but that was the second. Yeah, we did the we did the first annual Robot Wars.
+[00:25:15] Adam: 1993, but that was the second. Yeah, we did the first annual Robot Wars.
 
 [00:25:21] Will: There we go. See you guys next week.
 

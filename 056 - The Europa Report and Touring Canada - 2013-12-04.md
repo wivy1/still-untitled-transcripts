@@ -34,7 +34,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:01:21] Norm: Yep.
 
-[00:01:22] Will: I mean, they don't bury stuff; they just put it up on poles. Is the is the key? It's much cheaper to do that.
+[00:01:22] Will: I mean, they don't bury stuff; they just put it up on poles. Is the key? It's much cheaper to do that.
 
 [00:01:28] Adam: Yeah, I'm in my dressing room in the theater in Minneapolis. This was the strongest Wi-Fi that I could find. The bus Wi-Fi I don't think is quite up to the task of Skyping.
 
@@ -48,11 +48,11 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:02:26] Will: Norm, what did you think about it? Like, are you ready for a tour gig? Are you ready to get on the bus?
 
-[00:02:30] Norm: A month is a perfect amount of time, and and the way you're doing it, Adam, is that you're on the bus, you know, a couple most of the time, but then you also fly to some places, and there's some nights that you do get to stay at hotels. Uh, it it I I love the idea that you're seeing you're waking up in a new place every day.
+[00:02:30] Norm: A month is a perfect amount of time, and the way you're doing it, Adam, is that you're on the bus, you know, a couple most of the time, but then you also fly to some places, and there's some nights that you do get to stay at hotels. It I I love the idea that you're seeing you're waking up in a new place every day.
 
-[00:02:47] Adam: I'm waking up in a new place every day, and in contrast to the last time we did this tour, I am really, really trying to get out every single day. It's it's quite easy to calcify into the bus and never leave the bus. And then after like five or six cities, you're like, " What have I been doing?" So actually, I went to a bookstore today. When I'm done with you guys, I might actually go out and buy a scarf. And you know, it's it's lovely to actually see each town that I'm in and actually get you know some pictures and some memories of each place. It actually makes it feel much more. Strangely, it makes me feel more relaxed having that activity.
+[00:02:47] Adam: I'm waking up in a new place every day, and in contrast to the last time we did this tour, I am really, really trying to get out every single day. It's quite easy to calcify into the bus and never leave the bus. And then after like five or six cities, you're like, " What have I been doing?" So actually, I went to a bookstore today. When I'm done with you guys, I might actually go out and buy a scarf. And it's lovely to actually see each town that I'm in and actually get you know some pictures and some memories of each place. It actually makes it feel much more. Strangely, it makes me feel more relaxed having that activity.
 
-[00:03:26] Will: Well, like I I can understand why people who are after seeing what it's like on the bus on the on the tour bus because you're on like a rock star tour bus now. I can totally understand why people who are
+[00:03:26] Will: Well, like I I can understand why people who are after seeing what it's like on the bus on the tour bus because you're on like a rock star tour bus now. I can totally understand why people who are
 
 [00:03:37] Adam: like totally broke
 
@@ -60,17 +60,17 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:03:38] Adam: Will oh, could you start that again?
 
-[00:03:40] Will: Yeah, I just um so after seeing what what it's like on the tour bus, I can kind of imagine. I understand why people who spend a lot of time on the road like buy playstations and xboxes and all that stuff loaded on there and just play video games for hours and hours and hours a day. Because like if you're not if you don't have other stuff to do and you're driving that whole time instead of parked in a city, it's a it's a little different situation.
+[00:03:40] Will: Yeah, I just so after seeing what it's like on the tour bus, I can kind of imagine. I understand why people who spend a lot of time on the road like buy playstations and xboxes and all that stuff loaded on there and just play video games for hours and hours a day. Because like if you're not if you don't have other stuff to do and you're driving that whole time instead of parked in a city, it's a little different situation.
 
 [00:04:02] Adam: That is, and actually, I've got a a lot to do. We are working on some new shows for Discovery. I've, as obviously, you guys know, I've been blogging every day, so it's like I've got a a task list of things to take care of every day that actually makes the days feel quite full. And in real stark contrast to the last time we went on tour.
 
-[00:04:23] Will: So the the blog post is a good good you mentioned that they're up pretty much every day on on tested, um, and and they're just little glimpses of the road. Like you talked about, we went to an Army Navy store when we were in Bakersfield with you.
+[00:04:23] Will: So the blog post is a good good you mentioned that they're up pretty much every day on tested and they're just little glimpses of the road. Like you talked about, we went to an Army Navy store when we were in Bakersfield with you.
 
 [00:04:36] Adam: Yeah. My mom. My mom reminded me after reading that that my dad actually drove a tank when he was stationed in the Army in Germany in the late '40s, early '50s, and he loved driving a tank.
 
-[00:04:49] Norm: And you've been going to thrift stores. There've been flea markets. Some places have been um have been more fruitful than others. Since we've seen you last, have there been places that you really surprised you, or things that you've seen that you you didn't really expect to see on the road that you really enjoyed?
+[00:04:49] Norm: And you've been going to thrift stores. There've been flea markets. Some places have been more fruitful than others. Since we've seen you last, have there been places that you really surprised you, or things that you've seen that you didn't really expect to see on the road that you really enjoyed?
 
-[00:05:06] Adam: Well, since you've seen me last, Thanksgiving happened, and Thanksgiving. Since there was some travel both before and after by plane, we went into Canada for most of the Thanksgiving week, and in Canada it was freezing, freezing cold. And with Thanksgiving and the hotel stuff that we're doing, I didn't get out very much. So now we just came back last night on the plane from Regina to to Minneapolis. Though our flight was delayed a little bit, I woke up nice and early this morning, so I've actually been able to get some time out today. I went and bought some books for Christmas presents.
+[00:05:06] Adam: Well, since you've seen me last, Thanksgiving happened, and Thanksgiving. Since there was some travel both before and after by plane, we went into Canada for most of the Thanksgiving week, and in Canada it was freezing, freezing cold. And with Thanksgiving and the hotel stuff that we're doing, I didn't get out very much. So now we just came back last night on the plane from Regina to Minneapolis. Though our flight was delayed a little bit, I woke up nice and early this morning, so I've actually been able to get some time out today. I went and bought some books for Christmas presents.
 
 [00:05:43] Will: Oh, that's great. What
 
@@ -78,15 +78,15 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:05:49] Will: It's just Thursday, dude.
 
-[00:05:49] Adam: No, no, they they yeah, it's Thursday. They have a Thanksgiving somewhere in October. So on Thanksgiving, what they do is they wish Americans a happy Thanksgiving.
+[00:05:49] Adam: No, no, they yeah, it's Thursday. They have a Thanksgiving somewhere in October. So on Thanksgiving, what they do is they wish Americans a happy Thanksgiving.
 
-[00:05:57] Will: Did you did you like you did the road crew? Did you guys all have like a turkey dinner that night or anything like that?
+[00:05:57] Will: Did you like you did the road crew? Did you guys all have like a turkey dinner that night or anything like that?
 
-[00:06:02] Adam: We did. We have a, an amazing tour manager, the young and incredibly talented Will Brandstetter, and Will. Will organized a beautiful dinner at a restaurant called Moxie's in Calgary, and we had turkey with all the fixings. Ish. It was it was lovely with the whole crew.
+[00:06:02] Adam: We did. We have a, an amazing tour manager, the young and incredibly talented Will Brandstetter, and Will. Will organized a beautiful dinner at a restaurant called Moxie's in Calgary, and we had turkey with all the fixings. Ish. It was lovely with the whole crew.
 
 [00:06:22] Norm: And then you also had some poutine in Canada. You couldn't leave Canada without having poutine.
 
-[00:06:27] Adam: Absolutely. On the first show, so this is something, and I wrote about this in the last couple of days. The the road crews really know their food in specific locations. Like they have their favorite go to places, and we have a meal after every show, which is kind of like the Hobbit's second breakfast. It's our second
+[00:06:27] Adam: Absolutely. On the first show, so this is something, and I wrote about this in the last couple of days. The road crews really know their food in specific locations. Like they have their favorite go to places, and we have a meal after every show, which is kind of like the Hobbit's second breakfast. It's our second
 
 [00:06:44] Will: elevensies.
 
@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:06:49] Will: Okay.
 
-[00:06:49] Adam: And we had some poutine, which is just one of the most delicious things. It's it's it's the it's the Canadian version of chili cheese fries. It is French fries slathered in gravy and cheese curds, and often with small modifications on that. It was stunning.
+[00:06:49] Adam: And we had some poutine, which is just one of the most delicious things. It's the Canadian version of chili cheese fries. It is French fries slathered in gravy and cheese curds, and often with small modifications on that. It was stunning.
 
 [00:07:06] Will: It sounds gross, but it's a wonderful meal. Oh no, highly recommended.
 
@@ -106,23 +106,23 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:07:37] Norm: That's the Montreal city.
 
-[00:07:39] Adam: Yeah, yeah, and it's unbelievably good. You can handle like four bites before you feel like you ate a whole chocolate cake. For the San Franciscan listeners, I want to tell you that there is a fantastic Korean fusion version of poutine out there made at Namu on 18th and Dolores, and they call it Gamja fries, and it is like French fries slathered in Um, kimchi and oko sauce and Kewpie mayo, along with some seaweed and some other like Korean spices. That is just like ah, so delicious. We probably eat that once a week in my house.
+[00:07:39] Adam: Yeah, yeah, and it's unbelievably good. You can handle like four bites before you feel like you ate a whole chocolate cake. For the San Franciscan listeners, I want to tell you that there is a fantastic Korean fusion version of poutine out there made at Namu on 18th and Dolores, and they call it Gamja fries, and it is like French fries slathered in kimchi and oko sauce and Kewpie mayo, along with some seaweed and some other like Korean spices. That is just like ah, so delicious. We probably eat that once a week in my house.
 
-[00:08:17] Will: There, there's a bar down in the financial district that has a very traditional poutine as well, and I can't remember the name, but it's on like, it's at like Battery and and.
+[00:08:17] Will: There, there's a bar down in the financial district that has a very traditional poutine as well, and I can't remember the name, but it's on like, it's at like Battery and.
 
-[00:08:26] Norm: I like that Skype cut out just as when Adam when you when you mentioned the address, you said Namu on 18th, and then Skype cut the connection as if to protect Namu.
+[00:08:26] Norm: I like that Skype cut out just as when Adam when you mentioned the address, you said Namu on 18th, and then Skype cut the connection as if to protect Namu.
 
 [00:08:37] Adam: No, I want I I want them to have the business. They're not as busy as they should be.
 
-[00:08:41] Will: Excellent. So, um, a couple of things we learned when we were when we were in Bakersfield. One is that there are bus rules. Yes, I did not realize, but pooping on the bus is is strictly forbidden.
+[00:08:41] Will: Excellent. So a couple of things we learned when we were in Bakersfield. One is that there are bus rules. Yes, I did not realize, but pooping on the bus is is strictly forbidden.
 
-[00:08:56] Adam: It's forbidden. Yeah, you don't poop on the bus. The thing is, from what I understand, it's because the buses don't have a masticator, and that's the thing that turns the poop into some sort of slurry that makes it less smelly. I don't know the exact mechanics, but basically, no one on the bus wants to smell your your poop, so nobody poops on the bus.
+[00:08:56] Adam: It's forbidden. Yeah, you don't poop on the bus. The thing is, from what I understand, it's because the buses don't have a masticator, and that's the thing that turns the poop into some sort of slurry that makes it less smelly. I don't know the exact mechanics, but basically, no one on the bus wants to smell your poop, so nobody poops on the bus.
 
-[00:09:16] Will: If if you've ever fixed a marine toilet, you know what a masticator is, and you'd want nothing to do with that.
+[00:09:16] Will: If you've ever fixed a marine toilet, you know what a masticator is, and you'd want nothing to do with that.
 
 [00:09:22] Adam: Do you know? I tell you, if you want some fun on the next podcast with Jamie, ask him about his attempts to improve upon the marine toilet when he lived on a boat in the Bahamas. He has got he's got a half hour of storytelling that is solid gold.
 
-[00:09:37] Will: Oh, we'll we'll definitely get into that. I I like I when I was in college, I was looking at buying a houseboat because for what I would rent an apartment for, I could buy a shitty old houseboat, live on the water for a year.
+[00:09:37] Will: Oh, we'll we'll definitely get into that. I like I when I was in college, I was looking at buying a houseboat because for what I would rent an apartment for, I could buy a shitty old houseboat, live on the water for a year.
 
 [00:09:48] Adam: Right.
 
@@ -134,21 +134,21 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:09:57] Adam: Don't you just have to like stick a hose in it and pump it out once a week or once a month or something?
 
-[00:10:00] Will: Well, this in Tennessee, you just I think you you treat it and then [unclear: outflue]. But the larger issue was that it was marine toilets. They make bus toilets and airplane toilets look pretty nice.
+[00:10:00] Will: Well, this in Tennessee, you just I think you treat it and then [unclear: outflue] But the larger issue was that it was marine toilets. They make bus toilets and airplane toilets look pretty nice.
 
-[00:10:13] Adam: It's like a, it's like a, it's like living with a porta potty in your house.
+[00:10:13] Adam: It's like a, it's like living with a porta potty in your house.
 
-[00:10:16] Will: Yeah, pretty much. When you go to the, when you go into somebody else's boat and they have a broom handle next to the toilet, just in case you know the the narrow throat of the toilet wasn't able to handle what you'd done to it, I I realized I didn't want anything to do with that. Should we start a podcast? Should we talk about stuff?
+[00:10:16] Will: Yeah, pretty much. When you go to the, when you go into somebody else's boat and they have a broom handle next to the toilet, just in case you know the narrow throat of the toilet wasn't able to handle what you'd done to it, I I realized I didn't want anything to do with that. Should we start a podcast? Should we talk about stuff?
 
-[00:10:31] Adam: Yeah, why not? Why not? Um, I'm I I I I just watched a very cool movie last night called Europa Report, which is a super low budget um mockumentary. I can't say it's a mockumentary because they're not mocking
+[00:10:31] Adam: Yeah, why not? Why not? I'm I I just watched a very cool movie last night called Europa Report, which is a super low budget mockumentary. I can't say it's a mockumentary because they're not mocking
 
 [00:10:44] Will: It's found footage.
 
-[00:10:31] Adam: the documentary. Yeah, it's a found footage film. Um, and it's it's good. It it it's it's low budget is clearly visible in a bunch of ways.
+[00:10:31] Adam: the documentary. Yeah, it's a found footage film. And it's good. It it's low budget is clearly visible in a bunch of ways.
 
 [00:10:56] Will: Like in a bad way or an okay way?
 
-[00:10:58] Adam: No, in just I guess in an obvious way. Like you know the sets are are well constructed, but they're almost a little too clean from what we understand real space looks like.
+[00:10:58] Adam: No, in just I guess in an obvious way. Like you know the sets are well constructed, but they're almost a little too clean from what we understand real space looks like.
 
 [00:11:09] Norm: Oh, so you have to describe let the people know it's a space exploration movie. Set in the near future.
 
@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:11:35] Adam: It's like an 18 month 18 month trip, so you bounce back and forth in time a bit. Testimonials from the astronauts, right to a camera, footage from all over the space station from fixed cameras, each one labeled every time you cut to it, and it it is really well constructed. It's a sophisticated and and well constructed film. Like I said, some of its budget shows up in some of the CG shots of the exterior of the capsule. I think they're CG, even if there’s even if they're model shots, they're still pretty low res. Like the model making isn't. Isn't as tight as I would have expected.
 
-[00:12:14] Norm: That's really funny that when you talk about it being low budget, you know, it's not about the the actors; it's about the special effects and the model making and the things that catch your eye.
+[00:12:14] Norm: That's really funny that when you talk about it being low budget it's not about the actors; it's about the special effects and the model making and the things that catch your eye.
 
 [00:12:24] Adam: Well, actually, I will say that the acting is universally terrific, given what the guys had to do. They're the main actor who is one of my favorites right now is Sharlto Copley, who played the villain in Elysium and also the South African muckety-muck who got turned into an alien in District Nine. And it's noteworthy that Matt Damon said about working with him on Elysium that he has never worked with a better improviser in his life. Sharlto Copley, as far as I'm concerned, can do almost anything. He was super compelling.
 
@@ -174,19 +174,19 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:13:29] Will: Okay,
 
-[00:13:29] Adam: but but that's not to say that you know. I guess when we think low budget, often we think things that are dumbly obvious.
+[00:13:29] Adam: but that's not to say that you know. I guess when we think low budget, often we think things that are dumbly obvious.
 
 [00:13:38] Will: I think Capricorn One. You know.
 
-[00:13:39] Adam: Yeah, or or I guess Apollo 18. I haven't either, but this is what I've heard. You know, so we think of low budget as meaning like you know someone bangs into the set and it moves like cardboard. This film doesn't suffer from any of that. It is very well constructed. There's there's a lot of action on the set, and when they're—there's action, the whole set moves. They really built a set, and they can you know jiggle it and move it. The weightless stuff that they do and the simulated gravity stuff that they do is is really well thought out. They use their money incredibly wisely. So I got to give them huge props for a film that looks fantastic and not. I don't think. It would be obvious to a ton of people how low the budget probably was, and the acting like I said was great.
+[00:13:39] Adam: Yeah, or I guess Apollo 18. I haven't either, but this is what I've heard. So we think of low budget as meaning like you know someone bangs into the set and it moves like cardboard. This film doesn't suffer from any of that. It is very well constructed. There's there's a lot of action on the set, and when they're—there's action, the whole set moves. They really built a set, and they can you know jiggle it and move it. The weightless stuff that they do and the simulated gravity stuff that they do is is really well thought out. They use their money incredibly wisely. So I got to give them huge props for a film that looks fantastic and not. I don't think. It would be obvious to a ton of people how low the budget probably was, and the acting like I said was great.
 
-[00:14:24] Norm: They wrote they wrote the movie so they could work around the low budget. Like you said, there is simulated gravity, and they designed it in a way their ship,
+[00:14:24] Norm: They wrote the movie so they could work around the low budget. Like you said, there is simulated gravity, and they designed it in a way their ship,
 
-[00:14:31] Adam: Yeah, exactly, exactly. They have a, they have a spinning capsule,
+[00:14:31] Adam: Yeah, exactly, exactly. They have a spinning capsule,
 
-[00:14:35] Norm: exactly. So they didn't have to have zero gravity for the whole movie, right? And and you said it was a documentary at the beginning. It is kind of documentary because the whole movie is framed from a looking back at the mission and looking back at the found footage with commentary from people on Earth, which is a cool perspective of you know how do you communicate with people on an 18-month mission.
+[00:14:35] Norm: exactly. So they didn't have to have zero gravity for the whole movie, right? And you said it was a documentary at the beginning. It is kind of documentary because the whole movie is framed from a looking back at the mission and looking back at the found footage with commentary from people on Earth, which is a cool perspective of you know how do you communicate with people on an 18-month mission.
 
-[00:14:55] Adam: Exactly. Exactly. I I will say that having just read, it has a dramatist's idea of what space exploration is like and what astronauts are like. And having just spent some time with Commander Chris Hadfield and having read his book, " An Astronaut's Guide to Life on Earth," I happen to know. That astronauts are nothing like the characters portrayed in this movie. You know, at one point something goes beep, and someone in the crew goes, " What the hell was that?" And the fact is, is at NASA they have such a culture of training for every possible worst case scenario. That's all they do is train and make mistakes and go over those mistakes until when they're actually in space, everything that happens is expected, even the things they didn't expect. And you don't get to be an astronaut unless you respond coolly to large pressures. They learned early on with some of the Mercury and early Apollo flights that there were specific personality types that turned out did not make great astronauts. So by this point in the future, the idea that people would be like, " Shut up! What's going on?" You know, in the middle of a landing, it just wouldn't ever happen.
+[00:14:55] Adam: Exactly. Exactly. I will say that having just read, it has a dramatist's idea of what space exploration is like and what astronauts are like. And having just spent some time with Commander Chris Hadfield and having read his book, " An Astronaut's Guide to Life on Earth," I happen to know. That astronauts are nothing like the characters portrayed in this movie. At one point something goes beep, and someone in the crew goes, " What the hell was that?" And the fact is, is at NASA they have such a culture of training for every possible worst case scenario. That's all they do is train and make mistakes and go over those mistakes until when they're actually in space, everything that happens is expected, even the things they didn't expect. And you don't get to be an astronaut unless you respond coolly to large pressures. They learned early on with some of the Mercury and early Apollo flights that there were specific personality types that turned out did not make great astronauts. So by this point in the future, the idea that people would be like, " Shut up! What's going on?" in the middle of a landing, it just wouldn't ever happen.
 
 [00:16:08] Will: Calm people live, right?
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:17:31] Will: Yeah, It's worth watching the first two thirds.
 
-[00:17:33] Norm: It's it's a movie that I think like Europa Report kind of borrows a little from in terms of trying to be a realistic, large crew long distance mission.
+[00:17:33] Norm: It's a movie that I think like Europa Report kind of borrows a little from in terms of trying to be a realistic, large crew long distance mission.
 
 [00:17:42] Adam: Yeah.
 
@@ -244,9 +244,9 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:17:55] Adam: I don't see that.
 
-[00:17:56] Will: Oh, the thing we learned when we were in Houston, and we were talking to the guys in the who run the the underwater you know the swimming pool where they train for spacewalks. Yeah. And I said, " Well, you know, what happens if something breaks that you that you don't that you don't know about?" And like that contingency is planned. They know that there are 13 things that require an immediate spacewalk to repair as soon as possible. That like that's all the stuff that can break, and and and they they planned all that stuff out. So there should never be a situation that they have to vote. Not only is the vote ridiculous, the fact that they have to vote also is ridiculous.
+[00:17:56] Will: Oh, the thing we learned when we were in Houston, and we were talking to the guys in the who run the underwater you know the swimming pool where they train for spacewalks. Yeah. And I said, " Well, you know, what happens if something breaks that you that you don't that you don't know about?" And like that contingency is planned. They know that there are 13 things that require an immediate spacewalk to repair as soon as possible. That like that's all the stuff that can break, and they planned all that stuff out. So there should never be a situation that they have to vote. Not only is the vote ridiculous, the fact that they have to vote also is ridiculous.
 
-[00:18:29] Adam: Yeah, no, it's the idea that they hadn't thought through all this stuff. Like, what about a landing? Well, we talked about a little bit. It's, um, I I will say I'm gonna I'm gonna put a spoiler out here if it's okay with you. Will, um,
+[00:18:29] Adam: Yeah, no, it's the idea that they hadn't thought through all this stuff. Like, what about a landing? Well, we talked about a little bit. It's I I will say I'm gonna put a spoiler out here if it's okay with you. Will
 
 [00:18:41] Will: I can't hear you.
 
@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:18:53] Norm: And it's great because they they zoom out kind of, and the backdrop is is the the yeah is how they fool you.
 
-[00:19:01] Adam: Yeah, it's great. I thought that was a that was a lovely kind of surprise I hadn't seen before.
+[00:19:01] Adam: Yeah, it's great. I thought that was a lovely kind of surprise I hadn't seen before.
 
 [00:19:06] Norm: Yeah.
 
@@ -268,15 +268,15 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:19:12] Norm: Yeah.
 
-[00:19:13] Will: We um let's see. We watched the the World's End, the Simon Pegg.
+[00:19:13] Will: We let's see. We watched the World's End, the Simon Pegg.
 
-[00:19:19] Adam: Oh, I haven't seen that. That's on my list. I did watch This Is the End with with.
+[00:19:19] Adam: Oh, I haven't seen that. That's on my list. I did watch This Is the End with.
 
 [00:19:24] Will: I thought that was great. Seth Rogen and
 
 [00:19:27] Adam: Mi- Michael Cera is my new hero.
 
-[00:19:30] Norm: Did you see? Uh, so This Is the End also uh was the last movie rented at a blockbuster. That movie
+[00:19:30] Norm: Did you see? So This Is the End also was the last movie rented at a blockbuster. That movie
 
 [00:19:36] Will: that didn't happen by accident.
 
@@ -284,7 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:19:39] Adam: No, that's no more accident than the Buggles Video Killed the Radio Star, bringing the first video on MTV.
 
-[00:19:43] Norm: Right. Um, did you see the thing with Michael Cera and his long text conversation with a a random person?
+[00:19:43] Norm: Right. Did you see the thing with Michael Cera and his long text conversation with a random person?
 
 [00:19:50] Adam: I did, but that's manufactured. He wrote that.
 
@@ -292,9 +292,9 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:19:53] Adam: Yeah, I, I'm pretty sure I'm under. I'm clear that that he totally wrote that.
 
-[00:19:58] Norm: Um, it's pretty good as a piece of writing.
+[00:19:58] Norm: It's pretty good as a piece of writing.
 
-[00:20:01] Adam: Yeah, I guess I I found it kind of uh I found it kind of weird.
+[00:20:01] Adam: Yeah, I guess I I found it kind of I found it kind of weird.
 
 [00:20:06] Norm: That's what he's going for.
 
@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:20:15] Will: moon spoilers incoming.
 
-[00:20:16] Adam: No, no, no! I couldn't bear it. I lasted 20 minutes. But the the trick is that he's a clone, right? Is that what it is?
+[00:20:16] Adam: No, no, no! I couldn't bear it. I lasted 20 minutes. But the trick is that he's a clone, right? Is that what it is?
 
 [00:20:21] Norm: That is, yeah.
 
@@ -328,15 +328,15 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:20:42] Adam: Well, according to George Lucas.
 
-[00:20:45] Norm: See, Adam, I think that because um, there's a a guy for the Atlantic looking up Netflix subgenres.
+[00:20:45] Norm: See, Adam, I think that because there's a guy for the Atlantic looking up Netflix subgenres.
 
 [00:20:51] Adam: Yeah,
 
-[00:20:51] Norm: it's it's really funny that you know how they can categorize
+[00:20:51] Norm: it's really funny that you know how they can categorize
 
 [00:20:55] Will: raunchy independent late night comedies.
 
-[00:20:56] Norm: Oh yeah, or you know, talking animals are judgmental too or something like that, like something ridiculous. Um, and it makes you think about what type of movies you like, and like you can say I like science fiction movies or like I like space movies, but I think I realize I like a hard sci-fi movies with very few actors, where just one on one.
+[00:20:56] Norm: Oh yeah, or talking animals are judgmental too or something like that, like something ridiculous. And it makes you think about what type of movies you like, and you can say I like science fiction movies or I like space movies, but I think I realize I a hard sci-fi movies with very few actors, where just one on one.
 
 [00:21:16] Will: Yeah,
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:21:17] Will: movies almost.
 
-[00:21:18] Norm: And you think about movies like 2001. You know, the third act of that, it's it's just one on one mostly.
+[00:21:18] Norm: And you think about movies like 2001. You know, the third act of that, it's just one on one mostly.
 
 [00:21:23] Will: Yeah, even a movie like
 
@@ -354,7 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:21:32] Norm: And as an acting challenge, I think that is tremendous.
 
-[00:21:35] Adam: I totally, I totally agree. And remind me the because I'm old and my brain doesn't work. The name of the actor,
+[00:21:35] Adam: I totally agree. And remind me the because I'm old and my brain doesn't work. The name of the actor,
 
 [00:21:40] Norm: Sam Rockwell.
 
@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:22:31] Adam: I want to know why Casey Affleck isn't more famous. I want him to be more famous.
 
-[00:22:36] Will: I I don't know. It's Brad Pitt's in that too. I think right.
+[00:22:36] Will: I don't know. It's Brad Pitt's in that too. I think right.
 
 [00:22:38] Adam: Yeah, yeah. Yes.
 
@@ -410,13 +410,13 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:22:44] Will: Yeah.
 
-[00:22:44] Adam: Um. I mean, I you know, I've been really glad with the with the ascent of Joaquin Phoenix. You know the the sibling of the super famous is is sort of an ignominious position. See Jim Belushi's appearances on Lifetime Network. Um, but you know Joaquin is, I think, one of the best actors going right now. And at this, I also think that um, uh, wait, who are we just talking about?
+[00:22:44] Adam: I mean, I I've been really glad with the ascent of Joaquin Phoenix. You know the sibling of the super famous is is sort of an ignominious position. See Jim Belushi's appearances on Lifetime Network. But you know Joaquin is, I think, one of the best actors going right now. And at this, I also think that wait, who are we just talking about?
 
 [00:23:12] Norm: Casey Affleck.
 
 [00:23:12] Will: Yeah.
 
-[00:23:13] Adam: Casey Affleck. Casey Affleck is, I lost my train of thought. Casey Affleck is fantastic. Um, I, he's really, really, really good, and you know he played goofballs for a long time. But he's got real chops.
+[00:23:13] Adam: Casey Affleck. Casey Affleck is, I lost my train of thought. Casey Affleck is fantastic. I, he's really, really, really good, and you know he played goofballs for a long time. But he's got real chops.
 
 [00:23:23] Will: He directs too, doesn't he? Or no, he's just an actor. He's just an actor. I'm looking now. Sorry.
 
@@ -430,9 +430,9 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:23:36] Norm: Oh.
 
-[00:23:36] Will: The The Joaquin Phoenix.
+[00:23:36] Will: The Joaquin Phoenix.
 
-[00:23:38] Norm: Oh. Well, there goes your your whole circle.
+[00:23:38] Norm: Oh. Well, there goes your whole circle.
 
 [00:23:39] Will: It all wrapped back in on itself.
 
@@ -442,7 +442,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:23:46] Adam: So there was what happened. You guys froze for a minute after I spoke, and then there was nothing, and then you just piped in, and I heard you go, " He's just an actor." It was almost like an admonition of me, like, " Shut up, talking about this guy."
 
-[00:23:58] Will: Well, so the funny thing, the funny thing is, all through this, and the people watching will be able to tell when it happens to us, but not when it happens to you, because your video freezes, and you'll usually you end up talking for a little bit, and we come in right at the punchline. So it's it's been an exercise in improv podcasting, I guess, is what we would call this. That's good.
+[00:23:58] Will: Well, so the funny thing is, all through this, and the people watching will be able to tell when it happens to us, but not when it happens to you, because your video freezes, and you'll usually you end up talking for a little bit, and we come in right at the punchline. So it's been an exercise in improv podcasting, I guess, is what we would call this. That's good.
 
 [00:24:16] Adam: I'm looking forward to trying this from another city entirely.
 
@@ -454,13 +454,13 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:24:26] Norm: Minneapolis.
 
-[00:24:26] Adam: Minneapolis. Minneapolis tonight. Milwaukee tomorrow. I'm not sure where after that. New York on Friday. I'm very excited. I have a ton of friends coming to coming to see the show, including a couple of people I greatly admire, and I'm looking forward to meeting.
+[00:24:26] Adam: Minneapolis. Minneapolis tonight. Milwaukee tomorrow. I'm not sure where after that. New York on Friday. I'm very excited. I have a ton of friends coming to see the show, including a couple of people I greatly admire, and I'm looking forward to meeting.
 
-[00:24:39] Will: Are you gonna go get pork buns? What's your What's your food strategy for New York?
+[00:24:39] Will: Are you gonna go get pork buns? What's your food strategy for New York?
 
 [00:24:43] Adam: Oh my goodness, my I haven't even thought about the food strategy for New York. I have so much press and meetings during the day. My only thinking was that I really wanted to get to do a couple of stores that I love while I'm there. The Paul Smith store on 5th Avenue is one of my favorite places in the world. So I haven't even thought of a New York food strategy, and I really need to. Oh, it's time. Yeah, it's time to reach out.  to some folks.
 
-[00:25:05] Will: It's important. Yeah, that's that's serious business. Well, have a good rest of your trip, Adam, and we'll talk to you soon. I'm sure.
+[00:25:05] Will: It's important. Yeah, that's serious business. Well, have a good rest of your trip, Adam, and we'll talk to you soon. I'm sure.
 
 [00:25:11] Adam: All right, guys.
 

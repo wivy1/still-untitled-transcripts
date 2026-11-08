@@ -14,13 +14,13 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:00:09] Norm: Wow, we got like model making guests week by week. Bill, you're in town to do some projects with us, and you've never been on the podcast,
 
-[00:00:19] Adam: which is a weird. We're we're jerks, honestly, for that. And you rolled up in a foam car, right?
+[00:00:19] Adam: which is a weird. We're jerks, honestly, for that. And you rolled up in a foam car, right?
 
 [00:00:25] Bill: Yeah, that'll happen someday.
 
-[00:00:28] Norm: The door open and unrolled like a like a mat, like a yoga mat.
+[00:00:28] Norm: The door open and unrolled like a mat, like a yoga mat.
 
-[00:00:31] Adam: Actually, Jamie Hyneman and I used to have long discussions. Jamie, because both of us is like, you know, you get into a small fender bender with a painted fiberglass bumper, and it's like $2,500 to repair that dumb thing. And we're like, why aren't why don't cars have like four feet of pillows where you do like boom and keep going?
+[00:00:31] Adam: Actually, Jamie Hyneman and I used to have long discussions. Jamie, because both of us is like you get into a small fender bender with a painted fiberglass bumper, and it's like $2,500 to repair that dumb thing. And we're like, why aren't why don't cars have like four feet of pillows where you do like boom and keep going?
 
 [00:00:49] Bill: Yeah, then it becomes a game.
 
@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:01:06] Bill: a little bit of food poisoning.
 
-[00:01:08] Norm: There's a video that people haven't seen yet, and actually, Gunther's when he said I was working on it, he couldn't notice. But if you watch for it, and listeners of the podcast, when you watch this video upcoming, Bill and I are doing a a Tie Fighter model making thing, you can tell Bill's
+[00:01:08] Norm: There's a video that people haven't seen yet, and actually, Gunther's when he said I was working on it, he couldn't notice. But if you watch for it, and listeners of the podcast, when you watch this video upcoming, Bill and I are doing a Tie Fighter model making thing, you can tell Bill's
 
 [00:01:22] Bill: getting green
 
@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:01:30] Norm: yeah,
 
-[00:01:30] Bill: on the finish. But but no, I had to bow out on that one.
+[00:01:30] Bill: on the finish. But no, I had to bow out on that one.
 
 [00:01:33] Adam: I remember once having it wasn't food poisoning. I was just hungover. But I went into work at ILM, and I was so hungover, I kept having to visit the bathroom to throw up. And at one point, I think Danny Wagner said to me, " You know, we can put your workbench in the bathroom." Clearly, they yeah they were all smiling as I came out.
 
@@ -72,17 +72,17 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:02:15] Norm: Procrastinating meditator.
 
-[00:02:16] Adam: There's a term for it. For so there's where do I start? Years and years and years ago, I was in Tuscany, and I was at a dinner party that was really, really fabulous with all these amazing people. And as can happen when that happens, I drank way too much, and I mean, too much on a scale of you know how like that last half hour you just like wow this stuff is going down like water.
+[00:02:16] Adam: There's a term for it. For so there's where do I start? Years and years ago, I was in Tuscany, and I was at a dinner party that was really, really fabulous with all these amazing people. And as can happen when that happens, I drank way too much, and I mean, too much on a scale of you know how like that last half hour you just like wow this stuff is going down like water.
 
 [00:02:44] Norm: Your first time at open bar.
 
-[00:02:45] Adam: Oh, it was ridiculous, and I woke up so so hungover and so bad that I got in the the 7, 10 passenger van to head to Pisa Airport. And when I got to Pisa Airport, I mean, I'm just lying and moaning on one of the bench seats. And we get to Pisa Airport, and the door opens up, and I just immediately throw up. Projectile vomit out the door onto the street of Pisa Airport, and then I look up and I make sure that no one's recognized me. So okay, so I go into the airport. I visit the bathroom. We go to the ticket counter. We get our tickets. I visit the bathroom. We go through security. I visit the bathroom. We get onto the plane, and now people are loading into the plane, and I am feeling that there may be a need soon.
+[00:02:45] Adam: Oh, it was ridiculous, and I woke up so so hungover and so bad that I got in the 7, 10 passenger van to head to Pisa Airport. And when I got to Pisa Airport, I mean, I'm just lying and moaning on one of the bench seats. And we get to Pisa Airport, and the door opens up, and I just immediately throw up. Projectile vomit out the door onto the street of Pisa Airport, and then I look up and I make sure that no one's recognized me. So okay, so I go into the airport. I visit the bathroom. We go to the ticket counter. We get our tickets. I visit the bathroom. We go through security. I visit the bathroom. We get onto the plane, and now people are loading into the plane, and I am feeling that there may be a need soon.
 
 [00:03:34] Norm: Oh no!
 
 [00:03:34] Adam: And I am now debating.
 
-[00:03:38] Norm: There's the the bag in front of you.
+[00:03:38] Norm: There's the bag in front of you.
 
 [00:03:40] Adam: There's the bag in front of me, but what's happening from me is is is extreme, and this now it's diarrheal.
 
@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:04:22] Adam: Now I'm there's not a lot of space, and now I'm presented with a choice of which end to present to the toilet first.
 
-[00:04:29] Norm: Which which end will relax you the least?
+[00:04:29] Norm: Which end will relax you the least?
 
 [00:04:31] Adam: And hopefully, hopefully, it's one at a time.
 
@@ -120,7 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:04:41] Norm: Well, the solution there would have been to bring the bag.
 
-[00:04:46] Adam: I guess it would have. I barely missed coming out of both ends at the same time. I managed to to make it work. I didn't create a terrible mess. I did clean up after myself, and luckily, the bathroom had 15 minutes to recirculate the air before another human had to use it, which is a real grace because that would have been awful. And then I told that story on stage at the very first w00tstock. And at the very first w00tstock, in the middle of that story, someone in the back was—I'm halfway through it—and I'm I'm I'm miming with my body which which end of myself to present to the toilet, and someone yells, " Great story!" And then at the at the autograph line afterwards, someone said, " You know, there's a term for when it comes out of both ends at the same time, and it's called the rooster tail." Ah, wow! There, that is the roughest start to a podcast we have yet had. Hi, mom. My mom just texted me. She saw Hamilton today.
+[00:04:46] Adam: I guess it would have. I barely missed coming out of both ends at the same time. I managed to make it work. I didn't create a terrible mess. I did clean up after myself, and luckily, the bathroom had 15 minutes to recirculate the air before another human had to use it, which is a real grace because that would have been awful. And then I told that story on stage at the very first w00tstock. And at the very first w00tstock, in the middle of that story, someone in the back was—I'm halfway through it—and I'm I'm I'm miming with my body which end of myself to present to the toilet, and someone yells, " Great story!" And then at the autograph line afterwards, someone said, " You know, there's a term for when it comes out of both ends at the same time, and it's called the rooster tail." Ah, wow! There, that is the roughest start to a podcast we have yet had. Hi, mom. My mom just texted me. She saw Hamilton today.
 
 [00:05:51] Bill: Wow!
 
@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:06:26] Bill: Yep.
 
-[00:06:27] Adam: Your mom, your mom doesn't shave her armpits. What's going on?
+[00:06:27] Adam: Your mom doesn't shave her armpits. What's going on?
 
 [00:06:29] Bill: I don't know.
 
@@ -164,13 +164,13 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:06:39] Adam: I'm sorry, Bill's mom. I'm sorry, my mom. Okay, sorry. Go ahead, Bill.
 
-[00:06:42] Bill: Yeah, they they had that. They did a sonogram the day of, and they were like, " Oh my goodness, there's there's four arms, there's four legs, and two heads. Oh, there's two.
+[00:06:42] Bill: Yeah, they had that. They did a sonogram the day of, and they were like, " Oh my goodness, there's there's four arms, there's four legs, and two heads. Oh, there's two.
 
 [00:06:54] Adam: You're about to give birth to a catbus.
 
 [00:06:56] Bill: Two whole bodies. Everything's fine. Two whole human beings. Then my parents had the realization: we prepared for this, but now we have half of everything we need, and they had to run out and buy like. And their friends were great. Got them tons of diapers,
 
-[00:07:09] Norm: and they made everything out of foam quickly. And there goes that's that's your origin.
+[00:07:09] Norm: and they made everything out of foam quickly. And there goes that's your origin.
 
 [00:07:12] Adam: Are you identical or fraternal twin?
 
@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:07:17] Norm: I'm a fraternal. [unclear: I’m a real twin. I]
 
-[00:07:19] Adam: You know, both. But somebody asked me this recently. They asked if twins are have a genetic proclivity, and it turns out that they do. But identical twins are always just a statistical anomaly, just a certain amount of da-da-da-da-da-da-da-da-da that egg splits and two people come out.
+[00:07:19] Adam: Both. But somebody asked me this recently. They asked if twins are have a genetic proclivity, and it turns out that they do. But identical twins are always just a statistical anomaly, just a certain amount of da-da-da-da-da-da-da-da-da that egg splits and two people come out.
 
 [00:07:39] Bill: Right.
 
@@ -202,9 +202,9 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:08:13] Adam: This is your San Francisco shop.
 
-[00:08:15] Bill: It is. I'm actually getting quite comfortable in the in the shop. I know where every almost everything is.
+[00:08:15] Bill: It is. I'm actually getting quite comfortable in the shop. I know where every almost everything is.
 
-[00:08:20] Adam: Yeah. I've been watching you move around, and the the the tested makerspace is also well well appointed.
+[00:08:20] Adam: Yeah. I've been watching you move around, and the tested makerspace is also well well appointed.
 
 [00:08:26] Bill: Mm-hmm. Yep, yep.
 
@@ -218,13 +218,13 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:08:41] Adam: Yeah. This so what this is is a set of leather hole punches of varying sizes.
 
-[00:08:45] Norm: We don't want the hole. We want the the circle that comes out of it as a masking tool.
+[00:08:45] Norm: We don't want the hole. We want the circle that comes out of it as a masking tool.
 
 [00:08:49] Adam: Oh, oh.
 
-[00:08:49] Norm: So the leather hole punch will destroy the material. The hole, the the circle. I believe.
+[00:08:49] Norm: So the leather hole punch will destroy the material. The hole, the circle. I believe.
 
-[00:08:56] Adam: Oh yes, you need a you need a normal paper.
+[00:08:56] Adam: Oh yes, you need a normal paper.
 
 [00:08:59] Norm: Yeah, exactly. Which is what we ended up using.
 
@@ -244,9 +244,9 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:09:12] Adam: I picked up a bunch of leather rivets, the kind that's the little mushroom crown and the little post, and you. Give them a little torque, but I've only ever seen them in an eighth-inch form factor, and these guys had them in like four other sizes.
 
-[00:09:27] Bill: Who are who are these guys?
+[00:09:27] Bill: Who are these guys?
 
-[00:09:29] Adam: Well, they were clearly fetish leather makers. Freddie just spent about two hours cutting all these D-rings out of some pretty extreme pieces of equipment. They they hadn't been used. These were made by these were constructions of these guys: dog collars and some harnesses and things. Yeah, to each their own. Welcome to San Francisco.
+[00:09:29] Adam: Well, they were clearly fetish leather makers. Freddie just spent about two hours cutting all these D-rings out of some pretty extreme pieces of equipment. They hadn't been used. These were made by these were constructions of these guys: dog collars and some harnesses and things. Yeah, to each their own. Welcome to San Francisco.
 
 [00:09:52] Norm: What was the first thing you made out of foam?
 
@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:09:58] Adam: Get this. How long ago was that?
 
-[00:09:59] Bill: Uh, 2012, six years ago.
+[00:09:59] Bill: 2012, Six years ago.
 
 [00:10:01] Norm: Six years ago.
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:10:57] Adam: Yep.
 
-[00:10:57] Bill: And all the we our one employee, Paige, does a lot of the administrative stuff. Our one guy, Everett, does a lot of the more strategy type stuff, the the big picture type things, so that make we so we make sure that we're steering the ship in the right direction.
+[00:10:57] Bill: And all the we our one employee, Paige, does a lot of the administrative stuff. Our one guy, Everett, does a lot of the more strategy type stuff, the big picture type things, so that make we so we make sure that we're steering the ship in the right direction.
 
 [00:11:12] Adam: Yeah.
 
@@ -296,7 +296,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:11:23] Adam: I I totally agree. this This day, I've been doing a lot of writing and interviewing for the book that I'm working on, but also I’ve built a thing for myself, and it's but it's it ends up becoming sometimes a way I'm avoiding the administrative boring details. Just go like maybe I'll refinish the scabbard.
 
-[00:11:38] Bill: Yeah, yeah, yeah. Your your Highlander scabbard,
+[00:11:38] Bill: Yeah, yeah, yeah. Your Highlander scabbard,
 
 [00:11:41] Adam: the Highlander scabbard. Yeah, I did.
 
@@ -324,11 +324,11 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:12:03] Bill: Okay.
 
-[00:12:03] Adam: Bill George worked on Blade Runner, and you can find pictures of him online building like spinners and working on the the Tyrell building, and he's an effects supervisor, a really amazing one. He still works at Lucasfilm. He looks younger today than he did in the '70s. Wow. It's Absolutely bizarre! He's got some sort of magic painting in the attic,
+[00:12:03] Adam: Bill George worked on Blade Runner, and you can find pictures of him online building like spinners and working on the Tyrell building, and he's an effects supervisor, a really amazing one. He still works at Lucasfilm. He looks younger today than he did in the '70s. Wow. It's Absolutely bizarre! He's got some sort of magic painting in the attic,
 
 [00:12:26] Norm: or he's wearing the respirators.
 
-[00:12:28] Bill: Yeah, hey, that's a really good plug for people. PPE very important keeps you young. Clearly, I haven't. Clearly, I haven't been wearing mine enough. That's that's actually a side effect of making YouTube videos for the last six or seven years. Is if I go back and watch them, I can watch my beard get less gray.
+[00:12:28] Bill: Yeah, hey, that's a really good plug for people. PPE very important keeps you young. Clearly, I haven't. Clearly, I haven't been wearing mine enough. That's actually a side effect of making YouTube videos for the last six or seven years. Is if I go back and watch them, I can watch my beard get less gray.
 
 [00:12:49] Adam: Oh yeah, well MythBusters is you. It's all like this. At the beginning of making MythBusters in '03, I had no gray in my beard at all, and now you can see it's like rising like a water level.
 
@@ -348,7 +348,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:13:22] Norm: and and make videos about it, and we're very friendly online and very prolific about sharing your your work. What is now? There are lots of people who who make foam, so you are closer to that world than than we are. But what's the landscape like right now for prop makers, hobbyist prop makers, and costumers who who make foam, who make with foam?
 
-[00:13:42] Bill: It's really fantastic. There there have been a handful of small companies popping up who are suppliers now. We don't we don't have to use floor mats anymore.
+[00:13:42] Bill: It's really fantastic. There have been a handful of small companies popping up who are suppliers now. We don't have to use floor mats anymore.
 
 [00:13:50] Adam: Oh.
 
@@ -362,7 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:14:02] Bill: Oh yeah. Oh, they'll send you one. Yeah.
 
-[00:14:03] Adam: That's what. Okay, yeah, we gotta we gotta work on. I mean, yeah, it's hard to overstate what a massive effect foam construction has had on the prop and cosplay community. It has the the ubiquity of camping mats and floor mats, and the cheapness of contact cement. I mean, just Comic Cons. Have become so much more. Just what people are doing with that stuff is so much. Every year, it gets more and more incredible. People are doing Hulkbuster armor,
+[00:14:03] Adam: That's what. Okay, yeah, we gotta work on. I mean, yeah, it's hard to overstate what a massive effect foam construction has had on the prop and cosplay community. It has the ubiquity of camping mats and floor mats, and the cheapness of contact cement. I mean, just Comic Cons. Have become so much more. Just what people are doing with that stuff is so much. Every year, it gets more and more incredible. People are doing Hulkbuster armor,
 
 [00:14:32] Unknown speaker (Adam or Bill): almost actual size.
 
@@ -370,11 +370,11 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:14:39] Adam: Really,
 
-[00:14:39] Bill: he made the pickup truck from Squidbillies. It was maybe seven feet long, and his head was the squid. It was a silicone casting of the squid in the driver's seat, and he flew it to TwitchCon to be in the contest. And then he was—he didn't want to—he didn't want to bring it back. It's a massive pain,
+[00:14:39] Bill: he made the pickup truck from Squidbillies. It was maybe seven feet long, and his head was the squid. It was a silicone casting of the squid in the driver's seat, and he flew it to TwitchCon to be in the contest. And then he was—he didn't want to bring it back. It's a massive pain,
 
 [00:14:58] Adam: right?
 
-[00:14:58] Bill: So he he said, " I'm going to throw it away." Went to the hotel and said, " Look, I'm just going to throw this in your dumpster." And they said, " No, you can't do that." And he's like, " Very well." And he took it out into the street and parked it in a parking spot, and walked away.
+[00:14:58] Bill: So he said, " I'm going to throw it away." Went to the hotel and said, " Look, I'm just going to throw this in your dumpster." And they said, " No, you can't do that." And he's like, " Very well." And he took it out into the street and parked it in a parking spot, and walked away.
 
 [00:15:13] Adam: Wow! Amazing.
 
@@ -420,7 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:17:06] Bill: It's really remarkable where the whole cosplay thing is now that people are importing foam.
 
-[00:17:13] Adam: That's that's really cool. There's a thing that happens in a builder's life where, in the beginning, money is hard to come by because you're young and you don't make that much, and but your labor is plentiful. Plus, your energy is too, right? Like I did so many all-nighters in my 20s. I worked two jobs and still sculpted and did built stuff all night long. So labor is dirt cheap in the beginning, but then later labor becomes the expensive part, and materials become the cheap part. Yeah, and it's Just I don't necessarily have a point with this, but I was really surprised by how universal that is. Like, I gave away my labor in the beginning in order to be able to get materials.
+[00:17:13] Adam: That's really cool. There's a thing that happens in a builder's life where, in the beginning, money is hard to come by because you're young and you don't make that much, and but your labor is plentiful. Plus, your energy is too, right? Like I did so many all-nighters in my 20s. I worked two jobs and still sculpted and did built stuff all night long. So labor is dirt cheap in the beginning, but then later labor becomes the expensive part, and materials become the cheap part. Yeah, and it's Just I don't necessarily have a point with this, but I was really surprised by how universal that is. Like, I gave away my labor in the beginning in order to be able to get materials.
 
 [00:19:17] Norm: And I think that goes to the idea that maybe you undervalued your work.
 
@@ -440,7 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:20:19] Norm: That was a project where you taught yourself that process.
 
-[00:20:21] Bill: Absolutely, and it didn't. It was like $1,000 worth of silicone, and we worked with Smooth On, and they they they supplied the silicone. So I made that mold, and probably a dozen more. And I think I still it's probably not good anymore, but I think I still have some of that silicone kicking around.
+[00:20:21] Bill: Absolutely, and it didn't. It was like $1,000 worth of silicone, and we worked with Smooth On, and they supplied the silicone. So I made that mold, and probably a dozen more. And I think I still it's probably not good anymore, but I think I still have some of that silicone kicking around.
 
 [00:20:37] Adam: But I mean, you know that that labor. I don't think it's that you undervalue your labor in the beginning. I think that because you are young and it is a very renewable resource, that it makes sense to bury your labor into your projects.
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:20:54] Adam: I am talking freelancing. I am talking freelancing. If you are working for hire, you better get paid by the hour.
 
-[00:20:59] Norm: Yeah, exactly. But maybe like because of your your perceived experience for yourself, you don't know how much to charge either.
+[00:20:59] Norm: Yeah, exactly. But maybe like because of your perceived experience for yourself, you don't know how much to charge either.
 
 [00:21:05] Unknown speaker (Bill or Adam): That too,
 
@@ -462,7 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:21:18] Adam: So I called up. There's a wonderful designer who's been riding Jack at Twitter really hard for the last few months, Mike Monteiro. He's an amazing designer, and he writes a lot on design and how to deal with clients, how to charge. So I called him up, and I was like, " Hey, this young designer." And Mike gave me counsel in that, and I have given others, as I'm sure you guys both have, about like what is X worth? What is this thing that I do for a living worth? Because yeah, at the beginning, you have no idea. I remember making a prototype for Galoob, and they were like, " We've got $ 1,800 to pay for this prototype," and I was like, " What a score!" And I like barely broke even on that thing.
 
-[00:21:58] Bill: I I did a Kickstarter a few years ago. I designed a space gun kit, and I think it made like $30,000, which was astonishing.
+[00:21:58] Bill: I did a Kickstarter a few years ago. I designed a space gun kit, and I think it made like $30,000, which was astonishing.
 
 [00:22:08] Adam: Right.
 
@@ -470,7 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:22:10] Adam: No, fulfilling it. But it goes fast.
 
-[00:22:10] Bill: and it took two years to to fulfill the whole thing.
+[00:22:10] Bill: and it took two years to fulfill the whole thing.
 
 [00:22:16] Adam: Man,
 
@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:22:17] Adam: Yeah,
 
-[00:22:17] Bill: and now I can't look at that prop. I I don't have one for myself. I can't even look at it
+[00:22:17] Bill: and now I can't look at that prop. I don't have one for myself. I can't even look at it
 
 [00:22:23] Adam: Oh, really?
 
@@ -498,7 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:23:52] Norm: Wow. Yeah.
 
-[00:23:54] Adam: I that that is something that we haven't talked about on the show about counseling younger builders what to charge and how to value themselves, but it is a really worthwhile thing to to discuss more in the open
+[00:23:54] Adam: I that that is something that we haven't talked about on the show about counseling younger builders what to charge and how to value themselves, but it is a really worthwhile thing to discuss more in the open
 
 [00:24:06] Bill: So people have an idea.
 
@@ -524,7 +524,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:24:53] Norm: and the only way it works is at scale.
 
-[00:24:55] Adam: Back when I was freelancing, I took I took on both Jamie Hyneman and Industrial Light and Magic used the same number to bid a person day, and it was $500. And that covered the person, the space, the insurance, the workman's comp, and all of that. And I, my freelancing years, which was about 15 years freelancing, I always bid stuff out at that all in that increment one one and a half days, $1,000.
+[00:24:55] Adam: Back when I was freelancing, I took on both Jamie Hyneman and Industrial Light and Magic used the same number to bid a person day, and it was $500. And that covered the person, the space, the insurance, the workman's comp, and all of that. And I, my freelancing years, which was about 15 years freelancing, I always bid stuff out at that all in that increment one one and a half days, $1,000.
 
 [00:25:22] Bill: Yep.
 
@@ -552,9 +552,9 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:25:56] Bill: I didn't do any math.
 
-[00:25:56] Norm: You and your wife had to figure out. You know, could you could you make? And that's a it's a very brave thing to do.
+[00:25:56] Norm: You and your wife had to figure out. Could you make? And that's a it's a very brave thing to do.
 
-[00:26:04] Bill: It didn't seem like it at the time. At the time, I thought if I had eight more hours a Day to make props? Oh my goodness! Okay, I'm quitting. Like that was it. That was the entire thought process. I I did ask my wife ahead of time.
+[00:26:04] Bill: It didn't seem like it at the time. At the time, I thought if I had eight more hours a Day to make props? Oh my goodness! Okay, I'm quitting. Like that was it. That was the entire thought process. I did ask my wife ahead of time.
 
 [00:26:16] Adam: Always good to get
 
@@ -566,7 +566,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:26:26] Bill: She had also quit her job at Microsoft a year prior. So,
 
-[00:26:30] Adam: oh, she she couldn't even talk.
+[00:26:30] Adam: oh, she couldn't even talk.
 
 [00:26:31] Bill: It was kind of my turn. She did go get another corporate job, but we had security, we had health insurance, we had steady income on her part, so we did put a little more thought into it.
 
@@ -588,11 +588,11 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:27:00] Bill: Nice little bonus for you.
 
-[00:27:02] Norm: That's that's a whole thing, you know, with with you and you know, Harrison, like the design work that you put in those hours. You sell a lot of yourself digitally, and that's where you're going to reach the most people.
+[00:27:02] Norm: That's a whole thing with you and Harrison, like the design work that you put in those hours. You sell a lot of yourself digitally, and that's where you're going to reach the most people.
 
 [00:27:14] Bill: Oh yeah, yeah,
 
-[00:27:15] Norm: yeah. You know, you can only make so many commissions for and for individuals to meet at DragonCon to hand off a prop. But if you're going to make a blueprint or a pattern, that's you know $5 or $10 for a blueprint can go a long way.
+[00:27:15] Norm: yeah. You can only make so many commissions for and for individuals to meet at DragonCon to hand off a prop. But if you're going to make a blueprint or a pattern, that's you know $5 or $10 for a blueprint can go a long way.
 
 [00:27:27] Bill: You can help a lot more people. Our goal is to help people have that experience for themselves to get them along the road to start their journey into prop and costume making. I do very much enjoy seeing someone with a prop that I made and seeing them just elated with it in their costume, walking around at DragonCon. There's people I see every year at DragonCon who have props that I made, and they still bring them out. They they're seven years ago, they still bring them out. That does bring me an incredible amount of joy. I
 
@@ -604,9 +604,9 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:28:07] Bill: Then I just, I'm like, I'm crying. I'm like, let's hug it out. Let's get a drink, man. So
 
-[00:28:13] Adam: cool. And when you're impressed by their dedication, and they found a germ in what you were doing, it's it's incredible. It's really lovely.
+[00:28:13] Adam: cool. And when you're impressed by their dedication, and they found a germ in what you were doing, it's incredible. It's really lovely.
 
-[00:28:21] Norm: Well, it's like the the Nazgul glove that you guys collabed for.
+[00:28:21] Norm: Well, it's like the Nazgul glove that you guys collabed for.
 
 [00:28:24] Adam: I keep seeing that. That keeps coming back around.
 
@@ -616,7 +616,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:28:35] Bill: Yeah.
 
-[00:28:36] Norm: Right. And I think when when we were doing our videos, we're shooting this week, you know, I came to realize a lot of what we do is just getting people over the hump to realize it's this looks like crap. This looks like crap. This looks like crap. Oh my god, this looks awesome. And show them like it's the same thing every time, and we feel the same thing, even though we've been doing the same thing, you know, for many many videos. It's still, I think, it looks like crap. It looks like crap. And then three hours later, that final wash. Oh my God, this looks amazing!
+[00:28:36] Norm: Right. And I think when we were doing our videos, we're shooting this week I came to realize a lot of what we do is just getting people over the hump to realize it's this looks like crap. This looks like crap. This looks like crap. Oh my god, this looks awesome. And show them like it's the same thing every time, and we feel the same thing, even though we've been doing the same thing for many many videos. It's still, I think, it looks like crap. It looks like crap. And then three hours later, that final wash. Oh my God, this looks amazing!
 
 [00:29:03] Adam: Well, putting on that first coat of primer is always
 
@@ -624,15 +624,15 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:29:05] Adam: yeah. It's always a lovely tying it all in.
 
-[00:29:07] Bill: You soak it in, you're like that looks nice, and then you you look closer. I missed a spot. All right, get the sandpaper.
+[00:29:07] Bill: You soak it in, you're like that looks nice, and then you look closer. I missed a spot. All right, get the sandpaper.
 
-[00:29:15] Adam: I did. I did a spaceship building workshop at TED a few years ago, and they, I, I said I needed a classroom for 40 people with tables laid out like this, and I need a room that I can spray paint in because having done this before, I realize I it doing kit bashing is nothing until you until you prime what you've been kit bashing, and then all of a sudden it comes together. And so they couldn't find a fully evacuatable room, so they just rented the room next door in the convention center, and they turned it into a murder room, like they coated the whole carpet in that plastic, and they coated the walls in plastic, and I wore a respirator and used up like 15 cans of gray primer in there. It was. It really looked like a complete Dexter set right away.
+[00:29:15] Adam: I did. I did a spaceship building workshop at TED a few years ago, and they, I, I said I needed a classroom for 40 people with tables laid out like this, and I need a room that I can spray paint in because having done this before, I realize I it doing kit bashing is nothing until you prime what you've been kit bashing, and then all of a sudden it comes together. And so they couldn't find a fully evacuatable room, so they just rented the room next door in the convention center, and they turned it into a murder room, like they coated the whole carpet in that plastic, and they coated the walls in plastic, and I wore a respirator and used up like 15 cans of gray primer in there. It was. It really looked like a complete Dexter set right away.
 
 [00:30:02] Norm: That would have been a fun thing to live stream into. Oh man! Just walking in.
 
 [00:30:07] Bill: And then you recently did that again with a cardboard helmet, right?
 
-[00:30:10] Adam: Yes, this last year at TED, I did a workshop in helmet building with your beautiful design. It was lovely. So that was really cool because when you're working with foam, you're you're you're playing with the same thing that I got my start in, which is planar forms like paper, easy things, and realizing that that foam is the same as carpentry, is the same as sewing, as welding, and the cardboard thing was how to build a compound curve, like something that goes over your head, using a non-compound bendable material like corrugated cardboard, and repeatedly that day, I kept on watching people make that first like the bend that brought it together, and heard, oh, yeah, it's really really cool.
+[00:30:10] Adam: Yes, this last year at TED, I did a workshop in helmet building with your beautiful design. It was lovely. So that was really cool because when you're working with foam, you're playing with the same thing that I got my start in, which is planar forms like paper, easy things, and realizing that that foam is the same as carpentry, is the same as sewing, as welding, and the cardboard thing was how to build a compound curve, like something that goes over your head, using a non-compound bendable material like corrugated cardboard, and repeatedly that day, I kept on watching people make that first like the bend that brought it together, and heard, oh, yeah, it's really really cool.
 
 [00:30:57] Bill: That was really fun, but I did that all in Pepakura.
 
@@ -666,7 +666,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:31:53] Norm: yeah. Or it's just the inner layer. Of your material, and it looks like a flipped-out mango.
 
-[00:32:01] Adam: Yeah, a lot of finishing, lot of lot of bondo in those long [unclear: chains / chins / chair].
+[00:32:01] Adam: Yeah, a lot of finishing, lot of bondo in those long [unclear: chains / chins / chair]
 
 [00:32:04] Unknown speaker (Bill or Norm): Yeah.
 
@@ -680,11 +680,11 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:32:17] Norm: Anything special at DragonCon you'll be unveiling, or things you’ll be waiting to see?
 
-[00:32:22] Bill: We have a couple of small things we might be able to put together. We have five days to do it, so unlikely. We've been very overwhelmed with our shop move. Um, we're looking just excited to have fun, take some time off from our our shop, and just just let DragonCon wash over you,
+[00:32:22] Bill: We have a couple of small things we might be able to put together. We have five days to do it, so unlikely. We've been very overwhelmed with our shop move. We're looking just excited to have fun, take some time off from our shop, and just just let DragonCon wash over you,
 
 [00:32:41] Adam: which it totally does. Yeah, it's a wave.
 
-[00:32:43] Bill: It really, yeah. So we're stoked. Um, we're going to try and actually relax this year. I think.
+[00:32:43] Bill: It really, yeah. So we're stoked. We're going to try and actually relax this year. I think.
 
 [00:32:49] Adam: What?
 
@@ -694,7 +694,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:33:00] Norm: It’s wonderful.
 
-[00:33:01] Adam: It's nice when you are not, you know, one-legged man in a butt-kicking contest.
+[00:33:01] Adam: It's nice when you are not one-legged man in a butt-kicking contest.
 
 [00:33:05] Norm: We want to go back to Dragon Con eventually, though.
 
@@ -702,7 +702,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:33:10] Bill: You let me know? Maybe cook something up. It'll be real fun.
 
-[00:33:14] Adam: We got to figure out some space-themed foam build. Oh, yeah. That's that's a thing that I am. Maybe it's making the Manned Maneuvering Unit. You know, something that's lightweight, easy to transport, that breaks down. But it's something we should discuss.
+[00:33:14] Adam: We got to figure out some space-themed foam build. Oh, yeah. That's a thing that I am. Maybe it's making the Manned Maneuvering Unit. You know, something that's lightweight, easy to transport, that breaks down. But it's something we should discuss.
 
 [00:33:30] Norm: And I know we mentioned foam a lot, but like that's not what all you do.
 
@@ -712,11 +712,11 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:33:35] Bill: That's it.
 
-[00:33:35] Norm: Is the thing? The thing I love about you is that you start off with foam, but one of the projects that we just did, I don't want to spoil it. You went to computer model, 3D printing, laser cutting, you know, mold making, casting, sanding. Machining and all those came together for one thing.
+[00:33:35] Norm: Is the thing? The thing I love about you is that you start off with foam, but one of the projects that we just did, I don't want to spoil it. You went to computer model, 3D printing, laser cutting mold making, casting, sanding. Machining and all those came together for one thing.
 
 [00:33:53] Bill: Yeah, that particular project, which I'm very excited to share when everyone gets to see it, I think that one pulled in just about every skill I have. Now, my background, my my formal training is in 3D modeling and animation. So when 3D printing became a thing and I got my first printer, I I was like, I'm Tony Stark. I really like I can visualize it, I can model it, and that machine will make it real. That was my I am Iron Man moment. Nice. So yeah, this particular project was all 3D printing, lots of sanding, lots of mold making. It took me about six months off and on to to finish it, but it
 
-[00:34:31] Norm: and it's getting finished up. You know, we did a panel with our friends Kit and Steve and you and Britt. And one of the things I asked you guys is, what what is one skill for prop makers and costumers that because it's very competitive these days, everyone's trying to get into it, that is still needed and it's It's modeling. It's 3D modeling.
+[00:34:31] Norm: and it's getting finished up. We did a panel with our friends Kit and Steve and you and Britt. And one of the things I asked you guys is, what is one skill for prop makers and costumers that because it's very competitive these days, everyone's trying to get into it, that is still needed and it's modeling. It's 3D modeling.
 
 [00:34:47] Bill: 3D modeling is a. It unlocks so many things for everything. You could turn a 3D model into papercraft. You could 3D print it. You could turn it into a sewing pattern. There's so many things you can do with a 3D model.
 
@@ -726,21 +726,21 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:35:16] Norm: It's like it's the realization that the digital skill that we all grew up assuming it would just stay in the computer has so many implications. I mean, people working in CNC know this, right? In the real world.
 
-[00:35:26] Adam: Well, and and and it's still. I mean, companies like Autodesk are still working hard to to collapse the CAD CAM pipeline to make it more intuitive because the the lack of its intuitive interfaces for 2D to 3D to 2D to 3D is still a real barrier.
+[00:35:26] Adam: Well, and it's still. I mean, companies like Autodesk are still working hard to collapse the CAD CAM pipeline to make it more intuitive because the lack of its intuitive interfaces for 2D to 3D to 2D to 3D is still a real barrier.
 
 [00:35:43] Bill: It is. It's. It is definitely getting a lot better. We did some CAD CAM stuff for a premium video a while back using Fusion. Using Fusion and That's once it gets into CAM, is where I'm like, all right, let's take our time here. It's a it's a steep hill to climb, but I am making good good baby steps towards learning CAM, and that's that's another you unlock that skill. It's like here's another world of possibilities.
 
-[00:36:08] Adam: Yeah. Um. Uh. Uh. My wife and I have started doing matinees on the weekends.
+[00:36:08] Adam: Yeah. My wife and I have started doing matinees on the weekends.
 
 [00:36:14] Norm: Okay.
 
-[00:36:15] Adam: Um. We've discovered how much fun it is to do that.
+[00:36:15] Adam: We've discovered how much fun it is to do that.
 
 [00:36:17] Norm: As long as you're not watching a kids movie.
 
 [00:36:19] Adam: No, we went and saw this weekend. We saw both The Incredibles and Sorry to bother you.
 
-[00:36:25] Norm: Oh wow! What a what a pair!
+[00:36:25] Norm: Oh wow! What a pair!
 
 [00:36:26] Adam: What not not on the same day? This is strange double feature.
 
@@ -750,11 +750,11 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:36:30] Norm: Yeah.
 
-[00:36:30] Adam: Uh. I you've seen Sorry to bother you?
+[00:36:30] Adam: I you've seen Sorry to bother you?
 
 [00:36:33] Norm: Yes.
 
-[00:36:34] Adam: So we're going to have to have a spoiler cast about it.
+[00:36:34] Adam: So we're going to have a spoiler cast about it.
 
 [00:36:35] Norm: Yes, 100%. So [unclear: we’ll / Will] go watch Sorry to bother you, and then if you have time, matinee this week, Blindspotting.
 
@@ -794,7 +794,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:37:11] Adam: I think he's undersung as a comedian.
 
-[00:37:16] Norm: I know too many things. I've I've listened to
+[00:37:16] Norm: I know too many things. I've listened to
 
 [00:37:18] Adam: six
 
@@ -810,7 +810,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:37:30] Bill: Yep.
 
-[00:37:30] Norm: When when the director was watching the reactions of the trailer, they're like, " Tom Cruise is flying a helicopter. Tom Cruise is on the edge of the mountain, and people are losing their minds over Henry Cavill reloading his arms. " Yeah, charisma goes a long way.
+[00:37:30] Norm: When the director was watching the reactions of the trailer, they're like, " Tom Cruise is flying a helicopter. Tom Cruise is on the edge of the mountain, and people are losing their minds over Henry Cavill reloading his arms. " Yeah, charisma goes a long way.
 
 [00:37:44] Bill: All right, we'll go see Incredibles two. I think
 
@@ -818,7 +818,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:37:48] Bill: It's been so much fun
 
-[00:37:49] Adam: having you here on the podcast, and also having you visit the visit the facilities.
+[00:37:49] Adam: having you here on the podcast, and also having you visit the facilities.
 
 [00:37:54] Norm: Yeah.
 
@@ -832,7 +832,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:38:07] Adam: So much fun.
 
-[00:38:08] Norm: how to how to actually make this short film.
+[00:38:08] Norm: how to actually make this short film.
 
 [00:38:10] Adam: Bucket list day. We're on. We're out there shooting, and they're like, " Okay, Richard Taylor and Peter Jackson have arrived. What do you want to do with them?"
 

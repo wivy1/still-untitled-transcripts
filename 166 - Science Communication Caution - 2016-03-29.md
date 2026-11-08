@@ -16,13 +16,13 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:00:18] Norm: I'm actually not here. I'm in China right now. We're recording this earlier.
 
-[00:00:22] Will: What's your What's your China like? Are you? We've had some friends who went to China last year and they got all crazy and like bought burner laptops and cell phones.  And the whole thing.
+[00:00:22] Will: What's your China like? Are you? We've had some friends who went to China last year and they got all crazy and like bought burner laptops and cell phones. And the whole thing.
 
-[00:00:29] Norm: I am not that crazy. You're taking. I completely respect that. Um, our friends, um, Veronica Belmont and her husband, uh, they when they went, they didn't bring any of their personal gear. They bought burner phones, didn't plug any, you know, they completely wiped computers.
+[00:00:29] Norm: I am not that crazy. You're taking. I completely respect that. Our friends Veronica Belmont and her husband they when they went, they didn't bring any of their personal gear. They bought burner phones, didn't plug any they completely wiped computers.
 
-[00:00:44] Adam: This is the fear is, and this is this is something that's propagated here in the Western press that your that your electronic devices will be compromised in China.
+[00:00:44] Adam: This is the fear is, and this is something that's propagated here in the Western press that your electronic devices will be compromised in China.
 
-[00:00:53] Will: Well, yeah, and and at the time he was.
+[00:00:53] Will: Well, yeah, and at the time he was.
 
 [00:00:53] Adam: Prominent,
 
@@ -48,7 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:01:29] Adam: That's where you are right now. Will you pick me up one of those really, really bad copies of an iPhone?
 
-[00:01:33] Norm: Yeah, what what do you guys want?
+[00:01:33] Norm: Yeah, what do you guys want?
 
 [00:01:34] Will: I want a panda.
 
@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:01:37] Will: Will give me a panda, Norm.
 
-[00:01:38] Norm: Will, uh, I don't know if I'll really.
+[00:01:38] Norm: Will I don't know if I'll really.
 
 [00:01:39] Adam: Trash panda.
 
@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:02:56] Adam: No, it's safe for work.
 
-[00:02:58] Will: You you you crop out the the anatomical bits.
+[00:02:58] Will: You crop out the anatomical bits.
 
 [00:03:00] Norm: It's just the stream.
 
@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:03:07] Norm: Okay. Yeah.
 
-[00:03:08] Will: Yeah. I would like like the weirdest thing that you see. Like the you just pick something bizarre for if you go to electronic shop. You'll you'll you'll know when you see it.
+[00:03:08] Will: Yeah. I would like the weirdest thing that you see. Like the you just pick something bizarre for if you go to electronic shop. You'll you'll you'll know when you see it.
 
 [00:03:16] Norm: USB key.
 
@@ -142,9 +142,9 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:03:21] Will: I've got a small collection. Have you seen that? It's amazing.
 
-[00:03:25] Norm: Something with a misspelled name. Um, a ripoff product.
+[00:03:25] Norm: Something with a misspelled name. A ripoff product.
 
-[00:03:28] Will: Like like like I like Adam's call on the on the fake iPhone is is really good. I would say if you see something that, like you've been to BangGood, you've looked at you've browsed the the rolls of so BangGood is like Amazon, but they go and source products from the from those electronic markets. Okay. So I mean, they're they're obviously looking for things that they can actually sell rather than the weird stuff. But yeah, just kind of used it. You you know you know where I stand on on weird things. From China,
+[00:03:28] Will: I like Adam's call on the fake iPhone is is really good. I would say if you see something that, like you've been to BangGood, you've looked at you've browsed the rolls of so BangGood is like Amazon, but they go and source products from the from those electronic markets. Okay. So I mean, they're obviously looking for things that they can actually sell rather than the weird stuff. But yeah, just kind of used it. You know where I stand on weird things. From China,
 
 [00:03:54] Norm: I wish I was going. To Japan.
 
@@ -174,11 +174,11 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:04:40] Will: WTF?
 
-[00:04:41] Adam: WTF? It is a Tina Fey film. It is loosely based on the account of a reporter's time in in Kabul in Afghanistan. It is. I loved it.
+[00:04:41] Adam: WTF? It is a Tina Fey film. It is loosely based on the account of a reporter's time in Kabul in Afghanistan. It is. I loved it.
 
 [00:04:55] Will: Is it a comedy?
 
-[00:04:55] Adam: It's it is a little bit of it's a it's a one of those movies that is semi genreless.
+[00:04:55] Adam: It's it is a little bit of it's a one of those movies that is semi genreless.
 
 [00:05:01] Will: Oh,
 
@@ -194,9 +194,9 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:05:11] Will: wasn't an obvious joke.
 
-[00:05:12] Adam: This this this this film is lovely. At every point, you think it's going to go for an obvious joke, it pivots very expertly and doesn't.
+[00:05:12] Adam: This film is lovely. At every point, you think it's going to go for an obvious joke, it pivots very expertly and doesn't.
 
-[00:05:20] Will: That's that's one of my favorite things of recent comedy is when when you see them looking at the obvious joke and then they pull back at the last minute and and go in some it's a it's a that's a kind of Apatow-ish.
+[00:05:20] Will: That's one of my favorite things of recent comedy is when you see them looking at the obvious joke and then they pull back at the last minute and go in some it's a that's a kind of Apatow-ish.
 
 [00:05:32] Adam: Yeah, it is. It is. Margot Robbie is in it?
 
@@ -206,15 +206,15 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:05:36] Norm: She's in everything now.
 
-[00:05:37] Adam: Yeah, she's she's great. Martin Freeman plays a Scotsman and is also wonderful. It's great.
+[00:05:37] Adam: Yeah, she's great. Martin Freeman plays a Scotsman and is also wonderful. It's great.
 
 [00:05:43] Will: Just Martin Freeman from Sherlock and
 
 [00:05:45] Adam: Martin Freeman, Bilbo Baggins, and Tina Fey together again.
 
-[00:05:49] Will: Oh yeah, I forgot Tina Fey was in was in the the third Hobbit movie. Um. Wow. Okay. I I had heard really mixed mixed on that.
+[00:05:49] Will: Oh yeah, I forgot Tina Fey was in the third Hobbit movie. Wow. Okay. I had heard really mixed mixed on that.
 
-[00:05:58] Adam: You know, it's this thing when you when you make a genreless movie. Um, the last one I saw was probably um, American Ultra.
+[00:05:58] Adam: It's this thing when you make a genreless movie. The last one I saw was probably American Ultra.
 
 [00:05:58] Will: Okay.
 
@@ -232,9 +232,9 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:06:17] Adam: yeah,
 
-[00:06:17] Norm: or because they like director, or they they want they're in the mood for comedy, and when they get mixed, emotions are hard.
+[00:06:17] Norm: or because they like director, or they want they're in the mood for comedy, and when they get mixed, emotions are hard.
 
-[00:06:30] Adam: I I you know and it it leads me to want more than just a Rotten Tomatoes rating. Um, which I find to be a very reliable rating for movies I will like, except in cases where movies are like this, I think that they it goes way off the rail.
+[00:06:30] Adam: I you know and it leads me to want more than just a Rotten Tomatoes rating. Which I find to be a very reliable rating for movies I will like, except in cases where movies are like this, I think that they it goes way off the rail.
 
 [00:06:45] Will: I mean, that's one of those things. It's like Yelp. In some cities, Yelp is a measure of how the volume of food you're going to get.
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:07:00] Adam: Yeah,
 
-[00:07:00] Will: yeah, yeah. So, so I, I, I, Rotten Tomatoes is for things that are popular. You know, it's going to be a good rating, whether it's good or not.
+[00:07:00] Will: yeah, yeah. So, so I, I, I, Rotten Tomatoes is for things that are popular. It's going to be a good rating, whether it's good or not.
 
 [00:07:08] Norm: But that was the whole point with the Netflix, the challenge,
 
@@ -260,7 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:07:24] Adam: What's that?
 
-[00:07:24] Will: Somebody on Reddit figured out how to get the entire list of all the secret categories on Netflix, and that going down that list was amazing fun. Like we we found a ton. I can't remember anything off the top of my head. It was like two months ago, but we found a ton of stuff that we wanted to watch that was in categories that probably never would have
+[00:07:24] Will: Somebody on Reddit figured out how to get the entire list of all the secret categories on Netflix, and that going down that list was amazing fun. Like we found a ton. I can't remember anything off the top of my head. It was like two months ago, but we found a ton of stuff that we wanted to watch that was in categories that probably never would have
 
 [00:07:45] Adam: would have
 
@@ -272,9 +272,9 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:07:54] Norm: this is Alexis Madrigal from the Atlantic.
 
-[00:07:55] Will: and the categories are like yeah, so like Netflix. An example would be like. Um, edge of the seat thriller with magical elements, right? So it's like there's maybe a little bit of a mystic element. So like big trouble in Little China is probably in that.
+[00:07:55] Will: and the categories are like yeah, so Netflix. An example would be like. Edge of the seat thriller with magical elements, right? So it's like there's maybe a little bit of a mystic element. So like big trouble in Little China is probably in that.
 
-[00:08:08] Norm: So you think of how Netflix organizes its content. It's a big, basically a big Excel document, and you they cross reference and movies fit into categories. But the describing factors, the things that tie together, it's almost like a Mad Lib. Um, you have adjective, you know, subject, noun, adjective, and it's far more far vaster than you would imagine.
+[00:08:08] Norm: So you think of how Netflix organizes its content. It's a big, basically a big Excel document, and you they cross reference and movies fit into categories. But the describing factors, the things that tie together, it's almost like a Mad Lib. You have adjective subject, noun, adjective, and it's far more far vaster than you would imagine.
 
 [00:08:30] Will: But then comedic spy thriller,
 
@@ -290,7 +290,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:08:56] Adam: right?
 
-[00:08:56] Norm: But and by not surfacing the list, then You have you have to trust Netflix to show you what they
+[00:08:56] Norm: But and by not surfacing the list, then You have to trust Netflix to show you what they
 
 [00:09:06] Adam: think you want. Now, here is the problem I have with that: is on Netflix, it doesn't take me very much searching to feel like I've reached the end of what you've got to show me.
 
@@ -308,19 +308,19 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:09:36] Adam: time to watch Harold and Maude again.
 
-[00:09:38] Will: Yeah, or or um, or what was the what was the?
+[00:09:38] Will: Yeah, or what was the?
 
 [00:09:41] Adam: I am not meaning Will's wife is very old, by the way. I am just saying it's a nice romantic movie.
 
-[00:09:44] Will: Yes, I was going to go the other way and say that it's like the movie about the people that have relationships on the playground or whatever. Anyway, um, what were we going to talk about, Adam?
+[00:09:44] Will: Yes, I was going to go the other way and say that it's like the movie about the people that have relationships on the playground or whatever. Anyway what were we going to talk about, Adam?
 
-[00:09:57] Adam: Norm has Norm has kicked what?
+[00:09:57] Adam: Norm has kicked what?
 
-[00:09:59] Norm: Well, the Netflix algorithm is in in one way an AI.
+[00:09:59] Norm: Well, the Netflix algorithm is in one way an AI.
 
 [00:10:02] Will: Yeah, it's a it's. We'll look at back back at this as the beginning of. The AI era, right now,
 
-[00:10:07] Norm: right, and and knowledge, and some of the things we've been talking on other podcasts is AI in the news right now. At least when we're recording this, is Google's DeepMind.
+[00:10:07] Norm: right, and knowledge, and some of the things we've been talking on other podcasts is AI in the news right now. At least when we're recording this, is Google's DeepMind.
 
 [00:10:15] Adam: Yes,
 
@@ -350,7 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:10:47] Will: Yeah.
 
-[00:10:48] Adam: So this is this is another thing along these lines that I really enjoyed. Was did you come across the the story about prime numbers having a proclivity? This is really fascinating. So, when you start studying prime numbers, they end in one, three, seven, or nine.
+[00:10:48] Adam: So this is another thing along these lines that I really enjoyed. Was did you come across the story about prime numbers having a proclivity? This is really fascinating. So, when you start studying prime numbers, they end in one, three, seven, or nine.
 
 [00:11:08] Will: They have to be odd,
 
@@ -382,7 +382,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:12:14] Will: Prime numbers, like Mersenne primes, are these unfathomably large numbers that are like something, something, something times 10 to the 55,000th minus one.
 
-[00:12:24] Adam: And then we'll talk about. Then I came across this this morning, which is about pi, which is this.
+[00:12:24] Adam: And then we'll talk about. Then I came across this morning, which is about pi, which is this.
 
 [00:12:31] Will: Oh yeah,
 
@@ -406,13 +406,13 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:12:56] Adam: yeah,
 
-[00:12:56] Norm: the 10, you know, that's yeah, that's a lot. I like that when you talk about how prime numbers, you know, tend to resist or prefer.
+[00:12:56] Norm: the 10, you know, that's yeah, that's a lot. I like that when you talk about how prime numbers tend to resist or prefer.
 
 [00:13:08] Adam: This is what I found so intoxicating about reading the article. It was out of off of Slashdot, talking about mathematicians using words like resist,
 
 [00:13:15] Norm: and those that verbiage. Gives them because our association, maybe they're mathematical technical terms, but the association that we have with those terms is that is very human.
 
-[00:13:25] Adam: Well, and and the thing is, is that the the thing that's apparently astonishing, and again, I haven't read deeply into this story, but it's very recently discovered, and it's not clear why. It's kind of amazing that something so basic wasn't discovered before, and all these mathematicians are were hearing about it and be like, that can't be right, and they'd run a run a program and build build a thing and test it on their computer. Sure enough, no, wow, there does really say what does this mean, and it could mean potentially all these things that we like. Again, the distribution of prime numbers is not necessary; it's not random, but it's not predictable. So this may illuminate for mathematicians some of the underlying structure built within mathematics that helps us understand why prime numbers are distributed the way they are.
+[00:13:25] Adam: Well, and the thing is, is that the thing that's apparently astonishing, and again, I haven't read deeply into this story, but it's very recently discovered, and it's not clear why. It's kind of amazing that something so basic wasn't discovered before, and all these mathematicians are were hearing about it and be like, that can't be right, and they'd run a program and build build a thing and test it on their computer. Sure enough, no, wow, there does really say what does this mean, and it could mean potentially all these things that we like. Again, the distribution of prime numbers is not necessary; it's not random, but it's not predictable. So this may illuminate for mathematicians some of the underlying structure built within mathematics that helps us understand why prime numbers are distributed the way they are.
 
 [00:14:12] Norm: And by imbuing them with using those that verbiage, imbuing them with more than just characteristics,
 
@@ -438,11 +438,11 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:14:47] Will: The live stream. It's fascinating. Even if you know nothing about Go,
 
-[00:14:50] Adam: I just love reading of the the. I can't remember the name of the player, but when the when DeepMind made this seemingly random move, and he was watching the player, his opponent, the human opponent, watched this move and went, " What? Oh, it's so beautiful."
+[00:14:50] Adam: I just love reading of the. I can't remember the name of the player, but when the when DeepMind made this seemingly random move, and he was watching the player, his opponent, the human opponent, watched this move and went, " What? Oh, it's so beautiful."
 
 [00:15:04] Will: They should have sent a poet. It's that Wired article that was in a Wired article, yeah. It's the it's so far the best most human understandable analysis of the of those games that I've seen.
 
-[00:15:18] Norm: I the the the AI itself needs a human a person to move the pieces because they're playing.
+[00:15:18] Norm: I the AI itself needs a human a person to move the pieces because they're playing.
 
 [00:15:18] Adam: Right, there's somebody who is. It's not a robot that moves the pieces. There's a person there
 
@@ -460,13 +460,13 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:15:45] Will: yeah, it's always been the case.
 
-[00:15:51] Adam: We should get Simone to make a a go playing robot.
+[00:15:51] Adam: We should get Simone to make a go playing robot.
 
 [00:15:54] Norm: Yeah, that'd be cool.
 
 [00:15:55] Will: I mean, if only we had that technology.
 
-[00:15:58] Adam: Um, I wait. I just paused. Yeah, that Wired article. I want to just do a look. They're friends of mine. Adam Rogers is a good friend of mine, and I haven't met him, but Rhett Allain, who writes a lot of the Wired science stuff, just keeps. Killing it, and because Adam's a friend of mine, when I come across a Wired article, I think is great. I forward it. I like. I basically text him the link and go, " This is awesome," or " Oh, you maybe didn't know about this." But most of the time, it's just to say, " Awesome!" And it's almost always one of Rhett's articles.
+[00:15:58] Adam: I wait. I just paused. Yeah, that Wired article. I want to just do a look. They're friends of mine. Adam Rogers is a good friend of mine, and I haven't met him, but Rhett Allain, who writes a lot of the Wired science stuff, just keeps. Killing it, and because Adam's a friend of mine, when I come across a Wired article, I think is great. I forward it. I like. I basically text him the link and go, " This is awesome," or " Oh, you maybe didn't know about this." But most of the time, it's just to say, " Awesome!" And it's almost always one of Rhett's articles.
 
 [00:16:28] Norm: He writes the physics blog on Wired, kind of like the physics equivalent of what Phil Plait does for astronomy on Slate.
 
@@ -482,11 +482,11 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:17:04] Will: The classic one is the is the the New Year's tweet where he says, " Well, another completely arbitrary denotation of a revolution around the sun or whatever." Like,
 
-[00:17:13] Adam: well, that's you know, every Thanksgiving I always. Tweet. Remember, kids, all human progress is behind a vanguard of homicidal maniacs.
+[00:17:13] Adam: well, that's every Thanksgiving I always. Tweet. Remember, kids, all human progress is behind a vanguard of homicidal maniacs.
 
 [00:17:21] Norm: Technically true.
 
-[00:17:22] Will: This is like the John. It's like it's like the Richard Linklater joke at the at the end of the school year in Dazed and Confused, where he's like, as you go out to celebrate the bicentennial, remember you're doing this because a bunch of rich white guys didn't want to pay their taxes. So it's like it's it's a parable for today.
+[00:17:22] Will: This is like the John. It's like the Richard Linklater joke at the end of the school year in Dazed and Confused, where he's like, as you go out to celebrate the bicentennial, remember you're doing this because a bunch of rich white guys didn't want to pay their taxes. So it's like it's a parable for today.
 
 [00:17:38] Norm: Some of the things he's been tweeting lately has gotten some attention of other yeah some other scientists and biology specifically. He tweeted a few tweets about biology. I'm not sure if they were serious tweets. He said, if there were ever a species for whom sex hurt, it surely went extinct a long time long ago.
 
@@ -500,17 +500,17 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:18:03] Adam: Right. So somebody immediately responded. Kyle Hill wrote, " Yeah, I'm sure female cats love those spined." Cat penises. Oh, and bed bugs can't get enough traumatic insemination. I'm not going to go into bed bug sex right now because it is a horror show that makes Ridley Scott look like a children's book author.
 
-[00:18:21] Will: But, but I mean, there's a lot of species where the act of copulation is the end of life for one or one or both member of the of the act.
+[00:18:21] Will: But I mean, there's a lot of species where the act of copulation is the end of life for one or both member of the act.
 
 [00:18:28] Adam: As many, many, many, many people, including biologists, pointed out to Neil,
 
-[00:18:33] Norm: [unclear: it is undisputed / it is in dispute]. Like that observable science is, you know, he's wrong there, but it's a thought he had and he tweeted it. But I think it brings about more.
+[00:18:33] Norm: [unclear: it is undisputed / it is in dispute] Like that observable science is he's wrong there, but it's a thought he had and he tweeted it. But I think it brings about more.
 
 [00:18:42] Adam: He got it enough, so let me just state as as a tweeting science communicator, he he got in trouble enough to make me nervous
 
 [00:18:53] Will: about saying things on Twitter.
 
-[00:18:54] Adam: Yeah, totally. I mean, you know,
+[00:18:54] Adam: Yeah, totally. I mean
 
 [00:18:57] Norm: so the question is, does he have a responsibility to tweet things? He could have framed in a way where it could have posed it as a question, but it's he tweeted in a way to sound authoritative, and because he has 5 million followers and he is a trusted voice for astronomy and a great science communicator, like. What is his responsibility there?
 
@@ -520,7 +520,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:19:47] Will: Oh, oh, never mind. Okay,
 
-[00:19:49] Adam: no, no, no. I just mean, like, there's no formula here. But one of the, I, I came across this on Metafilter. I found this out, and the Metafilter discussion goes into some fairly deep stuff about you know about patriarchy, about seeing this only from a man, a male scientist's point of view, and all that is totally valid. All of that is absolutely, and other people are like, look, isn't he just a kind of a semi fool making some dad jokes? And that's Also true,
+[00:19:49] Adam: no, no, no. I just mean there's no formula here. But one of the, I, I came across this on Metafilter. I found this out, and the Metafilter discussion goes into some fairly deep stuff about you know about patriarchy, about seeing this only from a man, a male scientist's point of view, and all that is totally valid. All of that is absolutely, and other people are like, look, isn't he just a kind of a semi fool making some dad jokes? And that's Also true,
 
 [00:20:18] Will: yeah. I mean, will you get this right? I'm sure when you post something about politics, which you don't do that often anymore, then you get a horde of people saying, " Hey, I don't follow you for politics stuff. Keep it to the topic."
 
@@ -562,7 +562,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:22:03] Will: Wow! It's either the best or the worst thing you could say about somebody.
 
-[00:22:07] Norm: I think it speaks to the larger or larger culture's tendency with platforms like Twitter and and the immediacy from which we have a the time between we have a thought and then we can spread that thought to. Spread that thought in order to get attention to spread it in the form of a declarative.
+[00:22:07] Norm: I think it speaks to the larger or larger culture's tendency with platforms like Twitter and the immediacy from which we have a the time between we have a thought and then we can spread that thought to. Spread that thought in order to get attention to spread it in the form of a declarative.
 
 [00:22:23] Will: Well, these are this is the challenge of Twitter, right? Twitter gives us a unique way to have this one to many, but then also a reciprocal conversation with a massive number of people that's completely unfettered by any kind of bureaucracy or organization. I guess is better than bureaucracy,
 
@@ -570,7 +570,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:22:23] Will: So, so this is a problem that literally when Carl Sagan was doing the same thing in the '70s and early '80s, there was no. This wasn't an issue for him because there was no venue for this kind of communication.
 
-[00:22:51] Adam: No, but he was yeah, he was very considered. Um, you know, this is the most shit I ever got for a single tweet was when I tweeted I thought uncontroversially about the how ghosts were fictional.
+[00:22:51] Adam: No, but he was yeah, he was very considered. You know, this is the most shit I ever got for a single tweet was when I tweeted I thought uncontroversially about the how ghosts were fictional.
 
 [00:23:05] Will: Yes, I remember that.
 
@@ -578,11 +578,11 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:23:08] Adam: Yeah, and that was really unpleasant. I don't like having people yell at me, even if I disagree with them and feel strongly that they're wrong.
 
-[00:23:14] Norm: I think every every tweet because and and this is a constraint and you know one of the strengths of the medium is how brief they are you know that word count that every tweet it should be understood it's I think
+[00:23:14] Norm: I think every every tweet because and this is a constraint and you know one of the strengths of the medium is how brief they are you know that word count that every tweet it should be understood it's I think
 
 [00:23:14] Adam: yeah
 
-[00:23:14] Norm: you know I it is my belief that and then your tweet but people don't read it as that they read it as I declare that
+[00:23:14] Norm: I it is my belief that and then your tweet but people don't read it as that they read it as I declare that
 
 [00:23:14] Adam: right
 
@@ -590,7 +590,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:23:38] Will: it's also really hard to know what your audience is on Twitter you know I mean there's there are ways to get that information kind of but not really so like I don't have no idea what his audience is on Twitter
 
-[00:23:51] Adam: look I mean we're also in this place where you know Stephen Colbert in trying to make a joke about how bad cultural racism can be names a I'm not even going to repeat his joke but names a terrible Asian organization for the betterment of of Chinese Americans and it's It's horribly racist, the name of the of the organization, and that's the joke is that this is, and yet gets a boycott movement against him from people who feel that the joke is well, don't feel they they object to the joke's racist, yeah, even though what he's doing with the joke is attempting to call out
+[00:23:51] Adam: look I mean we're also in this place where you know Stephen Colbert in trying to make a joke about how bad cultural racism can be names a I'm not even going to repeat his joke but names a terrible Asian organization for the betterment of Chinese Americans and it's horribly racist, the name of the organization, and that's the joke is that this is, and yet gets a boycott movement against him from people who feel that the joke is well, don't feel they object to the joke's racist, yeah, even though what he's doing with the joke is attempting to call out
 
 [00:24:33] Will: the racism,
 
@@ -622,15 +622,15 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:26:16] Will: And
 
-[00:26:18] Norm: He made not he he he took away by making a declarative took away for that question maybe that thought to be a conversation.
+[00:26:18] Norm: He made not he took away by making a declarative took away for that question maybe that thought to be a conversation.
 
-[00:26:27] Adam: Yeah, I think you're right. I think you're right. Has he responded to the to the fracas to the brouhaha?
+[00:26:27] Adam: Yeah, I think you're right. I think you're right. Has he responded to the fracas to the brouhaha?
 
 [00:26:32] Norm: No, he actually. I think he doubled down a little bit.
 
-[00:26:36] Will: He he kind of has done that in the past when people have criticized him. I can't remember the specific example, but I I exactly I definitely remember there being a brouhaha about something that was I think probably more minor than this.
+[00:26:36] Will: He kind of has done that in the past when people have criticized him. I can't remember the specific example, but I I exactly I definitely remember there being a brouhaha about something that was I think probably more minor than this.
 
-[00:26:45] Adam: I guess if you're going to be a black astrophysicist, you're going to have to have a pretty thick skin.
+[00:26:45] Adam: I guess if you're going to be a black astrophysicist, you're going to have a pretty thick skin.
 
 [00:26:49] Will: I would assume so. Yeah,
 
@@ -640,17 +640,17 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:27:02] Will: he's done a lot of good for Science.
 
-[00:27:03] Adam: totally. And this is this this is this is an instructive case to discuss. I don't have a conclusion I've made about it. I just noted it and thought, oh shit, I better be careful.
+[00:27:03] Adam: totally. And this is an instructive case to discuss. I don't have a conclusion I've made about it. I just noted it and thought, oh shit, I better be careful.
 
-[00:27:12] Will: I mean, I think I think it's also probably he's also being held to a higher standard because of the war on science, right? Yeah, the fact that we have a significant portion of the population.
+[00:27:12] Will: I mean, I think it's also probably he's also being held to a higher standard because of the war on science, right? Yeah, the fact that we have a significant portion of the population.
 
 [00:27:23] Adam: I think that's a secondary adjunct because I don't.
 
-[00:27:25] Will: I I think he has to be better than everyone else. If he's the face and voice of this for a lot of people, then he can't. You know, if if you give reason to people to doubt on something like that, then you also give them reason to doubt him when he talks about climate change or when he talks about, um, you know, any any of the other things.
+[00:27:25] Will: I think he has to be better than everyone else. If he's the face and voice of this for a lot of people, then he can't. You know, if you give reason to people to doubt on something like that, then you also give them reason to doubt him when he talks about climate change or when he talks about any any of the other things.
 
 [00:27:44] Norm: Which is a symptom. That's just depressed. That's a sorry. That's just a symptom of how debates are made. Oh, and right, that's
 
-[00:27:50] Adam: just the internet comment debate. My my mom did that, and it didn't hurt her. Ergo, your argument is invalid.
+[00:27:50] Adam: just the internet comment debate. My mom did that, and it didn't hurt her. Ergo, your argument is invalid.
 
 [00:27:55] Norm: You made one mistake. All of your other arguments are invalid.
 
@@ -658,7 +658,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:28:02] Norm: I mean, it's a conversation that that bears having, and we want to make a conversation, so we all want to hear your thoughts in the comments below.
 
-[00:28:10] Adam: Look, I that's exactly right, and I I've been finding the comment section of Tested to be full of some more vigorous debate lately, and I really enjoy it. I think it's it's it seems to be largely civil. I don't know what sort of Um, shooting down of of the uncivil posts that I am not privy to.
+[00:28:10] Adam: Look, I that's exactly right, and I I've been finding the comment section of Tested to be full of some more vigorous debate lately, and I really enjoy it. I think it's it seems to be largely civil. I don't know what sort of shooting down of the uncivil posts that I am not privy to.
 
 [00:28:27] Will: I don't do any of that.
 
@@ -668,17 +668,17 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:28:32] Adam: Does YouTube have a comments section? I've never looked at it.
 
-[00:28:34] Will: Yeah, you know, you can get a Chrome plugin that just removes the comments from every YouTube video.
+[00:28:34] Will: Yeah you can get a Chrome plugin that just removes the comments from every YouTube video.
 
 [00:28:39] Norm: Okay, I ban you from YouTube, Adam, so you don't see it.
 
 [00:28:44] Adam: That is good. I don't ever want to read a YouTube comment.
 
-[00:28:47] Will: That's a much happier ending. Um, I guess that'll do it for us this week, Norm. I hope you're having fun in China. I'm really excited about getting that panda.
+[00:28:47] Will: That's a much happier ending. I guess that'll do it for us this week, Norm. I hope you're having fun in China. I'm really excited about getting that panda.
 
-[00:28:54] Norm: I'm I'm looking for those iPhones.
+[00:28:54] Norm: I'm looking for those iPhones.
 
-[00:28:55] Will: Um, throw them in the drawer now. You know what? I want I want a knockoff. I want the cheapest, biggest knockoff quad. You think you can get back?
+[00:28:55] Will: Throw them in the drawer now. You know what? I want a knockoff. I want the cheapest, biggest knockoff quad. You think you can get back?
 
 [00:29:04] Adam: Oh wow! Did you? By the way, I'm sorry. We're not ending it here. Did you happen to see the video of the jet ski taking out the Inspire one?
 

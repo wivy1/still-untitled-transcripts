@@ -20,7 +20,7 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:01:29] Will: Oh, oh, so a lightly licensed shirt,
 
-[00:01:32] Adam: lightly, yeah, exactly. And I actually, you know, I'm not wearing it because of the logo. I'm wearing it because it's a nice shirt. I like it.
+[00:01:32] Adam: lightly, yeah, exactly. And I actually I'm not wearing it because of the logo. I'm wearing it because it's a nice shirt. I like it.
 
 [00:01:39] Norm: I favor nice shirts all the time now. Over it doesn't matter what's on it.
 
@@ -32,11 +32,11 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:01:55] Adam: Oh, okay.
 
-[00:01:56] Will: And I, I like I. It was so comfortable. I put it on. I was like, " Wait, I got to see who made it like this." Is I've never felt a shirt like this before.
+[00:01:56] Will: And I, I I. It was so comfortable. I put it on. I was like, " Wait, I got to see who made it like this." Is I've never felt a shirt like this before.
 
-[00:02:02] Adam: I did the same thing when I visited Google X. Their their shirts are printed on impossibly soft jersey.
+[00:02:02] Adam: I did the same thing when I visited Google X. Their shirts are printed on impossibly soft jersey.
 
-[00:02:08] Norm: If you watch our videos and you see Adam wearing the shirt with the yellow X on it, yeah, that's the Google X shirt. So it turns out, if you want people to wear your merchandising and your your your shirts, get the good quality shirt.
+[00:02:08] Norm: If you watch our videos and you see Adam wearing the shirt with the yellow X on it, yeah, that's the Google X shirt. So it turns out, if you want people to wear your merchandising and your shirts, get the good quality shirt.
 
 [00:02:20] Will: Yeah, really soft.
 
@@ -52,13 +52,13 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:02:36] Will: day is a fantasy camp day in some way.
 
-[00:02:38] Adam: So we talked about what we talked about was the fact that tested was at the Paramount fan event for Star Trek Beyond. We saw Karl Urban, Chris Pine, Zachary Quinto, Justin Lin, J. J. Abrams talking about the film, and then from that, I went to a. It's a secret. It's a secret conclave of nerds. I I met up with a secret conclave of nerds. The
+[00:02:38] Adam: So we talked about what we talked about was the fact that tested was at the Paramount fan event for Star Trek Beyond. We saw Karl Urban, Chris Pine, Zachary Quinto, Justin Lin, J. J. Abrams talking about the film, and then from that, I went to a. It's a secret. It's a secret conclave of nerds. I met up with a secret conclave of nerds. The
 
 [00:03:04] Norm: cabal of nerds.
 
 [00:03:05] Will: Are you allowed to talk about this?
 
-[00:03:06] Adam: That's that's as much as I'm allowed to say. And at the conclave of nerds, I met and befriended Michael Giacchino, the amazing composer of all of JJ's films.
+[00:03:06] Adam: That's as much as I'm allowed to say. And at the conclave of nerds, I met and befriended Michael Giacchino, the amazing composer of all of JJ's films.
 
 [00:03:20] Will: You live a blessed life.
 
@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:04:16] Adam: making a living like on the side doing composing for video games.
 
-[00:04:21] Will: Well, video games. It turns out the composing video games is hard because you you need dynamic scores, which means that they then have to generate either tons and tons of music with these weird transitions or build a really complex software thing that blends the two performances. Guess what people usually do?
+[00:04:21] Will: Well, video games. It turns out the composing video games is hard because you need dynamic scores, which means that they then have to generate either tons and tons of music with these weird transitions or build a really complex software thing that blends the two performances. Guess what people usually do?
 
 [00:04:37] Adam: They do, yeah,
 
@@ -114,7 +114,7 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:04:53] Norm: The mind of JJ Abrams.
 
-[00:04:55] Adam: Yeah. So, so I got to go sit at Paramount and watch an orchestra. This isn't a spoiler alert. Um, there's. I'm not going to say anything about the what I saw, the film, or anything like that.
+[00:04:55] Adam: Yeah. So, so I got to go sit at Paramount and watch an orchestra. This isn't a spoiler alert. There's. I'm not going to say anything about the what I saw, the film, or anything like that.
 
 [00:05:06] Norm: But this is the kind of experience that you usually get glimpses of in behind the scenes material for Blu-rays, and also there's a great Vimeo series, where the SoundWorks collection, I think it's called, where they interview the composers and the sound editors, and they go sometimes sit in these recordings. But you get mere glimpses.
 
@@ -132,9 +132,9 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:05:51] Adam: [unclear: good / They’re that good].
 
-[00:06:10] Norm: right? Because because you think of performers like musicians. One in orchestration, it's a collaboration, so you think they'd have to play off each other. And two, it's like it's like acting, right? You know, actors they read their lines beforehand. They get the script, so if you get the music, the sheet music, it can't be like how can that be?
+[00:06:10] Norm: right? Because you think of performers like musicians. One in orchestration, it's a collaboration, so you think they'd have to play off each other. And two, it's like acting, right? Actors they read their lines beforehand. They get the script, so if you get the music, the sheet music, it can't be like how can that be?
 
-[00:06:29] Adam: It's a it's incredible, and and then what's really amazing is you are sitting in this. So it's a historical room. Jaws was recorded in this room. Shirley Temple used to make movies in this room. The tracks for the old sets are still in the ceiling. It's a legendary place, like any place on a studio lot, like like many buildings on the studio lot. This one has a tremendous history. The the the insane competency of watching the musicians do their thing is like a magic trick happening that 100 people are doing perfectly every single time
+[00:06:29] Adam: It's a it's incredible, and then what's really amazing is you are sitting in this. So it's a historical room. Jaws was recorded in this room. Shirley Temple used to make movies in this room. The tracks for the old sets are still in the ceiling. It's a legendary place, like any place on a studio lot, like many buildings on the studio lot. This one has a tremendous history. The insane competency of watching the musicians do their thing is like a magic trick happening that 100 people are doing perfectly every single time
 
 [00:07:02] Will: in sync.
 
@@ -150,11 +150,11 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:07:32] Will: Okay.
 
-[00:07:32] Adam: Um. So so, Justin and Michael are in the booth looking out the window. So that's where I started. I walked in and watched them doing that, and then Michael was like, " You should go stand in the room." So I got to stand in the room while they're playing, and then yeah.
+[00:07:32] Adam: So so, Justin and Michael are in the booth looking out the window. So that's where I started. I walked in and watched them doing that, and then Michael was like, " You should go stand in the room." So I got to stand in the room while they're playing, and then yeah.
 
 [00:07:54] Norm: So give me the the layout here because they're composed. They're they're performing a score that's supposed to be in sync with scenes in the movie,
 
-[00:08:02] Adam: right? So so they have they have they have the movie playing. And it's playing on a big screen, and it's also playing on a screen at the composer's desk. And I'm not exactly positive how all this works beforehand. I was asking a lot of questions, but it's still an incredibly complicated process. But there are very specific moments in the film where the music has to hit
+[00:08:02] Adam: right? So so they have the movie playing. And it's playing on a big screen, and it's also playing on a screen at the composer's desk. And I'm not exactly positive how all this works beforehand. I was asking a lot of questions, but it's still an incredibly complicated process. But there are very specific moments in the film where the music has to hit
 
 [00:08:25] Norm: a downbeat
 
@@ -166,43 +166,43 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:08:54] Will: That's why they do the score last, right?
 
-[00:08:56] Adam: Supposedly last, the print should be locked because Justin locked it on the very night we did the Paramount event. But at the same time, it's the it's the movie industry, and maybe your preview audience doesn't like this scene. They got to pull it out, and all of a sudden, all this stuff changes.
+[00:08:56] Adam: Supposedly last, the print should be locked because Justin locked it on the very night we did the Paramount event. But at the same time, it's the movie industry, and maybe your preview audience doesn't like this scene. They got to pull it out, and all of a sudden, all this stuff changes.
 
 [00:09:10] Norm: And then they're still mixing after the fact.
 
 [00:09:11] Adam: Yeah, exactly.
 
-[00:09:12] Will: So, like, when you record a rock and roll band, you go into a little studio, and there is a there is a box that they put the drummer in, and then there is everybody's kind of in their own room performing, even though they can all hear each other. They get isolated audio. Do they? They don't have 97 small rooms for the orchestra. Everybody in the orchestra, right?
+[00:09:12] Will: So when you record a rock and roll band, you go into a little studio, and there is a box that they put the drummer in, and then there is everybody's kind of in their own room performing, even though they can all hear each other. They get isolated audio. Do they? They don't have 97 small rooms for the orchestra. Everybody in the orchestra, right?
 
 [00:09:30] Adam: Yeah, no, they don't. They don't. They have a single large room, but people are in groups. And for instance, there are two horn sections at either side of the room, and that must be for audio spill.
 
 [00:09:30] Will: Yeah,
 
-[00:09:30] Adam: the violins are all together. The the the the basses, the stand up basses, and the cellos are all together. The percussionists are all in the way back behind not a wall, but there is like a barrier of glass to again hopefully sequester much of their sound so it doesn't spill into the other mics. And then it's not like everyone has an individual mic either. There, I don't think that actually
+[00:09:30] Adam: the violins are all together. The basses, the stand up basses, and the cellos are all together. The percussionists are all in the way back behind not a wall, but there is like a barrier of glass to again hopefully sequester much of their sound so it doesn't spill into the other mics. And then it's not like everyone has an individual mic either. There, I don't think that actually
 
 [00:10:05] Unknown speaker: [unclear, speaker Adam/Will: could be the case / probably just boom].
 
-[00:10:05] Will: Like I got to imagine they boom the the horn section.
+[00:10:05] Will: Like I got to imagine they boom the horn section.
 
 [00:10:09] Adam: There is tons of booms.
 
-[00:10:09] Norm: How many? Look at that! Like that track. Right, if if they had individual mics or at least it's you know how many tracks that would be.
+[00:10:09] Norm: How many? Look at that! Like that track. Right, if they had individual mics or at least it's you know how many tracks that would be.
 
 [00:10:16] Will: 96 tracks,
 
 [00:10:16] Norm: So many.
 
-[00:10:17] Adam: 90 tracks. It's it is incredible how much is actually going on and how calm everybody is while they're doing it. It literally, it was so inspiring to watch. But even more, like they're just spooling it up. All right, we're gonna go to scene 42B times one-seven. Great, everyone ready? Yeah. And we're talking. All of a sudden, they're just playing like and and recording, and they're like, " Oh, we like that one. Let's do it again."
+[00:10:17] Adam: 90 tracks. It's it is incredible how much is actually going on and how calm everybody is while they're doing it. It literally, it was so inspiring to watch. But even more, like they're just spooling it up. All right, we're gonna go to scene 42B times one-seven. Great, everyone ready? Yeah. And we're talking. All of a sudden, they're just playing like and recording, and they're like, " Oh, we like that one. Let's do it again."
 
 [00:10:44] Norm: I keep thinking about that scene in " Forgetting Sarah Marshall," where his his character does the score for a CSI type show.
 
 [00:10:44] Adam: Right.
 
-[00:10:44] Norm: And then he like plays the the he plays the keyboard, but this is on that on a much bigger scale.
+[00:10:44] Norm: And then he like plays the he plays the keyboard, but this is on that on a much bigger scale.
 
 [00:10:57] Adam: Yeah, it was thrilling. It was absolutely an amazing, like I said, fantasy camp day. And then on that day, they were doing some recordings of the actual theme from Star Trek, so I got to hear a whole orchestra play.
 
-[00:11:11] Norm: Well, it's it's like in the end of
+[00:11:11] Norm: Well, it's like in the end of
 
 [00:11:12] Adam: everyone in the building, even the whole orchestra was like, we can't believe we're playing this.
 
@@ -230,23 +230,23 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:11:33] Will: Yeah, yeah, yeah. It's only an hour though, so I mean, it's half half the work.
 
-[00:11:36] Norm: Plus, no, there are themes. Plus, you know, like
+[00:11:36] Norm: Plus, no, there are themes. Plus like
 
 [00:11:39] Adam: There are themes. Yeah,
 
-[00:11:40] Norm: you know, this being the third Star Trek movie, and for TV shows, you create themes for the characters. You know, there's and for movies, there's the new Star Trek theme. There's like Spock's theme, Kirk's theme, and they'll have new themes created for the new characters. So things, you know, they because there are some recurring patterns that come up, and even like when you talk about the original Star Trek song, it only came up in the end of the 2009 Star Trek movie with the credit sequence.
+[00:11:40] Norm: you know, this being the third Star Trek movie, and for TV shows, you create themes for the characters. There's and for movies, there's the new Star Trek theme. There's like Spock's theme, Kirk's theme, and they'll have new themes created for the new characters. So things they because there are some recurring patterns that come up, and even like when you talk about the original Star Trek song, it only came up in the end of the 2009 Star Trek movie with the credit sequence.
 
 [00:11:40] Will: Yeah, yeah,
 
 [00:11:40] Norm: and that was their interpretation of it.
 
-[00:12:07] Will: the the Nichelle Nichols version singing version
+[00:12:07] Will: the Nichelle Nichols version singing version
 
 [00:12:10] Norm: no not that version
 
 [00:12:10] Will: okay
 
-[00:12:10] Norm: but talk about what what a great that would be a great VR experience to put in pull you in that room or for someone to play their own instrument along with you know a score
+[00:12:10] Norm: but talk about what a great that would be a great VR experience to put in pull you in that room or for someone to play their own instrument along with you know a score
 
 [00:12:23] Adam: That’d be cool.
 
@@ -268,7 +268,7 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:13:04] Adam: oh right
 
-[00:13:05] Norm: where where they're playing the same thing and then they can develop a relationship with the performers
+[00:13:05] Norm: where they're playing the same thing and then they can develop a relationship with the performers
 
 [00:13:09] Adam: I see what you mean I. The level of professionalism and yet also the thrill that the orchestra was getting at playing this music was clear.
 
@@ -284,17 +284,17 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:13:31] Adam: Yeah, and they're very facile. It's just it was incredible.
 
-[00:13:34] Will: Um. So I looked at I looked at his IMDb page.
+[00:13:34] Will: So I looked at his IMDb page.
 
 [00:13:34] Adam: Yeah.
 
-[00:13:34] Will: Um. I didn't realize. So he did not just The Incredibles, but he also did Inside Out, which is I think my favorite of the Pixar scores with by a with a bullet. It has, it’s just amazing.
+[00:13:34] Will: I didn't realize. So he did not just The Incredibles, but he also did Inside Out, which is I think my favorite of the Pixar scores with by a with a bullet. It has, it’s just amazing.
 
 [00:13:49] Adam: And up he did up as well.
 
 [00:13:50] Norm: Oh yeah, yeah, yeah, yeah.
 
-[00:13:50] Will: The video games he did though were Medal of Honor and Call of Duty, the very first one, Black. Um. So like that, if you think about that first Call of Duty, Norm, the one where they storm Normandy, the one that was Saving Private Ryan, the video game,
+[00:13:50] Will: The video games he did though were Medal of Honor and Call of Duty, the very first one, Black. So like that, if you think about that first Call of Duty, Norm, the one where they storm Normandy, the one that was Saving Private Ryan, the video game,
 
 [00:14:06] Norm: right, right,
 
@@ -304,7 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:14:08] Will: yeah,
 
-[00:14:08] Norm: fantastic. You know, I love movie scores. I think they don't get enough appreciation. The one thing I wish composer—I don't know who decides this—if it's composer,
+[00:14:08] Norm: fantastic. I love movie scores. I think they don't get enough appreciation. The one thing I wish composer—I don't know who decides this—if it's composer,
 
 [00:14:08] Will: yeah—
 
@@ -342,11 +342,11 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:15:09] Adam: He has pictures of himself on set in the stormtrooper uniform and sitting in the cockpit of the Millennium Falcon. I think
 
-[00:15:14] Norm: is he is he the one that like that they turn away when they do that when Kylo Ren does the rage bit
+[00:15:14] Norm: is he the one that like that they turn away when they do that when Kylo Ren does the rage bit
 
 [00:15:21] Will: maybe it's it you know the Amazon MP3 tracks don't list the spoiler.
 
-[00:15:25] Norm: Well, thank you, thank you,
+[00:15:25] Norm: Well, thank you,
 
 [00:15:26] Will: thanks Amazon,
 
@@ -394,7 +394,7 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:16:49] Will: is this? Why is it terrifying?
 
-[00:16:50] Adam: Um, he's uh, at one point, a hooker that he has just been with said, " Yeah, I got the feeling he'd rather shoot cops than get laid. Like that's his game.
+[00:16:50] Adam: He's at one point, a hooker that he has just been with said, " Yeah, I got the feeling he'd rather shoot cops than get laid. Like that's his game.
 
 [00:16:50] Will: Wow, wow,
 
@@ -422,7 +422,7 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:17:32] Will: Just we'll move over. We'll gloss over.
 
-[00:17:38] Norm: You know, we're in the thick of summer right now. Are you guys going to find some time to watch some of the upcoming summer movies? I saw X Men.
+[00:17:38] Norm: We're in the thick of summer right now. Are you guys going to find some time to watch some of the upcoming summer movies? I saw X Men.
 
 [00:17:44] Adam: How is X Men?
 
@@ -444,13 +444,13 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:18:07] Adam: Is that good or bad?
 
-[00:18:08] Norm: I think it's it's fine if you love if you have fond memories of reading those comics. Yeah.
+[00:18:08] Norm: I think it's fine if you love if you have fond memories of reading those comics. Yeah.
 
 [00:18:12] Adam: Oh, also, we've been talking about Gundam kits.
 
 [00:18:15] Norm: Yes.
 
-[00:18:16] Adam: Um, and so I mentioned this at Comic Con. Bandai has made some Star Wars kits,
+[00:18:16] Adam: And so I mentioned this at Comic Con. Bandai has made some Star Wars kits,
 
 [00:18:16] Norm: Mm-hmm.
 
@@ -468,7 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:18:30] Norm: Yes,
 
-[00:18:30] Adam: spend an hour, an hour and a half building it, and then four or five hours painting it.
+[00:18:30] Adam: spend an hour and a half building it, and then four or five hours painting it.
 
 [00:18:38] Norm: Yeah, the problem with some of those kits is they don't sell in the U.S. Like they have their release schedule in Japan. I
 
@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:19:22] Adam: Did you ever have Six Million Dollar Man when you were a kid?
 
-[00:19:24] Will: My my one of my oldest uncles, one of my youngest uncles, had one. So when I went to my grandmother's, I used to get to play with it. He had that, and he had Oscar Goldman.
+[00:19:24] Will: My one of my oldest uncles, one of my youngest uncles, had one. So when I went to my grandmother's, I used to get to play with it. He had that, and he had Oscar Goldman.
 
 [00:19:34] Norm: Is that the one where you could look through the head.
 
@@ -528,7 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:20:05] Will: Yeah, yeah, yeah. He looks like Michael Ironside.
 
-[00:20:08] Adam: He looks like Michael Ironside, who also looks like Peter Sagal. Um, or Peter Sagal
+[00:20:08] Adam: He looks like Michael Ironside, who also looks like Peter Sagal. Or Peter Sagal
 
 [00:20:08] Will: looks like
 
@@ -536,11 +536,11 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:20:19] Norm: I will never be able to listen to the show the same way again.
 
-[00:20:22] Will: Um, I read something the other day that was awesome. Um, the the Max Landis has done a run of a Superman. I guess it's a side story, right? The American Alien thing.
+[00:20:22] Will: I read something the other day that was awesome. The Max Landis has done a run of a Superman. I guess it's a side story, right? The American Alien thing.
 
 [00:20:33] Norm: I haven't seen. I haven't read it.
 
-[00:20:34] Will: So it's it's basically it's another origin story kind of, but it basically tells the story of of it's it's it's just it's worth reading if you think Superman is interesting at all. It's a different take on Superman. Okay. I don't want to spoil anything, That’s awesome. but it it interacts with the Justice League stuff in a way that's not super comic booky. It stands on its own in a really nice way,
+[00:20:34] Will: So it's basically it's another origin story kind of, but it basically tells the story of it's just it's worth reading if you think Superman is interesting at all. It's a different take on Superman. Okay. I don't want to spoil anything, That’s awesome. but it interacts with the Justice League stuff in a way that's not super comic booky. It stands on its own in a really nice way,
 
 [00:20:34] Unknown speaker: Very cool.
 
@@ -570,7 +570,7 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:21:23] Norm: Awesome.
 
-[00:21:23] Will: Thank you guys for listening. Norm, what's going on on the site?
+[00:21:23] Will: Thank you guys for listening. Norm, what's going on the site?
 
 [00:21:25] Norm: Oh, this week. Yes, our Strandbeest videos up this week. We'll have more stuff next week. Is going to be busy for us. There is E3, and we might be doing some traveling with Adam. So I don't think we can talk too much about that yet.
 

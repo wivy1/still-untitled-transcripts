@@ -14,13 +14,13 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:00:09] Norm: and I'm Norm.
 
-[00:00:10] Will: You did the contractions again. Like you, you guys leave me hanging with the contractions. I say I'm, and then you go with I am, and I am. And I'm just out here.
+[00:00:10] Will: You did the contractions again. Like you guys leave me hanging with the contractions. I say I'm, and then you go with I am, and I am. And I'm just out here.
 
 [00:00:10] Adam: That’s fine. I don't think that's. I don't think we're leaving you hanging. I think we're just exploring a meter. If you said I'm Will, and I said I'm Adam, that's a regular way of doing it. And I, I mean, actually, I toyed this time with the idea of saying, " Madam, I'm Adam," which is the first palindrome.
 
-[00:00:31] Will: I think that's pretty good. Yeah, yeah, that's that's not bad.
+[00:00:31] Will: I think that's pretty good. Yeah, yeah, that's not bad.
 
-[00:00:33] Adam: I have, you know, I have a collection of palindromes.
+[00:00:33] Adam: I have I have a collection of palindromes.
 
 [00:00:35] Will: Really?
 
@@ -32,13 +32,13 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:00:42] Norm: What's the longest?
 
-[00:00:43] Adam: Oh, the longest is too long to even repeat. It's um.
+[00:00:43] Adam: Oh, the longest is too long to even repeat. It's.
 
 [00:00:46] Norm: I mean, like in terms of is it a full sentence?  A paragraph?
 
-[00:00:46] Adam: Oh yeah, no, it's there's it's it's it's it's paragraphs. It's really long.
+[00:00:46] Adam: Oh yeah, no, it's there's it's paragraphs. It's really long.
 
-[00:00:46] Will: Wow. Um, is it nonsense or does it make? Is it?
+[00:00:46] Will: Wow. Is it nonsense or does it make? Is it?
 
 [00:00:46] Adam: It makes a little bit of sense. It’s very long. It makes some sense. You’re you’re giving them a big pass on. On sensibility because—
 
@@ -48,19 +48,19 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:01:08] Adam: That is just wind. That's not a person knocking.
 
-[00:01:08] Will: No, it's wind. You know, I think that there should be a name for the poetry that arises from typos that come from touch keyboards that auto correct as you go, and people who are bad at using them.
+[00:01:08] Will: No, it's wind. I think that there should be a name for the poetry that arises from typos that come from touch keyboards that auto correct as you go, and people who are bad at using them.
 
 [00:01:24] Adam: Well, I must have said this joke on this podcast before. Do you know how many Apple Newtons it takes to screw in a light bulb? Fruit bat.
 
 [00:01:33] Will: That sounds about right.
 
-[00:01:36] Adam: And there was way back, someone actually used an Apple Newton to write the the poem Jabberwocky.
+[00:01:36] Adam: And there was way back, someone actually used an Apple Newton to write the poem Jabberwocky.
 
 [00:01:44] Will: Really?
 
 [00:01:45] Adam: And the title of the poem is Tablespoons because that's as close as the Newton could get to Jabberwocky.
 
-[00:01:45] Will: Well, so back in the day, I was a pretty accomplished Palm Pilot user. You know, I was a Palm Three, Palm Five. We used them for work, and once you got the knack of that Jot stuff that you used on, or whatever the thing was called Jot, I can't remember, but it was like it was. Almost like stenography, you had a specific set of. It was almost like chording with you know. You made a symbol and it and it translated that and it was really fast.
+[00:01:45] Will: Well, so back in the day, I was a pretty accomplished Palm Pilot user. I was a Palm Three, Palm Five. We used them for work, and once you got the knack of that Jot stuff that you used on, or whatever the thing was called Jot, I can't remember, but it was like it was. Almost like stenography, you had a specific set of. It was almost like chording with you know. You made a symbol and it translated that and it was really fast.
 
 [00:01:45] Adam: That language. Yeah, it was very. It was easy to learn.
 
@@ -84,7 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:02:32] Norm: It’s like pager code for nerds,
 
-[00:02:42] Will: kind of, kind of, yeah. But but then you also, I also had a hardware keyboard, so when I needed to write a real email or something, I would just plug in the real keyboard and jam it out.
+[00:02:42] Will: kind of, yeah. But then you also, I also had a hardware keyboard, so when I needed to write a real email or something, I would just plug in the real keyboard and jam it out.
 
 [00:02:42] Adam: Right, right,
 
@@ -100,7 +100,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:03:04] Will: Really?
 
-[00:03:04] Adam: My kids' handwriting is semi-abysmal. But so is mine. I mean, I remember my—I had—I was—I was always put in the special class for crappy handwriting.
+[00:03:04] Adam: My kids' handwriting is semi-abysmal. But so is mine. I mean, I remember my—I had—I was always put in the special class for crappy handwriting.
 
 [00:03:14] Norm: They're all time travelers, and
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:03:16] Will: there's—I could do that beautifully fast. And
 
-[00:03:49] Norm: don't you get frustrated? Like that's why people like you know writing within the lines and having really beautiful calligraphy. Yeah, it's it's really pretty.
+[00:03:49] Norm: don't you get frustrated? Like that's why people like you know writing within the lines and having really beautiful calligraphy. Yeah, it's really pretty.
 
 [00:03:58] Adam: It is. It is absolutely gorgeous. And I'm a huge—you know—I respect greatly lovely handwriting. It's funny. Both my wife and I love each other's handwriting, but deride our own. Maybe that means we're meant for each other.
 
@@ -136,7 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:04:30] Will: Okay, I thought he used to be the ombudsman or something, right?
 
-[00:04:30] Adam: I don't, I don't know. He's also an author.
+[00:04:30] Adam: I don't know. He's also an author.
 
 [00:04:37] Will: He's written a bunch of books. He's an interviewer.
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:05:35] Norm: Are these like college students? Are they members of the community?
 
-[00:05:35] Adam: It's all over the map. Actually, there's over 700 members, I believe. I hope I'm right about this of the of the Connecticut Forum. The youngest members are in grade school or high school. We met a bunch of those kids, and the oldest are, you know, regular people, my age and even older. And they buy season tickets, or they buy tickets individually per event, and you know, everything from watching people talk about medicine to music.
+[00:05:35] Adam: It's all over the map. Actually, there's over 700 members, I believe. I hope I'm right about this of the Connecticut Forum. The youngest members are in grade school or high school. We met a bunch of those kids, and the oldest are regular people, my age and even older. And they buy season tickets, or they buy tickets individually per event, and you know, everything from watching people talk about medicine to music.
 
 [00:05:35] Norm: Politics and—
 
@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:06:13] Norm: Oh wow! Okay.
 
-[00:06:14] Adam: And we were up there talking about nerds, and the the the the question was
+[00:06:14] Adam: And we were up there talking about nerds, and the question was
 
 [00:06:14] Will: Like being nerds or just discussing? Look at that guy with that belt pulled up too high.
 
@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:06:29] Will: Oh, smarter money, right? Well, it’s one of those two.
 
-[00:06:32] Adam: I mean, you know, in the end, it was fascinating. None of us. There's a rare and perfect grouping in that none of us had any kind of axe to grind or point to make, and we were all sort of open. And I think we all actually learned something in the course of the discussion. You know, I got some more clarity about the way I think about it, and you know, probably the main thing I got is nerd is now a popular term as opposed to a pejorative.
+[00:06:32] Adam: I mean in the end, it was fascinating. None of us. There's a rare and perfect grouping in that none of us had any kind of axe to grind or point to make, and we were all sort of open. And I think we all actually learned something in the course of the discussion. I got some more clarity about the way I think about it, and probably the main thing I got is nerd is now a popular term as opposed to a pejorative.
 
 [00:07:01] Will: When we were kids, That has happened in our lifetime.
 
@@ -238,25 +238,25 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:08:41] Norm: I’ve never experienced that in my entire life.
 
-[00:08:41] Will: Norm didn't. Norm grew up in, in well, he grew up in the Valley of the Nerds
+[00:08:41] Will: Norm didn't. Norm grew up in well, he grew up in the Valley of the Nerds
 
 [00:08:45] Adam: here, yes,
 
-[00:08:46] Will: and and it was a positive. Yeah,
+[00:08:46] Will: and it was a positive. Yeah,
 
 [00:08:49] Adam: man, it sucked for us back in those days.
 
-[00:08:49] Will: It was it was not an easy time.
+[00:08:49] Will: It was not an easy time.
 
 [00:08:49] Adam: No, so we discuss.
 
 [00:08:49] Will: You had to hide shit.
 
-[00:08:55] Adam: Now, now we talked to the kids, and when we were talking to the kids, we got to a point that we made also in front of the audience, which was the kids were asking us about challenges. We'd had in our lives and ways we overcome—came them, and ways we'd made choices and stuff. And we we realized at a certain point, and we said this: Look, please understand. Don't make the mistake of thinking that our lives, any of the four of us, our lives were in all in any way linear.
+[00:08:55] Adam: Now, now we talked to the kids, and when we were talking to the kids, we got to a point that we made also in front of the audience, which was the kids were asking us about challenges. We'd had in our lives and ways we overcome—came them, and ways we'd made choices and stuff. And we realized at a certain point, and we said this: Look, please understand. Don't make the mistake of thinking that our lives, any of the four of us, our lives were in all in any way linear.
 
 [00:09:21] Will: Yeah.
 
-[00:09:22] Adam: nobody's life is linear. It looks linear when you write it out as a story, like oh, all these choices that Adam made led inexorably to having all the skills for a TV show. Man, I was not. I my goals changed all the time, and they weren't linear goals. And it seems much more. Even Chris Hart Hadfield, who knew he wanted to be an astronaut at the age of nine, says every time he gets in front of an audience, my life is not nearly as linear as it looks. And I think that's a really important thing, but more universal to get to the point of nerds is that we talked about the fact that really when you are talking about nerds or what you'd think of as a marginalized community. The the trick is to remember that you might think that you're lonely and life is hard, but for other people it's easy. And the thing to that we're here to tell you as adults is everyone's life sucks.
+[00:09:22] Adam: nobody's life is linear. It looks linear when you write it out as a story, like oh, all these choices that Adam made led inexorably to having all the skills for a TV show. Man, I was not. I my goals changed all the time, and they weren't linear goals. And it seems much more. Even Chris Hart Hadfield, who knew he wanted to be an astronaut at the age of nine, says every time he gets in front of an audience, my life is not nearly as linear as it looks. And I think that's a really important thing, but more universal to get to the point of nerds is that we talked about the fact that really when you are talking about nerds or what you'd think of as a marginalized community. The trick is to remember that you might think that you're lonely and life is hard, but for other people it's easy. And the thing to that we're here to tell you as adults is everyone's life sucks.
 
 [00:08:55] Will: Yeah, well, the first noble truth of the Buddha holds true: is everyone suffers, and no one's having an easier time of it, even if it appears to you from the outside. And
 
@@ -264,11 +264,11 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:10:25] Adam: And now with the internet, it is that is exactly right. That that's what has happened is those marginalized communities are not so marginalized when you go to Pinterest and find 55 other pre 1920s Zippo collectors.
 
-[00:10:38] Will: Right. Well, eBay started this. Right. Yeah. eBay started this in in the late '90s, mid '90s, when all of a sudden you realize, wait, somebody else collects whatever whatever it is that is the weird thing that you like to collect.
+[00:10:38] Will: Right. Well, eBay started this. Right. Yeah. eBay started this in the late '90s, mid '90s, when all of a sudden you realize, wait, somebody else collects whatever whatever it is that is the weird thing that you like to collect.
 
 [00:10:38] Adam: Oh man,
 
-[00:10:38] Will: there there are there is a market full of other people that are into collecting that exact same thing. And
+[00:10:38] Will: there are there is a market full of other people that are into collecting that exact same thing. And
 
 [00:10:55] Adam: you can go and find the six million dollar man of your childhood dreams.
 
@@ -302,7 +302,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:11:34] Adam: Wow.
 
-[00:11:34] Will: And on that on weekday afternoons, instead of showing cartoons or whatever they used to show then. They would put on Six Million Dollar Man and and Buck Rogers and
+[00:11:34] Will: And on that on weekday afternoons, instead of showing cartoons or whatever they used to show then. They would put on Six Million Dollar Man and Buck Rogers and
 
 [00:11:34] Adam: Far out. I didn’t realize that.
 
@@ -324,11 +324,11 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:12:44] Will: all the way through?
 
-[00:12:44] Adam: everyone that's ever at least as of 10 years ago. The last time I was in in his house at that point. He had every Star Wars figure ever made.
+[00:12:44] Adam: everyone that's ever at least as of 10 years ago. The last time I was in his house at that point. He had every Star Wars figure ever made.
 
 [00:12:44] Will: That is a lot of Star Wars figures.
 
-[00:12:44] Adam: I mean, he was missing, you know, maybe like one of the early Boba Fett prototypes, which are like $15,000.
+[00:12:44] Adam: I mean, he was missing maybe like one of the early Boba Fett prototypes, which are like $15,000.
 
 [00:12:44] Will: The ones that shoot the that actually have the firing missile, the eye blasters, what they call that one.
 
@@ -394,17 +394,17 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:14:08] Norm: It’s massive.
 
-[00:14:08] Adam: It’s it’s it's it it it's—
+[00:14:08] Adam: It’s it's it it's—
 
 [00:14:19] Will: It sells out.
 
-[00:14:19] Adam: rivaling Comic Con in the in the in the actual size.
+[00:14:19] Adam: rivaling Comic Con in the actual size.
 
 [00:14:22] Will: Last year we got we usually get there a couple hours early so that we can because they'll they'll sneak us in we can walk around kind of scout out where we want to shoot and set up times and stuff with people and last year we were there and the part the main parking lot was already almost full by the time you know an hour and a half two hours before the gates opened on Saturday morning it's bananas
 
 [00:14:22] Adam: Crazy.
 
-[00:14:22] Will: it's a great event if you're if you're anywhere near the Bay Area I think it's like $30 a person kids get in cheaper
+[00:14:22] Will: it's a great event if you're anywhere near the Bay Area I think it's like $30 a person kids get in cheaper
 
 [00:14:47] Adam: and I ran into someone recently who asked me oh is it good for my seven or nine year old
 
@@ -422,7 +422,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:15:14] Norm: toys and merchandising.
 
-[00:15:14] Will: So we talked about the the new set of the new trilogy.
+[00:15:14] Will: So we talked about the new set of the new trilogy.
 
 [00:15:14] Adam: Yes,
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:15:41] Will: But they've announced the casting, and of
 
-[00:15:45] Adam: course the casting and the big, the big, the big reveal that we were all, I think, fairly confident of is that Harrison Ford, Carrie Fisher, and Mark Hamill. Are making a return as well as Kenny Baker as R2-D2, Anthony Daniels as C-3PO, and I'm very pleased about this. Peter Mayhew as Chewbacca.
+[00:15:45] Adam: course the casting and the big reveal that we were all, I think, fairly confident of is that Harrison Ford, Carrie Fisher, and Mark Hamill. Are making a return as well as Kenny Baker as R2-D2, Anthony Daniels as C-3PO, and I'm very pleased about this. Peter Mayhew as Chewbacca.
 
 [00:15:45] Norm: who is at the reading.
 
@@ -534,7 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:18:42] Adam: right?
 
-[00:18:42] Norm: And there was some analysis and taking it. It's fun to to to ponder and and and. Analyze the one photo.
+[00:18:42] Norm: And there was some analysis and taking it. It's fun to ponder and. Analyze the one photo.
 
 [00:18:42] Adam: Yes.
 
@@ -542,17 +542,17 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:18:42] Adam: right. Is there something to it? Are these the Sith,
 
-[00:19:04] Will: exactly? You know, they have to be when they stage that photo. Somebody.
+[00:19:04] Will: exactly? They have to be when they stage that photo. Somebody.
 
 [00:19:09] Norm: Well, they said not staged.
 
 [00:19:10] Will: Okay. When J. J. Abrams is looking at the way they're arrayed, he has to be thinking, " Oh, we can probably fuck with people a lot if we just make Adam sit next to so and so, and you know, so yeah.”
 
-[00:19:10] Norm: io9 I think had this story, and and it's it's true in in past when you do these first reads, like script reads, you kind of pair the people who are going to be in conversation with one another close to each other,
+[00:19:10] Norm: io9 I think had this story, and it's true in past when you do these first reads, like script reads, you kind of pair the people who are going to be in conversation with one another close to each other,
 
 [00:19:10] Adam: yeah,
 
-[00:19:10] Norm: and um, because you can have movies where two leads rarely encounter another, so there is an actress sitting between Harrison Ford and Carrie Fisher, and so the speculation is: is this young actress going to play their daughter?
+[00:19:10] Norm: and because you can have movies where two leads rarely encounter another, so there is an actress sitting between Harrison Ford and Carrie Fisher, and so the speculation is: is this young actress going to play their daughter?
 
 [00:19:49] Adam: Right. Oh yeah,
 
@@ -560,13 +560,13 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:19:58] Will: Daisy Ridley, I think, right?
 
-[00:20:00] Adam: I I can barely, I don't even care about anybody else. I can barely contain my excitement that Han Solo is in this movie.
+[00:20:00] Adam: I can barely, I don't even care about anybody else. I can barely contain my excitement that Han Solo is in this movie.
 
 [00:20:07] Will: Yeah, Thank God he said yes. Because he could have said no.
 
 [00:20:10] Adam: I know, but I mean, it's hard to overestimate Harrison Ford's importance as a screen star within the latter 20th century history of cinema. I mean, it's just it's you can't overstate it. And the fact is, he's played very different characters with very different personalities, and beautifully in ways that you really feel like you know them. And Han Solo is without a doubt one of my favorite both characters and conventions in that in a movie that really could be look Star Wars could have been as plodding and silly as Episode One, except for the fact that Han Solo is making fun of the movie while he's in it. He's making fun of all the conventions of the film while he's in it.
 
-[00:20:10] Will: But that's a thing that, like, I don't think I'd seen. I mean, I obviously I hadn't seen it before because I was two. But going back and watching films that are older than Star Wars, I hadn't seen the wink and the nod that, for example, Joss Whedon applied with wonderful effect in The Avengers.
+[00:20:10] Will: But that's a thing that I don't think I'd seen. I mean, I obviously I hadn't seen it before because I was two. But going back and watching films that are older than Star Wars, I hadn't seen the wink and the nod that, for example, Joss Whedon applied with wonderful effect in The Avengers.
 
 [00:20:10] Adam: Yes.
 
@@ -588,9 +588,9 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:21:49] Will: But how do kids get around?
 
-[00:21:50] Adam: Right. Right. Frankly, you know, Coppola. says he was just quoting early cinema when he made Godfather. He's just you know doing his. He's he is also picking up just like Tarantino does the conventions that he grew up in. So Abrams is deeply inculcated with the cinematic conventions of Lucas and Spielberg, and I think it's hard to discount Spielberg's influence on Star Wars as Lucas moved through the series and on cinema as the blockbuster movie came to be in the early '80s. Yeah, but sorry, I just didn't finish this. The thought is that he's absolutely going to give Han Solo the charming rogue bit that will carry this. Take this movie and shift the plot to a certain point. I just I know that about Abrams. He's he's been dying to write for Han Solo his whole life for that.
+[00:21:50] Adam: Right. Right. Frankly Coppola. says he was just quoting early cinema when he made Godfather. He's just you know doing his. He's he is also picking up just like Tarantino does the conventions that he grew up in. So Abrams is deeply inculcated with the cinematic conventions of Lucas and Spielberg, and I think it's hard to discount Spielberg's influence on Star Wars as Lucas moved through the series and on cinema as the blockbuster movie came to be in the early '80s. Yeah, but sorry, I just didn't finish this. The thought is that he's absolutely going to give Han Solo the charming rogue bit that will carry this. Take this movie and shift the plot to a certain point. I just I know that about Abrams. He's been dying to write for Han Solo his whole life for that.
 
-[00:22:38] Will: Yeah. Well, who says? And and you know, who Adam Driver could be Han Solo's kid too.
+[00:22:38] Will: Yeah. Well, who says? And you know, who Adam Driver could be Han Solo's kid too.
 
 [00:22:38] Adam: Could be.
 
@@ -606,11 +606,11 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:22:54] Adam: It's so funny when I read all that speculation. Personally, I understand the excitement and the desire to speculate. I look at that and I think, oh, cool. Eventually, I'll find out what those people are doing. I mean, then I literally move my brain to the next thing,
 
-[00:22:54] Will: and that's and that's where I like. I I went through the. We've done this before. Yeah. We have we have walked this path before, and and we all know how that ended up.
+[00:22:54] Will: and that's where I like. I went through the. We've done this before. Yeah. We have walked this path before, and we all know how that ended up.
 
 [00:23:16] Norm: It's not going to be like that.
 
-[00:23:17] Will: Um. It’s what?
+[00:23:17] Will: It’s what?
 
 [00:23:18] Norm: It’s not going to be like episode one.
 
@@ -618,15 +618,15 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:23:20] Adam: Not at all.
 
-[00:23:20] Will: But but I mean I'm just saying we've walked the path the the the casting the hype all of the building of of the excitement culminating with me sitting in a line for 12 hours waiting to get into the movie on at midnight.
+[00:23:20] Will: But I mean I'm just saying we've walked the path the casting the hype all of the building of the excitement culminating with me sitting in a line for 12 hours waiting to get into the movie on at midnight.
 
 [00:23:20] Adam: Yeah.
 
-[00:23:20] Will: And you know, I'm okay not doing that again. I've been there.
+[00:23:20] Will: And I'm okay not doing that again. I've been there.
 
 [00:23:20] Adam: Right.
 
-[00:23:20] Will: I'm going to go in. You know, I find especially now the more hyped a movie is, the more I go in cold to that first showing, the happier I'm going to be because I don't have any preconceived notions. I can just go in and enjoy myself and have fun. And watch a movie, and whether that's Transformers with the dinosaurs, or the next Star Wars movie, or the third Star Trek movie, or what, I'm happy.
+[00:23:20] Will: I'm going to go in. I find especially now the more hyped a movie is, the more I go in cold to that first showing, the happier I'm going to be because I don't have any preconceived notions. I can just go in and enjoy myself and have fun. And watch a movie, and whether that's Transformers with the dinosaurs, or the next Star Wars movie, or the third Star Trek movie, or what, I'm happy.
 
 [00:23:20] Adam: Is there dinosaurs in the new Transformers?
 
@@ -654,9 +654,9 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:24:15] Norm: I saw it twice.
 
-[00:24:27] Adam: I'm going to see it again. I'm going to take my kids to see it. I got to take my wife to see it. It's just, it's really, really, it's. You know what? It's it loves you, right? It's got a good heart, and it's it's it's it doesn't want to put anything over on you.
+[00:24:27] Adam: I'm going to see it again. I'm going to take my kids to see it. I got to take my wife to see it. It's just, it's really, really, it's. You know what? It's it loves you, right? It's got a good heart, and it's it doesn't want to put anything over on you.
 
-[00:24:40] Will: I think it's amazing to me because the last cycle with the with the leading up to the Avengers with the first Captain America, the first Thor, and the second Iron Man, I thought Captain America and Thor were both better than the Iron. I mean, obviously they're better than the Iron Man. This time it's happened again. Both the Thor movie and the Captain America movie are both better than Iron Man three.
+[00:24:40] Will: I think it's amazing to me because the last cycle with the leading up to the Avengers with the first Captain America, the first Thor, and the second Iron Man, I thought Captain America and Thor were both better than the Iron. I mean, obviously they're better than the Iron Man. This time it's happened again. Both the Thor movie and the Captain America movie are both better than Iron Man three.
 
 [00:24:59] Adam: See, I thought the first Thor, even though I've seen it a couple times, I I think it's real. I think it's really trashy.
 
@@ -666,11 +666,11 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:25:04] Will: Yeah.
 
-[00:25:04] Adam: Um, but this Captain America film,
+[00:25:04] Adam: But this Captain America film,
 
 [00:25:04] Will: it’s great.
 
-[00:25:04] Adam: Um, Chris Evans, Chris Evans, is so good and so genuine. He and Scarlett Johansson have a bunch of some complicated things to act out—
+[00:25:04] Adam: Chris Evans, is so good and so genuine. He and Scarlett Johansson have a bunch of some complicated things to act out—
 
 [00:25:27] Norm: when they're driving in the car. Yeah, and they have a scene about you know his first kiss.
 
@@ -688,7 +688,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:25:40] Norm: And she like, recognizes him again.
 
-[00:25:50] Adam: I could do. I could do without the. Without the the actual Winter Soldier thing of like it's your best buddy, that whole bit struck me as like.  eh.
+[00:25:50] Adam: I could do. I could do without the. Without the actual Winter Soldier thing of like it's your best buddy, that whole bit struck me as like. eh.
 
 [00:26:00] Norm: and did you know that going into the movie?
 
@@ -704,7 +704,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:26:14] Adam: Yeah, yeah, I love that sort of effortless exposition. It doesn’t feel like it’s being pounded into your head.
 
-[00:26:22] Norm: I've heard people say that it's it's like the twist. It's a it's a it's a great modern twist.
+[00:26:22] Norm: I've heard people say that it's like the twist. It's a great modern twist.
 
 [00:26:27] Adam: Yeah.
 
@@ -712,11 +712,11 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:26:34] Adam: I didn’t know.
 
-[00:26:34] Will: Um, but I like I thought that the villain was the I thought he was the worst part of the movie. Like not not through any fault of his own.
+[00:26:34] Will: But I like I thought that the villain was the I thought he was the worst part of the movie. Like not not through any fault of his own.
 
 [00:26:34] Adam: Yeah,
 
-[00:26:34] Will: he was just kind of a a one note villain
+[00:26:34] Will: he was just kind of a one note villain
 
 [00:26:34] Adam: exactly
 
@@ -728,9 +728,9 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:26:49] Adam: a villainy.
 
-[00:26:49] Will: But the interesting thing was everything else that happened around that. The downfall of S.H.I.E.L.D., the the the commentary on our surveillance state.
+[00:26:49] Will: But the interesting thing was everything else that happened around that. The downfall of S.H.I.E.L.D., the commentary on our surveillance state.
 
-[00:26:59] Adam: When when when so big spoiler when Nick Fury dies, I turned to my friend and we both laughed because I was like, " We're seeing him in Act Three."
+[00:26:59] Adam: When so big spoiler when Nick Fury dies, I turned to my friend and we both laughed because I was like, " We're seeing him in Act Three."
 
 [00:27:06] Will: Yeah, totally. Everybody knew. Everybody knew,
 
@@ -740,7 +740,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:27:09] Norm: He’s coming back. That was a great car chase scene, also.
 
-[00:27:14] Will: Oh, the the Sam Jackson in the supercar.
+[00:27:14] Will: Oh, the Sam Jackson in the supercar.
 
 [00:27:14] Adam: Oh, dude!
 
@@ -750,15 +750,15 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:27:14] Norm: they got Robert Redford to say " Hail Hydra," which wow! Things you never thought that Robert Redford would ever say in a movie.
 
-[00:27:27] Will: Well, and they did like like you watched that movie and you saw the you saw the narrative points in the future as you're watching. There were no surprises in the third act of that movie, right? When you saw those three helicarriers, you're like, " Well, that's going to be bad for somebody." This this is clearly not the the way for the future of humanity. But it was so it's so well put together. Well, and it's so it's such a it was I just it was a very pleasant movie for me.
+[00:27:27] Will: Well, and they did like you watched that movie and you saw the narrative points in the future as you're watching. There were no surprises in the third act of that movie, right? When you saw those three helicarriers, you're like, " Well, that's going to be bad for somebody." This is clearly not the way for the future of humanity. But it was so it's so well put together. Well, and it's so it's such a it was I just it was a very pleasant movie for me.
 
 [00:27:50] Adam: So I'm going to also go back to. A convention that I think about action movies, which is one of the things I didn't like about Thor, is Thor started out, the original Thor,
 
 [00:27:50] Will: yeah,
 
-[00:27:50] Adam: with way too much ridiculous exposition, right? Literally, like, oh, there's an anomaly. Quick, drive to it. I didn't give up four college credits. Sort of everyone, every character is literally like, like, you know, no dots on a line, explicating who they are and where, how they feel about the situation. It feels so formulaic, exhausted. Whereas Winter Soldier, first 20 lines, which carries you like probably 15 minutes into the movie, the first 20 lines, all of them are great. All of them.
+[00:27:50] Adam: with way too much ridiculous exposition, right? Literally oh, there's an anomaly. Quick, drive to it. I didn't give up four college credits. Sort of everyone, every character is literally like no dots on a line, explicating who they are and where, how they feel about the situation. It feels so formulaic, exhausted. Whereas Winter Soldier, first 20 lines, which carries you like probably 15 minutes into the movie, the first 20 lines, all of them are great. All of them.
 
-[00:27:50] Will: Hold on, it starts with like a with like a secret mission or something. Yeah,
+[00:27:50] Will: Hold on, it starts with like a secret mission or something. Yeah,
 
 [00:28:35] Norm: starts with the run between him and Falcon.
 
@@ -778,7 +778,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:28:52] Adam: I don't want to know that you're telling me. Like, I mean, my favorite is the opening line of Lawnmower Man, which is, " Don't you understand, man? If I give the serum to those monkeys, there's no telling what will happen." It's like, really, couldn't you like buy me dinner first? Like, we don't have to.
 
-[00:29:12] Will: Well, but but so it sets that up really well. It wasn't it it wasn't so actiony as to be exhausting.
+[00:29:12] Will: Well, but so it sets that up really well. It wasn't so actiony as to be exhausting.
 
 [00:29:12] Adam: No,
 
@@ -788,17 +788,17 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:29:12] Will: and I was good. Like I had all I needed.
 
-[00:29:27] Adam: And and Winter Soldier has a couple of really nice, graceful pauses in the film where things slow way down. And you know, my favorite example of that is a great movie, Midnight Run, with Charles Grodin and Robert De Niro, which, if you haven't seen it, one of the great road comedies of all time. And it includes in the middle. I won't spoil it. It includes in the middle a movie-stopping sequence. Of Robert De Niro's character confronting his past, that totally has nothing to do with the plot of the movie, and is magically, perfectly placed to kind of pull you out of the plot and then put you back.
+[00:29:27] Adam: And Winter Soldier has a couple of really nice, graceful pauses in the film where things slow way down. And you know, my favorite example of that is a great movie, Midnight Run, with Charles Grodin and Robert De Niro, which, if you haven't seen it, one of the great road comedies of all time. And it includes in the middle. I won't spoil it. It includes in the middle a movie-stopping sequence. Of Robert De Niro's character confronting his past, that totally has nothing to do with the plot of the movie, and is magically, perfectly placed to kind of pull you out of the plot and then put you back.
 
 [00:29:27] Will: It’s like a little one act play in the middle of the film. Yeah,
 
-[00:30:09] Adam: yeah, and and those moments of pause really allow you to again fall in love with the characters, so you're more invested to the end.
+[00:30:09] Adam: yeah, and those moments of pause really allow you to again fall in love with the characters, so you're more invested to the end.
 
-[00:30:16] Will: I, I—
+[00:30:16] Will: I—
 
 [00:30:17] Adam: So exciting.
 
-[00:30:19] Will: Yeah, the the scene in the middle where they where where Scarlett Johansson and Chris Evans find the go to the go to his training grounds and they find the Hydra scientist in the computer, and it's it's it's amazing. It's great.
+[00:30:19] Will: Yeah, the scene in the middle where they where Scarlett Johansson and Chris Evans find the go to his training grounds and they find the Hydra scientist in the computer, and it's amazing. It's great.
 
 [00:30:32] Norm: The fight scenes were also very well shot. There, you could actually see what was going on.
 
@@ -820,7 +820,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:31:03] Norm: And he uses slow motion as a way to try to explain the action.
 
-[00:31:07] Adam: Whereas with a director like Jon Favreau, you always know where you are in physical space with Jon Favreau. He's a very hands-on director who wants to put you in physical space. And Winter Soldier, all those fight sequences, I think, are great because you you understand where everyone is as stuff is happening.
+[00:31:07] Adam: Whereas with a director like Jon Favreau, you always know where you are in physical space with Jon Favreau. He's a very hands-on director who wants to put you in physical space. And Winter Soldier, all those fight sequences, I think, are great because you understand where everyone is as stuff is happening.
 
 [00:31:23] Norm: And those are complex environments. they’re talking about in terms of the highway and cars. Well, the chase scene going on at the same time.
 
@@ -850,11 +850,11 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:31:57] Norm: for many of the shots, and it was lightweight, and they, the way they chromed it, was all new.
 
-[00:31:57] Adam: You know, it's funny because I don't know if did Legacy Effects do it?
+[00:31:57] Adam: It's funny because I don't know if did Legacy Effects do it?
 
 [00:31:57] Norm: It was. Yes.
 
-[00:31:57] Adam: Okay. Because when I visited the set of of Pacific Rim, the incomparable and my hero Shane Mahan, who's one of the key Stan Winston people for decades, and is not only an incredible draftsman and designer, but also maker extraordinaire, he did all the exo suits for the for for the characters in for the pilots. And I got a tour of the armor trailer. So this full trailer of like you know 75 suits of armor that that Legacy had built, and I walked in and I went, " Who? How did you chrome flexible rubber?" And Shane went, " Ah, someone who asks the right questions. They have built some amazing techniques in that shop.
+[00:31:57] Adam: Okay. Because when I visited the set of Pacific Rim, the incomparable and my hero Shane Mahan, who's one of the key Stan Winston people for decades, and is not only an incredible draftsman and designer, but also maker extraordinaire, he did all the exo suits for the characters in for the pilots. And I got a tour of the armor trailer. So this full trailer of like you know 75 suits of armor that that Legacy had built, and I walked in and I went, " Who? How did you chrome flexible rubber?" And Shane went, " Ah, someone who asks the right questions. They have built some amazing techniques in that shop.
 
 [00:32:53] Norm: It looks so
 
@@ -870,7 +870,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:33:15] Adam: Yes.
 
-[00:33:15] Will: is to keep the quality level very high and and keep you know keep producing stuff that people are excited about and want to see rather than just shoveling out the latest dreck. So I'm really optimistic that we see a Star Wars universe that is fleshed out in the same way where we see the the you know I don't think they'll do exactly the same thing where we. Where we see, you know, constant, you know, a three-year cycle between main movies with some side projects on the side. But I wouldn't, I wouldn't be averse to seeing interesting characters in Star Wars get their own movies and have the opportunity to tell their own stories.
+[00:33:15] Will: is to keep the quality level very high and keep you know keep producing stuff that people are excited about and want to see rather than just shoveling out the latest dreck. So I'm really optimistic that we see a Star Wars universe that is fleshed out in the same way where we see the you know I don't think they'll do exactly the same thing where we. Where we see constant, you know, a three-year cycle between main movies with some side projects on the side. But I wouldn't be averse to seeing interesting characters in Star Wars get their own movies and have the opportunity to tell their own stories.
 
 [00:34:12] Adam: Totally agree.
 

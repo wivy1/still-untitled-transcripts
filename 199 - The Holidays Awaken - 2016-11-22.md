@@ -24,9 +24,9 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:01:31] Adam: You’re finally hitting puberty.
 
-[00:01:31] Will: Well, you know, I've been going to see the doctor.
+[00:01:31] Will: Well I've been going to see the doctor.
 
-[00:01:36] Norm: Yeah, the the camera shoved down your throat last time.
+[00:01:36] Norm: Yeah, the camera shoved down your throat last time.
 
 [00:01:39] Will: That was a while ago. Yeah,
 
@@ -42,11 +42,11 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:01:48] Norm: You showed right before we recorded the podcast. You showed Adam a photo of your vocal cords, which are gross.
 
-[00:01:48] Will: It’s very Giger esque, right? It's like it's like
+[00:01:48] Will: It’s very Giger esque, right? It's like
 
 [00:01:56] Adam: it's something. It's more like Eraserhead than Giger.
 
-[00:01:59] Will: Well, like, but the the way the vocal cords. Like fold out into the triangle, and you can look down the trachea, and it's it's yeah,
+[00:01:59] Will: Well but the way the vocal cords. Like fold out into the triangle, and you can look down the trachea, and it's yeah,
 
 [00:02:06] Norm: and it's all fleshy.
 
@@ -64,13 +64,13 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:02:24] Norm: Now I I don't know if you were saying that facetiously.
 
-[00:02:26] Adam: No, I'm actually thinking about the fact that look the the elephant in the room is that this country is very divided right now, and I don't mean white and black. I mean people or whatever other delineation you want. I mean very specifically, half of this country is really happy about who just got elected president, and the other half is not. And those two halves are likely to meet across the dinner table this week.
+[00:02:26] Adam: No, I'm actually thinking about the fact that look the elephant in the room is that this country is very divided right now, and I don't mean white and black. I mean people or whatever other delineation you want. I mean very specifically, half of this country is really happy about who just got elected president, and the other half is not. And those two halves are likely to meet across the dinner table this week.
 
 [00:02:51] Will: I I'll go ahead and say I have never been. I love my family dearly. They're in the East Coast. I grew up in the South. I have never been less more glad that I live 2,500 miles away. And for me, San Francisco Thanksgivings are always about friends, not family.
 
 [00:02:51] Norm: Oh, yeah.
 
-[00:02:51] Will: Alright. So, like, we have a couple of couple of longtime friends coming over, some former co workers, some people bringing their parents.
+[00:02:51] Will: Alright. So we have a couple of longtime friends coming over, some former co workers, some people bringing their parents.
 
 [00:02:51] Adam: That's great. That’s great.
 
@@ -78,15 +78,15 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:03:22] Will: Boycott Hamilton! I say.
 
-[00:03:24] Adam: I got my I got my I got my delineation for my SHN Hamilton tickets.
+[00:03:24] Adam: I got my delineation for my SHN Hamilton tickets.
 
 [00:03:28] Norm: Me too.
 
-[00:03:29] Adam: The day I finish my tour, my my 40 city stage tour on April 10th, my tickets are for April 11th, and I'm like, screw it, let's do it. That'll be a great way to come home.
+[00:03:29] Adam: The day I finish my tour, my 40 city stage tour on April 10th, my tickets are for April 11th, and I'm like, screw it, let's do it. That'll be a great way to come home.
 
-[00:03:40] Will: Yeah. What what do you have to look forward to more?
+[00:03:40] Will: Yeah. What do you have to look forward to more?
 
-[00:03:44] Adam: Yeah, exactly. Um, so I was just going to say, if you're sitting across from your look, going to see your family is one thing. All people learn early in their early adulthood is that going to see your family, even if it's far away, is not a vacation.
+[00:03:44] Adam: Yeah, exactly. So I was just going to say, if you're sitting across from your look, going to see your family is one thing. All people learn early in their early adulthood is that going to see your family, even if it's far away, is not a vacation.
 
 [00:03:58] Will: No,
 
@@ -94,9 +94,9 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:04:06] Will: Yeah,
 
-[00:04:06] Adam: and and you know emotions are going to run high because they're already running high. And I I I guess I I I want to exhort anyone listening to to just realize that you know the the person across from you you might disagree with them vehemently, but they're just a person and they have the they they suffer just like we all do. And ultimately, you know, we do want. To have a better world for our kids, and many of us just have we have varying, widely different ways of how we think that's going to be possible.
+[00:04:06] Adam: and you know emotions are going to run high because they're already running high. And I I I guess I I I want to exhort anyone listening to just realize that you know the person across from you might disagree with them vehemently, but they're just a person and they have the they suffer just like we all do. And ultimately we do want. To have a better world for our kids, and many of us just have we have varying, widely different ways of how we think that's going to be possible.
 
-[00:04:37] Will: Some people it would be really nice if it's a lot warmer, and we all have water wings and gills. But other people, you know, want to elect a fascist. So it’s all good.
+[00:04:37] Will: Some people it would be really nice if it's a lot warmer, and we all have water wings and gills. But other people want to elect a fascist. So it’s all good.
 
 [00:04:45] Adam: I'm trying to be tolerant. Will
 
@@ -106,9 +106,9 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:04:51] Unknown speaker: [unclear: I’m glad there’s Mariner / I’m a Mariner / Kevin Costner is Mariner].
 
-[00:04:52] Will: I totally, I totally went Aquaman for that one, man.
+[00:04:52] Will: I totally went Aquaman for that one, man.
 
-[00:04:57] Adam: I'm going to see my sister down in Los Angeles and her family on Thanksgiving, and and we also have my in-laws are up in Portland. We'll see them over Christmas.
+[00:04:57] Adam: I'm going to see my sister down in Los Angeles and her family on Thanksgiving, and we also have my in-laws are up in Portland. We'll see them over Christmas.
 
 [00:04:57] Will: Ah,
 
@@ -134,9 +134,9 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:05:55] Adam: Yeah.
 
-[00:05:56] Norm: Yeah, and and there's those soda pop people. I don't know where they live.
+[00:05:56] Norm: Yeah, and there's those soda pop people. I don't know where they live.
 
-[00:05:59] Will: I'm from I'm from the south.
+[00:05:59] Will: I'm from the south.
 
 [00:06:00] Norm: Who say soda? Who say soda pop?
 
@@ -146,7 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:06:03] Adam: Right, that I'm just totally amazes me. What do you want? Coke? What kind? Sprite?
 
-[00:06:08] Will: Yeah, seven up. You know they they can tell when you order Sprite.
+[00:06:08] Will: Yeah, seven up. You know they can tell when you order Sprite.
 
 [00:06:11] Norm: That’s full brand awareness.
 
@@ -178,7 +178,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:06:42] Adam: I just like Ryan Reynolds.
 
-[00:06:43] Will: Did you Did you see? So I watched Deadpool finally.
+[00:06:43] Will: Did you see? So I watched Deadpool finally.
 
 [00:06:43] Adam: Yeah.
 
@@ -190,7 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:06:43] Adam: Yeah.
 
-[00:06:43] Will: Um. And I really didn't like it on the plane. And the second time I watched it, because I was sitting around and I was like, " Well, I'll just put Deadpool on and go to sleep." I was thoroughly entertained.
+[00:06:43] Will: And I really didn't like it on the plane. And the second time I watched it, because I was sitting around and I was like, " Well, I'll just put Deadpool on and go to sleep." I was thoroughly entertained.
 
 [00:07:02] Adam: Oh, I was partially entertained. I watched the first half of Deadpool, and then I felt too old for Deadpool.
 
@@ -198,15 +198,15 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:07:15] Norm: When the teenager, when the sassy teenager ignores Deadpool to text message, was that too real?
 
-[00:07:21] Adam: No. It was. What got me was the metal Russian guy with I thought some of the most some of the most difficult to stomach dialogue that I'd ever heard in a big mainstream movie.
+[00:07:21] Adam: No. It was. What got me was the metal Russian guy with I thought some of the most difficult to stomach dialogue that I'd ever heard in a big mainstream movie.
 
 [00:07:35] Will: Well, so
 
-[00:07:36] Adam: it was comic booky. I mean, it was it was very. Yeah, they were. Look, they were supplying a very specific genre. It's just one in which the suspension of disbelief was so far from anything for me, I couldn't really get into it. I get why it's funny, and I laughed out loud a few times. And Ryan Reynolds is. Perfect casting for that.
+[00:07:36] Adam: it was comic booky. I mean, it was very. Yeah, they were. Look, they were supplying a very specific genre. It's just one in which the suspension of disbelief was so far from anything for me, I couldn't really get into it. I get why it's funny, and I laughed out loud a few times. And Ryan Reynolds is. Perfect casting for that.
 
 [00:07:54] Norm: 8 out of 10.
 
-[00:07:55] Will: That well, that that opening sequence, the opening sequence with the car, the credits, and the fight, and all that was so on the nose and and well done that I kind of was willing to ride along with the rest of the movie.
+[00:07:55] Will: That well, that that opening sequence, the opening sequence with the car, the credits, and the fight, and all that was so on the nose and well done that I kind of was willing to ride along with the rest of the movie.
 
 [00:08:06] Adam: They earned a lot with that.
 
@@ -252,7 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:08:56] Adam: Yeah.
 
-[00:08:56] Will: I saw I saw two towers. I think that might have been the day the day after Christmas.
+[00:08:56] Will: I saw two towers. I think that might have been the day after Christmas.
 
 [00:09:01] Adam: I saw two towers. When did that come out? 2003,
 
@@ -296,7 +296,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:09:57] Norm: You were hanging out the projectionist.
 
-[00:09:59] Will: Normal life. I I took my. We were at my parents' house, and my sister. We wanted to go see a movie, so we're like, " Hey, let's go see the the Lord of the Rings movie." And I said, and she said, " Well, I haven't seen the first one." So it's okay. They'll they'll they'll they'll absolutely do the what happened so far at the beginning of the movie. You'll totally be caught up. It’s no big deal.
+[00:09:59] Will: Normal life. I took my. We were at my parents' house, and my sister. We wanted to go see a movie, so we're like, " Hey, let's go see the the Lord of the Rings movie." And I said, and she said, " Well, I haven't seen the first one." So it's okay. They'll they'll they'll they'll absolutely do the what happened so far at the beginning of the movie. You'll totally be caught up. It’s no big deal.
 
 [00:10:17] Adam: Previously on Lost.
 
@@ -308,17 +308,17 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:10:31] Adam: Really,
 
-[00:10:31] Will: she was like, " This is it's it's like a four hour long movie," and she had no idea what was going on through the entire thing. Every time she would lean over to ask, it was a totally full theater, so she, shh, and and she was just like, I had to sit there and wait, and I couldn't like go out to the car because it was 10 degrees outside. So yeah, so she's she's I think and I think rightfully I think I think that was
+[00:10:31] Will: she was like, " This is it's it's like a four hour long movie," and she had no idea what was going on through the entire thing. Every time she would lean over to ask, it was a totally full theater, so she, shh, and she was just like, I had to sit there and wait, and I couldn't like go out to the car because it was 10 degrees outside. So yeah, so she's I think and I think rightfully I think that was
 
 [00:10:57] Adam: totally reasonable.
 
 [00:10:57] Will: My bad.
 
-[00:10:59] Adam: Years and years ago, my ex-wife and I were debating what movie to see, and It was sometimes you know it got heated, not heated, but you know, someone often, someone always in couples. I think it's pretty safe to say that one member of the couple wins more of the time.
+[00:10:59] Adam: Years and years ago, my ex-wife and I were debating what movie to see, and It was sometimes you know it got heated, not heated, but someone often, someone always in couples. I think it's pretty safe to say that one member of the couple wins more of the time.
 
 [00:11:16] Will: There's a decider in my relationship.
 
-[00:11:18] Adam: And in my my previous relationship, I'm not sure if it was me. I think it might have been, but I was like, " We'll go see whatever you want," and she was like, " I want to see Boxing Helena."
+[00:11:18] Adam: And in my previous relationship, I'm not sure if it was me. I think it might have been, but I was like, " We'll go see whatever you want," and she was like, " I want to see Boxing Helena."
 
 [00:11:18] Will: Oh Christ!
 
@@ -330,7 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:11:34] Adam: Starring Sherilyn Fenn and Julian Sands. It's directed by David Lynch's daughter, if I remember correctly.
 
-[00:11:40] Will: It was originally it was originally going to be Madonna or somebody, right?
+[00:11:40] Will: It was originally going to be Madonna or somebody, right?
 
 [00:11:43] Adam: I think so.
 
@@ -368,11 +368,11 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:12:36] Norm: So, was it? Was he guilt ridden at the end, or was it like? Was it a fantasy?
 
-[00:12:40] Adam: I don't even remember. I remember being so being so enraged that they decided to just like whoop.
+[00:12:40] Adam: I don't even remember. I remember being so enraged that they decided to just like whoop.
 
 [00:12:45] Will: Oh my god!
 
-[00:12:46] Adam: Turns out it's a new reality. Um, it was it was ridiculous, and frankly, I got to pick the movie forever after.
+[00:12:46] Adam: Turns out it's a new reality. It was ridiculous, and frankly, I got to pick the movie forever after.
 
 [00:12:55] Will: Yeah,
 
@@ -418,7 +418,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:13:47] Adam: Yeah,
 
-[00:13:47] Norm: in in the movies, one is more about a romance. I would recommend if you can find it, reading the script for Passengers before watching the film, and for Arrival not.
+[00:13:47] Norm: in the movies, one is more about a romance. I would recommend if you can find it, reading the script for Passengers before watching the film, and for Arrival not.
 
 [00:14:06] Will: No, no, nothing about.
 
@@ -428,11 +428,11 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:14:11] Adam: Oh, I'm sure. I'm really looking forward to it.
 
-[00:14:13] Will: I've read the script for Passengers, and it is an absolutely lovely script. It's it's like And.
+[00:14:13] Will: I've read the script for Passengers, and it is an absolutely lovely script. It's like And.
 
 [00:14:18] Norm: [unclear: you Google] the film will not be able to take that away from you.
 
-[00:14:21] Will: Oh, okay. And it's a it's a lovely. I I I enjoyed it so much. I was crying at the end. I flipped it around and read read it right straight through from from the beginning. I mean, it's like it's like 40 minutes to read a script, so it's not a big commitment. But yeah, I was I was blown away.
+[00:14:21] Will: Oh, okay. And it's a lovely. I enjoyed it so much. I was crying at the end. I flipped it around and read read it right straight through from the beginning. I mean, it's like 40 minutes to read a script, so it's not a big commitment. But yeah, I was blown away.
 
 [00:14:35] Adam: I will totally read it.
 
@@ -452,7 +452,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:14:53] Adam: Where are they?
 
-[00:14:55] Will: Um, there. I.
+[00:14:55] Will: There. I.
 
 [00:14:57] Adam: they seem to have disappeared.
 
@@ -468,7 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:15:04] Norm: A good 90 minute, 80 minute. Yeah,
 
-[00:15:07] Adam: I'm a big fan of of of of a good romantic. Comedy, Bridget Jones' Diary, Notting Hill.
+[00:15:07] Adam: I'm a big fan of a good romantic. Comedy, Bridget Jones' Diary, Notting Hill.
 
 [00:15:12] Will: Notting Hill is so good.
 
@@ -490,7 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:15:23] Norm: Wow. There's. I mean, I think the romantic comedy has more evolved to the romantic dramedy. Drama is more an important part of that story than just the romance and the comedy.
 
-[00:15:34] Adam: Yeah, and I'm not sure that's the right. I'm not sure that's a good thing. I like a good, you know, bridesmaids.
+[00:15:34] Adam: Yeah, and I'm not sure that's the right. I'm not sure that's a good thing. I like a good bridesmaids.
 
 [00:15:41] Will: I think bridesmaids is a gross out comedy.
 
@@ -498,7 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:15:46] Norm: and and it's almost like the romance part of it is merely functional now, as opposed to a part of the the writing.
 
-[00:15:53] Adam: Anyway, I miss I miss the classic romantic comedy.
+[00:15:53] Adam: Anyway, I miss the classic romantic comedy.
 
 [00:15:56] Norm: Well, send your suggestions, Adam.
 
@@ -508,15 +508,15 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:16:02] Norm: like I Love You, Man.
 
-[00:16:03] Will: Yeah, and and bridesmaids is a good example. Sisters.
+[00:16:03] Will: Yeah, and bridesmaids is a good example. Sisters.
 
 [00:16:06] Norm: Yeah.
 
 [00:16:06] Will: which was kind of bad, but also okay.
 
-[00:16:09] Adam: Yeah. I couldn't finish it. I watched the first 30 minutes, and I love nobody loves Tina Fey more than me. But I didn't, I didn't like that. I didn't like her in that.
+[00:16:09] Adam: Yeah. I couldn't finish it. I watched the first 30 minutes, and I love nobody loves Tina Fey more than me. But I didn't like that. I didn't like her in that.
 
-[00:16:17] Will: It's it's one of those movies that like I I can look at it. I'm like, I don't. This is not a good movie, but I'm enjoying myself.
+[00:16:17] Will: It's one of those movies that like I I can look at it. I'm like, I don't. This is not a good movie, but I'm enjoying myself.
 
 [00:16:22] Adam: Okay. The line that I loved is at the airport. She goes, " It's the morning," and she goes, " Can I have just a tiny little splash of tequila?" And the woman goes, " A shot." She goes, " Whatever you want to call it."
 
@@ -576,7 +576,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:17:11] Adam: okay.
 
-[00:17:11] Will: I I we're all the way through season five of West Wing now,
+[00:17:11] Will: I we're all the way through season five of West Wing now,
 
 [00:17:11] Unknown speaker: um,
 
@@ -592,17 +592,17 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:17:36] Adam: Werner Herzog and Aaron Sorkin. Yeah, those look really interesting. Those look really fascinating, and I've the Aaron Sorkin one is in particular.
 
-[00:17:44] Will: Is that the screenwriting class thing that he's doing? I haven't I haven't seen any ads for that yet. You must get better ads in it. Mine are always for like deodorant.
+[00:17:44] Will: Is that the screenwriting class thing that he's doing? I haven't seen any ads for that yet. You must get better ads in it. Mine are always for like deodorant.
 
 [00:17:50] Adam: Mine are for really smart people.
 
-[00:17:52] Norm: You know, it's based on your internet surfing habits and what people thinks about how smart you are.
+[00:17:52] Norm: It's based on your internet surfing habits and what people thinks about how smart you are.
 
 [00:17:57] Will: I searched for how to fix B.O. one time.
 
-[00:18:01] Adam: My my my Tivo thinks that I'm gay.
+[00:18:01] Adam: My Tivo thinks that I'm gay.
 
-[00:18:02] Will: My my Amazon somebody one of one of the Angela from the double clips. Clicks.
+[00:18:02] Will: My Amazon somebody one of the Angela from the double clips. Clicks.
 
 [00:18:02] Norm: Yeah, yeah.
 
@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:18:16] Norm: Oh my god!
 
-[00:18:18] Will: Every place, if you if you go look at that, every place on the internet which has Amazon ads, which is everywhere,
+[00:18:18] Will: Every place, if you go look at that, every place on the internet which has Amazon ads, which is everywhere,
 
 [00:18:25] Norm: everywhere. Yeah.
 
@@ -618,7 +618,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:18:29] Unknown speaker: Wow, wow.
 
-[00:18:29] Norm: it's the best. What I need is a web browser plugin that for sites that track anytime a link goes to there, it opens an incognito window, so it doesn't tie to your your cookies.
+[00:18:29] Norm: it's the best. What I need is a web browser plugin that for sites that track anytime a link goes to there, it opens an incognito window, so it doesn't tie to your cookies.
 
 [00:18:38] Will: Well, That would be smart,
 
@@ -628,13 +628,13 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:18:46] Norm: Opt out, opt in.
 
-[00:18:48] Adam: Um, sorry. So that that's enough of my romantic comedy commentary.
+[00:18:48] Adam: Sorry. So that that's enough of my romantic comedy commentary.
 
 [00:18:56] Norm: Where oh, sorry. I just want to talk about Thanksgiving and gift giving because
 
 [00:19:00] Adam: Do people give gifts on Thanksgiving.
 
-[00:19:01] Norm: No, but it's it's. I use
+[00:19:01] Norm: No, but it's. I use
 
 [00:19:02] Will: you get the gift of my presence on Thanksgiving if you're lucky.
 
@@ -642,13 +642,13 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:19:06] Will: Yeah.
 
-[00:19:06] Norm: Right. Um. Also a Christmas tree because I think that's the earliest you could buy your Christmas tree.
+[00:19:06] Norm: Right. Also a Christmas tree because I think that's the earliest you could buy your Christmas tree.
 
 [00:19:06] Adam: Ah.
 
 [00:19:06] Norm: The Friday after Thanksgiving is
 
-[00:19:18] Adam: we bought we bought one of those big fake ones with the lights built in. Boy, we it's just really nice for the last three years.
+[00:19:18] Adam: we bought one of those big fake ones with the lights built in. Boy, we it's just really nice for the last three years.
 
 [00:19:18] Will: Wow. Don't you feel a little sad though?
 
@@ -658,7 +658,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:19:26] Adam: Totally. I mean, I feel like I should spray some pine scent around the house, but
 
-[00:19:31] Will: you know, I used to live on a Christmas tree farm. Have I told you this?
+[00:19:31] Will: I used to live on a Christmas tree farm. Have I told you this?
 
 [00:19:34] Adam: No, I did not know that.
 
@@ -670,7 +670,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:19:38] Adam: Okay.
 
-[00:19:38] Will: Um, my dad in 1981 when I was six years old we bought a new farm and it was like 15 20 acres
+[00:19:38] Will: My dad in 1981 when I was six years old we bought a new farm and it was like 15 20 acres
 
 [00:19:38] Adam: bought the farm
 
@@ -694,17 +694,17 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:20:28] Norm: Even though the tree monopoly, Christmas tree monopolies, Oregon has that
 
-[00:20:32] Will: on the West Coast. It's all regional. Tennessee, North Carolina. It's it's usually so. The trick is people want specific kinds of trees. We were at an elevation that could only grow white pines. Nobody wants white pines. So by the time we rolled around to sell these trees, 15 years later, it was time for 13 years later. It was time for me to go to college. I had mowed between them every summer, twice a week for a decade at this point.
+[00:20:32] Will: on the West Coast. It's all regional. Tennessee, North Carolina. It's usually so. The trick is people want specific kinds of trees. We were at an elevation that could only grow white pines. Nobody wants white pines. So by the time we rolled around to sell these trees, 15 years later, it was time for 13 years later. It was time for me to go to college. I had mowed between them every summer, twice a week for a decade at this point.
 
 [00:20:53] Norm: As you're mowing, dreaming of college and like all the future, Harvard,
 
-[00:20:58] Will: Yale, you know, and whatever,
+[00:20:58] Will: Yale and whatever,
 
 [00:21:00] Norm: petting the tree. Oh, you're a textbook I can buy. The future and
 
 [00:21:05] Adam: pieces of IKEA furniture.
 
-[00:21:06] Will: And and every year. We couldn't sell the trees en masse, so we had to cut your own farm. So we put signs out on the road, and people would drive out from the city into the country to cut down their own Christmas tree. But the secret is nobody wants to cut their own damn Christmas tree down. What they want to do is go out, walk around in the field for a little bit, enjoy the outside for like 15 minutes, and then have some kid cut their Christmas tree down.
+[00:21:06] Will: And every year. We couldn't sell the trees en masse, so we had to cut your own farm. So we put signs out on the road, and people would drive out from the city into the country to cut down their own Christmas tree. But the secret is nobody wants to cut their own damn Christmas tree down. What they want to do is go out, walk around in the field for a little bit, enjoy the outside for like 15 minutes, and then have some kid cut their Christmas tree down.
 
 [00:21:25] Adam: And that would be
 
@@ -776,11 +776,11 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:22:30] Adam: The days without internet.
 
-[00:22:31] Norm: All all you had was what the the hitchhiker buried in the side of the road.
+[00:22:31] Norm: All all you had was what the hitchhiker buried in the side of the road.
 
-[00:22:34] Will: Yeah, you've woods porn. Did you did you know about you? Everybody's found forest porn at some point in their life, right?
+[00:22:34] Will: Yeah, you've woods porn. Did you know about you? Everybody's found forest porn at some point in their life, right?
 
-[00:22:41] Adam: Um, the forest porn I found was was tossed out of a car by the side of the road
+[00:22:41] Adam: The forest porn I found was was tossed out of a car by the side of the road
 
 [00:22:41] Will: Yep.
 
@@ -826,7 +826,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:23:44] Will: So avoid Amazon.
 
-[00:23:46] Adam: Well, you don't have to avoid Amazon, but but you do want to avoid something like it's like if there's someone you're buying a very specific thing for, maybe you're going to get it at Best Buy, but that's not where you're going to browse for the right gift for somebody. Now, I have a a a teaser for the teaser. I'm not sure the word I'm thinking of, but San Francisco is. Lucky to have several really great stores, and there's two that I'm thinking of right now that are my go-to gift stores because everything they have is cool. It's really different. You can't get almost everything they have. You can't get it anywhere else, and the prices are quite reasonable. So one is Paxton Gate.
+[00:23:46] Adam: Well, you don't have to avoid Amazon, but you do want to avoid something like it's like if there's someone you're buying a very specific thing for, maybe you're going to get it at Best Buy, but that's not where you're going to browse for the right gift for somebody. Now, I have a teaser for the teaser. I'm not sure the word I'm thinking of, but San Francisco is. Lucky to have several really great stores, and there's two that I'm thinking of right now that are my go-to gift stores because everything they have is cool. It's really different. You can't get almost everything they have. You can't get it anywhere else, and the prices are quite reasonable. So one is Paxton Gate.
 
 [00:23:46] Will: Yeah,
 
@@ -834,7 +834,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:24:36] Will: weird Japanese radios.
 
-[00:24:38] Adam: Yeah, some art. There's art there. They have a gallery. They do shows of assemblage and and found object art. The other one is a store in Potrero Hill called Dandelion.
+[00:24:38] Adam: Yeah, some art. There's art there. They have a gallery. They do shows of assemblage and found object art. The other one is a store in Potrero Hill called Dandelion.
 
 [00:24:49] Will: Well, that place is great.
 
@@ -856,7 +856,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:25:18] Norm: So,
 
-[00:25:19] Adam: they've got some like French labeled cutlery and and pottery.
+[00:25:19] Adam: they've got some like French labeled cutlery and pottery.
 
 [00:25:23] Will: You want a cheese board that you can slate that you can write the name of the cheese on
 
@@ -868,17 +868,17 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:25:37] Unknown speaker: Did you get my Christmas present there this weekend?
 
-[00:25:37] Norm: Oh, I. I'm not saying. Maybe. I got I got it four months ago, Adam. Don't worry about it. But even if you can't go to a convention, what I would do is go to the website and find the vendor list. And more often than not, these days, a lot of these vendors, even though they're small independent makers, will have Instagram feeds. I go to their Instagram, and after conventions, they'll always have extra kits, limited run things of of of wares, and Buy from them,
+[00:25:37] Norm: Oh, I. I'm not saying. Maybe. I got it four months ago, Adam. Don't worry about it. But even if you can't go to a convention, what I would do is go to the website and find the vendor list. And more often than not, these days, a lot of these vendors, even though they're small independent makers, will have Instagram feeds. I go to their Instagram, and after conventions, they'll always have extra kits, limited run things of wares, and Buy from them,
 
-[00:26:08] Will: like stuff, stuff like Renegade Craft Fair, and um, you were at DesignerCon this weekend, but Ape is that other one,
+[00:26:08] Will: like stuff, stuff like Renegade Craft Fair, and you were at DesignerCon this weekend, but Ape is that other one,
 
 [00:26:15] Norm: the Alternative Press Expo.
 
 [00:26:17] Unknown speaker: That yep.
 
-[00:26:17] Will: Um, I found the best. Like those are those are gateway great way to get something that's a little more ephemeral than something you can order from.
+[00:26:17] Will: I found the best. Like those are gateway great way to get something that's a little more ephemeral than something you can order from.
 
-[00:26:24] Adam: Oh, um, Japanese stationery stores.
+[00:26:24] Adam: Oh Japanese stationery stores.
 
 [00:26:24] Will: Yeah,
 
@@ -894,7 +894,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:26:39] Adam: Sushi. Yeah, I think they've got those too.
 
-[00:26:41] Norm: The best thing about those is you can't use them to window shop. You you can't use them as showrooms.
+[00:26:41] Norm: The best thing about those is you can't use them to window shop. You can't use them as showrooms.
 
 [00:26:41] Adam: Right.
 
@@ -906,13 +906,13 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:26:57] Norm: imported
 
-[00:26:57] Will: at one of those Japanese stores one time that looked like it was um like cel-shaded.
+[00:26:57] Will: at one of those Japanese stores one time that looked like it was like cel-shaded.
 
 [00:26:57] Adam: Yeah,
 
-[00:26:57] Will: so it was like a messenger bag that was all yeah it was it's it's those are great
+[00:26:57] Will: so it was like a messenger bag that was all yeah it was it's those are great
 
-[00:27:07] Adam: um hardware stores Japanese hardware stores also great for buying someone a Really cool mat knife that you don't see anywhere else. I love those kind of suggestions.
+[00:27:07] Adam: Hardware stores Japanese hardware stores also great for buying someone a Really cool mat knife that you don't see anywhere else. I love those kind of suggestions.
 
 [00:27:16] Will: They're hard to find outside of the big cities, though.
 
@@ -938,17 +938,17 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:28:00] Norm: Mm-hmm.
 
-[00:28:08] Will: They're good for they're good for books too. Like you can get books that are special runs of the exhibits and stuff like that.
+[00:28:08] Will: They're good for books too. Like you can get books that are special runs of the exhibits and stuff like that.
 
 [00:28:13] Norm: Yeah, the catalogues
 
 [00:28:15] Will: are
 
-[00:28:15] Adam: absolutely books are one of my favorite gifts to give when I when I can find a book that matches the person I'm thinking about that like you know that it's a book they wouldn't go buy like the MoMA did a beautiful retrospective of Diane Arbus about 10 years ago that is one of the most beautiful exhibits I've ever seen and the book is amazing from it and if you know someone photography that's a great gift
+[00:28:15] Adam: absolutely books are one of my favorite gifts to give when I can find a book that matches the person I'm thinking about that like you know that it's a book they wouldn't go buy like the MoMA did a beautiful retrospective of Diane Arbus about 10 years ago that is one of the most beautiful exhibits I've ever seen and the book is amazing from it and if you know someone photography that's a great gift
 
 [00:28:35] Norm: yeah
 
-[00:28:35] Will: the um the two things we always talk about Etsy Etsy's great
+[00:28:35] Will: the two things we always talk about Etsy Etsy's great
 
 [00:28:35] Adam: Etsy's amazing
 
@@ -960,9 +960,9 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:28:35] Adam: yeah
 
-[00:28:35] Will: like it's a super easy thing to do it doesn't cost a ton of money and it's and it's like something you make for somebody which is nice.
+[00:28:35] Will: like it's a super easy thing to do it doesn't cost a ton of money and it's like something you make for somebody which is nice.
 
-[00:29:02] Adam: a great idea um and we'd love your suggestions in the comments
+[00:29:02] Adam: a great idea and we'd love your suggestions in the comments
 
 [00:29:06] Norm: yes
 
@@ -1012,7 +1012,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:29:51] Adam: Yes.
 
-[00:29:51] Will: Um, we're also I don't know, I probably we might have some special Thanksgiving stuff that will help you demo virtual reality to your friends and family when they come to your house on Thursday. So if that sounds like something that might be interesting, then maybe load up Steam and. Update your Foo app tomorrow.
+[00:29:51] Will: We're also I don't know, I probably we might have some special Thanksgiving stuff that will help you demo virtual reality to your friends and family when they come to your house on Thursday. So if that sounds like something that might be interesting, then maybe load up Steam and. Update your Foo app tomorrow.
 
 [00:29:51] Adam: Brilliant.
 

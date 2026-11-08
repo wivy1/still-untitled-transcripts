@@ -20,7 +20,7 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:00:19] Adam: Yeah, They have a different type of Thanksgiving, but yeah, it was about a month ago.
 
-[00:00:23] Norm: And so the trees are going up now. That's that's traditionally
+[00:00:23] Norm: And so the trees are going up now. That's traditionally
 
 [00:00:26] Adam: ours went up on Friday.
 
@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:01:16] Norm: I know that is not what you normally think.
 
-[00:01:17] Adam: No, I I I I can confirm. I have a fake tree. It goes, it breaks into two halves. Second half plugs into the top, and lights are on both sides, and it boop, it all lights up.
+[00:01:17] Adam: No, I I can confirm. I have a fake tree. It goes, it breaks into two halves. Second half plugs into the top, and lights are on both sides, and it boop, it all lights up.
 
 [00:01:28] Unknown speaker: Oh, wow.
 
@@ -78,13 +78,13 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:02:17] Jen Schachter: Wow, I'm really behind on Christmas tree technology.
 
-[00:02:20] Adam: This this wasn't super cheap. I mean, it was at least a couple hundred bucks for this thing. Wow,
+[00:02:20] Adam: This wasn't super cheap. I mean, it was at least a couple hundred bucks for this thing. Wow,
 
 [00:02:24] Norm: It's worth the investment because I think that I read a report that like real trees, the price of real trees has doubled in the past five years with the economy. I think the average price for a Christmas tree now is like eighty something dollars.
 
 [00:02:35] Adam: Yeah,
 
-[00:02:35] Norm: and in the Bay Area, especially, you know, people are paying crazy amounts of money for the experience, quote unquote, of picking out a tree. And yeah, I think that's totally worthwhile and fun. You can get a great tree also at like a Lowe's or Home Depot.
+[00:02:35] Norm: and in the Bay Area, especially people are paying crazy amounts of money for the experience, quote unquote, of picking out a tree. And yeah, I think that's totally worthwhile and fun. You can get a great tree also at like a Lowe's or Home Depot.
 
 [00:02:48] Adam: You can,
 
@@ -94,19 +94,19 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:03:14] Jen Schachter: Oh,
 
-[00:03:15] Norm: yeah, and then having the built-in lights doesn't take away from your ability to also add lights. It's just, I think, at least in our household, the the most frustrating part after you fluff the fake tree
+[00:03:15] Norm: yeah, and then having the built-in lights doesn't take away from your ability to also add lights. It's just, I think, at least in our household, the most frustrating part after you fluff the fake tree
 
 [00:03:24] Unknown speaker: Mm-hmm.
 
-[00:03:24] Norm: is putting that first strand of lights and then wiring it around. Uh, but most fun part is the ornaments, of course.
+[00:03:24] Norm: is putting that first strand of lights and then wiring it around. But most fun part is the ornaments, of course.
 
 [00:03:33] Jen Schachter: Yeah, but it's so hard to evenly space the lights.
 
 [00:03:35] Unknown speaker: That's the hard part.
 
-[00:03:35] Jen Schachter: Yeah. Like you start you start wrapping them, and you think that you have enough, and then you get to the top, and it's right, or it's like way too dense at the top.
+[00:03:35] Jen Schachter: Yeah. Like you start wrapping them, and you think that you have enough, and then you get to the top, and it's right, or it's like way too dense at the top.
 
-[00:03:41] Adam: By the time we stopped using real trees, I it took six strings to achieve a level of light satisfied, of satisfied, of me being satisfied with the lighting. And I actually, I this is a whole bit in the book, but, um, the way I would wrapped it up one year is I walked around with a poster tube, wrapping up the lights on the poster tube, and then every other year, all I had to do is walk the opposite direction around the tree. At the beginning of the season, and the opposite direction on the at the end of the season, and it was ready to go.
+[00:03:41] Adam: By the time we stopped using real trees, I it took six strings to achieve a level of light satisfied, of me being satisfied with the lighting. And I actually, I this is a whole bit in the book, but the way I would wrapped it up one year is I walked around with a poster tube, wrapping up the lights on the poster tube, and then every other year, all I had to do is walk the opposite direction around the tree. At the beginning of the season, and the opposite direction on the at the end of the season, and it was ready to go.
 
 [00:04:10] Norm: Go with the thick poster tubes that you get for like the 24 by 36 posters, four-inch ones. They have a little notch so you can put the plug into the top, and you can fit many strands on that. But you're right; the spacing is tough, especially if you have light strands that are like multi-pattern.
 
@@ -122,21 +122,21 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:04:36] Adam: Who uses colored lights on a tree? I mean, I'm I'm traditional. I use the white.
 
-[00:04:41] Norm: Yeah. Well, it's it's the holidays officially. Last time we had you on the podcast, Jen, you had just moved to San Francisco. You guys, of course, had worked on Project Egress together. That was the big thing. And how have things been?
+[00:04:41] Norm: Yeah. Well, it's the holidays officially. Last time we had you on the podcast, Jen, you had just moved to San Francisco. You guys, of course, had worked on Project Egress together. That was the big thing. And how have things been?
 
-[00:04:53] Jen Schachter: Uh, things have been good. I feel I feel like I live here now. I feel adjusted because I got here and it was like immediately dive into into Egress and. That whole
+[00:04:53] Jen Schachter: Things have been good. I feel like I live here now. I feel adjusted because I got here and it was like immediately dive into into Egress and. That whole
 
 [00:05:02] Adam: we threw you into the deep end between Savage Builds and Egress. Yeah,
 
-[00:05:07] Jen Schachter: Uh, I didn't get out much. Let's say that. But yeah, no, I feel like I live here now. Um, we got a spot, uh, over in Oakland, so I've gotten, I get to be here in the city for for work every day, and I get to explore some of East Bay too. And, um, we did a little bit of a northern on the way up to Northern California, like Napa and Marin, and all that stuff recently. And it's it's gorgeous out there. It's amazing.
+[00:05:07] Jen Schachter: I didn't get out much. Let's say that. But yeah, no, I feel like I live here now. We got a spot over in Oakland, so I've gotten, I get to be here in the city for work every day, and I get to explore some of East Bay too. And we did a little bit of a northern on the way up to Northern California, like Napa and Marin, and all that stuff recently. And it's gorgeous out there. It's amazing.
 
-[00:05:27] Norm: I mean, as a transplant to San Francisco, uh, are there things on your bucket list of things to do, or do you feel like you can wait because now you live here? Like Alcatraz is the the famous example, right?
+[00:05:27] Norm: I mean, as a transplant to San Francisco are there things on your bucket list of things to do, or do you feel like you can wait because now you live here? Like Alcatraz is the famous example, right?
 
 [00:05:38] Adam: Alcatraz is totally worth doing.
 
 [00:05:39] Norm: highly recommended. Book early because you, if you're going to be here for the weekend and you haven't booked tickets, you probably won't be able to get tickets. But now that you live here, what are the things that you like or that you found that you want to do in San Francisco?
 
-[00:05:51] Jen Schachter: Um, it's interesting because I've I've been coming here for a long time. Like I I visited family out here like 15 years ago, and I've been coming. So I've done things like. Coit Tower, and we never did Alcatraz actually, but we did like Muir Woods, and oh gosh, City Lights Books is still one of my favorite places in the whole city. So I've got a little bit of the tourist stuff under my belt already. I'm trying to think if there's anything that I really wanted to do that I have not done yet. Let's see, we did like fireworks up on Twin Peaks for Fourth of July, and you can see out over the whole city, it was foggy up there. It was really dramatic, and of course, there's a ton of stuff going on around the Mission around that time. Yeah, I missed the Day of the Dead festival that goes on right after Halloween. That's here in the Mission. That's just like really phenomenal. Have you guys been to that?
+[00:05:51] Jen Schachter: It's interesting because I've I've been coming here for a long time. Like I I visited family out here like 15 years ago, and I've been coming. So I've done things like. Coit Tower, and we never did Alcatraz actually, but we did like Muir Woods, and oh gosh, City Lights Books is still one of my favorite places in the whole city. So I've got a little bit of the tourist stuff under my belt already. I'm trying to think if there's anything that I really wanted to do that I have not done yet. Let's see, we did like fireworks up on Twin Peaks for Fourth of July, and you can see out over the whole city, it was foggy up there. It was really dramatic, and of course, there's a ton of stuff going on around the Mission around that time. Yeah, I missed the Day of the Dead festival that goes on right after Halloween. That's here in the Mission. That's just like really phenomenal. Have you guys been to that?
 
 [00:06:39] Adam: Yeah, yeah, yeah. Oh
 
@@ -148,9 +148,9 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:06:55] Norm: over the holidays.
 
-[00:06:57] Adam: Twin Peaks is great. You know, someone asked recently on Twitter, and I said, do a Google search for secret staircases of San Francisco. Oh, San Francisco has dozens of staircases. So if you have any kind of high hill where driving up is, you know, an adventure, and there's tons of because of the terrain here, there's tons of places like that. There will also be staircases for pedestrians that might not even go through the normal streets. Huh? And they're often these wonderful little jewels of small enclaves you didn't know about, where you walk up through a neighborhood on the south side of Twin Peaks or over near Lyon Street, and get to see views of the city you wouldn't normally get to see. And so they're fun hikes. The last time I did it, my mom was in town, and we actually ended up running into the flock of parrots that live in San Francisco, the noisy buggers. I'm a big fan of the secret staircases. I obviously I love I love Alcatraz. Um, you know, a day spent hiking the Marin Headlands, hiking Mount Tam, hiking Angel Island are all three wonderful days you can spend that you really won't forget. They're all three remarkable views, beautiful landscapes, all very different, all very San Francisco.
+[00:06:57] Adam: Twin Peaks is great. Someone asked recently on Twitter, and I said, do a Google search for secret staircases of San Francisco. Oh, San Francisco has dozens of staircases. So if you have any kind of high hill where driving up is, you know, an adventure, and there's tons of because of the terrain here, there's tons of places like that. There will also be staircases for pedestrians that might not even go through the normal streets. Huh? And they're often these wonderful little jewels of small enclaves you didn't know about, where you walk up through a neighborhood on the south side of Twin Peaks or over near Lyon Street, and get to see views of the city you wouldn't normally get to see. And so they're fun hikes. The last time I did it, my mom was in town, and we actually ended up running into the flock of parrots that live in San Francisco, the noisy buggers. I'm a big fan of the secret staircases. I obviously I love Alcatraz. You know, a day spent hiking the Marin Headlands, hiking Mount Tam, hiking Angel Island are all three wonderful days you can spend that you really won't forget. They're all three remarkable views, beautiful landscapes, all very different, all very San Francisco.
 
-[00:08:20] Norm: Do people usually rent cars when they visit San Francisco? Is that is that a thing?
+[00:08:20] Norm: Do people usually rent cars when they visit San Francisco? Is that a thing?
 
 [00:08:23] Adam: I don't know why you would. I know driving here is awful.
 
@@ -180,11 +180,11 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:09:15] Adam: Yeah.
 
-[00:09:15] Norm: The baby when when baby goes limp on an airplane.
+[00:09:15] Norm: The baby when baby goes limp on an airplane.
 
 [00:09:18] Adam: Yeah.
 
-[00:09:18] Norm: And you're just hoping that he stays stays uh stays out for the whole flight. Uh, we thought the entertainment center behind the seat would be a great thing, right? Put on a movie, Disney movie or something. No, not a completely distracting thing, and you can't turn it off all the time because they'll do announcements and then the screen comes on, and then the baby just wants to touch it.
+[00:09:18] Norm: And you're just hoping that he stays stays stays out for the whole flight. We thought the entertainment center behind the seat would be a great thing, right? Put on a movie, Disney movie or something. No, not a completely distracting thing, and you can't turn it off all the time because they'll do announcements and then the screen comes on, and then the baby just wants to touch it.
 
 [00:09:38] Adam: Oh.
 
@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:10:14] Adam: A better solution or a merit badge, because that's hardcore DIY to show up with a roll of tape and tape to the plane.
 
-[00:10:21] Norm: Well, you know it's not going to last forever.
+[00:10:21] Norm: Well it's not going to last forever.
 
 [00:10:23] Adam: No,
 
@@ -218,7 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:10:27] Norm: Oh my gosh! Yeah, Blue masking tape. Yeah, you're really laying out there for the flight attendants.
 
-[00:10:32] Adam: Um. Now, like one of the least controversial things to do with your family is to watch movies together.
+[00:10:32] Adam: Now, like one of the least controversial things to do with your family is to watch movies together.
 
 [00:10:39] Jen Schachter: Hmm.
 
@@ -226,21 +226,21 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:10:53] Jen Schachter: Oh.
 
-[00:10:53] Adam: but we said this anyway. Um, did you guys watch any cool anything, any great things over the weekend, over the holidays?
+[00:10:53] Adam: but we said this anyway. Did you guys watch any cool anything, any great things over the weekend, over the holidays?
 
-[00:11:00] Jen Schachter: Uh, I did watch. Uh, I did watch the movies on the plane. I watched Ghostbusters for the first time, the original Ghostbusters.
+[00:11:00] Jen Schachter: I did watch. I did watch the movies on the plane. I watched Ghostbusters for the first time, the original Ghostbusters.
 
 [00:11:05] Adam: For the first time.
 
-[00:11:05] Jen Schachter: Yeah, I'd never seen it. Yeah, I've managed to have never have seen Ghostbusters by now. Um, it's really bizarre. I did not. I wasn't expecting it to go the direction that it went.
+[00:11:05] Jen Schachter: Yeah, I'd never seen it. Yeah, I've managed to have never have seen Ghostbusters by now. It's really bizarre. I did not. I wasn't expecting it to go the direction that it went.
 
-[00:11:17] Adam: Um, you found, uh, Bill Murray's [unclear: race dance]. Uh, you found his character just a little problematic these days.
+[00:11:17] Adam: You found Bill Murray's [unclear: race dance] You found his character just a little problematic these days.
 
 [00:11:23] Jen Schachter: Yeah, I was. I wasn't prepared for his level of like cringeworthy
 
 [00:11:29] Adam: womanizing.
 
-[00:11:29] Jen Schachter: Womanizing. I was like, has anyone else seen this? Like he's really kind of like, ugh, and she falls for him. Like really? That was the part that surprised me. I was like, his character is whatever he is, but the the fact that she goes for him in the end, I was like, oh, come on. Um, I also started watching, uh, I Am Mother, uh, which is I didn't finish it because the plane landed, but, uh, really, really good. Oh my gosh.
+[00:11:29] Jen Schachter: Womanizing. I was like, has anyone else seen this? Like he's really kind of like, ugh, and she falls for him. Like really? That was the part that surprised me. I was like, his character is whatever he is, but the fact that she goes for him in the end, I was like, oh, come on. I also started watching I Am Mother which is I didn't finish it because the plane landed, but really, really good. Oh my gosh.
 
 [00:11:53] Adam: With our friend Luke Hawker as the robot.
 
@@ -260,7 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:12:27] Adam: Oh, very exciting!
 
-[00:12:28] Jen Schachter: It's cool too. I I rewatched Space Odyssey for the first time in a really long time, and the the moments of the eye of of Mother are such a throwback to HAL. It's like
+[00:12:28] Jen Schachter: It's cool too. I rewatched Space Odyssey for the first time in a really long time, and the moments of the eye of Mother are such a throwback to HAL. It's like
 
 [00:12:39] Adam: Yes.
 
@@ -270,11 +270,11 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:12:45] Adam: Yeah, I love the last episode. Was basically Magnificent Seven, or at least like the major plot points of
 
-[00:12:51] Norm: right. And and there was this online kind of discussion, I'll call it that, about its influences, and people were saying it's a western, it's a western. No, it's not a western. It's a samurai film.
+[00:12:51] Norm: right. And there was this online kind of discussion, I'll call it that, about its influences, and people were saying it's a western. No, it's not a western. It's a samurai film.
 
-[00:13:01] Adam: Those two things are completely conjoined in American film because because of Kurosawa and Sergio Leone,
+[00:13:01] Adam: Those two things are completely conjoined in American film because of Kurosawa and Sergio Leone,
 
-[00:13:08] Norm: right? And and the most recent episode, which I believe was directed by Bryce Dallas Howard, uh, that one is it's essentially Last Samurai.
+[00:13:08] Norm: right? And the most recent episode, which I believe was directed by Bryce Dallas Howard that one is it's essentially Last Samurai.
 
 [00:13:16] Adam: Last Samurai. Oh yeah, I guess it is Last Samurai or Magnificent Seven without the seven.
 
@@ -282,33 +282,33 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:13:20] Adam: It's the Magnificent Two.
 
-[00:13:22] Norm: Mm-hmm, mm-hmm, and It's Gina Carano who plays the the heavy on in that.
+[00:13:22] Norm: Mm-hmm, and It's Gina Carano who plays the heavy on in that.
 
-[00:13:26] Adam: Gina Carano struck me as I kept on wondering if it was my television or if they'd done some post processing on her because she looked a little like when you first see her in the episode, she's framed in such a way that she looks a little like, um, a like a CG character from a video game.
+[00:13:26] Adam: Gina Carano struck me as I kept on wondering if it was my television or if they'd done some post processing on her because she looked a little like when you first see her in the episode, she's framed in such a way that she looks a little like a CG character from a video game.
 
 [00:13:44] Norm: I don't know if it's costuming.
 
-[00:13:45] Adam: Yeah, that might have just been some digital post processing they did, you know, like on the frame, or or or it could have been a setting on my television.
+[00:13:45] Adam: Yeah, that might have just been some digital post processing they did, you know, like on the frame, or it could have been a setting on my television.
 
 [00:13:53] Norm: Interesting. Yeah, I also love that the third episode. That's the one by Deborah Chow. She's the one who, a director who's now tapped to do the Obi Wan series, and I know people. Some people haven't seen the show yet, but that one is my favorite episode thus far.
 
 [00:14:07] Adam: It's a terrific, terrific episode. They've all been and they're like nuggets. I don't know. It feels radical to see high budget, high level science fiction in 30 minute increments.
 
-[00:14:20] Norm: Yeah, that's that's the thing, right? It can it doesn't need to be an hour and a half, and they can it feels like a comic book,
+[00:14:20] Norm: Yeah, that's the thing, right? It can it doesn't need to be an hour and a half, and they can it feels like a comic book,
 
 [00:14:24] Adam: yeah, yeah,
 
 [00:14:24] Norm: episodic in the exactly the right pacing.
 
-[00:14:28] Adam: Are you are you watching anything right now that you're obsessed with?
+[00:14:28] Adam: Are you watching anything right now that you're obsessed with?
 
-[00:14:30] Jen Schachter: Am I watching anything? Um, I'm I'm about to start watching the new season of or the final season of Vikings. Have either of you guys watched this?
+[00:14:30] Jen Schachter: Am I watching anything? I'm about to start watching the new season of or the final season of Vikings. Have either of you guys watched this?
 
 [00:14:38] Adam: I have not. Although I-
 
 [00:14:40] Norm: I think Gunther over at the tested office watches it.
 
-[00:14:42] Jen Schachter: Gunther and I have nerded out about it. Um, it's it's definitely-
+[00:14:42] Jen Schachter: Gunther and I have nerded out about it. It's definitely-
 
 [00:14:45] Adam: I've heard it's great.
 
@@ -326,11 +326,11 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:15:07] Adam: Oh, is it really?
 
-[00:15:08] Jen Schachter: Well, there's. It's not. It's not like docudrama style. Like it's. It's very much a. You know, it's a
+[00:15:08] Jen Schachter: Well, there's. It's not. It's not like docudrama style. Like it's. It's very much a. It's a
 
 [00:15:14] Adam: scripted
 
-[00:15:15] Jen Schachter: scripted narrative. But there's a lot of stuff. I mean, they, the various different cultures around at that time, you see where they encounter each other. Like there's one scene where the vikings invade a monastery and they've never seen paper before because there's all these illuminated manuscripts and they're just like having a blast setting fire to all the paper. But they're also like they just discovered paper. Like they've never seen paper before. Wow. Um, there's there's some really neat stuff. And the the lead female character is this Norse woman from the sagas, Lagertha, and she's like my hands down my favorite female character in anything I've ever seen. Really. I cannot give a bigger endorsement. She's incredible. The acting, the writing, like. It's incredible.
+[00:15:15] Jen Schachter: scripted narrative. But there's a lot of stuff. I mean, they, the various different cultures around at that time, you see where they encounter each other. Like there's one scene where the vikings invade a monastery and they've never seen paper before because there's all these illuminated manuscripts and they're just like having a blast setting fire to all the paper. But they're also like they just discovered paper. Like they've never seen paper before. Wow. There's there's some really neat stuff. And the lead female character is this Norse woman from the sagas, Lagertha, and she's like my hands down my favorite female character in anything I've ever seen. Really. I cannot give a bigger endorsement. She's incredible. The acting, the writing, like. It's incredible.
 
 [00:15:54] Adam: Ooh, that sounds awesome.
 
@@ -346,11 +346,11 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:16:09] Adam: got it.
 
-[00:16:09] Jen Schachter: Yeah, check it out from the beginning if you if you haven't watched it yet.
+[00:16:09] Jen Schachter: Yeah, check it out from the beginning if you haven't watched it yet.
 
 [00:16:13] Norm: Adam and I are both thoroughly enjoying Watchmen.
 
-[00:16:16] Adam: Watchmen. The last episode has a huge cliffhanger of an ending. Is it is it only six episodes this season?
+[00:16:16] Adam: Watchmen. The last episode has a huge cliffhanger of an ending. Is it only six episodes this season?
 
 [00:16:21] Norm: Are we so last most recent episode was episode seven for those of you.
 
@@ -366,7 +366,7 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:16:37] Norm: Yeah, and that makes me a little sad.
 
-[00:16:39] Adam: Yep, I will. This is a really important show. It just feels really important from a social commentary, Um, and we've talked about this in the past. Science fiction provides. A really excellent way to get past people's political filters.
+[00:16:39] Adam: Yep, I will. This is a really important show. It just feels really important from a social commentary and we've talked about this in the past. Science fiction provides. A really excellent way to get past people's political filters.
 
 [00:16:53] Jen Schachter: Yes,
 
@@ -374,15 +374,15 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:17:00] Norm: All good science fiction is commentary. Yeah,
 
-[00:17:04] Adam: famously Star Trek. Um, so this, uh, Watchmen is really good. I'm watching, uh. I'm loving His Dark Materials.
+[00:17:04] Adam: famously Star Trek. So this Watchmen is really good. I'm watching. I'm loving His Dark Materials.
 
 [00:17:10] Norm: Hmm.
 
-[00:17:10] Adam: Uh, uh, uh, the morning show remains uneven, half terrible, half great, and it really does ride between these two poles of like. There's dialogue, and you're like, " Who wrote this terrible dialogue?" And other scenes where you're just like, " Oh my god, watch these people do great stuff."
+[00:17:10] Adam: The morning show remains uneven, half terrible, half great, and it really does ride between these two poles of like. There's dialogue, and you're like, " Who wrote this terrible dialogue?" And other scenes where you're just like, " Oh my god, watch these people do great stuff."
 
-[00:17:26] Norm: Uh, what are the movies you're going to watch with your mom, or that you guys have pegged for watching this this December?
+[00:17:26] Norm: What are the movies you're going to watch with your mom, or that you guys have pegged for watching this December?
 
-[00:17:31] Adam: We really, uh, uh.
+[00:17:31] Adam: We really.
 
 [00:17:33] Norm: Knives Out.
 
@@ -396,7 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:17:41] Jen Schachter: No.
 
-[00:17:42] Norm: Parasite is, um, from director
+[00:17:42] Norm: Parasite is from director
 
 [00:17:45] Adam: Bong Joon-ho.
 
@@ -420,11 +420,11 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:18:10] Norm: That's about
 
-[00:18:11] Adam: all right. Yeah. I, I, just for a second, I want to talk about Mandalorian and the helmet.
+[00:18:11] Adam: all right. Yeah. I, just for a second, I want to talk about Mandalorian and the helmet.
 
 [00:18:18] Norm: Okay.
 
-[00:18:18] Adam: This is something that I've, uh, I'm really impressed with because the character never takes off his helmet.
+[00:18:18] Adam: This is something that I've I'm really impressed with because the character never takes off his helmet.
 
 [00:18:27] Jen Schachter: Right. I've been hearing about this,
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:19:02] Norm: And in any other context, it would be silly to have a lead character in a drama have dramatic dialogue exchanges while all they're doing is the physical movements of tilting, nodding their head.
 
-[00:19:15] Adam: Well, and and and you know, famously, uh, one of the most famous cases of this is the portrayal of, uh, V in V for Vendetta.
+[00:19:15] Adam: Well, and famously one of the most famous cases of this is the portrayal of V in V for Vendetta.
 
 [00:19:23] Jen Schachter: Yeah.
 
@@ -456,9 +456,9 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:19:32] Norm: Yeah.
 
-[00:19:32] Adam: So they hired a dancer, I believe, uh, a physical performer to do that work. I find the helmet super compelling. It's a beautiful piece of design because it looks different in different shots. It has, uh. I think that they really worked so that it did change its look, so you really could get, uh, a whole. I'd love to see a featurette on the design and implementation of the helmet because it's a beautiful piece of of execution.
+[00:19:32] Adam: So they hired a dancer, I believe a physical performer to do that work. I find the helmet super compelling. It's a beautiful piece of design because it looks different in different shots. It has. I think that they really worked so that it did change its look, so you really could get a whole. I'd love to see a featurette on the design and implementation of the helmet because it's a beautiful piece of execution.
 
-[00:20:02] Norm: Well, you talk about it being a plot point with defining the character, but the material itself is a plot point because the whole point is that he is finding this Beskar steel, which is the currency and the thing that's part of their their lore, which has a sheen and a reflectivity to it that's on his armor, starting with the helmet, and so it's almost like you know, in Watchmen, we talk about the character Looking Glass.
+[00:20:02] Norm: Well, you talk about it being a plot point with defining the character, but the material itself is a plot point because the whole point is that he is finding this Beskar steel, which is the currency and the thing that's part of their lore, which has a sheen and a reflectivity to it that's on his armor, starting with the helmet, and so it's almost like in Watchmen, we talk about the character Looking Glass.
 
 [00:20:25] Adam: Yes.
 
@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:20:53] Adam: that is to my satisfaction. Knowing, by the way, that I hate it when you can see where the operator is looking out from, and so on. Looking glasses, the problem with doing looking glasses hood is that it's fully reflective, and you can't see out of any super reflective material. I've been ordering them for weeks, and everything I've got is either not reflective enough, or if it is, you can't see out of it. I think I have a solution.
 
-[00:21:17] Norm: And so much of it is environment that you can't control. They control when they're filming the environment, the lights, and the places that they put looking glass in. When you're talking about a costume or cosplay, you are in some of the best lighting environments in a studio or a photoshoot, or some of the very worst lighting environments in a convention center, outdoors, or in the rain. And same with the Mandalorian; they chose a sheen and a reflectivity so that it looks heavy. It looks maybe not even heavy. It looks like has importance and weight, and And yet, it doesn't betray like the filming of it.
+[00:21:17] Norm: And so much of it is environment that you can't control. They control when they're filming the environment, the lights, and the places that they put looking glass in. When you're talking about a costume or cosplay, you are in some of the best lighting environments in a studio or a photoshoot, or some of the very worst lighting environments in a convention center, outdoors, or in the rain. And same with the Mandalorian; they chose a sheen and a reflectivity so that it looks heavy. It looks maybe not even heavy. It looks like has importance and weight, and yet, it doesn't betray like the filming of it.
 
 [00:21:52] Adam: Yeah, I am curious as to how much. I'm curious as to whether the Mandalorian's helmet is actually metalized or it's a paint treatment. I believe it's a paint treatment.
 
@@ -490,7 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:22:06] Adam: because it feels totally like a metallic,
 
-[00:22:09] Norm: right? And and and you know, if you've seen the helmet and you know what Boba Fett's helmet is like, that's it's a big helmet, right?
+[00:22:09] Norm: right? And you know, if you've seen the helmet and you know what Boba Fett's helmet is like, that's it's a big helmet, right?
 
 [00:22:15] Adam: Yep.
 
@@ -506,9 +506,9 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:23:16] Adam: I'm like, where did you get that great coat?
 
-[00:23:18] Norm: But that's the thing. We look at costuming in film, and we've had great conversations with costume designers who, when they draw out a silhouette, rarely do you have something that's exactly what they drew get put on screen because there are things that they can't control. You know, the proportions of the actor. Right. Real people have hips, and real people are are proportioned a certain way. Not everyone's going to be a six four, you know, perfect specimen. And same with the fabric material. So. That is a really curious and interesting thing,
+[00:23:18] Norm: But that's the thing. We look at costuming in film, and we've had great conversations with costume designers who, when they draw out a silhouette, rarely do you have something that's exactly what they drew get put on screen because there are things that they can't control. You know, the proportions of the actor. Right. Real people have hips, and real people are proportioned a certain way. Not everyone's going to be a six four perfect specimen. And same with the fabric material. So. That is a really curious and interesting thing,
 
-[00:23:49] Adam: and I love the fact that the men like Boba Fett's always been super compelling. And one of one of the main reasons is that armor is so mismatched, and there's all these different. What is the story behind that? There's a great narrative, and you do this with even minor characters. You you build narratives into the into the as we've talked about into the construction and into the painting. But the Mandalorian makes manifest exactly why Boba Fett's suit is multicolored. How the Mandalorian religion and culture works.
+[00:23:49] Adam: and I love the fact that the men like Boba Fett's always been super compelling. And one of the main reasons is that armor is so mismatched, and there's all these different. What is the story behind that? There's a great narrative, and you do this with even minor characters. You build narratives into the as we've talked about into the construction and into the painting. But the Mandalorian makes manifest exactly why Boba Fett's suit is multicolored. How the Mandalorian religion and culture works.
 
 [00:24:19] Norm: Yeah, some of my favorite shots in the show so far is when he's just resting, just sitting.
 
@@ -520,7 +520,7 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:24:33] Norm: Yeah.
 
-[00:25:45] Adam: Okay, so we've talked a little bit about science fiction. I want to go back to what you guys ate on Thanksgiving. So, Jen, yeah, what was what was your Thanksgiving meal, the dinner like?
+[00:25:45] Adam: Okay, so we've talked a little bit about science fiction. I want to go back to what you guys ate on Thanksgiving. So, Jen, yeah, what was your Thanksgiving meal, the dinner like?
 
 [00:25:55] Jen Schachter: It was it was pretty traditional. I went over. We have a Friendsgiving every year in Baltimore, and I went back to to go do Friendsgiving.
 
@@ -552,9 +552,9 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:27:14] Adam: Mashed potatoes is the one dish I do without any recipe. I just sit there with enough butter and salt and sour cream and kind of make it work.
 
-[00:27:22] Jen Schachter: Taste it, more butter, more butter.
+[00:27:22] Jen Schachter: Taste it, more butter.
 
-[00:27:24] Adam: That's my that's my favorite. My wife made some gratin, which we didn't even get to, so we got that to look forward to. I think tonight. I haven’t even. Oh, my favorite innovation was Julia wanted to do. Did I ever say this story on the podcast?
+[00:27:24] Adam: That's my favorite. My wife made some gratin, which we didn't even get to, so we got that to look forward to. I think tonight. I haven’t even. Oh, my favorite innovation was Julia wanted to do. Did I ever say this story on the podcast?
 
 [00:27:38] Norm: I don't know
 
@@ -586,7 +586,7 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:28:39] Norm: Sure. You had turkey in there somewhere.
 
-[00:28:40] Adam: It was great. My and my sister and my brother-in-law came up, and I haven't spent we haven't spent a lot of time together in a in a while. And that was just fantastic. Their dog Ziggy came up, and Ziggy and my dogs got along great. And I kind of really, I kind of fell in love with having two dogs, three dogs in the house.
+[00:28:40] Adam: It was great. My and my sister and my brother-in-law came up, and I haven't spent we haven't spent a lot of time together in a while. And that was just fantastic. Their dog Ziggy came up, and Ziggy and my dogs got along great. And I kind of really, I kind of fell in love with having two dogs, three dogs in the house.
 
 [00:29:01] Jen Schachter: Uh oh.
 
@@ -600,7 +600,7 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:29:22] Norm: That's the dream. I know there are a lot of projects that you guys have been working on in the shop here that we cannot talk about. Yeah. But there are some that we can talk about. Jen, I'm staring at one right now. You, while I think, while Adam was traveling for the expanse, you worked on this incredible cart for the Cricut. Can you tell us about paint us the word picture because we will do a video about it. But paint us the word picture.
 
-[00:29:44] Jen Schachter: Uh, it's. How do I describe this? It's just it's a simple plywood cart that kind of fits into the.
+[00:29:44] Jen Schachter: It's. How do I describe this? It's just it's a simple plywood cart that kind of fits into the.
 
 [00:29:51] Adam: I will say that we recently have been utilizing the. Do you say creecut? The cricket.
 
@@ -616,19 +616,19 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:30:13] Norm: Revelation.
 
-[00:30:14] Adam: It really is, and the degree to which, like, if you were going to get one rapid prototyping tool for a home maker shop, honestly, I think it's Cowboy Crunchy was showing us Cowbutt Crunchy cosplayers were showing us that they were using the Cricut cutter on one millimeter sticky foam in layers to do a gold brocade that was like phenomenal. Basically, it's the one. If you if you can only afford a couple hundred bucks for a maker tool, this is the one to get. And we had been using it. On a fair bit of projects, and I said before I left, " Hey, we should have a rolling stand for this thing. You see how I like to make rolling stands? Go ahead and make something like that." That's all I said, and you went and took me to rolling stand school because this is the best rolling stand in the shop.
+[00:30:14] Adam: It really is, and the degree to which if you were going to get one rapid prototyping tool for a home maker shop, honestly, I think it's Cowboy Crunchy was showing us Cowbutt Crunchy cosplayers were showing us that they were using the Cricut cutter on one millimeter sticky foam in layers to do a gold brocade that was like phenomenal. Basically, it's the one. If you can only afford a couple hundred bucks for a maker tool, this is the one to get. And we had been using it. On a fair bit of projects, and I said before I left, " Hey, we should have a rolling stand for this thing. You see how I like to make rolling stands? Go ahead and make something like that." That's all I said, and you went and took me to rolling stand school because this is the best rolling stand in the shop.
 
 [00:31:03] Jen Schachter: Oh, thanks.
 
 [00:31:04] Adam: Oh, yeah.
 
-[00:31:04] Jen Schachter: It was weird because normally I do a lot of like I sketch everything out before I go to a build, but this one I was like, " I'm just gonna I'm just gonna hold the pieces up and see." And I was like, built the the outer structure and then figured out where the shelves should fit in based on putting stuff on there. But yeah, there's like there's a little home for everything. Every tool that you need, there's a little
+[00:31:04] Jen Schachter: It was weird because normally I do a lot of like I sketch everything out before I go to a build, but this one I was like, " I'm just gonna I'm just gonna hold the pieces up and see." And I was like, built the outer structure and then figured out where the shelves should fit in based on putting stuff on there. But yeah, there's like there's a little home for everything. Every tool that you need, there's a little
 
 [00:31:23] Norm: so satisfying
 
 [00:31:24] Jen Schachter: place for it, and drawers and the mats hang on the side. But yeah, I'll I'll draw something up now that it's been made with measurements and all that.
 
-[00:31:31] Adam: That's it's just a fabulous addition to the shop, and I think we, you know, it's a trick. The question is, do you put a plex cover on it? Because if you do, well, if you put a cover on it. Then you're gonna put stuff on the cover,
+[00:31:31] Adam: That's it's just a fabulous addition to the shop, and I think we it's a trick. The question is, do you put a plex cover on it? Because if you do, well, if you put a cover on it. Then you're gonna put stuff on the cover,
 
 [00:31:46] Jen Schachter: right?
 
@@ -648,29 +648,29 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:32:17] Adam: we're gonna do a video on it. We're gonna have you walk through and do a little project because yeah, it's a great cart. It's just fabulous.
 
-[00:32:23] Norm: And Adam, last week while we were out on Thanksgiving break, you spent some time in the shop, and we'll again have a video on this. But you were delighted by a a little project you made, a lantern project.
+[00:32:23] Norm: And Adam, last week while we were out on Thanksgiving break, you spent some time in the shop, and we'll again have a video on this. But you were delighted by a little project you made, a lantern project.
 
-[00:32:34] Adam: Oh my God! Yes. So we're gonna do this. I have two projects to tell you about. One was for a A soon-to-be-revealed build. I needed a ye olde lantern, like the kind that would be mounted to the front of a Model A Ford, and i bought a I bought one online, and I lit it up with a LED bulb. That's all I am going to say, but it is one of the most satisfying objects I've made in a long time. And actually, it's been in our house because I brought it home and I showed it to Julia. She's like, " This is amazing. We got to just keep this here."
+[00:32:34] Adam: Oh my God! Yes. So we're gonna do this. I have two projects to tell you about. One was for a soon-to-be-revealed build. I needed a ye olde lantern, like the kind that would be mounted to the front of a Model A Ford, and i bought a I bought one online, and I lit it up with a LED bulb. That's all I am going to say, but it is one of the most satisfying objects I've made in a long time. And actually, it's been in our house because I brought it home and I showed it to Julia. She's like, " This is amazing. We got to just keep this here."
 
 [00:33:10] Norm: That's the thing that's so striking me about the story. It wasn't something necessarily from scratch, but you turned a simple, cheap thing off the shelf
 
 [00:33:17] Adam: into a way cooler thing.
 
-[00:33:19] Norm: And you're and and the iterative upgrades,
+[00:33:19] Norm: And you're and the iterative upgrades,
 
 [00:33:22] Adam: right?
 
-[00:33:22] Norm: From from electronics to finishing, like you, every bit you added gave you a level of satisfaction to a point where the culmination you’re, you’ve fallen in love with.
+[00:33:22] Norm: From electronics to finishing, like you, every bit you added gave you a level of satisfaction to a point where the culmination you’re, you’ve fallen in love with.
 
-[00:33:32] Adam: I am totally in love with this thing, and I'm like walking around the house with it. Again, it's it's just a lantern that looks like it's got a fire burning in it, but That all of this stuff I bought on Amazon, it's none of it's that cheap. None of it is really difficult from any perspective for a person to implement. So we're going to do a one-day build that you could almost free roll because it's not going to be longer than 90 minutes of construction getting this thing up and running, and all out of plywood and store-bought stuff. Yeah. But I did another project this weekend too.
+[00:33:32] Adam: I am totally in love with this thing, and I'm like walking around the house with it. Again, it's just a lantern that looks like it's got a fire burning in it, but That all of this stuff I bought on Amazon, it's none of it's that cheap. None of it is really difficult from any perspective for a person to implement. So we're going to do a one-day build that you could almost free roll because it's not going to be longer than 90 minutes of construction getting this thing up and running, and all out of plywood and store-bought stuff. Yeah. But I did another project this weekend too.
 
 [00:34:02] Norm: What was that?
 
-[00:34:03] Adam: I uh, I don't think we've done a video on the chips I have from Rounders.
+[00:34:03] Adam: I don't think we've done a video on the chips I have from Rounders.
 
 [00:34:11] Norm: The one that's that
 
-[00:34:12] Adam: the ones that sit over here. Did we did we ever cover that on the website?
+[00:34:12] Adam: the ones that sit over here. Did we ever cover that on the website?
 
 [00:34:16] Norm: Maybe. God, we've been doing this for a long time.
 
@@ -686,11 +686,11 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:34:34] Jen Schachter: Yeah, randomly I came across it.
 
-[00:34:35] Adam: It's one of my favorite movies. I've watched it many, many times. Directed by John Dahl, who is now does a lot of television directing, and. I years ago managed to, uh, just to have made by a poker chip company a really accurate set of Teddy KGB's poker chips. One thing I am not going to reveal is who made the poker chips because they asked me not to. This isn't something they want to be in the business of doing. But I found a company that makes poker chips. I got them to make me a pretty accurate set, and then they sat in these poker chip holders for years because I couldn't think of what case to put them in. And then I was watching Rounders, and I was thinking, if you've seen Rounders, John Malkovich is the big villain, and he plays a character named Teddy KGB, who's a Russian mobster poker player, and he has an underground poker club. And I thought to myself, what would Teddy KGB store his poker chips in? Obviously, in the club, he's behind in the lockbox, right behind a wire mesh, and you give him $10,000, and he gives you a tray. But like, if he has to transport those chips, what would they transport in? And that was the idea that I that That galvanized my brain to solve this problem, and I'm really excited about the poker chip carrier I made. But I have a question for our Russian-speaking designers who listen to Tested, and that is: I want some marks on the outside of this box. I want one mark. I want to be like the letter G. Like, if you had these boxes that would travel to home games, let's say you'd have six of them: A, B, C, D, E, F, G.
+[00:34:35] Adam: It's one of my favorite movies. I've watched it many, many times. Directed by John Dahl, who is now does a lot of television directing, and. I years ago managed to just to have made by a poker chip company a really accurate set of Teddy KGB's poker chips. One thing I am not going to reveal is who made the poker chips because they asked me not to. This isn't something they want to be in the business of doing. But I found a company that makes poker chips. I got them to make me a pretty accurate set, and then they sat in these poker chip holders for years because I couldn't think of what case to put them in. And then I was watching Rounders, and I was thinking, if you've seen Rounders, John Malkovich is the big villain, and he plays a character named Teddy KGB, who's a Russian mobster poker player, and he has an underground poker club. And I thought to myself, what would Teddy KGB store his poker chips in? Obviously, in the club, he's behind in the lockbox, right behind a wire mesh, and you give him $10,000, and he gives you a tray. But like, if he has to transport those chips, what would they transport in? And that was the idea that I that That galvanized my brain to solve this problem, and I'm really excited about the poker chip carrier I made. But I have a question for our Russian-speaking designers who listen to Tested, and that is: I want some marks on the outside of this box. I want one mark. I want to be like the letter G. Like, if you had these boxes that would travel to home games, let's say you'd have six of them: A, B, C, D, E, F, G.
 
 [00:36:18] Norm: Right. You want it to be one in a series.
 
-[00:36:20] Adam: In a series. So I'd want a big Cyrillic. No. My first question is: Do Russians alphabet? Do they do they delineate things like that with the alphabet, like we do in the U.S.? They probably do, but I don't know. Cyrillic is really different, right? Then I want to have written in Cyrillic how much how many chips there are in there. I think it's $98,000 and change in in the stated values on the chips. But then I want a symbol on it. That delineates it as from Teddy KGB's place, and I'm not sure what that symbol is. I know that Russian gangsters have the litany of their lives written on their bodies in tattoos, but I'm not sure if it's reasonable for me to take a tattoo design for like a gambler and put it on a box. So I'm just curious. From the from the folks who know Russia, Russian culture, specifically Russian gangster culture, can help me out with websites that might guide me or symbology that might help me to put the symbology on this.
+[00:36:20] Adam: In a series. So I'd want a big Cyrillic. No. My first question is: Do Russians alphabet? Do they delineate things like that with the alphabet, like we do in the U.S.? They probably do, but I don't know. Cyrillic is really different, right? Then I want to have written in Cyrillic how much how many chips there are in there. I think it's $98,000 and change in the stated values on the chips. But then I want a symbol on it. That delineates it as from Teddy KGB's place, and I'm not sure what that symbol is. I know that Russian gangsters have the litany of their lives written on their bodies in tattoos, but I'm not sure if it's reasonable for me to take a tattoo design for like a gambler and put it on a box. So I'm just curious. From the folks who know Russia, Russian culture, specifically Russian gangster culture, can help me out with websites that might guide me or symbology that might help me to put the symbology on this.
 
 [00:37:22] Norm: It still has some story to tell. It doesn’t need to have specific meaning. It just needs to evoke all the sensibilities of a brand or of.
 
@@ -702,23 +702,23 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:38:13] Norm: Well, you're playing the production designer tasked with you know with building a prop after reading the script.
 
-[00:38:18] Adam: I am making a canon. I'm making a piece that is from the from the canon that's not from the film.
+[00:38:18] Adam: I am making a canon. I'm making a piece that is from the canon that's not from the film.
 
 [00:38:24] Norm: That's right, and you're looking for the art department graphic designer that a production designer would work with
 
 [00:38:29] Adam: Yeah.
 
-[00:38:29] Norm: to create all the decals and the the stencils for this. Yeah,
+[00:38:29] Norm: to create all the decals and the stencils for this. Yeah,
 
 [00:38:35] Adam: and there's no then there's no graphic iconography in the film in KGB's place and Teddy's place.
 
-[00:38:41] Jen Schachter: Well, we were talking about earlier about like Eastern promises—that's a huge part of the movie—is the is the tattoos and the story that they tell
+[00:38:41] Jen Schachter: Well, we were talking about earlier about like Eastern promises—that's a huge part of the movie—is the tattoos and the story that they tell
 
 [00:38:47] Adam: and Viggo’s tattoos, right? Viggo Mortensen has that great story he tells of going to a restaurant after shooting before removing. His visible tattoos, and he goes to eat in a Russian restaurant in London, and everyone gets quiet. And he realizes, " Oh, I'm such an asshole." They think I'm some big gangster because they can see the
 
 [00:39:03] Jen Schachter: what I did here on my neck. Yeah.
 
-[00:39:07] Adam: So yeah, like Eastern Promises is a great movie that plays with that iconography a lot. I I still need some. I have some work to do to get this box.
+[00:39:07] Adam: So yeah, like Eastern Promises is a great movie that plays with that iconography a lot. I still need some. I have some work to do to get this box.
 
 [00:39:16] Norm: I also like that you've appropriately teased it, where you haven't actually described the box. I'm really curious for listeners out there what they think your interpretation of that box.
 
@@ -732,9 +732,9 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:39:30] Adam: Know that yeah, I thought about this box for years. I thought about a container for chips for years before alighting on this, and I didn't just for as a tease. I didn't travel too far afield. I'll just say it that way.
 
-[00:39:46] Jen Schachter: I'm curious because there's I I've witnessed this kind of happen. Where like I'll come in after the weekend, and you're. Like pulled something out that you are working on that that you are like I haven't touched this in 10 years. That what what causes you to pick up a project that you've had in the back of your mind? Like, do you see a movie or you hear something? Like, what's what's the catalyst to pick something up that you've been thinking about for a long time?
+[00:39:46] Jen Schachter: I'm curious because there's I I've witnessed this kind of happen. Where like I'll come in after the weekend, and you're. Like pulled something out that you are working on that that you are like I haven't touched this in 10 years. That what causes you to pick up a project that you've had in the back of your mind? Like, do you see a movie or you hear something? Like, what's what's the catalyst to pick something up that you've been thinking about for a long time?
 
-[00:40:05] Adam: It's really it's um for the poker chips. It starts. I can only give this. I'll give this specific example, and then I'll give a general example. For this, we're we've been my boys have left the house in the last couple of years, and so there’s been a set of stages of kind of reclaiming the part of the house they lived in for us and for guests. So we've been kind of moving through that part of our house and sorting basically, getting rid of closets full of trash and kids' stuff, and organizing parts of our house. And my wife and I played. We had a hold a Texas Hold'em game for about three or four years. Back in the early 2000s, when we were first together, we played every Sunday with the same group of friends for years, and we played so seriously. I actually had a full set of poker chips made for our game called Sunday Night, and they had different delineations on them. I chose colors very specifically, and I had 1,000 poker chips for that. And they sat in this big case. When you buy a 1,000 poker chip case, it's not the best made case, and this one is now 14 years old, and it's really long in the tooth, and it's heavy and dumb. So I bought a better poker chip carrier for it. And when I did, and I got it, I was like, " Oh, this is a nice design. It's nicer than I thought it was. Ah, maybe it's time for me to revisit the Rounders box." So that was the first part, and then was like flipping through the movies yesterday. Oh, so that's the that's the specific answer. That's how I got to being interested in this. But then on the weekends. I try not to make a lot of plans on the weekends. They really, they really are time for me and Julia and the dogs to just chill in the house or take the dogs to the park. I spend a lot of time on the weekends having downtime, but that also means that there might be times in the weekend where, like, we're just sort of hanging out and, like, I feel like going to the shop and just looking around. And so I did that yesterday. I came to the shop and I started something, and there was too many problems to solve with the thing that I was thinking I wanted to work on, and ended up putting everything back away and went back to the house after like 40 minutes. And then we were watching some television. We made some dinner, made an early dinner, and then I put on the television. And as I was flipping through stuff to watch, I came across Rounders, which I had watched half of about six months ago, and I watched the finale of Rounders, and I was like, " What would Teddy store his Chips in. Ah, it was like it's usually a question that elicits a story in my head. Once I have a a question that elicits a whole levels levels of stories, what would Teddy store his chips in? What? How would they get used? How would they move? How would they be cataloged? Who would need to know? What is the infrastructure? This is a part of. That's where I get excited, and then I came back and knocked out this poker chip carrier in like three hours flat.
+[00:40:05] Adam: It's really it's for the poker chips. It starts. I can only give this. I'll give this specific example, and then I'll give a general example. For this, we're we've been my boys have left the house in the last couple of years, and so there’s been a set of stages of kind of reclaiming the part of the house they lived in for us and for guests. So we've been kind of moving through that part of our house and sorting basically, getting rid of closets full of trash and kids' stuff, and organizing parts of our house. And my wife and I played. We had a hold a Texas Hold'em game for about three or four years. Back in the early 2000s, when we were first together, we played every Sunday with the same group of friends for years, and we played so seriously. I actually had a full set of poker chips made for our game called Sunday Night, and they had different delineations on them. I chose colors very specifically, and I had 1,000 poker chips for that. And they sat in this big case. When you buy a 1,000 poker chip case, it's not the best made case, and this one is now 14 years old, and it's really long in the tooth, and it's heavy and dumb. So I bought a better poker chip carrier for it. And when I did, and I got it, I was like, " Oh, this is a nice design. It's nicer than I thought it was. Ah, maybe it's time for me to revisit the Rounders box." So that was the first part, and then was like flipping through the movies yesterday. Oh, so that's the specific answer. That's how I got to being interested in this. But then on the weekends. I try not to make a lot of plans on the weekends. They really are time for me and Julia and the dogs to just chill in the house or take the dogs to the park. I spend a lot of time on the weekends having downtime, but that also means that there might be times in the weekend where we're just sort of hanging out and I feel like going to the shop and just looking around. And so I did that yesterday. I came to the shop and I started something, and there was too many problems to solve with the thing that I was thinking I wanted to work on, and ended up putting everything back away and went back to the house after like 40 minutes. And then we were watching some television. We made some dinner, made an early dinner, and then I put on the television. And as I was flipping through stuff to watch, I came across Rounders, which I had watched half of about six months ago, and I watched the finale of Rounders, and I was like, " What would Teddy store his Chips in. Ah, it was like it's usually a question that elicits a story in my head. Once I have a a question that elicits a whole levels levels of stories, what would Teddy store his chips in? What? How would they get used? How would they move? How would they be cataloged? Who would need to know? What is the infrastructure? This is a part of. That's where I get excited, and then I came back and knocked out this poker chip carrier in like three hours flat.
 
 [00:43:20] Norm: So it comes to you almost fully formed at that like that moment.
 
@@ -742,7 +742,7 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:43:34] Norm: Yeah,
 
-[00:43:34] Adam: while thinking about the problems I don't. So the chips sit on the thing. Okay, they sit on the thing. Okay, they're going to sit this high. I don't know how high that's going to be, so I'm just going to make it overly long, and then I'll sort of pare it down. And it was this process of doing that, and it's all. All plywood construction. So now in the shop, as you've seen, Jen, we've we've we've we've gone with using every thickness of super high quality plywood. So I have like sixteenth inch that's like five ply, and eighth inch that's like 11 ply, and like that allows me a freedom of construction because everything's going to be really rigid and easy to attach, easy to glue, and the finish is great. As you see, just matte black spray paint that looks really great.
+[00:43:34] Adam: while thinking about the problems I don't. So the chips sit on the thing. Okay, they sit on the thing. Okay, they're going to sit this high. I don't know how high that's going to be, so I'm just going to make it overly long, and then I'll sort of pare it down. And it was this process of doing that, and it's all. All plywood construction. So now in the shop, as you've seen, Jen, we've we've we've we've gone with using every thickness of super high quality plywood. So I have like sixteenth inch that's like five ply, and eighth inch that's like 11 ply, and that allows me a freedom of construction because everything's going to be really rigid and easy to attach, easy to glue, and the finish is great. As you see, just matte black spray paint that looks really great.
 
 [00:44:18] Jen Schachter: Yeah,
 
@@ -762,7 +762,7 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:45:18] Norm: Yeah, Well, it’s a good place to stop.
 
-[00:45:20] Adam: That was that was longer than I thought it was going to be.
+[00:45:20] Adam: That was longer than I thought it was going to be.
 
 [00:45:23] Norm: Well, thank you so much, Jen, for joining us this week. We hope you all out there have had a good Thanksgiving holiday if you celebrated that, and we'll be back next week with more stuff. Can't one more episode of Watchmen?
 

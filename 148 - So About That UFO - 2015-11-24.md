@@ -44,7 +44,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:01:41] Norm: That’s so good. Do you find that taking reference photos with the iPhone sucks because of the wide-angle lens?
 
-[00:01:46] Adam: Um, you. That's an interesting question. Um, I hadn't thought about it. I mean, reference photos are always difficult. Ah. I don't know. That’s a really... That's a really good question, Norm. I don't know if I have.
+[00:01:46] Adam: You. That's an interesting question. I hadn't thought about it. I mean, reference photos are always difficult. Ah. I don't know. That’s a really... That's a really good question, Norm. I don't know if I have.
 
 [00:02:03] Norm: At a certain distance, it won't matter as much,
 
@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:02:05] Adam: And I tend to go from a wa-. I tend to get my orthographic shots. I tend to pull back a bunch, but you're right. That could. I mean, there's always a problem with translating from a photograph to the real thing. You always end up either too large or too small, or with distances messed up because parallaxing is more radical than you realize.
 
-[00:02:23] Will: Well, you need you need the right lens. Like, there's a reason that that they have that a lot of people use a 50 millimeter Nikon lens Exactly. from the '60s still to do this stuff.
+[00:02:23] Will: Well, you need the right lens. Like, there's a reason that that they have that a lot of people use a 50 millimeter Nikon lens Exactly. from the '60s still to do this stuff.
 
 [00:02:31] Adam: And I use my 50 for reference, but yeah, it's a good question.
 
@@ -62,7 +62,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:02:38] Adam: Yeah, yeah,
 
-[00:02:39] Will: yeah. Should we talk about the the this weekend for us?
+[00:02:39] Will: yeah. Should we talk about the this weekend for us?
 
 [00:02:44] Adam: Yes.
 
@@ -70,7 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:02:49] Adam: Oh yes.
 
-[00:02:49] Will: That my parents. It's funny. One thing I've noticed over the last few years: the the time to flight. For news from the internet to my parents has decreased dramatically, and I don't know what happened.
+[00:02:49] Will: That my parents. It's funny. One thing I've noticed over the last few years: the time to flight. For news from the internet to my parents has decreased dramatically, and I don't know what happened.
 
 [00:03:01] Adam: But you used to get calls from your dad like, " Have you seen this cat on the internet?"
 
@@ -78,7 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:03:08] Norm: and they leapfrog you as their time becomes more available and your time becomes less available.
 
-[00:03:13] Will: Oh wow, that's dark. I haven't reached that point yet, but but now the the gap is closed to like 16 hours and something. Like my dad is on it. He he will he will drop some some some hardcore business that like filtered from Reddit through 15 different sites and ends up on Fox News or some horrible neocon site.
+[00:03:13] Will: Oh wow, that's dark. I haven't reached that point yet, but now the gap is closed to like 16 hours and something. Like my dad is on it. He will drop some some some hardcore business that like filtered from Reddit through 15 different sites and ends up on Fox News or some horrible neocon site.
 
 [00:03:32] Adam: Paul Sabourin from Paul and Storm has a one example where his dad like wrote him and said, " Watch out! I heard there's a virus that you can get on my face." And he was not being funny.
 
@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:03:58] Will: Okay, they just don't understand.
 
-[00:04:00] Adam: I I was just going to quote DJ Jazzy Jeff and the Fresh Prince.
+[00:04:00] Adam: I was just going to quote DJ Jazzy Jeff and the Fresh Prince.
 
 [00:04:04] Will: Thank you for pulling back.
 
@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:04:48] Will: I did not see it live. Before we go to this, I want to shout. Shout out to Phil Plait because when some weird shit happens in the sky, the place you should go is the Bad Astronomer blog because Phil is probably already on it and has explained it. And if he hasn't yet, then it's something really cool.
 
-[00:05:03] Adam: Yeah, Phil. Phil is Phil is an amazing and wonderful man. He's a friend of Tested. He's a really good old friend of mine. He is a wonderful writer, blogger, internet celebrity, father, husband,
+[00:05:03] Adam: Yeah, Phil. Phil is an amazing and wonderful man. He's a friend of Tested. He's a really good old friend of mine. He is a wonderful writer, blogger, internet celebrity, father, husband,
 
 [00:05:16] Will: dude,
 
@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:05:30] Adam: No,
 
-[00:05:31] Norm: you know, my my fear is that he's the person that Neal Stephenson is referencing.
+[00:05:31] Norm: you know, my fear is that he's the person that Neal Stephenson is referencing.
 
 [00:05:35] Adam: You think he's Dub?
 
@@ -166,19 +166,19 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:05:46] Will: Yeah, or Carl Zimmerman.
 
-[00:05:48] Adam: Yeah, this this is
+[00:05:48] Adam: Yeah, this is
 
 [00:05:48] Will: no kidding. Carl Zimmerman's great.
 
-[00:05:50] Adam: Phil is Phil is up there with Phil, as far as I'm concerned, is right up there with Neil deGrasse Tyson as as astrophysicist in in chief, an important explainer of sky phenomena
+[00:05:50] Adam: Phil is up there with Phil, as far as I'm concerned, is right up there with Neil deGrasse Tyson as astrophysicist in chief, an important explainer of sky phenomena
 
-[00:06:01] Will: and and debunker of bunk,
+[00:06:01] Will: and debunker of bunk,
 
 [00:06:03] Adam: debunker of bunk, but lover of mystery. Phil did an amazing talk at TAM a few years ago, talking about 10 things we don't know about the solar system. Really, really current things like we don't know what this mark on Venus is. We don't know why that moves in that way.
 
 [00:06:18] Will: We don't know anything about Venus. It turns out.
 
-[00:06:19] Adam: Oh, and and his his finish was the universe that we currently can see in our neighborhood is still so mysterious. It's a bunch of crap. We have no idea why it's the way it is, and that's so much more interesting than making up crap about it.
+[00:06:19] Adam: Oh, and his his finish was the universe that we currently can see in our neighborhood is still so mysterious. It's a bunch of crap. We have no idea why it's the way it is, and that's so much more interesting than making up crap about it.
 
 [00:06:33] Norm: It’s just true.
 
@@ -272,7 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:09:26] Adam: She doesn’t like working with people?
 
-[00:09:27] Will: No, so now she's a she does calligraphy, which she sells and and makes money doing that. She lives in Cave Creek, Arizona, and they moved there Because she’s a calligrapher. because it's one of the few cities in the country that doesn't have streetlights. They have a no external light ordinance.
+[00:09:27] Will: No, so now she's a she does calligraphy, which she sells and makes money doing that. She lives in Cave Creek, Arizona, and they moved there Because she’s a calligrapher. because it's one of the few cities in the country that doesn't have streetlights. They have a no external light ordinance.
 
 [00:09:41] Adam: Oh, so yeah, it's the lack of light pollution.
 
@@ -288,13 +288,13 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:10:01] Adam: Oh, you gotta do it!
 
-[00:10:02] Will: I, look, I already, when I, when I get up-
+[00:10:02] Will: I, look, I already, when I get up-
 
 [00:10:05] Adam: I require you to do it
 
 [00:10:06] Will: when I get up to go to the bathroom in her house. I have to shake out my shoes.
 
-[00:10:11] Adam: I I require you to do the black light thing next time you are at her house, so we can have a picture on Tested.
+[00:10:11] Adam: I require you to do the black light thing next time you are at her house, so we can have a picture on Tested.
 
 [00:10:14] Will: Okay, okay, okay, okay, okay. Well, I'll do the black light thing next time I go to her house. It's, it's no, it's not the eyes. The whole scorpions glow.
 
@@ -348,7 +348,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:11:08] Will: Oh boy!
 
-[00:11:10] Adam: You know, I had an old friend in New York who, after three beers, could do a perfect rendition of Salt-N-Pepa Push It. Good.
+[00:11:10] Adam: I had an old friend in New York who, after three beers, could do a perfect rendition of Salt-N-Pepa Push It. Good.
 
 [00:11:16] Will: I can see that. That's a three beer song.
 
@@ -368,7 +368,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:11:39] Adam: Yeah.
 
-[00:11:39] Norm: The wild speculation, the videos that popped up, the the amount of some people found it really entertaining, some people legitimately freaked out, and I don't know what in recent memory had that same type of effect outside of actually being a real disaster.
+[00:11:39] Norm: The wild speculation, the videos that popped up, the amount of some people found it really entertaining, some people legitimately freaked out, and I don't know what in recent memory had that same type of effect outside of actually being a real disaster.
 
 [00:11:54] Will: I've got one.
 
@@ -392,7 +392,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:12:27] Will: Yes, we're all hopefully going to do it.
 
-[00:12:27] Adam: Yeah. I think we’re all going to do it. We're all good. We're all going to do it. Um. Uh. But uh, Syfy is also about to come out with um Childhood's End.
+[00:12:27] Adam: Yeah. I think we’re all going to do it. We're all good. We're all going to do it. But Syfy is also about to come out with Childhood's End.
 
 [00:12:36] Will: Ooh the Arthur Clarke book?
 
@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:12:38] Will: Fantastic! That's that's not the Arthur Clarke book I would have chosen, but I can see why it would. It'll make a good TV show.
 
-[00:12:43] Adam: Yeah, I totally agree. It could make a good TV show. I totally agree, and we, we, we, we, we should.
+[00:12:43] Adam: Yeah, I totally agree. It could make a good TV show. I totally agree, and we should.
 
 [00:12:49] Will: Are there flying tornado sharks?
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:13:00] Will: Yeah, tornado sharks.
 
-[00:13:01] Adam: You know, one of my best friends is obsessed with Ian Ziering and Beverly Hills 90210, and I met him on the carpet at Comic Con this year for the Syfy party, and took a picture with him, and sent it to her, and she just wrote back, " I'm dead."
+[00:13:01] Adam: One of my best friends is obsessed with Ian Ziering and Beverly Hills 90210, and I met him on the carpet at Comic Con this year for the Syfy party, and took a picture with him, and sent it to her, and she just wrote back, " I'm dead."
 
 [00:13:16] Will: There's a lot of people. There's a lot of people that have a deep connection to 90210. My wife is one of them.
 
@@ -442,7 +442,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:14:01] Will: We just called it 90210.
 
-[00:14:03] Adam: Ha ha ha. And then we, and then we watched Melrose too.
+[00:14:03] Adam: Ha ha ha. And then we watched Melrose too.
 
 [00:14:03] Will: Yeah,
 
@@ -450,13 +450,13 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:14:07] Will: It was the Darren Star Power Two hours.
 
-[00:14:09] Adam: Absolutely, dude. That was that was important.
+[00:14:09] Adam: Absolutely, dude. That was important.
 
 [00:14:11] Will: Remember when she blew up the apartment building? That was amazing. Appointment. Remember the thing that's the thing that if you're a kid now, you don't understand this because, at that time, still a substantial number of people didn't have cable,
 
 [00:14:24] Adam: Yeah.
 
-[00:14:24] Will: and like literally everybody would watch. One like this was the very end of that. Like the Seinfeld friends years were kind of the the high water mark of the last.
+[00:14:24] Will: and like literally everybody would watch. One like this was the very end of that. Like the Seinfeld friends years were kind of the high water mark of the last.
 
 [00:14:34] Adam: Oh yeah,
 
@@ -464,7 +464,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:14:35] Adam: Television viewing per show has gone way down, so radically down. I was reading the recent oral history of Sports Night, Aaron Sorkin's first big show with Felicity Huffman, Josh Charles, and Peter Krause, and That show was canceled, and its ratings were 17 to 18 million viewers a week. That’s crazy. That would be the number one show on television today. Oh, yeah. But back then that was cancelable numbers.
 
-[00:15:02] Will: Well, and and I mean now, if you look at like the whole breadth of cable TV, a tested video gets 50 or 60 thousand views over the 24 hour period. Probably has more people watching it than a lot of stuff on like B and C tier cable.
+[00:15:02] Will: Well, and I mean now, if you look at like the whole breadth of cable TV, a tested video gets 50 or 60 thousand views over the 24 hour period. Probably has more people watching it than a lot of stuff on like B and C tier cable.
 
 [00:15:16] Adam: Oh yeah, yeah, yeah, totally, totally,
 
@@ -476,7 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:15:32] Will: You mean Duck and cover,
 
-[00:15:34] Norm: a little bit, a little bit of that, or just like you being used to you know, strange things happening. Then people now, like the kids now, have no idea like what it means.
+[00:15:34] Norm: a little bit of that, or just like you being used to you know, strange things happening. Then people now, like the kids now, have no idea like what it means.
 
 [00:15:44] Adam: Well, yeah, I mean. And this is, I think, a universal feeling among older people that the reality is very different now than it was. And I mean, yeah, I mean, Will and I came of age when we were still doing nuclear fallout drills,
 
@@ -506,21 +506,21 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:16:30] Will: I mean, what are you supposed to do? I mean, everything I've ever. Did you guys ever test this?
 
-[00:16:34] Adam: Well, we no. We what we can't believe is that our two sons go to go to high schools in the Bay Area. I can't believe that they're not like getting constantly inculcated with global warming alarmism, like we were with Cold War alarmism. Like to me, it's Every bit is important, and like, why aren't they giving them? I mean, maybe they are, but they don't seem as radicalized as I feel like they should be.
+[00:16:34] Adam: Well, we no. We what we can't believe is that our two sons go to high schools in the Bay Area. I can't believe that they're not like getting constantly inculcated with global warming alarmism we were with Cold War alarmism. Like to me, it's Every bit is important, and why aren't they giving them? I mean, maybe they are, but they don't seem as radicalized as I feel like they should be.
 
 [00:16:56] Will: It's a little politically charged in only our country.
 
 [00:17:01] Adam: No, I know only in our country. Damn it!
 
-[00:17:03] Will: The the I I see we didn't have a whole lot of the Cold War stuff. I my assumption would be if I saw one missile flying over, hey, everything's cool. If you see 20 missiles flying over, that's when things get real bad.
+[00:17:03] Will: The I I see we didn't have a whole lot of the Cold War stuff. I my assumption would be if I saw one missile flying over, hey, everything's cool. If you see 20 missiles flying over, that's when things get real bad.
 
 [00:17:16] Adam: The thing I remember so in when I was junior in high school, somehow I managed to convince my parents to let me have the old black and white television in my room, so I watched it all night long.
 
 [00:17:27] Will: Yeah, of course,
 
-[00:17:27] Adam: you know, like you do as a teenager
+[00:17:27] Adam: Like you do as a teenager
 
-[00:17:28] Will: until the until the American flag flies.
+[00:17:28] Will: until the American flag flies.
 
 [00:17:31] Adam: And back then, late at night, you could watch Evening at the Improv. So I remember seeing a 19-year-old Jim Carrey in his early, early, early stand-up and stuff like that. But I remember one comedian, comedian, had a joke. Where she asked a kid, " She oh, you're a kid in the audience. Hey, how old are you? 14. 14, huh? Wow, that means by the time you're 16, you'll be dead." And the point of her joke, I feel like I've said this on the podcast.
 
@@ -528,21 +528,21 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:18:00] Adam: The point of her joke was the Russians and the U.S. will destroy each other by then. That's how impending. This is 1983. That's how impending the idea of nuclear annihilation was cultural.
 
-[00:18:12] Will: Well, read the Dark Knight, Dark Knight Returns, right, or Transmetropolitan, or any of those. Like they're all post-apocalyptic.
+[00:18:12] Will: Well, read the Dark Knight Returns, right, or Transmetropolitan, or any of those. Like they're all post-apocalyptic.
 
 [00:18:18] Adam: Yeah,
 
-[00:18:18] Will: because you know the the Ronald Reagan or maybe it was Nixon. I can't remember whatever the whatever the whoever the the TV president was in Dark Knight Returns, written by Frank Miller.
+[00:18:18] Will: because you know the Ronald Reagan or maybe it was Nixon. I can't remember whatever the whoever the TV president was in Dark Knight Returns, written by Frank Miller.
 
 [00:18:28] Adam: Oh, it's Reagan.
 
-[00:18:29] Will: It's Reagan, right? Yeah, yeah. Like it was. He was the the premise is, shit, it's end times, man. The only reason we haven't blown each other up is because Superman.
+[00:18:29] Will: It's Reagan, right? Yeah, yeah. Like it was. He was the premise is, shit, it's end times, man. The only reason we haven't blown each other up is because Superman.
 
 [00:18:38] Adam: Yeah.
 
-[00:18:39] Will: Right. It’s not. It’s not a... It’s not a good. You can see how we ended up in kind of a toxic post. We're still recovering from the from the hangover on that stuff in a lot of ways.
+[00:18:39] Will: Right. It’s not. It’s not a... It’s not a good. You can see how we ended up in kind of a toxic post. We're still recovering from the hangover on that stuff in a lot of ways.
 
-[00:18:47] Adam: And and so. Back to this, the UFO that turned out to be a Trident missile. Trident,
+[00:18:47] Adam: And so. Back to this, the UFO that turned out to be a Trident missile. Trident,
 
 [00:18:53] Norm: Yes.
 
@@ -552,9 +552,9 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:18:58] Adam: The long exposures, and I really wish I had seen it. I'm very disappointed.
 
-[00:19:02] Norm: It's one of those things where, if you followed it, and both in real time and in the aftermath, just the different lenses in which we interpreted it, documented it, with all the camera phones and all the technology today, it really was an an awesome moment.
+[00:19:02] Norm: It's one of those things where, if you followed it, and both in real time and in the aftermath, just the different lenses in which we interpreted it, documented it, with all the camera phones and all the technology today, it really was an awesome moment.
 
-[00:19:18] Adam: Yeah, it'd be fascinating to look at some of the saturation metrics of traffic and discussion about it from a from a as macro scale as one could get. I mean, it's impossible to quantify, but if you chose some metrics with which to examine it, you could probably learn some interesting things about the way information propagates and what.
+[00:19:18] Adam: Yeah, it'd be fascinating to look at some of the saturation metrics of traffic and discussion about it from a as macro scale as one could get. I mean, it's impossible to quantify, but if you chose some metrics with which to examine it, you could probably learn some interesting things about the way information propagates and what.
 
 [00:19:36] Will: Well, they do that with earthquakes,
 

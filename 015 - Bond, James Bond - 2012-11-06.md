@@ -12,7 +12,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:00:15] Adam: Skyfall.
 
-[00:00:16] Will: And, and the interesting thing about James Bond movies, we're all different ages. Like we, between—ranging from Norm to Adam, we kind of span about 12, 15 years, something like that.
+[00:00:16] Will: And the interesting thing about James Bond movies, we're all different ages. Like we, between—ranging from Norm to Adam, we kind of span about 12, 15 years, something like that.
 
 [00:00:24] Adam: Yeah.
 
@@ -20,7 +20,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:00:33] Adam: Yep, totally.
 
-[00:00:34] Norm: It's, it's the 50th anniversary of James Bond.
+[00:00:34] Norm: It's the 50th anniversary of James Bond.
 
 [00:00:36] Will: Wow, really?
 
@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:00:56] Adam: That's a fantastic one. Her Majesty's Secret Service.
 
-[00:00:58] Norm: We should talk about Her Majesty's Secret Service, and, and just like the transition, because, and then—
+[00:00:58] Norm: We should talk about Her Majesty's Secret Service, and just like the transition, because, and then—
 
 [00:01:01] Adam: Timothy Dalton needed to learn how to cry from George Lazenby.
 
@@ -68,15 +68,15 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:01:34] Adam: Yeah, and Yaphet Kotto.
 
-[00:01:35] Will: Yeah, it's—it is by far the best of the, of the, of the Roger Moore movies.
+[00:01:35] Will: Yeah, it's—it is by far the best of the Roger Moore movies.
 
-[00:01:40] Adam: But, and, and I think that Connery is and was better than everybody else until—
+[00:01:40] Adam: But, and I think that Connery is and was better than everybody else until—
 
 [00:01:47] Will: Daniel Craig.
 
 [00:01:47] Adam: Until Daniel Craig. Well, I think Daniel Craig is the best Bond there—that has been.
 
-[00:01:50] Norm: Well, Connery, everything Connery did until he stopped doing Bond and then came back—came back was, was better.
+[00:01:50] Norm: Well, Connery, everything Connery did until he stopped doing Bond and then came back was, was better.
 
 [00:01:57] Adam: I see, but that's also—I would, I—I love Never Say Never Again.
 
@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:02:09] Will: It's a remake of Casino Royale, right?
 
-[00:02:11] Norm: No, no, it's a remake of, uh, Thunderball.
+[00:02:11] Norm: No, no, it's a remake of Thunderball.
 
 [00:02:14] Will: Really?
 
@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:02:25] Norm: Okay.
 
-[00:02:25] Will: Thunderball. See, Thunderball is my favorite of the Connery movies. Maybe the one, maybe, uh, From Russia with Love, but Thunderball is awesome because it has—it's like, it's like the '60s Playboy Bond, right?
+[00:02:25] Will: Thunderball. See, Thunderball is my favorite of the Connery movies. Maybe the one, maybe From Russia with Love, but Thunderball is awesome because it has—it's like the '60s Playboy Bond, right?
 
 [00:02:35] Adam: It is. It's so the '60s Playboy Bond, and it's the '60s Playboy Bond as like youthful, youthful boys in the '70s pictured the '60s Playboy. Well—
 
@@ -118,11 +118,11 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:02:49] Will: And I found out about the whole other '60s.
 
-[00:02:50] Norm: Rewatching them now, and they're, they're just been restored.
+[00:02:50] Norm: Rewatching them now, and they're just been restored.
 
 [00:02:50] Unknown speaker: Yeah.
 
-[00:02:50] Norm: So all the movies are now on Blu-ray. Not many of them were on Blu-ray before, uh, and some have been restored. It looks great.
+[00:02:50] Norm: So all the movies are now on Blu-ray. Not many of them were on Blu-ray before and some have been restored. It looks great.
 
 [00:03:00] Adam: Yeah.
 
@@ -130,7 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:03:03] Adam: Yeah.
 
-[00:03:03] Norm: He—it was offensive. There's a scene in Thunderball, and the, the movies are great because they're all two hours long. I think the newest, uh, Skyfall is supposed to be two hours and 25, two hour—two and a half hours— The longest one by far. Previously, I think it was, uh, Her Majesty's Secret Service was two hours and 20 minutes. They're all really long. They all have like first act, which has nothing to do with the movie.
+[00:03:03] Norm: He—it was offensive. There's a scene in Thunderball, and the movies are great because they're all two hours long. I think the newest Skyfall is supposed to be two hours and 25, two hour—two and a half hours— The longest one by far. Previously, I think it was Her Majesty's Secret Service was two hours and 20 minutes. They're all really long. They all have like first act, which has nothing to do with the movie.
 
 [00:03:22] Unknown speaker: Yeah.
 
@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:03:30] Adam: No, you always need the opening action sequence. The—
 
-[00:03:33] Norm: Opening action sequence, and then some type of love—of like quick, quick love affair. But in Thunderball, he's, he's like he's in a, uh, the, the first action sequence. He, uh, has the fame—it's parodied by Austin Powers. The man dressed as the woman.
+[00:03:33] Norm: Opening action sequence, and then some type of love—of like quick, quick love affair. But in Thunderball, he's like he's in a the first action sequence. He has the fame—it's parodied by Austin Powers. The man dressed as the woman.
 
 [00:03:46] Adam: Yeah.
 
@@ -160,7 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:03:57] Adam: It's brilliant.
 
-[00:03:58] Norm: He goes into the, the rehabilitation center where he like coincidentally hears about the steal—stole, uh, the nuclear weapons being stolen. And there's a scene where like he's hitting on the woman.
+[00:03:58] Norm: He goes into the rehabilitation center where he like coincidentally hears about the steal—stole the nuclear weapons being stolen. And there's a scene where like he's hitting on the woman.
 
 [00:04:07] Will: The nurse.
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:04:24] Norm: It is scary.
 
-[00:04:25] Will: Yeah. Well, and, and there's, there's a lot of like, as a product of the times, there's also a lot of weird racism where, where he, you know, dresses up in makeup for, uh, different, diff—
+[00:04:25] Will: Yeah. Well, and there's, there's a lot of like, as a product of the times, there's also a lot of weird racism where he dresses up in makeup for different, diff—
 
 [00:04:35] Norm: Ethnicities.
 
@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:04:37] Norm: Yes.
 
-[00:04:38] Will: Um, and, and, and then at some point he gets just really old with, with, uh, with Roger Moore. I mean, by the end of the Roger Moore days, James Bond was, was not, not a little old.
+[00:04:38] Will: And then at some point he gets just really old with Roger Moore. I mean, by the end of the Roger Moore days, James Bond was, was not, not a little old.
 
 [00:04:49] Adam: No.
 
@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:04:56] Will: I've never seen this.
 
-[00:04:57] Adam: Where he plays a special forces guy who, you know, does the Times crossword puzzle. At some point, somebody says to him, "I'll bet you do the Times crossword puzzle in 10 minutes," and he goes, "I've never taken 10 minutes." Yeah, you know, it's—Roger Moore got really long in the tooth, and then there was the whole—see, the problem was after Roger Moore, Timothy Dalton, terrific actor—
+[00:04:57] Adam: Where he plays a special forces guy who does the Times crossword puzzle. At some point, somebody says to him, "I'll bet you do the Times crossword puzzle in 10 minutes," and he goes, "I've never taken 10 minutes." Yeah it's—Roger Moore got really long in the tooth, and then there was the whole—see, the problem was after Roger Moore, Timothy Dalton, terrific actor—
 
 [00:05:21] Norm: Only got two.
 
@@ -206,17 +206,17 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:05:31] Will: And they were going to—Pierce Brosnan was supposed to be that Bond.
 
-[00:05:34] Adam: I know, I know, but the problem is, is that once Pierce Brosnan became Bond, like seven years later, he was doing Bond in the old Roger Moore mold, and we were in the '90s by that point.
+[00:05:34] Adam: I know, but the problem is, is that once Pierce Brosnan became Bond, like seven years later, he was doing Bond in the old Roger Moore mold, and we were in the '90s by that point.
 
 [00:05:44] Will: Yeah, Guns N' Roses was—people weren't listening to Guns N' Roses anymore.
 
-[00:05:48] Adam: That didn't fly. No, and it's just that the Pierce Brosnan ones, all the tongue is so firmly in the cheek. I, I find them—I can't watch.
+[00:05:48] Adam: That didn't fly. No, and it's just that the Pierce Brosnan ones, all the tongue is so firmly in the cheek. I find them—I can't watch.
 
 [00:05:55] Norm: So, GoldenEye relies on parody.
 
 [00:05:56] Adam: Yeah, it totally—
 
-[00:05:58] Norm: And in—instead of trying to do its own thing with the spirit of the character, it just had a checkbox of, okay, he needs to play poker. He needs to, you know, he, he needs to do this.
+[00:05:58] Norm: And in—instead of trying to do its own thing with the spirit of the character, it just had a checkbox of, okay, he needs to play poker. He needs to, you know, he needs to do this.
 
 [00:06:07] Will: There's a girl, and then there's another girl.
 
@@ -224,7 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:06:10] Adam: Right? Yeah, yeah, and it just—it got silly. I love the introduction of Judi Dench as M. That's—she's in The World Is Not Enough, right?
 
-[00:06:18] Will: Uh, I think that's when she's—
+[00:06:18] Will: I think that's when she's—
 
 [00:06:20] Norm: Tomorrow Never Dies.
 
@@ -242,21 +242,21 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:06:35] Adam: Yes.
 
-[00:06:35] Will: I did not know that. So I thought GoldenEye was actually—I think, I think GoldenEye holds up better than any of the other Pierce Brosnan.
+[00:06:35] Will: I did not know that. So I thought GoldenEye was actually—I think GoldenEye holds up better than any of the other Pierce Brosnan.
 
 [00:06:35] Unknown speaker: Okay.
 
 [00:06:42] Will: It's by far the best of them.
 
-[00:06:44] Adam: The villain in that is, um, isn't it Timothy Olyphant or something like that?
+[00:06:44] Adam: The villain in that is isn't it Timothy Olyphant or something like that?
 
 [00:06:47] Norm: No, no. And GoldenEye, it's Sean Bean, who—Double O Six.
 
 [00:06:47] Unknown speaker: Right.
 
-[00:06:52] Norm: And it starts off—it's great because you don't never see the other Double Os, and so having someone who's higher ranked than him, like, gets betrayed is an interesting take. And GoldenEye was originally supposed to be one of the Tim Dalton movies, but they had production problems, and so it was pushed to be Brosnan's first.
+[00:06:52] Norm: And it starts off—it's great because you don't never see the other Double Os, and so having someone who's higher ranked than him gets betrayed is an interesting take. And GoldenEye was originally supposed to be one of the Tim Dalton movies, but they had production problems, and so it was pushed to be Brosnan's first.
 
-[00:07:07] Will: It was a Cold War movie. I think that, I think that it took a while to figure out what Bond was going to be at the end of the Russians as a, as a threat.
+[00:07:07] Will: It was a Cold War movie. I think that it took a while to figure out what Bond was going to be at the end of the Russians as a threat.
 
 [00:07:13] Adam: Yeah. I just think I, I, I think Daniel Craig is so head and shoulders more. Oh yeah, because he's of his time, and I don't know what I'll think in 5 or 10 years.
 
@@ -272,7 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:07:38] Norm: That's when you know it's something different, and he has kind of established himself.
 
-[00:07:41] Adam: And they're going to play, and they're going to play around with your perception of Bond. I loved the, the, the girl from Casino Royale. I can't remember her name.
+[00:07:41] Adam: And they're going to play, and they're going to play around with your perception of Bond. I loved the girl from Casino Royale. I can't remember her name.
 
 [00:07:49] Will: Eva Green. Yeah, yeah, but she played Vesper.
 
@@ -308,15 +308,15 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:08:40] Unknown speaker: Yes.
 
-[00:08:40] Norm: Your Majesty's Secret Service, you have the base like the one before, the, the volcano base—
+[00:08:40] Norm: Your Majesty's Secret Service, you have the base like the one before, the volcano base—
 
 [00:08:40] Unknown speaker: Yes.
 
-[00:08:40] Norm: And then the Blofeld's, you know, mountain Swiss resort base. Yeah.
+[00:08:40] Norm: And then the Blofeld's mountain Swiss resort base. Yeah.
 
 [00:08:51] Will: That's a real place, you know, the Swiss resort. The architecture. You can go there.
 
-[00:08:54] Norm: Yeah, it's, it's wonderful.
+[00:08:54] Norm: Yeah, it's wonderful.
 
 [00:08:55] Adam: We can't go there.
 
@@ -326,7 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:08:59] Will: I mean, we can make a video. Let's go to—
 
-[00:09:02] Adam: Let's go to Switzerland. We actually, we interviewed the, the woman that got—Shirley Eaton, who got painted in gold.
+[00:09:02] Adam: Let's go to Switzerland. We actually, we interviewed the woman that got—Shirley Eaton, who got painted in gold.
 
 [00:09:09] Will: Oh, right.
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:09:14] Will: Okay.
 
-[00:09:15] Adam: Which it, it doesn't.
+[00:09:15] Adam: Which it doesn't.
 
 [00:09:16] Will: Good to know.
 
@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:09:50] Adam: There's a new Q.
 
-[00:09:51] Will: Oh, it's not? It's not, uh, um—
+[00:09:51] Will: Oh, it's not? It's not—
 
 [00:09:53] Norm: Desmond Cleese.
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:10:03] Will: You should write a letter to the Queen. Dear Queen Elizabeth.
 
-[00:10:07] Adam: Dear Queen Elizabeth. Um. So there is a Q, and it's funny about the gadgets. Now, I thought the gadgets were awesome when I was a kid.
+[00:10:07] Adam: Dear Queen Elizabeth. So there is a Q, and it's funny about the gadgets. Now, I thought the gadgets were awesome when I was a kid.
 
 [00:10:16] Norm: Yeah.
 
@@ -414,9 +414,9 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:10:44] Norm: And then they're impractical now, or unimpressive.
 
-[00:10:47] Will: Well, they were, they were one-offs. They cheated. The problem with it was that they are cheats.
+[00:10:47] Will: Well, they were one-offs. They cheated. The problem with it was that they are cheats.
 
-[00:10:50] Adam: Yes, in every single one, they're, they're, they're cheats.
+[00:10:50] Adam: Yes, in every single one, they're cheats.
 
 [00:10:53] Will: There were a couple of exceptions.
 
@@ -428,25 +428,25 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:10:58] Will: Give me a laser watch. I will find it. You know—
 
-[00:11:01] Adam: You know how, you know how powerful, how big the laser would need to be to do what that watch does?
+[00:11:01] Adam: You know how powerful, how big the laser would need to be to do what that watch does?
 
 [00:11:05] Will: If all you have is a hammer, everything looks like a nail, Adam. All you have is a laser watch.
 
 [00:11:10] Adam: That watch would need to be like a 20-foot cube van.
 
-[00:11:13] Norm: Okay, they're cheats, especially in the newer ones. You know, invisible car, the car flips over. Yeah, that's going to happen. Very terrible.
+[00:11:13] Norm: Okay, they're cheats, especially in the newer ones. Invisible car, the car flips over. Yeah, that's going to happen. Very terrible.
 
 [00:11:20] Will: Underwater Lotus. Who doesn't want an underwater Lotus?
 
 [00:11:23] Adam: I would totally want. I love the underwater Lotus.
 
-[00:11:26] Norm: But back then, in the '60s, they didn't have things like, you know, like underwater cameras. And in Thunderball, yeah, Q goes, "Here's a camera. They get pictures, you know, four pictures underwater." And I was, "Oh, that's brilliant!" I'd never had that before. Or, you know, a breathing apparatus, or, or, or a radioactive pill. Right, location tracking.
+[00:11:26] Norm: But back then, in the '60s, they didn't have things like like underwater cameras. And in Thunderball, yeah, Q goes, "Here's a camera. They get pictures, you know, four pictures underwater." And I was, "Oh, that's brilliant!" I'd never had that before. Or, you know, a breathing apparatus, or a radioactive pill. Right, location tracking.
 
 [00:11:40] Adam: All of that stuff was like, yeah—
 
-[00:11:43] Will: The, the gyrocopter. I mean, the problem is a lot of the stuff that would have been magic 30 years ago is something that you can go to the store and buy today.
+[00:11:43] Will: The gyrocopter. I mean, the problem is a lot of the stuff that would have been magic 30 years ago is something that you can go to the store and buy today.
 
-[00:11:50] Adam: Yeah, it's all, it's all—Bond gadgets are destined to show up in Hammacher Schlemmer.
+[00:11:50] Adam: Yeah, it's all—Bond gadgets are destined to show up in Hammacher Schlemmer.
 
 [00:11:54] Will: Right.
 
@@ -476,9 +476,9 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:12:21] Adam: Well, they already did that, where Pierce Brosnan was steering the car with a full telepresence.
 
-[00:12:25] Will: You should test that. That is a perfect thing to test because I guarantee you that you could spend hours and hours and hours practicing, and no chance of being able to steer with a touchscreen a car.
+[00:12:25] Will: You should test that. That is a perfect thing to test because I guarantee you that you could spend hours and hours practicing, and no chance of being able to steer with a touchscreen a car.
 
-[00:12:35] Adam: Oh, that's a great idea. That's a great—you know, we talk about telepresence as something to do on the show—
+[00:12:35] Adam: Oh, that's a great idea. That's a great—we talk about telepresence as something to do on the show—
 
 [00:12:41] Will: Yeah.
 
@@ -488,11 +488,11 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:13:06] Adam: Yeah.
 
-[00:13:07] Will: It's, it's, it's hard to do.
+[00:13:07] Will: It's hard to do.
 
 [00:13:08] Adam: Yeah.
 
-[00:13:09] Will: Um. When I—when we did the third-person camera at Maker Faire, I was stumbling into stuff constantly because even though I had a great big wide field of vision, it was still only this much of my—it just, just doesn't work very well.
+[00:13:09] Will: When I—when we did the third-person camera at Maker Faire, I was stumbling into stuff constantly because even though I had a great big wide field of vision, it was still only this much of my—it just, just doesn't work very well.
 
 [00:13:18] Adam: It's very, very different. Wait, what's the third-person camera?
 
@@ -500,7 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:13:23] Adam: Oh, nice!
 
-[00:13:23] Will: And so I, so I could basically like get third-person video game. And it turns out you can't walk at all with a third-person camera because you can't see what's directly in front of you. The only thing that really matters.
+[00:13:23] Will: And so I could basically like get third-person video game. And it turns out you can't walk at all with a third-person camera because you can't see what's directly in front of you. The only thing that really matters.
 
 [00:13:33] Norm: But it's a very—it's a literal out-of-body experience.
 
@@ -514,11 +514,11 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:13:42] Adam: Oh, nice!
 
-[00:13:43] Will: Yeah, we, we actually have a pair of new 3D goggles coming that do wide field of vision, and they might help with the, with the car driving stuff.
+[00:13:43] Will: Yeah, we actually have a pair of new 3D goggles coming that do wide field of vision, and they might help with the car driving stuff.
 
 [00:13:49] Adam: I would like to try those.
 
-[00:13:50] Will: Well, they're supposed to be here, um, in December, so we'll, we'll bring them over.
+[00:13:50] Will: Well, they're supposed to be here in December, so we'll, we'll bring them over.
 
 [00:13:52] Adam: Let's do a—I'd like to be part of that product.
 
@@ -544,21 +544,21 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:14:12] Adam: Wonderful.
 
-[00:14:13] Will: Yeah, one of the great villains. He was the high point of the, of the—was he a Moore? No, he was a Connery.
+[00:14:13] Will: Yeah, one of the great villains. He was the high point of the—was he a Moore? No, he was a Connery.
 
 [00:14:18] Adam: So I think the villain—Bond movies live and die on the villains being scary. I thought Jaws was brilliantly scary. I think Klaus Maria Brandauer is a terrific villain. He's scary, crazy.
 
 [00:14:30] Norm: Okay.
 
-[00:14:30] Adam: I think the guy from—I think the—I think the guy from Casino Royale, very scary. I think the French dude from The Diving Bell and the Butterfly, not scary at all.
+[00:14:30] Adam: I think the guy from—I think the guy from Casino Royale, very scary. I think the French dude from The Diving Bell and the Butterfly, not scary at all.
 
-[00:14:41] Norm: No, not scary at all. No, no, no, in, in Quantum of Solace—in Casino Royale, he was scary, but it was great that he was not like—he was still a minion, he was still a lackey at the end.
+[00:14:41] Norm: No, not scary at all. No, no, no, in Quantum of Solace—in Casino Royale, he was scary, but it was great that he was not like—he was still a minion, he was still a lackey at the end.
 
 [00:14:48] Adam: Yes.
 
 [00:14:48] Norm: And that was what's awesome about this—the organization, the Quantum organization.
 
-[00:14:52] Will: And if you go back to the, the, the, the one where Rupert Murdoch was the bad guy, um, The World Is Not Enough.
+[00:14:52] Will: And if you go back to the one where Rupert Murdoch was the bad guy The World Is Not Enough.
 
 [00:14:58] Norm: Jonathan Pryce. Yeah, Never Dies.
 
@@ -580,7 +580,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:15:29] Unknown speaker: It's property.
 
-[00:15:29] Will: You know, you got to say—
+[00:15:29] Will: You got to say—
 
 [00:15:31] Adam: Is he really?
 
@@ -590,7 +590,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:15:35] Will: Yeah. Um.
 
-[00:15:37] Adam: Well, we should, we should revisit this right after, right after Skyfall comes out. Also, hey, wait, I want to talk about the, the, the, the best thing about Skyfall so far is the song. They've gone right back to the '70s.
+[00:15:37] Adam: Well, we should revisit this right after Skyfall comes out. Also, hey, wait, I want to talk about the best thing about Skyfall so far is the song. They've gone right back to the '70s.
 
 [00:15:49] Will: It's the Adele, Adele song. Yeah.
 
@@ -614,11 +614,11 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:16:22] Adam: Which Sheryl Crow song?
 
-[00:16:23] Will: That was, um, that was the one that was the worst one, uh, in recent years. The one with the pipeline with, uh, with Denise Richards. The World Is Not Enough. The World Is Not Enough with Sheryl Crow, I think.
+[00:16:23] Will: That was the one that was the worst one in recent years. The one with the pipeline with Denise Richards. The World Is Not Enough. The World Is Not Enough with Sheryl Crow, I think.
 
 [00:16:32] Adam: Right, but what was the song?
 
-[00:16:33] Will: I, I—
+[00:16:33] Will: I—
 
 [00:16:33] Adam: I'll have to look it up. Because I love—
 
@@ -626,7 +626,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:16:36] Adam: I love Sheryl Crow. I saw her at a rally a couple of years ago, and I said to my wife, I was like, "Is it okay if I go up to Sheryl Crow and say I love her?" And my wife goes, "Her music. You love her music."
 
-[00:16:48] Will: Uh, that's what wives are for.
+[00:16:48] Will: That's what wives are for.
 
 [00:16:51] Norm: Yeah, we'll come back, talk about Skyfall.
 

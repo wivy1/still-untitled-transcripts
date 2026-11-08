@@ -32,29 +32,29 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:01:40] Adam: but I want to hear about your stuff.
 
-[00:01:42] Will: Oh, um, so the Kickstarter for my company goes live if everything goes well later today. But if not today, then tomorrow.
+[00:01:42] Will: Oh so the Kickstarter for my company goes live if everything goes well later today. But if not today, then tomorrow.
 
 [00:01:48] Adam: That's very exciting.
 
-[00:01:49] Will: Yeah, so it's um, it's for the first season of the Foo Show.
+[00:01:49] Will: Yeah, so it's for the first season of the Foo Show.
 
 [00:01:52] Adam: Yep.
 
-[00:01:52] Will: Which is five episodes at least of us talking to people who make interesting things that are three dimensional and and you know ethereal inside their creations. Which is appealing. it seems, seems to be appealing from what people have told us. We think it's cool, but it seemed like the early reaction to the preview episode we released this year was was well received. And there's a wide range of things that you can do to help us make this season. We're basically just doing a presale on the on the actual episodes, so they'll be out basically as soon as the Kickstarter closes and we collect money from people so that we can send them code so that the Kickstarter backers get access to the show first.
+[00:01:52] Will: Which is five episodes at least of us talking to people who make interesting things that are three dimensional and you know ethereal inside their creations. Which is appealing. it seems, seems to be appealing from what people have told us. We think it's cool, but it seemed like the early reaction to the preview episode we released this year was was well received. And there's a wide range of things that you can do to help us make this season. We're basically just doing a presale on the actual episodes, so they'll be out basically as soon as the Kickstarter closes and we collect money from people so that we can send them code so that the Kickstarter backers get access to the show first.
 
 [00:02:32] Norm: And this experience in virtual reality and also outside of virtual reality.
 
-[00:02:36] Will: Well, so yeah, that's the that's the thing that's exclusive to Kickstarter backers. So if you have a VR headset, great, that's the preferred way to do it, whether it's a Vive or a Rift. And we'll have some news about other platforms like PSVR and Google Daydream and Gear VR, probably for 2017. If you don't have a VR headset yet because you haven't shelled out $ 800 for a Vive, which is a lot of money, then we have a 2D client that works kind of like a video game where you can control it with a mouse and keyboard or a game pad. And we're going to release the experimental preview, completely undocumented. Programmer UI. I did a lot of the design work on the controls version, and we're releasing that as an exclusive to Kickstarter backers. And then we'll iterate; they'll get iterations as we as we add new things to it, and then eventually we'll release it for everybody on Steam, and probably probably just Steam actually for that.
+[00:02:36] Will: Well, so yeah, that's the thing that's exclusive to Kickstarter backers. So if you have a VR headset, great, that's the preferred way to do it, whether it's a Vive or a Rift. And we'll have some news about other platforms like PSVR and Google Daydream and Gear VR, probably for 2017. If you don't have a VR headset yet because you haven't shelled out $ 800 for a Vive, which is a lot of money, then we have a 2D client that works kind of like a video game where you can control it with a mouse and keyboard or a game pad. And we're going to release the experimental preview, completely undocumented. Programmer UI. I did a lot of the design work on the controls version, and we're releasing that as an exclusive to Kickstarter backers. And then we'll iterate; they'll get iterations as we add new things to it, and then eventually we'll release it for everybody on Steam, and probably probably just Steam actually for that.
 
 [00:03:28] Adam: That's really cool. That's really cool.
 
 [00:03:30] Norm: [speaker unclear: Norm / Adam] Congratulations! It's what you left tested a year ago now to do.
 
-[00:03:35] Will: Yeah. So we we um just so everybody knows, we had originally said when we released the preview in April, we said, " Hey, this is going to take a few months, and we'll have more episodes in the summer." And then we spent a lot of time making the animation better, and there was a bunch of work to be done.
+[00:03:35] Will: Yeah. So we just so everybody knows, we had originally said when we released the preview in April, we said, " Hey, this is going to take a few months, and we'll have more episodes in the summer." And then we spent a lot of time making the animation better, and there was a bunch of work to be done.
 
 [00:03:49] Adam: Always, a bunch of, work to be done.
 
-[00:03:50] Will: Well, and then and then like I had to figure out how to pay for it,
+[00:03:50] Will: Well, and then like I had to figure out how to pay for it,
 
 [00:03:50] Unknown speaker: Yeah. Yeah.
 
@@ -66,13 +66,13 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:04:17] Adam: Yeah.
 
-[00:04:17] Will: Um. And then we looked at advert. We talked to a bunch of advertisers and stuff like that. But the stuff that they wanted to make it worth it for them in VR right now wasn't compatible with what I was looking for. So we're gonna hope that you guys will help us fund this because if we don't, if you don't, then we won't do it. So um. Yeah.
+[00:04:17] Will: And then we looked at advert. We talked to a bunch of advertisers and stuff like that. But the stuff that they wanted to make it worth it for them in VR right now wasn't compatible with what I was looking for. So we're gonna hope that you guys will help us fund this because if we don't, if you don't, then we won't do it. So um. Yeah.
 
 [00:04:32] Norm: Help.
 
 [00:04:33] Adam: Fund it. So where do people go?
 
-[00:04:35] Will: What so they can go to um let's say foovr slash foovr dot com slash Kickstarter.
+[00:04:35] Will: What so they can go to let's say foovr slash foovr dot com slash Kickstarter.
 
 [00:04:41] Norm: F O
 
@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:05:15] Adam: that's fabulous. Cool, dude.
 
-[00:05:17] Norm: You know, by making your own thing, you are joining a bigger community.
+[00:05:17] Norm: By making your own thing, you are joining a bigger community.
 
 [00:05:21] Will: Which community is that, Norm?
 
@@ -114,7 +114,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:05:36] Adam: You can pivot.
 
-[00:05:37] Norm: You. You know, since we also podcasted last, you last week we talked about you putting on a Halloween costume.
+[00:05:37] Norm: You. Since we also podcasted last, you last week we talked about you putting on a Halloween costume.
 
 [00:05:44] Adam: Yeah.
 
@@ -128,17 +128,17 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:05:49] Will: Yeah, you lent me your Baymax, one of your Baymax costumes,
 
-[00:05:51] Adam: an inflatable Baymax costume. Yeah, which is it's a holy grail of mine. Mine's not perfect, but it it works.
+[00:05:51] Adam: an inflatable Baymax costume. Yeah, which is it's a holy grail of mine. Mine's not perfect, but it works.
 
 [00:05:57] Will: It's pretty good.
 
 [00:05:58] Adam: It's pretty good,
 
-[00:06:00] Norm: and you you had put it on Adam at some point. You had put on this costume.
+[00:06:00] Norm: and you had put it on Adam at some point. You had put on this costume.
 
 [00:06:02] Adam: I did. I put it on in the shop, and then I immediately took it off because I expected. It's giant, and I expect it to be punctured on anything within seconds.
 
-[00:06:14] Will: Like it’s. It is so. Just to be so, what it is is it's a big nylon bag that's shaped like Baymax when it's inflated. There's a couple of fans on the on the back end that are surprisingly quiet. Actually, I was pleasantly surprised.
+[00:06:14] Will: Like it’s. It is so. Just to be so, what it is is it's a big nylon bag that's shaped like Baymax when it's inflated. There's a couple of fans on the back end that are surprisingly quiet. Actually, I was pleasantly surprised.
 
 [00:06:24] Unknown: It’s
 
@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:06:54] Norm: Because the last thing I want to see is a kid running up to Baymax and realizing there's someone wearing nothing inside.
 
-[00:06:58] Will: So let me let me tell you how it goes.
+[00:06:58] Will: So let me tell you how it goes.
 
 [00:06:58] Unknown: Go ahead.
 
@@ -172,17 +172,17 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:07:21] Norm: Yeah.
 
-[00:07:21] Will: Um. So I I borrowed that from you, and I tried it on at home just to see what the what the wear was like. Yeah. And I had the same situation. I'm standing in the middle of my living room in my underwear inside the Baymax costume.
+[00:07:21] Will: So I I borrowed that from you, and I tried it on at home just to see what the wear was like. Yeah. And I had the same situation. I'm standing in the middle of my living room in my underwear inside the Baymax costume.
 
 [00:07:34] Norm: Wow. And okay, so it's I've seen photos of the Baymax costume. It's not completely transparent. So at what distance do you start to realize there is a person inside this, possibly wearing not many clothes?
 
-[00:07:46] Will: So I think that probably I didn't test this with like a black jumpsuit underneath, but I think that um you can see the shadow of the person. Like if there's a light source behind them, you see the shadow of them through it. Okay. But other than that, you don't see a whole lot.
+[00:07:46] Will: So I think that probably I didn't test this with like a black jumpsuit underneath, but I think that you can see the shadow of the person. Like if there's a light source behind them, you see the shadow of them through it. Okay. But other than that, you don't see a whole lot.
 
-[00:07:59] Adam: The costume could be more opaque. It would be nicer if it was opaque, and it's got a little uh a vinyl window in the chest that the operator can see through, and it's just about at your eye height. So Baymax is like seven and a half feet. Yeah.
+[00:07:59] Adam: The costume could be more opaque. It would be nicer if it was opaque, and it's got a little a vinyl window in the chest that the operator can see through, and it's just about at your eye height. So Baymax is like seven and a half feet. Yeah.
 
-[00:08:11] Will: You're you're way shorter than I am then because that thing. It was like perfect perfect length to see crotches.
+[00:08:11] Will: You're way shorter than I am then because that thing. It was like perfect perfect length to see crotches.
 
-[00:08:17] Adam: Oh, maybe maybe that’s so. I you know what I didn’t I didn’t take a lot of stock of how of where it was. I just knew that I could see through it.
+[00:08:17] Adam: Oh, maybe maybe that’s so. I you know what I didn’t take a lot of stock of how of where it was. I just knew that I could see through it.
 
 [00:08:24] Will: So so I told her I was going to dress up, and then it started pouring rain on Halloween Day. So instead of walking around the neighborhood, which would have been safe and manageable for me in the giant costume,
 
@@ -196,7 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:08:42] Norm: So did you bring it to the mall and then put it on?
 
-[00:08:44] Will: I went, went to the mall with the with the unitard on underneath a pair of like gym shorts. Gym shorts and a t shirt, and then I got inside the costume, took the gym shorts and the t shirt off,
+[00:08:44] Will: I went, went to the mall with the unitard on underneath a pair of like gym shorts. Gym shorts and a t shirt, and then I got inside the costume, took the gym shorts and the t shirt off,
 
 [00:08:54] Norm: and is there
 
@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:09:00] Unknown speaker: Zipper hole.
 
-[00:09:00] Will: So I handed a pair of shorts out, and and then I just started I inflated it, which took just a minute. Yeah,
+[00:09:00] Will: So I handed a pair of shorts out, and then I just started I inflated it, which took just a minute. Yeah,
 
 [00:09:06] Adam: [speaker unclear: Norm / Adam] it’s very fast,
 
@@ -222,19 +222,19 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:09:18] Norm: The air is, it’s circulating nonstop, though.
 
-[00:09:20] Will: The air is circulating, but it's still you're still breathing, and there's not a whole lot of exhaust. So, right, okay. Like it got it got warm, and more than anything, the hardest part of the whole thing is the arms are inflatable, and his shoulders are about three times wider than I am.
+[00:09:20] Will: The air is circulating, but it's still you're still breathing, and there's not a whole lot of exhaust. So, right, okay. Like it got warm, and more than anything, the hardest part of the whole thing is the arms are inflatable, and his shoulders are about three times wider than I am.
 
-[00:09:33] Adam: They're way they're way out of yeah.
+[00:09:33] Adam: They're way out of yeah.
 
-[00:09:34] Will: So in order to move the arms and like hug, people came up like let me say, I. So I’m gonna, I’m gonna go back. We walked into the mall, and getting through the door of the mall was a little bit of a challenge because he's too wide. Yeah, so I had to turn sideways, and and like you have to do the walk right, so you have to kind of shoulder bump through.
+[00:09:34] Will: So in order to move the arms and like hug, people came up like let me say, I. So I’m gonna go back. We walked into the mall, and getting through the door of the mall was a little bit of a challenge because he's too wide. Yeah, so I had to turn sideways, and like you have to do the walk right, so you have to kind of shoulder bump through.
 
 [00:09:52] Adam: Right, right, right.
 
-[00:09:53] Will: And um, you, as soon as I hit the door of the mall, I was just mobbed by people.
+[00:09:53] Will: And you, as soon as I hit the door of the mall, I was just mobbed by people.
 
 [00:10:01] Norm: Wow, they thought you were an attraction.
 
-[00:10:02] Will: I I I mean, people were coming up, and they were saying I smelled like warm warm pancakes, and giving big hugs, and small children were punching him because he's soft.
+[00:10:02] Will: I mean, people were coming up, and they were saying I smelled like warm warm pancakes, and giving big hugs, and small children were punching him because he's soft.
 
 [00:10:12] Unknown speaker: Right.
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:10:14] Will: Yeah, so so
 
-[00:10:15] Adam: you know, in, in January in Sketchfest, Scott Adsit is usually a regular at Sketchfest. [unclear: Yeah / acknowledgment absent in Q/M]. He did the voice of Baymax. You could get him to record you some phrases for next year.
+[00:10:15] Adam: In January in Sketchfest, Scott Adsit is usually a regular at Sketchfest. [unclear: Yeah / acknowledgment absent in Q/M] He did the voice of Baymax. You could get him to record you some phrases for next year.
 
 [00:10:15] Unknown: So good.
 
@@ -258,7 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:10:31] Adam: Sure.
 
-[00:10:31] Will: Um. But but yeah, so walking around like children, it was it was the hardest thing about the whole thing is that people keep coming up and they want hugs and pictures and stuff, and you have to keep moving.
+[00:10:31] Will: But yeah, so walking around like children, it was the hardest thing about the whole thing is that people keep coming up and they want hugs and pictures and stuff, and you have to keep moving.
 
 [00:10:40] Adam: Right. Right.
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:10:58] Adam: People would lose their minds. Yeah.
 
-[00:10:59] Will: The world's tallest. So so a couple of things I learned is that like getting the fit of the costumes hard. Um. The the straps inside that hold it on, but they're too short for me.
+[00:10:59] Will: The world's tallest. So so a couple of things I learned is that like getting the fit of the costumes hard. The straps inside that hold it on, but they're too short for me.
 
 [00:11:08] Adam: Yeah. Okay.
 
@@ -294,9 +294,9 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:11:22] Adam: Just a little blade up through the center and step out. Baymax gave birth to a ginger.
 
-[00:11:31] Will: What, what you do is you wear Frank's creepy Lego guy inside, and you just nightmare hands people.
+[00:11:31] Will: What you do is you wear Frank's creepy Lego guy inside, and you just nightmare hands people.
 
-[00:11:37] Adam: How do how do scar children for life
+[00:11:37] Adam: How do scar children for life
 
 [00:11:40] Norm: or make viral internet videos?
 
@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:12:21] Adam: Like you know, a knife through your cheeks or something horrifying.
 
-[00:12:24] Will: That's that's really mean.
+[00:12:24] Will: That's really mean.
 
 [00:12:25] Norm: Baymax’s soul.
 
@@ -330,11 +330,11 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:12:27] Adam: I have no interest in scarring children. It's just in my nature to think of the darkest thing you could do with any given course, any given task.
 
-[00:12:34] Will: So it was really fun. I like. I totally. You always said walking around as Chewbacca is one of the most fun things that you do, and and I totally like. I appreciate it in a way that I did not before.
+[00:12:34] Will: So it was really fun. I like. I totally. You always said walking around as Chewbacca is one of the most fun things that you do, and I totally like. I appreciate it in a way that I did not before.
 
-[00:12:45] Adam: It's it's really like an antidepressant.
+[00:12:45] Adam: It's really like an antidepressant.
 
-[00:12:47] Will: Well, and it's really it's lovely to just be be in a place where people are are excited about
+[00:12:47] Will: Well, and it's really it's lovely to just be be in a place where people are excited about
 
 [00:12:53] Adam: Yeah.
 
@@ -354,9 +354,9 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:13:37] Adam: Right, yeah.
 
-[00:13:21] Will: and a Spider Man, and some other like people. A lot of people wearing spandex, but like the fact that somebody had a a real enough looking Darth Vader costume that, as an eight year old, I saw it was like, I'm too scared to get my picture taken with Darth Vader, Mom.
+[00:13:21] Will: and a Spider Man, and some other like people. A lot of people wearing spandex, but like the fact that somebody had a real enough looking Darth Vader costume that, as an eight year old, I saw it was like, I'm too scared to get my picture taken with Darth Vader, Mom.
 
-[00:13:52] Adam: I I
+[00:13:52] Adam: I
 
 [00:13:53] Will: like I remember like it. I it all came rushing back as I was standing there.
 
@@ -370,13 +370,13 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:14:14] Adam: Her ex boyfriend had a small small business doing. Appearances as RoboCop, and he had a RoboCop costume in his suitcase. And I like—I tried like hell to find out. I tried to meet him. I tried to get her to introduce us. I wanted to see this, and these still show up from time to time. I don't know who made this thing, but it was like an appearance RoboCop costume.
 
-[00:14:33] Norm: But it was, it was all packaged in a suitcase.
+[00:14:33] Norm: But it was all packaged in a suitcase.
 
 [00:14:36] Adam: Yeah,
 
 [00:14:36] Norm: yeah.
 
-[00:14:36] Will: It's your traveling. I'm a traveling salesman. What do you sell? Oh, you know RoboCop.
+[00:14:36] Will: It's your traveling. I'm a traveling salesman. What do you sell? Oh RoboCop.
 
 [00:14:40] Norm: Adam, you've heard of Joey's story of his his costuming days when he was younger, his Power Ranger story.
 
@@ -384,7 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:14:45] Will: oh, you didn't know this.
 
-[00:14:46] Norm: You know, part of me wants to let him tell you, but I'm going to tell you anyway for the sake of people listening out there. When he was a teenager, he and his buddies, for as their part-time job, would go to birthday parties as the Power Rangers. Now all his buddies were guys, and so they all had to draw straws before every birthday to be who would be the Pink Ranger.
+[00:14:46] Norm: Part of me wants to let him tell you, but I'm going to tell you anyway for the sake of people listening out there. When he was a teenager, he and his buddies, for as their part-time job, would go to birthday parties as the Power Rangers. Now all his buddies were guys, and so they all had to draw straws before every birthday to be who would be the Pink Ranger.
 
 [00:15:06] Adam: It’s always Joey.
 
@@ -422,17 +422,17 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:15:56] Will: Yeah.
 
-[00:15:56] Adam: Um. So Norm gave me a segue earlier. Yeah,
+[00:15:56] Adam: So Norm gave me a segue earlier. Yeah,
 
 [00:15:59] Norm: let’s Inception back up.
 
 [00:16:00] Unknown: Okay.
 
-[00:16:00] Adam: we Inception back up. Norm gave me a segue, and I was slightly distracted. Um. A a. But I have an announcement, which is just went live this morning, announced by the White House. Um. The announcement is a uh. Nation of Makers. It is a nonprofit that we just released a press release today. A nonprofit that hopes to provide a structure by which makerspaces all over the country can communicate with each other and share ideas, material, playbooks, inspiration, and energy.
+[00:16:00] Adam: we Inception back up. Norm gave me a segue, and I was slightly distracted. A. But I have an announcement, which is just went live this morning, announced by the White House. The announcement is a. Nation of Makers. It is a nonprofit that we just released a press release today. A nonprofit that hopes to provide a structure by which makerspaces all over the country can communicate with each other and share ideas, material, playbooks, inspiration, and energy.
 
 [00:16:33] Will: Oh man, that is so cool!
 
-[00:16:34] Adam: Yeah, so members of the board currently include Stephanie Santoso, former head of making for the White House, Harley Dubois, co-founder of Burning Man, Pamela Jennings, professor of innovation and entrepreneurship at Winston Salem, and yours truly. I am one of the first founding board members, and we've released video. We're pushing it through social today. It's really, really exciting. This has been in the works for months because makerspaces are appearing all over the country, but most of them are doing it on their own, and there is no sort of central database or way for them to share information and to find out what works. And also, this is really. You know, there is a lot of maker spaces in high-end neighborhoods and private schools, and really, there is also a lot opening in compromised neighborhoods in marginalized communities that really need this stuff. And this is a way for them to all share their ideas.
+[00:16:34] Adam: Yeah, so members of the board currently include Stephanie Santoso, former head of making for the White House, Harley Dubois, co-founder of Burning Man, Pamela Jennings, professor of innovation and entrepreneurship at Winston Salem, and yours truly. I am one of the first founding board members, and we've released video. We're pushing it through social today. It's really, really exciting. This has been in the works for months because makerspaces are appearing all over the country, but most of them are doing it on their own, and there is no sort of central database or way for them to share information and to find out what works. And also, this is really. There is a lot of maker spaces in high-end neighborhoods and private schools, and really, there is also a lot opening in compromised neighborhoods in marginalized communities that really need this stuff. And this is a way for them to all share their ideas.
 
 [00:17:29] Will: Did I told you about the librarians at Maker Faire? Right?
 
@@ -452,13 +452,13 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:18:07] Norm: You can go scroll down and click it.
 
-[00:18:08] Adam: Yeah, and this is this is the start of something really, really beautiful because. It. I've said this repeatedly, but we on Tested are are absolutely have drunk the Kool Aid. dot org. That's Nation of Makers. dot org. It has never been a better time to be a maker, and we are trying just to keep making it better, to keep keeping those lines of communication open, keep building those communities of people who want to build the weirdest possible costume, let their freak flag fly, make things to improve their homes, their lives, their neighbors, their friends, each other, strangers, field researchers, dinner. I have. I get so excited about this, and it's just getting started today, and the the future is very very bright. I'm. I don't have a wrap up, but I'm very excited.
+[00:18:08] Adam: Yeah, and this is the start of something really, really beautiful because. It. I've said this repeatedly, but we on Tested are absolutely have drunk the Kool Aid. dot org. That's Nation of Makers. dot org. It has never been a better time to be a maker, and we are trying just to keep making it better, to keep keeping those lines of communication open, keep building those communities of people who want to build the weirdest possible costume, let their freak flag fly, make things to improve their homes, their lives, their neighbors, their friends, each other, strangers, field researchers, dinner. I have. I get so excited about this, and it's just getting started today, and the future is very very bright. I'm. I don't have a wrap up, but I'm very excited.
 
 [00:18:59] Will: That's really. I mean, that's awesome. That's it's that's so it's Nation of Makers. dot org.
 
 [00:19:03] Adam: Yeah.
 
-[00:19:03] Will: Um, and there'll be more to come.
+[00:19:03] Will: And there'll be more to come.
 
 [00:19:05] Adam: More to come in the future, and even more projects that I've got in the running in the background that will be announced over the coming months. All with this same goal, which is to equalize opportunities for making for everybody. To build entrepreneurship and empower kids to be able to reach out and change the world.
 
@@ -468,19 +468,19 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:19:35] Will: Oh, that's awesome.
 
-[00:19:35] Adam: You know, there's a wonderful nonprofit I've done a lot of fundraising for here in San Francisco that Traci Des Jardins introduced me to, called La Cocina. La Cocina specifically provides kid, There is a sorry. There's a long tradition in in various immigrant communities of providing food for each other as a small side business. La Cocina provides kitchen space for those side businesses to be turned into actual brick and mortar businesses. So they not only provide kitchen space for a woman to come in and make her tamales, but they also provide her information on how to get business loans, how to get leases, transactional law, actually
+[00:19:35] Adam: There's a wonderful nonprofit I've done a lot of fundraising for here in San Francisco that Traci Des Jardins introduced me to, called La Cocina. La Cocina specifically provides kid, There is a sorry. There's a long tradition in various immigrant communities of providing food for each other as a small side business. La Cocina provides kitchen space for those side businesses to be turned into actual brick and mortar businesses. So they not only provide kitchen space for a woman to come in and make her tamales, but they also provide her information on how to get business loans, how to get leases, transactional law, actually
 
-[00:20:15] Unknown: food code, food code,
+[00:20:15] Unknown: food code,
 
-[00:20:15] Adam: all of that stuff. They've started something like 70 brick and mortar businesses over the last few years. This is exactly the kind of thing we're talking about for nation of makers and for sharing these opportunities. I, I love the Onewheel, and we talked about the Onewheel. You know, I love them; they're friends of mine. But I also love that they're hand built in San Jose. I love Shinola. I love that Shinola's watches are hand assembled and in Detroit Detroit by people from Detroit.
+[00:20:15] Adam: all of that stuff. They've started something like 70 brick and mortar businesses over the last few years. This is exactly the kind of thing we're talking about for nation of makers and for sharing these opportunities. I love the Onewheel, and we talked about the Onewheel. I love them; they're friends of mine. But I also love that they're hand built in San Jose. I love Shinola. I love that Shinola's watches are hand assembled and in Detroit Detroit by people from Detroit.
 
 [00:20:44] Norm: And the point of pride of that community.
 
-[00:20:46] Adam: Absolutely, and this is the kind of thing. There are there are places. There are businesses like this popping up all over the country, and we need to promote more of them and help kids understand that this is something that you can totally do, and this is sustainable. There are ways to make it sustainable, and we can help.
+[00:20:46] Adam: Absolutely, and this is the kind of thing. There are places. There are businesses like this popping up all over the country, and we need to promote more of them and help kids understand that this is something that you can totally do, and this is sustainable. There are ways to make it sustainable, and we can help.
 
-[00:21:01] Will: I mean, those those are those were some of my favorite stories that we found at Tested the Taylor Stitches and the and the um. I mean, even the coffee places, like the all the the people in the in the last 10 years that have taken a business that you know sends people to to Central America and Africa to find coffee. Growers bring them. It's all, yeah. It's it's amazing,
+[00:21:01] Will: I mean, those those are those were some of my favorite stories that we found at Tested the Taylor Stitches and the. I mean, even the coffee places, like the all the people in the last 10 years that have taken a business that you know sends people to Central America and Africa to find coffee. Growers bring them. It's all, yeah. It's amazing,
 
-[00:21:21] Adam: and also to help get the word out about what you're doing, and find sponsors, and find partners, and find people to come and attend and use the spaces. And this isn't like I keep on punching up about the kids, but I mean that's because I specifically believe that you know we really need to focus on the 10 year olds, the 11 year olds, the the grade school kids. That’s why I want to get them as young as possible to come and learn how to make. But maker spaces are great for everybody. Maker spaces, hackerspaces, places like Tech Shop, even you know, absolutely, there are so many businesses and so many ideas and so many inventions being started from these spaces, and we need to just keep increasing it.
+[00:21:21] Adam: and also to help get the word out about what you're doing, and find sponsors, and find partners, and find people to come and attend and use the spaces. And this isn't like I keep on punching up about the kids, but I mean that's because I specifically believe that you know we really need to focus on the 10 year olds, the 11 year olds, the grade school kids. That’s why I want to get them as young as possible to come and learn how to make. But maker spaces are great for everybody. Maker spaces, hackerspaces, places like Tech Shop, even absolutely, there are so many businesses and so many ideas and so many inventions being started from these spaces, and we need to just keep increasing it.
 
 [00:22:01] Norm: And I think it's important to acknowledge that even though the initiative is called Nation of Makers, it's global, right? Like,
 
@@ -490,7 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:22:12] Adam: And I, I, I actually, yeah, I was in Toronto this weekend. Oh, great, I was in Toronto this weekend. We haven't talked about this.
 
-[00:22:19] Norm: That was that was a point.
+[00:22:19] Norm: That was a point.
 
 [00:22:21] Adam: What's that?
 
@@ -518,7 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:23:42] Norm: And yeah, I think I forget their name.
 
-[00:23:46] Adam: So this is this is this is in Thailand, I [speaker unclear: Norm / Adam] believe.
+[00:23:46] Adam: So this is in Thailand, I [speaker unclear: Norm / Adam] believe.
 
 [00:23:50] Norm: Yes,
 
@@ -542,9 +542,9 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:24:32] Will: That's amazing!
 
-[00:24:33] Adam: Like in in the space they put it in, bang, it's gone. They've got several other projects going.
+[00:24:33] Adam: Like in the space they put it in, bang, it's gone. They've got several other projects going.
 
-[00:24:38] Will: I mean, it's that's right up there with the here's here's a dime, you know, mosquito nets that cost a dime,
+[00:24:38] Will: I mean, it's that's right up there with the here's here's a dime mosquito nets that cost a dime,
 
 [00:24:45] Adam: right,
 
@@ -552,9 +552,9 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:24:45] Adam: right.
 
-[00:24:45] Will: Like in terms of something that costs so little and takes so little effort to to change people's lives in a really positive way.
+[00:24:45] Will: Like in terms of something that costs so little and takes so little effort to change people's lives in a really positive way.
 
-[00:24:51] Adam: That's exactly. I get really excited about stuff like that. And Amanda Palmer was there. Neil Gaiman. They did some. They they sang and and did some spoken word. Leonard Cohen. Chris Hadfield, of course. He he talked about the the trip to the Arctic. Gave a beautiful, beautiful talk, and he loved your talk. By the way, he really gave it high praise. It was super inspiring night, and I I ended up hanging out at the end of the night with some wonderful makers from a place called. Steam Labs. Steam Labs. Will you hand me my coat right there? I got to get this right. I am terrible about remembering things. I am absolutely abysmal about it. But this was a makerspace in Toronto, and yes, I got it right. Steam Labs. Here we go. Andy Forrest and his wife and all of the people from Steam Labs. We ended up. This is just the way. This is like I found my people. So we're sharing pictures of sorted drawers and tool cabinets around the table.
+[00:24:51] Adam: That's exactly. I get really excited about stuff like that. And Amanda Palmer was there. Neil Gaiman. They did some. They sang and did some spoken word. Leonard Cohen. Chris Hadfield, of course. He talked about the trip to the Arctic. Gave a beautiful, beautiful talk, and he loved your talk. By the way, he really gave it high praise. It was super inspiring night, and I I ended up hanging out at the end of the night with some wonderful makers from a place called. Steam Labs. Steam Labs. Will you hand me my coat right there? I got to get this right. I am terrible about remembering things. I am absolutely abysmal about it. But this was a makerspace in Toronto, and yes, I got it right. Steam Labs. Here we go. Andy Forrest and his wife and all of the people from Steam Labs. We ended up. This is just the way. This is like I found my people. So we're sharing pictures of sorted drawers and tool cabinets around the table.
 
 [00:25:55] Norm: Sounds about right.
 
@@ -604,17 +604,17 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:27:30] Norm: Yeah.
 
-[00:27:30] Adam: Okay. So I read two. I believe I read the first one and the most recent one. I read I read Killing Floor, which I think is an early Jack Reacher, and then I just read Never Look Back, which is the book the new movie is based upon.
+[00:27:30] Adam: Okay. So I read two. I believe I read the first one and the most recent one. I read Killing Floor, which I think is an early Jack Reacher, and then I just read Never Look Back, which is the book the new movie is based upon.
 
-[00:27:44] Will: I haven't I haven't watched that movie. Are either of those movies good?
+[00:27:44] Will: I haven't watched that movie. Are either of those movies good?
 
 [00:27:46] Norm: I like the first one a lot.
 
 [00:27:46] Unknown: Really?
 
-[00:27:48] Adam: The first one. The first one is very very enjoyable. I'm not going to say it's it's brilliant.
+[00:27:48] Adam: The first one. The first one is very very enjoyable. I'm not going to say it's brilliant.
 
-[00:27:53] Norm: I mean, you know what you're getting into when you're getting into a Tom Cruise, but it's it's clever and it's also written by and directed by Christopher McQuarrie.
+[00:27:53] Norm: I mean, you know what you're getting into when you're getting into a Tom Cruise, but it's clever and it's also written by and directed by Christopher McQuarrie.
 
 [00:27:53] Unknown: [speaker unclear: Adam / Norm] So
 
@@ -622,7 +622,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:28:02] Adam: Let me tell you that there's the fight scenes in the first. I haven't seen the new Jack Reacher movie, but the fight scenes in the first one are among the best fight scenes ever filmed. There, I said it.
 
-[00:28:13] Will: Like up there with, up there with John Wick?
+[00:28:13] Will: Like up there with John Wick?
 
 [00:28:15] Adam: I will show you after this podcast. If you search Tom Cruise fight scene Jack Reacher, you'll get this video, which is Tom Cruise as Jack Reacher fighting five guys and just making mincemeat out of [speaker unclear: Norm / Adam] them.
 
@@ -648,7 +648,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:29:08] Norm: but they're pulpy.
 
-[00:29:10] Adam: They're They're definitely pulpy. They're definitely pulpy, and he writes like Chandler. From what I understand, he doesn't know where the novel's going when he starts it. So as as Reacher figures out the plot, so is Lee Childs, which is an amazing way to write, as far as I'm concerned. But the character of Reacher is very much like Marlowe. He's he's he has a surprisingly wide range of awareness of of understanding of empathy for people. Yet you know he will
+[00:29:10] Adam: They're definitely pulpy. They're definitely pulpy, and he writes like Chandler. From what I understand, he doesn't know where the novel's going when he starts it. So as Reacher figures out the plot, so is Lee Childs, which is an amazing way to write, as far as I'm concerned. But the character of Reacher is very much like Marlowe. He's he has a surprisingly wide range of awareness of understanding of empathy for people. Yet you know he will
 
 [00:29:38] Will: right before he rips their throat out.
 
@@ -676,7 +676,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:30:23] Will: It doesn't. It never does. It's always bad. It's never worth $16.
 
-[00:30:28] Norm: That's a spectrum, right? That's that's you just that's both ends.
+[00:30:28] Norm: That's a spectrum, right? That's you just that's both ends.
 
 [00:30:31] Adam: It is
 
@@ -686,11 +686,11 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:30:43] Will: Yeah,
 
-[00:30:44] Adam: but I want to know if anyone has done a a a study comparing the speeds. In fact, I should do this because I could easily do it comparing the speed of the cheap and the quote unquote fast Wi-Fi in hotels and compare the speed difference.
+[00:30:44] Adam: but I want to know if anyone has done a study comparing the speeds. In fact, I should do this because I could easily do it comparing the speed of the cheap and the quote unquote fast Wi-Fi in hotels and compare the speed difference.
 
 [00:31:02] Norm: So it’s more like guaranteed speeds.
 
-[00:31:03] Will: I have I have spent a lot of time in hotels in the last year, and I have spent a lot of time working in hotels with last year, which when I am transferring gigabyte files
+[00:31:03] Will: I have spent a lot of time in hotels in the last year, and I have spent a lot of time working in hotels with last year, which when I am transferring gigabyte files
 
 [00:31:11] Adam: yeah
 
@@ -704,7 +704,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:31:33] Norm: Not worth the hot cookie.
 
-[00:31:35] Will: It's it is literally. Not worth it. It is definitely not worth the fuck the hot cookie, man. It is it is slower than my phone in every single place that I've used it.
+[00:31:35] Will: It's it is literally. Not worth it. It is definitely not worth the fuck the hot cookie, man. It is slower than my phone in every single place that I've used it.
 
 [00:31:46] Adam: Wow.
 
@@ -718,7 +718,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:32:00] Norm: Because it's tied to your hotel room number.
 
-[00:32:02] Will: Because it's tied to your room number and your and your your gold passport or whatever their thing is.
+[00:32:02] Will: Because it's tied to your room number and your gold passport or whatever their thing is.
 
 [00:32:05] Norm: Sure.
 
@@ -734,7 +734,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:32:24] Norm: [unclear: To slow those Snapchats / It’s a slow those Snapchats / It’s a slow-dose Snapchat],
 
-[00:32:26] Will: but but yeah, so the main thing that you usually get is a is an external IP address. So if you have to do like a VPN into your corporate network or something, then you can. It's rarely about speed. I stay in the little boutiques in New York now because they always have good internet.
+[00:32:26] Will: but yeah, so the main thing that you usually get is a is an external IP address. So if you have to do like a VPN into your corporate network or something, then you can. It's rarely about speed. I stay in the little boutiques in New York now because they always have good internet.
 
 [00:32:38] Adam: Ah, okay,
 
@@ -746,7 +746,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:32:43] Norm: yeah,
 
-[00:32:43] Will: I don't know. Best Westerns nice. Um, only in Europe and Canada. You know about that, right?
+[00:32:43] Will: I don't know. Best Westerns nice. Only in Europe and Canada. You know about that, right?
 
 [00:32:49] Adam: No,
 
@@ -760,13 +760,13 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:32:57] Norm: They're accessories to IHOPs
 
-[00:32:57] Adam: in Crows Landing in the in the in the Central Valley. That's a fantastic Best Western. San Luis Obispo. There's a Best Western that is the Best Western. It's right on the Pacific.
+[00:32:57] Adam: in Crows Landing in the Central Valley. That's a fantastic Best Western. San Luis Obispo. There's a Best Western that is the Best Western. It's right on the Pacific.
 
 [00:33:08] Will: They almost always let you bring dogs.
 
 [00:33:09] Adam: [unclear: Adam: “Yeah, absolutely. It’s one of the reasons I’ve stayed at several” / Adam: “Yeah, absolutely”—Will: “It’s one”—Adam: “of the reasons I’ve stayed at several”].
 
-[00:33:12] Will: The one in Whistler has the best wine cellar I have. Ever seen in my life in the in the restaurant. So you know.
+[00:33:12] Will: The one in Whistler has the best wine cellar I have. Ever seen in my life in the restaurant. So you know.
 
 [00:33:19] Norm: Oh, I'm staying at Hilton this weekend.
 
@@ -794,33 +794,33 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:33:35] Norm: She's so small.
 
-[00:33:36] Adam: Um, can we talk about the Durannies?
+[00:33:36] Adam: Can we talk about the Durannies?
 
 [00:33:38] Will: What are the Durannies?
 
 [00:33:40] Norm: Oh yes. So we're going to end the podcast with a challenge.
 
-[00:33:43] Adam: This this this was now. I'm sorry. This is just for people watching on on YouTube.
+[00:33:43] Adam: This was now. I'm sorry. This is just for people watching on YouTube.
 
 [00:33:47] Norm: So if you're listening, go go [speaker unclear: Will / Norm] watch it.
 
 [00:33:48] Will: Shut it off or chop it off.
 
-[00:33:50] Adam: Yeah. So um, these two items they're made of leather with suede padded humps on them. Um, they are bilaterally symmetrical. They are mirror images of each other. Uh, and these were hanging on my dental lamp, and and Will said, " What are those?" And I said, " I have no idea." And he said, " Why do you have them?" And I said, " Because I have no idea what they are." This is it. I I love objects that were clearly built, clearly used. But I can't figure out what they were for. Now, yes, you could make a joke that they look like weird saggy boobs,
+[00:33:50] Adam: Yeah. So these two items they're made of leather with suede padded humps on them. They are bilaterally symmetrical. They are mirror images of each other. And these were hanging on my dental lamp, and Will said, " What are those?" And I said, " I have no idea." And he said, " Why do you have them?" And I said, " Because I have no idea what they are." This is it. I love objects that were clearly built, clearly used. But I can't figure out what they were for. Now, yes, you could make a joke that they look like weird saggy boobs,
 
 [00:34:23] Will: I think they look like the granny. It’s a for granny.
 
 [00:34:25] Adam: Stop it! Stop it right now! [speaker unclear: Will / Adam] Stop it! They they're probably some sort of protection, protective padding. But I don't know where on your body they would strap to. So
 
-[00:34:37] Norm: it's not when you're horseback riding. It's what gives you the the pop up of your legs, your pants.
+[00:34:37] Norm: it's not when you're horseback riding. It's what gives you the pop up of your legs, your pants.
 
 [00:34:40] Adam: So so so Norm will take some pictures. We'll also put up a little post about these and find out what they [speaker unclear: Will / Adam] are.
 
-[00:34:44] Will: Like the the just so everybody knows the leather. If you ride horses, feel like the knee roll leather on a on like an English saddle,
+[00:34:44] Will: Like the just so everybody knows the leather. If you ride horses, feel like the knee roll leather on a on like an English saddle,
 
 [00:34:50] Adam: maybe.
 
-[00:34:50] Will: Um, but I I don't know.
+[00:34:50] Will: But I I don't know.
 
 [00:34:52] Norm: It's not what [unclear: helps poops off / help poops up / helps poops up] the side of your pants.
 
@@ -828,7 +828,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:34:54] Will: I. You gotta get a pair of high boots and tuck them in real good.
 
-[00:34:59] Adam: So so I let me just say that when people guess what these are, please, none of the none of the jokes.
+[00:34:59] Adam: So so I let me just say that when people guess what these are, please, none of the jokes.
 
 [00:35:06] Will: I've already made all of them.
 
@@ -842,23 +842,23 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:35:11] Adam: I don't. You know, I've already made them all. And so have we here. Right. So,
 
-[00:35:17] Will: [speaker unclear: Will / Adam] I mean, unless that's what they actually are, in which case, feel free if you have, if you have sources, we'll take citations.
+[00:35:17] Will: [speaker unclear: Will / Adam] I mean, unless that's what they actually are, in which case, feel free if you have sources, we'll take citations.
 
 [00:35:17] Unknown speaker: Please.
 
 [00:35:23] Adam: Ye olde leather boob joke. Right.
 
-[00:35:26] Will: Okay. I think this is as good a place as any to wrap this one up. My Kickstarter is live right now. You can go to foovr dot com slash Kickstarter. It'll take you there. We would love your support there. There are options ranging from like $1 if you want to get a dope paper. So we made we made a Pepakura version of my avatar.
+[00:35:26] Will: Okay. I think this is as good a place as any to wrap this one up. My Kickstarter is live right now. You can go to foovr dot com slash Kickstarter. It'll take you there. We would love your support there. There are options ranging from like $1 if you want to get a dope paper. So we made a Pepakura version of my avatar.
 
 [00:35:42] Adam: Oh, nice.
 
-[00:35:42] Will: So it's um you can print it out at home if you pay us $1. We'll send you the file.
+[00:35:42] Will: So it's you can print it out at home if you pay us $1. We'll send you the file.
 
 [00:35:47] Adam: Oh My God, I love little kids can dress up as Will's avatar. for Halloween.
 
 [00:35:50] Will: Yeah, you could blow it up if you want to get crazy.
 
-[00:35:52] Norm: Wow. You know, I have one of those already. as well. So I’m okay.
+[00:35:52] Norm: Wow. I have one of those already. as well. So I’m okay.
 
 [00:35:56] Will: Is it just sitting in your bedroom looking at you?
 
@@ -868,11 +868,11 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:35:59] Adam: Good morning, Norm.
 
-[00:35:59] Will: The um the fun thing is, uh, James Hanneman was helping me do the Pepakura on that.
+[00:35:59] Will: The fun thing is James Hanneman was helping me do the Pepakura on that.
 
 [00:36:05] Norm: Yeah.
 
-[00:36:05] Will: And he said, you know, you can just cut these out with your laser cutter, right?
+[00:36:05] Will: And he said you can just cut these out with your laser cutter, right?
 
 [00:36:09] Norm: Yeah.
 
@@ -886,7 +886,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:36:22] Will: Yeah.
 
-[00:36:22] Norm: And and just have scoring lines, cut lines,
+[00:36:22] Norm: And just have scoring lines, cut lines,
 
 [00:36:25] Adam: Do it out of bright paper,
 
@@ -934,7 +934,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:37:02] Will: Are we still working on it?
 
-[00:37:03] Norm: Let’s uh, let’s.
+[00:37:03] Norm: Let’s let’s.
 
 [00:37:05] Adam: Oh, Dark. Have you finished it?
 
@@ -942,7 +942,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:37:05] Adam: I finished Dark Forest.
 
-[00:37:06] Norm: Let's say. Uh, the Tuesday after Thanksgiving.
+[00:37:06] Norm: Let's say. The Tuesday after Thanksgiving.
 
 [00:37:10] Adam: Tuesday after Thanksgiving, we'll talk about Dark Forest, and then now it's then it's time to start reading the third one.
 

@@ -18,7 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:00:14] Adam: That did.
 
-[00:00:14] Will: Good morning. So this morning we're recording early morning, which is kind of a—it's a new thing for us, but it's a little unusual given the the run of the series. And this morning, on the way into your shop, I was cursing at Past Me.
+[00:00:14] Will: Good morning. So this morning we're recording early morning, which is kind of a—it's a new thing for us, but it's a little unusual given the run of the series. And this morning, on the way into your shop, I was cursing at Past Me.
 
 [00:00:29] Adam: At what did Past you do?
 
@@ -64,7 +64,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:01:19] Norm: Wide expanses.
 
-[00:01:19] Adam: They give you they— give you at least I'd say probably a gallon and a half of gas, which means if you're in one of those Escalades, you've got like six minutes
+[00:01:19] Adam: They give you at least I'd say probably a gallon and a half of gas, which means if you're in one of those Escalades, you've got like six minutes
 
 [00:01:23] Will: Six miles. Yeah.
 
@@ -82,7 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:02:00] Will: It's really bad with a fuel injected. Car to let your car run out of gas. Just to be clear.
 
-[00:02:03] Adam: Yeah, no, I know. I did that. In my my friend lent me a Jaguar mid '80s XJ6, which is—
+[00:02:03] Adam: Yeah, no, I know. I did that. In my friend lent me a Jaguar mid '80s XJ6, which is—
 
 [00:02:03] Will: Oh, that’s a gorgeous car.
 
@@ -96,7 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:02:19] Adam: Well, it's a touring car, right? So, oh yeah, you sit there and it's like, bump, bump, bump. You mean you just feel so cushioned? It's meant to do that. It's what it's built for.
 
-[00:02:28] Will: It's the kind of car that you get in and you think, you know, I'm going to go on on 1 instead of on the freeway. Like I'm going to go on the windy coastal road.
+[00:02:28] Will: It's the kind of car that you get in and you think I'm going to go on 1 instead of on the freeway. Like I'm going to go on the windy coastal road.
 
 [00:02:37] Adam: Yeah.
 
@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:02:54] Will: You might have an encounter.
 
-[00:02:55] Adam: You know, not an encounter, but you just pull up a little farther to get a better look. Okay. And see, in the Jaguar, I found that happened to me.
+[00:02:55] Adam: Not an encounter, but you just pull up a little farther to get a better look. Okay. And see, in the Jaguar, I found that happened to me.
 
 [00:03:02] Will: Really, interesting.
 
@@ -126,11 +126,11 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:03:36] Norm: I've never had a car run out of gas.
 
-[00:03:37] Adam: It sputters, it sputters, and then it just stops running. And the the problem is, in a lot of cars, the fuel pump is cooled by the gas that it's pumping.
+[00:03:37] Adam: It sputters, and then it just stops running. And the problem is, in a lot of cars, the fuel pump is cooled by the gas that it's pumping.
 
 [00:03:37] Will: Yeah. so you like burn up seals or something,
 
-[00:03:49] Adam: right? Burn up, it just it just fries itself, yeah, very quickly too. By the way—
+[00:03:49] Adam: right? Burn up, it just fries itself, yeah, very quickly too. By the way—
 
 [00:03:53] Will: yeah,
 
@@ -138,9 +138,9 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:03:59] Adam: I don't like to do it. I don't like to do it, but it's one of those. It's one of those things that I've. I get very selfish about giving up the time to go to the gas station.
 
-[00:04:08] Norm: It is a big detour. It it breaks your cadence.
+[00:04:08] Norm: It is a big detour. It breaks your cadence.
 
-[00:04:11] Will: Honestly, it's the one thing I'm. It's the it's one of the things that I think about when I think, you know, I should buy an electric car, like a pure electric, because then I just plug it in every night and I never have to go to the gas station again.
+[00:04:11] Will: Honestly, it's the one thing I'm. It's the it's one of the things that I think about when I think I should buy an electric car, like a pure electric, because then I just plug it in every night and I never have to go to the gas station again.
 
 [00:04:21] Adam: I feel like it is one of my worst selfish qualities that I dislike pumping gas so much.
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:04:56] Norm: Are you interested at all in electric cars?
 
-[00:04:58] Adam: Um, I am, and
+[00:04:58] Adam: I am, and
 
 [00:05:00] Will: you seem like a candidate.
 
@@ -176,21 +176,21 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:05:05] Will: It’s on my list.
 
-[00:05:05] Adam: Yeah. I am still so madly in love with the throaty roar of my of my Abarth that—
+[00:05:05] Adam: Yeah. I am still so madly in love with the throaty roar of my Abarth that—
 
-[00:05:13] Norm: You know with the Teslas, you can they give you a CD or you can download one that we can switch between the sounds of all the different cars you want. You can drive a Veyron.
+[00:05:13] Norm: With the Teslas, you can they give you a CD or you can download one that we can switch between the sounds of all the different cars you want. You can drive a Veyron.
 
 [00:05:13] Will: Yeah. Does it go out or is it just inside? I want speakers under the hood.
 
-[00:05:26] Adam: When I when I saw the Teslas, looking at the is it 2015 release or 2016
+[00:05:26] Adam: When I saw the Teslas, looking at the is it 2015 release or 2016
 
 [00:05:30] Will: of the SUV
 
-[00:05:31] Adam: of the of the $30,000 sedan.
+[00:05:31] Adam: of the $30,000 sedan.
 
 [00:05:33] Norm: So they announced they just announced a new one called the Model 3, and it is there's no pictures of it yet, but it's called it's a $35,000 sedan.
 
-[00:05:41] Will: Does it have the the 300 mile range?
+[00:05:41] Will: Does it have the 300 mile range?
 
 [00:05:43] Norm: They have not said. They just said the price.
 
@@ -198,11 +198,11 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:05:44] Will: Yeah.
 
-[00:05:44] Adam: I want one. I just full stop. I want one. Those guys are developing the best technology. They're really they're shaking up the whole car industry in a way that the free marketeers. Who are trying to keep them out of their states actually pretend to like, which is they're building a better technology and they're they're shaking up an entire industry.
+[00:05:44] Adam: I want one. I just full stop. I want one. Those guys are developing the best technology. They're really they're shaking up the whole car industry in a way that the free marketeers. Who are trying to keep them out of their states actually pretend to like, which is they're building a better technology and they're shaking up an entire industry.
 
-[00:06:14] Norm: And what they want they want to do is really build infrastructure. So by by 2016, I mean the battery problem. It's not just the technology is limited by capacity and and how heavy these, but also the rare earth minerals that they're they're mining to make these batteries. That's not sustainable.
+[00:06:14] Norm: And what they want to do is really build infrastructure. So by by 2016, I mean the battery problem. It's not just the technology is limited by capacity and how heavy these, but also the rare earth minerals that they're mining to make these batteries. That's not sustainable.
 
-[00:06:29] Will: Well, they're not that rare. They're just they're just dirty and difficult.
+[00:06:29] Will: Well, they're not that rare. They're just dirty and difficult.
 
 [00:06:29] Norm: Yes.
 
@@ -218,11 +218,11 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:06:47] Adam: Yeah.
 
-[00:06:47] Will: Because my car doesn't ever get driven on road trips. It's just for driving around the city and going to the grocery store and going to work. So anyway, um.
+[00:06:47] Will: Because my car doesn't ever get driven on road trips. It's just for driving around the city and going to the grocery store and going to work. So anyway.
 
 [00:07:06] Adam: No segue.
 
-[00:07:06] Will: Work it, work it. Speaking.
+[00:07:06] Will: Work it. Speaking.
 
 [00:07:09] Norm: No. No. No. No.
 
@@ -256,9 +256,9 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:08:05] Will: Well, that explains a lot. We've seen the way you drive.
 
-[00:08:08] Adam: So this Volvo was a fabulous fuel injected five four speed with a fifth speed overdrive. I learned all I've written extensively about it, but I've learned all my all my basic car repairs on that car. It was a great car to learn. I frankly want to buy one for my kids to learn in, so that they don't have to wreck the gears in my Fiat.
+[00:08:08] Adam: So this Volvo was a fabulous fuel injected five four speed with a fifth speed overdrive. I learned all I've written extensively about it, but I've learned all my basic car repairs on that car. It was a great car to learn. I frankly want to buy one for my kids to learn in, so that they don't have to wreck the gears in my Fiat.
 
-[00:08:28] Will: Well, so my father and I, my father and I went out and bought a CJ three, like the '50s era one from the Korean War.
+[00:08:28] Will: Well, so my father and I went out and bought a CJ three, like the '50s era one from the Korean War.
 
 [00:08:28] Adam: What’s a CJ?
 
@@ -270,11 +270,11 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:08:50] Adam: Oh, yeah.
 
-[00:08:50] Will: So, um, and didn't like we had to put seatbelts in and the whole thing. So then I went out and and he was like, " Well, okay, so here's here's the money we made from fixing this and selling this, " and I went and bought like a like a pickup truck,
+[00:08:50] Will: So and didn't like we had to put seatbelts in and the whole thing. So then I went out and he was like, " Well, okay, so here's here's the money we made from fixing this and selling this, " and I went and bought like a pickup truck,
 
 [00:08:50] Adam: Nice.
 
-[00:08:50] Will: A Ford you know Ranger pickup truck. Uh, manual transmission, and it was a wonderful car. It was an amazing car to learn how to drive in because it was—
+[00:08:50] Will: A Ford you know Ranger pickup truck. Manual transmission, and it was a wonderful car. It was an amazing car to learn how to drive in because it was—
 
 [00:09:11] Norm: practical, also.
 
@@ -284,7 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:09:18] Will: Yeah.
 
-[00:09:18] Adam: my dad's pickup truck. There's a there's a one of the one of the highways around Manhattan. You're not allowed to drive trucks on. And my dad was driving into Manhattan, and he forgot, and so he's driving his little Toyota.
+[00:09:18] Adam: my dad's pickup truck. There's a one of the highways around Manhattan. You're not allowed to drive trucks on. And my dad was driving into Manhattan, and he forgot, and so he's driving his little Toyota.
 
 [00:09:32] Will: Like they don't let you drive pickup trucks on.
 
@@ -304,21 +304,21 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:09:53] Will: Um.
 
-[00:09:55] Adam: Uh. So let's talk about terrible jobs.
+[00:09:55] Adam: So let's talk about terrible jobs.
 
 [00:09:57] Will: Yeah, I was going to see if I could transition from getting the first pickup truck to yeah, but
 
 [00:10:01] Norm: first car, make the money. No.
 
-[00:10:03] Will: So. Okay, I'm pretty sure I know all of Norm's employment history. But but I bet that you have some interesting terrible jobs. Deep in your past.
+[00:10:03] Will: So. Okay, I'm pretty sure I know all of Norm's employment history. But I bet that you have some interesting terrible jobs. Deep in your past.
 
-[00:10:11] Adam: Well, I just I thought that yeah, I thought that's a great you know we get a lot of wonderful conversational response in the comments on our podcasts when we when we talk about interesting inventories, and you know I think we should talk about first apartments and stuff like that. Yeah,
+[00:10:11] Adam: Well, I just I thought that yeah, I thought that's a great you know we get a lot of wonderful conversational response in the comments on our podcasts when we talk about interesting inventories, and you know I think we should talk about first apartments and stuff like that. Yeah,
 
 [00:10:28] Will: I bet yours is better than mine.
 
 [00:10:30] Adam: But truly terrible jobs is is I mean we've we've all had to suffer some difficult employment.
 
-[00:10:37] Will: Okay, I'm gonna I'm gonna ask to ask a questionnaire.
+[00:10:37] Will: Okay, I'm gonna ask to ask a questionnaire.
 
 [00:10:37] Adam: Yeah.
 
@@ -326,7 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:10:42] Adam: I never worked fast food. I did work. I feel like a sort of equivalent. I worked in a survey call center.
 
-[00:10:51] Will: Oh, oh, that's much worse. That is like like a hold on like a legit call center or like a oh yeah like a customer service call center.
+[00:10:51] Will: Oh, oh, that's much worse. That is like a hold on like a legit call center or a oh yeah like a customer service call center.
 
 [00:10:59] Adam: No no no no. This was a call center where we did surveys literally. So people would hire us to like call some town in Connecticut and do. Really, impossibly large numbers of questions, like 70 questions.
 
@@ -334,9 +334,9 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:10:59] Adam: On the two people running for office in that city,
 
-[00:11:17] Will: Did people did people actually get through 70 questions before telling you to pound sand?
+[00:11:17] Will: Did people actually get through 70 questions before telling you to pound sand?
 
-[00:11:19] Adam: You didn't, you know. Nowadays, I am sure they screw you every way, but Sunday, but back then, you you didn't actually get credit for the survey. It's not like you took a pay hit, but you didn't get credit for the survey unless someone answered all the questions, which really means that the only people that were willing to sit, you'd say, just take a few minutes of your time, knowing that it's like 25 minutes to get through all these bloody questions, and so lonely old people. That's who you get.
+[00:11:19] Adam: You didn't, you know. Nowadays, I am sure they screw you every way, but Sunday, but back then, you didn't actually get credit for the survey. It's not like you took a pay hit, but you didn't get credit for the survey unless someone answered all the questions, which really means that the only people that were willing to sit, you'd say, just take a few minutes of your time, knowing that it's like 25 minutes to get through all these bloody questions, and so lonely old people. That's who you get.
 
 [00:11:19] Norm: Oh, yeah.
 
@@ -352,7 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:12:01] Will: No, no, it's okay. I turned the volume down on you. You've been punished now.
 
-[00:12:04] Adam: But you know, I joked. So, I did work in the food service industry. I worked as a busboy at a little restaurant in Tarrytown, New York, called Horsefeathers, which is still there.
+[00:12:04] Adam: But I joked. So, I did work in the food service industry. I worked as a busboy at a little restaurant in Tarrytown, New York, called Horsefeathers, which is still there.
 
 [00:12:14] Will: Oh. That’s interesting.
 
@@ -364,11 +364,11 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:12:36] Will: Yeah.
 
-[00:12:36] Adam: Oh, you, um, you, you, uh, you, uh, a friend of mine’s sister referred to the menu as ski lodge food.
+[00:12:36] Adam: Oh, you a friend of mine’s sister referred to the menu as ski lodge food.
 
 [00:12:44] Will: So I worked at a place called Bullfinches that is exactly the same.
 
-[00:12:48] Adam: And I, you know, I want my kids to work in the food service industry as an early job. It is a, it is a fantastic experience of what it's like to deal with customers, to deal with people, to deal with your own low place in the hierarchy, which we all should experience, because you go out the rest of your life and you be a good tipper because you know what that person's going through.
+[00:12:48] Adam: And I I want my kids to work in the food service industry as an early job. It is a fantastic experience of what it's like to deal with customers, to deal with people, to deal with your own low place in the hierarchy, which we all should experience, because you go out the rest of your life and you be a good tipper because you know what that person's going through.
 
 [00:13:11] Will: Well, it's yeah, so. So my dad had a friend who ran Bullfinches, and he wanted me to get work before I was probably legally allowed to work. I was probably 16 years old, yeah. And he called his friend, was like, " Hey, my kid will come in and do lunches for just tips."
 
@@ -376,7 +376,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:13:27] Adam: What a jerk.
 
-[00:13:29] Will: Which, if you're a restaurant guy, that's that's a instant win.
+[00:13:29] Will: Which, if you're a restaurant guy, that's a instant win.
 
 [00:13:33] Adam: That's yeah. That's there's no no to that. You can't say no.
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:13:50] Will: No, it was awful job.
 
-[00:13:51] Adam: Okay. See, I thought mine was mine was terrible. Not terrible. It was physically taxing. The owners were nutty, Russ and Suzanne.
+[00:13:51] Adam: Okay. See, I thought mine was terrible. Not terrible. It was physically taxing. The owners were nutty, Russ and Suzanne.
 
 [00:13:51] Will: That’s good.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:14:40] Will: Got it.
 
-[00:14:40] Adam: You know, by Down by Law, right? These giant posters of that kind.
+[00:14:40] Adam: By Down by Law, right? These giant posters of that kind.
 
 [00:14:40] Will: Yes. Yes. Yes.
 
@@ -426,7 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:15:30] Norm: how old were you?
 
-[00:15:31] Adam: I was I was 18.
+[00:15:31] Adam: I was 18.
 
 [00:15:33] Will: I am.
 
@@ -434,13 +434,13 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:15:36] Adam: Yeah, I pulled the rip cord. I didn’t ever want to talk to these people again.
 
-[00:15:39] Will: That's a good. That's a good. I mean, you know—
+[00:15:39] Will: That's a good. That's a good. I mean—
 
 [00:15:41] Norm: Best diet coke I ever had.
 
 [00:15:43] Adam: Yeah, totally.
 
-[00:15:45] Will: Um, I worked one time. I was in a mall in college, and I was walking around like maybe two weeks before Thanksgiving. And this cute girl behind the counter was like, " Hey, you should you should come work here." Should I tell what the store was? It's a it's a nationwide chain store.
+[00:15:45] Will: I worked one time. I was in a mall in college, and I was walking around like maybe two weeks before Thanksgiving. And this cute girl behind the counter was like, " Hey, you should you should come work here." Should I tell what the store was? It's a nationwide chain store.
 
 [00:15:45] Adam: Go.
 
@@ -456,11 +456,11 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:16:11] Adam: That was clear by the name of the store.
 
-[00:16:13] Will: Yeah, so. Um, I went in there. I did the application. They hired me for part time. I went went in for maybe 45 minutes, an hour.
+[00:16:13] Will: Yeah, so. I went in there. I did the application. They hired me for part time. I went went in for maybe 45 minutes, an hour.
 
 [00:16:13] Adam: Oh.
 
-[00:16:13] Will: And I like I did the orientation thing. I was like, man, this is a lot about folding. And then I got there, and people were really awful. But they weren't like I hate everything awful. They were the other side. So they were the they no no they were true believers. They were true believers in the mission of the the made in Honduras clothing. No, this was this was before.
+[00:16:13] Will: And I like I did the orientation thing. I was like, man, this is a lot about folding. And then I got there, and people were really awful. But they weren't like I hate everything awful. They were the other side. So they were the they no no they were true believers. They were true believers in the mission of the made in Honduras clothing. No, this was before.
 
 [00:16:46] Adam: Oh, before—
 
@@ -470,15 +470,15 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:16:47] Will: This was when it was just like plaid shirts.
 
-[00:16:50] Adam: Oh, okay. So this is before the porn the porn catalog.
+[00:16:50] Adam: Oh, okay. So this is before the porn catalog.
 
-[00:16:52] Will: Yeah, yeah, yeah. This was when you could just get like cargo shorts and plaid shirts. There was like grunge attire for the mall crowd. Copy. Um, yeah. So I I punched out of that. I didn't walk out without. I've only I've only quit one job in a in a rage.
+[00:16:52] Will: Yeah, yeah, yeah. This was when you could just get like cargo shorts and plaid shirts. There was like grunge attire for the mall crowd. Copy. Um, yeah. So I I punched out of that. I didn't walk out without. I've only quit one job in a rage.
 
 [00:17:06] Norm: You should put that on your LinkedIn.
 
 [00:17:06] Will: No, I’m not. Copy ever copy— retail specialist.
 
-[00:17:12] Adam: Um. I I also worked for a short time. I say that Jamie gave me my first job in special effects. It's not entirely true. I actually worked for a short time at a place in New York called Peter Wallach Enterprises, and Peter Wallach is a fantastic special effects guy who did some very important work in the '80s. He's Eli Wallach's son, first of all, and he did a really terrific short film in the early '80s called " Raygun's Nightmare" about Reagan, and it involved just like Mechagodzilla with television eyes. It was really beautiful. He also is probably most well known for the Sledgehammer video, Peter Gabriel's Sledgehammer video, done in claymation,
+[00:17:12] Adam: I also worked for a short time. I say that Jamie gave me my first job in special effects. It's not entirely true. I actually worked for a short time at a place in New York called Peter Wallach Enterprises, and Peter Wallach is a fantastic special effects guy who did some very important work in the '80s. He's Eli Wallach's son, first of all, and he did a really terrific short film in the early '80s called " Raygun's Nightmare" about Reagan, and it involved just like Mechagodzilla with television eyes. It was really beautiful. He also is probably most well known for the Sledgehammer video, Peter Gabriel's Sledgehammer video, done in claymation,
 
 [00:17:12] Will: Yeah.
 
@@ -486,19 +486,19 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:18:01] Will: Hmm.
 
-[00:18:01] Adam: Um, and it was a flat fee, $50 a day, which even in 1986 was a shitty, shitty, shitty salary, especially when they wanted you to show up at 7 a.m. and work until they said you were dead.
+[00:18:01] Adam: And it was a flat fee, $50 a day, which even in 1986 was a shitty, shitty, shitty salary, especially when they wanted you to show up at 7 a.m. and work until they said you were dead.
 
 [00:18:15] Will: Yeah, I am sure that was not a punch out at 4:30 job.
 
 [00:18:19] Adam: Oh, and so at one point, my parents were in town, and I was going to go have dinner with them. And so it was like 6:15, and I am like, I am going to go have dinner with my parents. And Frank, the my manager, was like, " Ah, okay, I guess you can go, but in the future, I'd hate to have to tell you you couldn't leave."
 
-[00:18:35] Will: Was this the kind of thing where they're like, like this was the entry level
+[00:18:35] Will: Was this the kind of thing where they're like this was the entry level
 
 [00:18:35] Adam: Yeah.
 
-[00:18:35] Will: Into the the mechanism of the of the? Because I can kind of like I’ve I’ve been in jobs like that before, where you’re like you you you pay your time, and then they bump you up to the good job, true better job,
+[00:18:35] Will: Into the mechanism of the? Because I can kind of like I’ve I’ve been in jobs like that before, where you’re like you pay your time, and then they bump you up to the good job, true better job,
 
-[00:18:50] Adam: frankly. And if I knew more about what I wanted to do, I might have stuck it out. But to me, the the the oh the
+[00:18:50] Adam: frankly. And if I knew more about what I wanted to do, I might have stuck it out. But to me, the oh the
 
 [00:18:58] Norm: the attitude the
 
@@ -508,11 +508,11 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:19:26] Adam: The best bad job,
 
-[00:19:28] Will: Like like as an example,
+[00:19:28] Will: Like as an example,
 
 [00:19:28] Adam: Yeah.
 
-[00:19:28] Will: When I was fresh out of college, or actually, sorry, when I was going to college, I knew how I had done all the IT work for my parents' small business in high school and and you know first year of college, and I realized that it was at the dawn of the internet age, and everybody wanted to get their stuff on the internet. Everybody wanted to network their computers at their offices. So I was in a relatively small town, and I realized that for $40 an hour, I could go in and network people plus plus equipment costs and all that stuff.
+[00:19:28] Will: When I was fresh out of college, or actually, sorry, when I was going to college, I knew how I had done all the IT work for my parents' small business in high school and you know first year of college, and I realized that it was at the dawn of the internet age, and everybody wanted to get their stuff on the internet. Everybody wanted to network their computers at their offices. So I was in a relatively small town, and I realized that for $40 an hour, I could go in and network people plus plus equipment costs and all that stuff.
 
 [00:19:28] Adam: Yeah.
 
@@ -532,7 +532,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:20:13] Adam: An order of magnitude cheaper.
 
-[00:20:13] Will: Order of magnitude cheaper. I I worked like three nights a week usually, just installing networks, doing maintenance, upgrading servers, installing Windows 95 stuff like that.
+[00:20:13] Will: Order of magnitude cheaper. I worked like three nights a week usually, just installing networks, doing maintenance, upgrading servers, installing Windows 95 stuff like that.
 
 [00:20:13] Adam: Wow.
 
@@ -540,13 +540,13 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:20:13] Adam: Trying to keep—
 
-[00:20:13] Will: And then trying to get stay stay in school was really hard on me over the over the period of time.
+[00:20:13] Will: And then trying to get stay stay in school was really hard on me over the period of time.
 
 [00:20:46] Adam: When I was a junior and a senior in high school, I worked as a page at the local library, Warner Library in Tarrytown.
 
 [00:20:54] Will: That sounds like an awesome job.
 
-[00:20:56] Adam: It was pretty cool. It was pretty cool, except you. There was the the my manager was this very scary German lady named Miss Sabashkov, and she brooked no jocularity. So she ran a tight ship. But I learned all about you know I learned about library science and books, and you know I had lots of access to awesome things like albums and movies and stuff like that. So it was menial, but you know, there's something really meditative I remember about taking the basket around and shelving the books and putting them back in line and being precise about it.
+[00:20:56] Adam: It was pretty cool. It was pretty cool, except you. There was the my manager was this very scary German lady named Miss Sabashkov, and she brooked no jocularity. So she ran a tight ship. But I learned all about you know I learned about library science and books, and you know I had lots of access to awesome things like albums and movies and stuff like that. So it was menial, but there's something really meditative I remember about taking the basket around and shelving the books and putting them back in line and being precise about it.
 
 [00:21:31] Norm: It’s a good prison job.
 
@@ -560,13 +560,13 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:21:40] Adam: Of Red from Shawshank, right?
 
-[00:21:42] Will: I'm thinking Red from Shawshank. Everything I know about Orange is the New Black, right? You know, it's all it's all in there.
+[00:21:42] Will: I'm thinking Red from Shawshank. Everything I know about Orange is the New Black, right? It's all in there.
 
 [00:21:48] Adam: But at the same time, I was also working at the local public access cable station.
 
 [00:21:53] Will: Now that sounds like a wonderful job.
 
-[00:21:54] Adam: That was really fun because I worked with this guy Tom Ripley. On it was this old motorcycle dude who was just like one of the sweetest, gentlest guys I ever worked for. And it was like you know, it wasn't they weren't paying me anything. I was just a kid who showed up and they like let me do stuff. Like, oh, I thought we should have a quote on the on the screen because it was like they had like two hours of programming a day.
+[00:21:54] Adam: That was really fun because I worked with this guy Tom Ripley. On it was this old motorcycle dude who was just like one of the sweetest, gentlest guys I ever worked for. And it was like you know, it wasn't they weren't paying me anything. I was just a kid who showed up and they like let me do stuff. Like, oh, I thought we should have a quote on the screen because it was like they had like two hours of programming a day.
 
 [00:21:54] Will: Yeah.
 
@@ -578,7 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:22:28] Will: yeah. I mean, it's amazing.
 
-[00:22:29] Adam: Well, This is this is an entire television station that they're allowing like two people to run with whoever they want doing whatever they want,
+[00:22:29] Adam: Well, This is an entire television station that they're allowing like two people to run with whoever they want doing whatever they want,
 
 [00:22:36] Will: Right, and crazy—
 
@@ -590,7 +590,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:22:38] Will: Yeah.
 
-[00:22:38] Adam: I actually I actually ran camera on my friend Tim Podell’s program about a mime called This World of Mime.
+[00:22:38] Adam: I actually ran camera on my friend Tim Podell’s program about a mime called This World of Mime.
 
 [00:22:50] Norm: Wow, that's amazing! Pocket that.
 
@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:23:28] Will: all while being perfectly silent.
 
-[00:23:33] Adam: I'm trying to think out here. I did have one really, really terrible job out here. I thought it would be fun to be a bicycle messenger, so I answered an ad to be a bicycle messenger, and I got hired by this firm that sold books of coupons. And when they when they pushed sold books of coupons, immediately a bicycle messenger would take a book of coupons to the consumer and exchange it for money. So the telemarketers would sell the book, and then I would take the book to the house,
+[00:23:33] Adam: I'm trying to think out here. I did have one really, really terrible job out here. I thought it would be fun to be a bicycle messenger, so I answered an ad to be a bicycle messenger, and I got hired by this firm that sold books of coupons. And when they pushed sold books of coupons, immediately a bicycle messenger would take a book of coupons to the consumer and exchange it for money. So the telemarketers would sell the book, and then I would take the book to the house,
 
 [00:24:03] Norm: locally, immediately.
 
@@ -620,7 +620,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:24:15] Will: This sounds like a money laundering.
 
-[00:24:17] Adam: On a bicycle, and you only got paid for the books that you delivered, which means that you were the last point of sale. So, if you if you took the book to the house, and at the point you got there, they're like, " I'm not sure I want it." You didn't get credit for it. You didn't get paid for it. You only got paid
+[00:24:17] Adam: On a bicycle, and you only got paid for the books that you delivered, which means that you were the last point of sale. So, if you took the book to the house, and at the point you got there, they're like, " I'm not sure I want it." You didn't get credit for it. You didn't get paid for it. You only got paid
 
 [00:24:36] Norm: when
 
@@ -632,7 +632,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:24:40] Will: Yeah, that's bad on multiple fronts.
 
-[00:24:42] Adam: Oh, I mean, and you know, all of the people working there were like, you know, they were destitute. They were really unhappy. And this was a this was a job. They were going to try and turn themselves around, and they wouldn't like. The managers were all like, " Don't you guys talk to each other? You can't talk to each other. You got to stand here." I mean, it was like that kind of shit.
+[00:24:42] Adam: Oh, I mean, and all of the people working there were like they were destitute. They were really unhappy. And this was a job. They were going to try and turn themselves around, and they wouldn't like. The managers were all like, " Don't you guys talk to each other? You can't talk to each other. You got to stand here." I mean, it was like that kind of shit.
 
 [00:24:59] Will: See, I never had that.
 
@@ -642,13 +642,13 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:25:04] Adam: Yeah, it's time, Norm. What tells you? What
 
-[00:25:05] Norm: I've never had, never had a terrible job.
+[00:25:05] Norm: I've never had a terrible job.
 
 [00:25:07] Adam: You've never had a—
 
 [00:25:08] Norm: I've never had a terrible job.
 
-[00:25:10] Will: Like, like I,
+[00:25:10] Will: Like I,
 
 [00:25:11] Norm: I did.
 
@@ -674,7 +674,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:25:27] Adam: Were customers difficult?
 
-[00:25:27] Norm: Eh— The college football, college football fans. I rolled hot dogs and and made nachos at at 14 years old.
+[00:25:27] Norm: Eh— The college football fans. I rolled hot dogs and made nachos at at 14 years old.
 
 [00:25:35] Adam: That's not. That's sort of bad. Were the people that hired you jerks?
 
@@ -684,7 +684,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:25:42] Norm: Nope.
 
-[00:25:46] Adam: When, when you look at the clock and the second hand seems to do this,
+[00:25:46] Adam: When you look at the clock and the second hand seems to do this,
 
 [00:25:50] Will: yeah, it goes backwards for every. Yeah,
 
@@ -694,7 +694,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:25:58] Adam: Corrections?
 
-[00:25:58] Will: No, no, for the close IT for the Department of of Biology at the University of Tennessee. Yeah. I was maintaining a network, and it was prior to Ethernet. Ah, so it was 10BASE2, the BNC coaxial stuff.
+[00:25:58] Will: No, no, for the close IT for the Department of Biology at the University of Tennessee. Yeah. I was maintaining a network, and it was prior to Ethernet. Ah, so it was 10BASE2, the BNC coaxial stuff.
 
 [00:25:58] Adam: Wow.
 
@@ -704,7 +704,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:26:26] Will: I feel like I've talked about this. This was in the other podcast
 
-[00:26:28] Adam: when I showed Bob my byte, my my eight tube byte, and then I showed him the Univac half byte. He said, " Technically, that's we called that a nibble." I was like, " Oh my god, this is the guy who knows.” Sorry.
+[00:26:28] Adam: when I showed Bob my byte, my eight tube byte, and then I showed him the Univac half byte. He said, " Technically, that's we called that a nibble." I was like, " Oh my god, this is the guy who knows.” Sorry.
 
 [00:26:39] Norm: Amazing.
 
@@ -718,7 +718,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:26:42] Adam: Yeah.
 
-[00:26:42] Will: That’s the way sane people do this. But the way we did it because we were cheap in a university is we just ran we drilled holes through the wall and there were 30 computers hooked up to one chain of the of the coax in a 150 year old building. So when you combine that with the fact that none of the, none of the power ports had grounded outlets, none of the, none of the outlets were grounded and some old bastard would invariably grab a pair of pliers and break the grounding socket off. I discovered that you could float a ground across 30 computers by grabbing the BNC connector to unhook it and having my hand not let go.
+[00:26:42] Will: That’s the way sane people do this. But the way we did it because we were cheap in a university is we just ran we drilled holes through the wall and there were 30 computers hooked up to one chain of the coax in a 150 year old building. So when you combine that with the fact that none of the power ports had grounded outlets, none of the outlets were grounded and some old bastard would invariably grab a pair of pliers and break the grounding socket off. I discovered that you could float a ground across 30 computers by grabbing the BNC connector to unhook it and having my hand not let go.
 
 [00:26:42] Adam: Yeah.
 
@@ -730,21 +730,21 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:26:42] Adam: Oh, that’s terrible.
 
-[00:26:42] Will: So when I, when I got my, I eventually was able to like wrench my hand loose from the computer and unplug the computer, which broke the ground that I was on. I went room to room until we, I figured out and I almost punched the 85-year-old faculty administrator who’d been like, “Well, my power strip didn’t have, my power strip didn’t plug into the thing, so I just popped it off.”
+[00:26:42] Will: So when I got my, I eventually was able to like wrench my hand loose from the computer and unplug the computer, which broke the ground that I was on. I went room to room until we, I figured out and I almost punched the 85-year-old faculty administrator who’d been like, “Well, my power strip didn’t have, my power strip didn’t plug into the thing, so I just popped it off.”
 
 [00:26:42] Adam: Man.
 
 [00:26:42] Will: It’s like, “You almost killed me, you old bastard.” So anyway—
 
-[00:28:11] Adam: you know the the the for me personally, and I will admit that I had I I had a I had parents that I knew if I was in dire straits would help me out.
+[00:28:11] Adam: you know the for me personally, and I will admit that I had I I had a I had parents that I knew if I was in dire straits would help me out.
 
 [00:28:11] Will: Yeah.
 
-[00:28:11] Adam: that was that was you know people talk about privilege, and I definitely have to own up that I had some real privilege there. It wasn't like they were they weren't paying my well, they did pay my rent for a few years. But I didn't go to college, so actually financially they made out.
+[00:28:11] Adam: that was you know people talk about privilege, and I definitely have to own up that I had some real privilege there. It wasn't like they were they weren't paying my well, they did pay my rent for a few years. But I didn't go to college, so actually financially they made out.
 
 [00:28:40] Will: They probably ended up way on the good side of that.
 
-[00:28:42] Adam: But you know I knew that I knew that I had an escape valve there, and that allowed me to feel like I didn't have to I didn't have to eat shit for these terrible people, terrible unhappy people. That was really the thing that defined a terrible job to me. Is everyone was unhappy, and you just it it infects you. It totally infects you.
+[00:28:42] Adam: But you know I knew that I had an escape valve there, and that allowed me to feel like I didn't have to eat shit for these terrible people, terrible unhappy people. That was really the thing that defined a terrible job to me. Is everyone was unhappy, and you just it infects you. It totally infects you.
 
 [00:29:04] Norm: So you didn't mind the laborious jobs.
 
@@ -752,7 +752,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:29:05] Will: Working hard, fun.
 
-[00:29:05] Adam: I've done much harder jobs than those jobs I considered terrible. I've done jobs that physically taxed me and injured me much more. That were great because I was working for people who loved what they do and were excited about it, and I learned from them. And and and that was a that was a great gift that I had that I knew one that my parents valued doing a job that you liked because I watched my father do that, you know, not do things he didn't want to do and figure out any way he could to paint most of the time, but also that I knew that I could call them up and say I really need help with rent, I really need help with you know bills this week, this month.
+[00:29:05] Adam: I've done much harder jobs than those jobs I considered terrible. I've done jobs that physically taxed me and injured me much more. That were great because I was working for people who loved what they do and were excited about it, and I learned from them. And that was a great gift that I had that I knew one that my parents valued doing a job that you liked because I watched my father do that not do things he didn't want to do and figure out any way he could to paint most of the time, but also that I knew that I could call them up and say I really need help with rent, I really need help with you know bills this week, this month.
 
 [00:29:43] Will: Conversely, because so I I was in the same situation, right? My parents were like, no, you know, when I quit the Abercrombie Fitch job,
 
@@ -776,7 +776,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:31:06] Will: What was your rent at the time, like $400 a month, or
 
-[00:31:08] Adam: No, no, no, no? My rent was my rent was $800 a month at that point. I was living alone in an artist loft.
+[00:31:08] Adam: No, no, no, no? My rent was $800 a month at that point. I was living alone in an artist loft.
 
 [00:31:08] Will: Oh, in New York?
 
@@ -784,7 +784,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:31:08] Will: That’s expensive.
 
-[00:31:08] Adam: But it was you know, I was I was scraping by. I was my mom was my parents were helping me out, and I got this inheritance, and I thought, oh, this is great. I can get a welder, and I can have some savings, and I can feel a little more comfortable. And I blew through the inheritance in a month.
+[00:31:08] Adam: But it was I was scraping by. I was my mom was my parents were helping me out, and I got this inheritance, and I thought, oh, this is great. I can get a welder, and I can have some savings, and I can feel a little more comfortable. And I blew through the inheritance in a month.
 
 [00:31:08] Will: Wow.
 
@@ -794,13 +794,13 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:31:08] Adam: That I never asked my parents for money again. It was like that was the consciousness shift that I needed at that point in my life to be like, you got to just stop this screwing around and get get with it. And I never did. I never asked for another penny.
 
-[00:31:50] Will: So one of my favorite one of my favorite interviews with anybody ever was when Oprah interviewed Cormac McCarthy. Cormac McCarthy doesn't talk to people very often.
+[00:31:50] Will: So one of my favorite interviews with anybody ever was when Oprah interviewed Cormac McCarthy. Cormac McCarthy doesn't talk to people very often.
 
 [00:31:50] Adam: Yeah.
 
 [00:31:50] Will: And it's a. It's on. I'm sure it's on YouTube. If it's not, you should go find it. It's a wonderful interview. But at the end, he basically says, " She says, 'What, what would you tell people if you could teach them anything?' It's like, 'You should trade work for money, not time.' And you know, meaning he he would rather get paid $50 to clean out a chicken coop than get paid eight out eight ten dollars an hour to do the exact same work. So then, whether it's completed is on his schedule, not on someone else's, and he doesn't end up sitting waiting for something. You know, and he is a guy who literally went across the Southwest cleaning out people's garages and chicken coops and mucking stalls so that he had time to write.
 
-[00:32:39] Adam: Yeah, you know that's funny because as soon as I as soon as I had established myself in the theater industry and then in the special effects industry, I did as much freelance work out of my own shop as I did work for other people, and I vastly preferred it. It allowed me to be home for the first three years of my kids' lives.
+[00:32:39] Adam: Yeah, you know that's funny because as soon as I had established myself in the theater industry and then in the special effects industry, I did as much freelance work out of my own shop as I did work for other people, and I vastly preferred it. It allowed me to be home for the first three years of my kids' lives.
 
 [00:32:57] Will: It’s a wonderful thing.
 
@@ -808,13 +808,13 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:33:04] Will: Yeah, it's. I mean, it's time you don't ever get back.
 
-[00:33:07] Adam: Yeah, and I mean, look, you know, it's funny now that we're talking about terrible jobs. I mean, everyone has them. Everyone's had them, and some people have to keep them, and and that's that's that's a really difficult thing, you know, because we get to talk about like I, you know, everyone says, " Oh, Mythbusters, you have the greatest job ever," and I really, I feel we've we're incredibly lucky to be able to do the.
+[00:33:07] Adam: Yeah, and I mean, look it's funny now that we're talking about terrible jobs. I mean, everyone has them. Everyone's had them, and some people have to keep them, and that's a really difficult thing because we get to talk about like I everyone says, " Oh, Mythbusters, you have the greatest job ever," and I really, I feel we've we're incredibly lucky to be able to do the.
 
 [00:33:29] Will: You've ridden in a supersonic jet before. Yeah, just to just be, haven't been to space yet, but you know,
 
-[00:33:36] Adam: could could have. Yeah, you know, all of that being said, you know, I recognize that there are some people that have to suffer through those jobs, and that's that's really that's a that's a rough thing, and I I want to you know I felt like it's important to acknowledge the the privilege I had with my parents. I mean, it wasn't we weren't rich growing up, but we were. My mom was very frugal and managed things quite well, so that. You know, we we did have a little bit of luxury to work the things we
+[00:33:36] Adam: could could have. Yeah all of that being said I recognize that there are some people that have to suffer through those jobs, and that's really that's a rough thing, and I I want to you know I felt like it's important to acknowledge the privilege I had with my parents. I mean, it wasn't we weren't rich growing up, but we were. My mom was very frugal and managed things quite well, so that. We did have a little bit of luxury to work the things we
 
-[00:34:00] Will: and and literally the difference between having the bad job and knowing you're going to get out of it and not having a way out is that worst case you could have gone back to your parents' house in Tarrytown and they had a room for you.
+[00:34:00] Will: and literally the difference between having the bad job and knowing you're going to get out of it and not having a way out is that worst case you could have gone back to your parents' house in Tarrytown and they had a room for you.
 
 [00:34:00] Adam: Oh, and I did.
 
@@ -840,7 +840,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:34:21] Adam: We—
 
-[00:34:21] Will: I I don’t know. I mean, I I—
+[00:34:21] Will: I don’t know. I mean, I I—
 
 [00:34:33] Norm: that's a good one.
 
@@ -848,11 +848,11 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:34:34] Adam: that's a good one.
 
-[00:34:35] Will: Um, we will be back next week, I guess.
+[00:34:35] Will: We will be back next week, I guess.
 
 [00:34:35] Adam: Yeah, back next week.
 
-[00:34:35] Will: As always, thanks for watching, guys. Comments, feedback, it’s all good. We like it all. Um, thanks for watching.
+[00:34:35] Will: As always, thanks for watching, guys. Comments, feedback, it’s all good. We like it all. Thanks for watching.
 
 [00:34:46] Adam: Thanks for watching.
 

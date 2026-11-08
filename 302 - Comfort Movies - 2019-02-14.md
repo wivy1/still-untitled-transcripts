@@ -14,7 +14,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:00:07] Adam: I am licking a Peter Lyon masterpiece.
 
-[00:00:11] Will: It's a lovely little. Is that a is that a Hobbit sword?
+[00:00:11] Will: It's a lovely little. Is that a Hobbit sword?
 
 [00:00:14] Adam: This is no. This is from Farewell to Arms. Our video we made with Weta Workshop,
 
@@ -30,7 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:00:28] Adam: I did some of the busy work.
 
-[00:00:30] Will: The thing, what's the what's the thing at the bottom of the hilt?
+[00:00:30] Will: The thing, what's the thing at the bottom of the hilt?
 
 [00:00:30] Adam: Pommel?
 
@@ -38,7 +38,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:00:30] Adam: Mm-hmm.
 
-[00:00:30] Will: Okay. The the way that those swords, I feel like one of the other swords that you have, that's a Lord of the Rings sword, does that same thing, where it's like a gentle, like a like a like a conical, like a curve.
+[00:00:30] Will: Okay. The way that those swords, I feel like one of the other swords that you have, that's a Lord of the Rings sword, does that same thing, where it's like a gentle a conical a curve.
 
 [00:00:46] Adam: Boromir’s sword does the same finish at the end.
 
@@ -58,21 +58,21 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:01:50] Adam: I made boxes for everything.
 
-[00:01:52] Will: Yeah, if you if you had it here and you wanted to be able to carry it around, you made a box for it.
+[00:01:52] Will: Yeah, if you had it here and you wanted to be able to carry it around, you made a box for it.
 
 [00:01:52] Unknown speaker: Mm-hmm.
 
-[00:01:52] Will: And watching you, like you would start out with what your basic measurements. Measurements would be, and then you'd start putting it together. It wouldn't fit right, and you'd be like, " Okay, I fixed this, and just run it through the bandsaw real quick." And and You know, like, but at the end, the box was right for the thing that it was supposed to hold.
+[00:01:52] Will: And watching you, like you would start out with what your basic measurements. Measurements would be, and then you'd start putting it together. It wouldn't fit right, and you'd be like, " Okay, I fixed this, and just run it through the bandsaw real quick." And but at the end, the box was right for the thing that it was supposed to hold.
 
 [00:01:52] Adam: Right.
 
 [00:01:52] Will: But sometimes you were looking at it like, how is this going to work out? Okay, you'll get there.
 
-[00:02:15] Adam: Yeah. I I really appreciate the kind of I watch a lot of online builds. It's almost exclusively what I watch, and I watch a lot of people pre-plan stuff in CAD.
+[00:02:15] Adam: Yeah. I really appreciate the kind of I watch a lot of online builds. It's almost exclusively what I watch, and I watch a lot of people pre-plan stuff in CAD.
 
 [00:02:16] Unknown speaker: Mm-hmm.
 
-[00:02:16] Adam: And I really appreciate people who can do that because it's a it's a very effective method. When I see people execute it, and yet for me, it has to be this organic process of kind of adjusting the pieces to each other. If I'm making a box for a sword, I got to have the sword on the table the whole time. There's no there's no part of me that could take a picture or a 3D representation of that sword and build a box for it virtually. I have to kind of do it actively.
+[00:02:16] Adam: And I really appreciate people who can do that because it's a very effective method. When I see people execute it, and yet for me, it has to be this organic process of kind of adjusting the pieces to each other. If I'm making a box for a sword, I got to have the sword on the table the whole time. There's no part of me that could take a picture or a 3D representation of that sword and build a box for it virtually. I have to kind of do it actively.
 
 [00:02:52] Norm: Well, it's a physicality to it.
 
@@ -82,19 +82,19 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:02:58] Adam: Yes.
 
-[00:02:58] Will: For example, when you were at ILM, time was the valuable resource, and you guys were burning materials and everything else to get to to do the most you could in the time you had.
+[00:02:58] Will: For example, when you were at ILM, time was the valuable resource, and you guys were burning materials and everything else to get to do the most you could in the time you had.
 
 [00:02:58] Adam: To be sure,
 
-[00:02:58] Will: and that definitely is carried over to to your current style of building. I think
+[00:02:58] Will: and that definitely is carried over to your current style of building. I think
 
-[00:03:15] Adam: yes. Um, but we're we're ignoring the most important thing that happened this week.
+[00:03:15] Adam: yes. But we're ignoring the most important thing that happened this week.
 
 [00:03:15] Will: Okay,
 
-[00:03:15] Adam: which is that which is that Terry Gross said my name.
+[00:03:15] Adam: which is that Terry Gross said my name.
 
-[00:03:24] Will: I I listened to the interview this morning on the way in here. Gina said as I was leaving the house. Oh, by the way, Adam was on Terry Gross yesterday. I was like, wait, what? How did you not lead with this?
+[00:03:24] Will: I listened to the interview this morning on the way in here. Gina said as I was leaving the house. Oh, by the way, Adam was on Terry Gross yesterday. I was like, wait, what? How did you not lead with this?
 
 [00:03:33] Norm: The show is called Fresh Air.
 
@@ -104,7 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:03:39] Will: WHYY.
 
-[00:03:40] Adam: From WHYY in Philadelphia. I I love Terry so much. I love that whole show.
+[00:03:40] Adam: From WHYY in Philadelphia. I love Terry so much. I love that whole show.
 
 [00:03:45] Will: She's the best radio voice I think working today.
 
@@ -112,7 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:03:51] Will: Yeah,
 
-[00:03:52] Adam: yeah. Um, and a producer on her show interviewed me about MythBusters Junior in a wide ranging interview that's up on FreshAir dot com. You can go listen to it
+[00:03:52] Adam: yeah. And a producer on her show interviewed me about MythBusters Junior in a wide ranging interview that's up on FreshAir dot com. You can go listen to it
 
 [00:04:02] Will: in your favorite podcast app
 
@@ -126,17 +126,17 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:04:24] Adam: right?
 
-[00:04:24] Norm: And sometimes you know everyone does a different style. The the you record the picking up the phone. Does it make? Is it like dialing a person, or is it supposed to be like the in studio formal interview? And this is more that
+[00:04:24] Norm: And sometimes you know everyone does a different style. The you record the picking up the phone. Does it make? Is it like dialing a person, or is it supposed to be like the in studio formal interview? And this is more that
 
-[00:04:49] Adam: this was very much that, and very much um look, Fresh Air is a it's a it's a terrific machine for interviewing people and diving deep. And so in this one, the questions they asked were probing. The research they've done was extensive. That that's always a real delight when when you're Talking to someone who's done a deep amount of homework. Not that I mind. I mean, you know, it's all just like it's all just talking about yourself, right? So it's not like this bandwidth is a fairly narrow one.
+[00:04:49] Adam: this was very much that, and very much look, Fresh Air is a it's a terrific machine for interviewing people and diving deep. And so in this one, the questions they asked were probing. The research they've done was extensive. That that's always a real delight when you're Talking to someone who's done a deep amount of homework. Not that I mind. I mean it's all just like it's all just talking about yourself, right? So it's not like this bandwidth is a fairly narrow one.
 
-[00:05:18] Will: But but it's fun, like having heard a lot of people interview you over the years. Like it's fun when they ask questions that are both new questions or new brand new questions or questions that approach from a different angle than you've ever heard before.
+[00:05:18] Will: But it's fun, like having heard a lot of people interview you over the years. Like it's fun when they ask questions that are both new questions or new brand new questions or questions that approach from a different angle than you've ever heard before.
 
 [00:05:31] Adam: He asked a specific question, which was, " What is it about you that drove Jamie crazy?" And a lot of people don't ask that.
 
 [00:05:37] Will: You always hear the other one. Why do you and Jamie not like each other?
 
-[00:05:40] Adam: Right, right, right. They they looked for a different way to ask that.
+[00:05:40] Adam: Right, right, right. They looked for a different way to ask that.
 
 [00:05:43] Norm: You are a professional interviewer. You've done it on stage. You've done it for all all sorts of things. We've all all three of us have done it in some professional capacity. I think of it as a dance every time. It is a dance with a new partner. Sometimes it's a dance with the same partner, and where when we've gone when Will and I have gone to shows and we've interviewed maybe the same person.
 
@@ -144,13 +144,13 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:06:08] Norm: and then check in a year later. It's like Dancing with someone, a familiar dance with maybe new steps or new song, but there are beats to it. There definitely there is give and take,
 
-[00:06:19] Adam: and and just like a dance, there’s got to be some improvisation.
+[00:06:19] Adam: and just like a dance, there’s got to be some improvisation.
 
 [00:06:19] Unknown speaker: Yeah.
 
-[00:06:19] Adam: So you always write out all your questions, and you write out way more than you need, and then you end up using five ten percent of those questions, but to have them in your head so that when they say something and you have a great follow up, that's that's what the part of it that feels as fresh as dancing can be.
+[00:06:19] Adam: So you always write out all your questions, and you write out way more than you need, and then you end up using five ten percent of those questions, but to have them in your head so that when they say something and you have a great follow up, that's what the part of it that feels as fresh as dancing can be.
 
-[00:06:39] Norm: And for people who are on the receiving side, the interviewee, there is the the range of there is the person who may or may not have been interviewed before, or maybe not be comfortable. And we've all interacted with those people.
+[00:06:39] Norm: And for people who are on the receiving side, the interviewee, there is the range of there is the person who may or may not have been interviewed before, or maybe not be comfortable. And we've all interacted with those people.
 
 [00:06:50] Will: we’ve all been that person too,
 
@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:07:01] Adam: Interviewing other people professionally is real. Interviewing other people is hard. It is. It's difficult work. I spend most of my time terrified. My brain is going to draw a complete blank when it's time for another question, and it gave me a lot of sympathy and it gave me a lot of empathy for my interlocutors when I encounter them.
 
-[00:07:01] Will: Well, you know, but at the same time, it's really fun to prepare for those interviews. Like when you were doing Talking Room, and Norm and I would help you, like, like you were still shooting MythBusters, you didn't have time to go back and watch six movies or you know read every interview with Jason Reitman that had been published in the last five years, so you could figure out what people had asked and what they hadn't, where they hadn't gotten to, and it was really, really fun. Like normally, the stuff that Norm and I were doing, we would, we would know, we would have the background information, and then we would ask some questions of the PR people or the technical people or whatever before we do an interview. But it was really, really fun. But kind of there wasn't a lot of time to to do deep prep,
+[00:07:01] Will: Well but at the same time, it's really fun to prepare for those interviews. Like when you were doing Talking Room, and Norm and I would help you were still shooting MythBusters, you didn't have time to go back and watch six movies or you know read every interview with Jason Reitman that had been published in the last five years, so you could figure out what people had asked and what they hadn't, where they hadn't gotten to, and it was really, really fun. Like normally, the stuff that Norm and I were doing, we would know, we would have the background information, and then we would ask some questions of the PR people or the technical people or whatever before we do an interview. But it was really, really fun. But kind of there wasn't a lot of time to do deep prep,
 
 [00:07:23] Adam: right?
 
@@ -178,11 +178,11 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:08:36] Norm: Do you want to say from beginning to end? And it's not okay to stop.
 
-[00:08:38] Adam: No, in general, no, and it's fine to stop. Oh, Julie and I both we're stoppers. We pause to talk about what's going on. We we converse. We criticize. We
+[00:08:38] Adam: No, in general, no, and it's fine to stop. Oh, Julie and I both we're stoppers. We pause to talk about what's going on. We converse. We criticize. We
 
 [00:08:46] Norm: but you wouldn't feel bummed out, or you would feel bummed out if something happened. You like, oh, we can't finish the last 30 minutes of the movie, or you commit.
 
-[00:08:53] Adam: No, no, no, no. We we we certainly leave the last 30. I mean, so yeah, totally, we're we're fine about stopping. So we so yeah, it's it's comfortingly excellent movies from the past.
+[00:08:53] Adam: No, no, no, no. We certainly leave the last 30. I mean, so yeah, totally, we're fine about stopping. So we so yeah, it's comfortingly excellent movies from the past.
 
 [00:08:53] Will: Okay.
 
@@ -196,7 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:09:09] Adam: It is. It is aged really well. It is weird to be almost 15 years older now than George Clooney was in that movie.
 
-[00:09:17] Will: I still feel like even in that movie, like except for the very early episodes of ER that Clooney was on, I feel like I feel like any Clooney in film is always going to be older than I am at this moment.
+[00:09:17] Will: I still feel like even in that movie, like except for the very early episodes of ER that Clooney was on, I feel like any Clooney in film is always going to be older than I am at this moment.
 
 [00:09:28] Adam: Nope, it's not. That's new. You watch this and that subverts that paradigm.
 
@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:10:04] Will: 10-year-old movie.
 
-[00:10:05] Adam: It happens much quicker than you think. Those beats are are tight.
+[00:10:05] Adam: It happens much quicker than you think. Those beats are tight.
 
 [00:10:09] Will: To me, the long part of that movie is the poker. Is the from the first time they play poker
 
@@ -222,11 +222,11 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:10:39] Will: I no doubt
 
-[00:10:40] Norm: when he says the the thing, nothing sinister, and he like he's bleeding from the eye. That's the perfect Bond villain.
+[00:10:40] Norm: when he says the thing, nothing sinister, and he like he's bleeding from the eye. That's the perfect Bond villain.
 
 [00:10:48] Adam: So good
 
-[00:10:49] Will: that that and the scene where he gets where Bond gets poisoned while he's playing poker and has to go do the thing and has like eight minutes or something like there's a they don't they don't explicitly come out and say hey the clock's ticking but the clock is ticking
+[00:10:49] Will: that that and the scene where he gets where Bond gets poisoned while he's playing poker and has to go do the thing and has like eight minutes or something like there's a they don't explicitly come out and say hey the clock's ticking but the clock is ticking
 
 [00:11:02] Adam: the clock is ticking and then they use a coincidence to get him out
 
@@ -236,7 +236,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:11:08] Will: sometimes, sometimes coincidence.
 
-[00:11:09] Adam: This is a this is a Pixar axiom. It's okay to use a coincidence to get your hero into trouble. It is not okay to use a coincidence to get them out of trouble.
+[00:11:09] Adam: This is a Pixar axiom. It's okay to use a coincidence to get your hero into trouble. It is not okay to use a coincidence to get them out of trouble.
 
 [00:11:18] Will: But part of Bond's thing is that he's lucky.
 
@@ -244,7 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:11:22] Will: Like,
 
-[00:11:23] Adam: I get that, and and I'm fully up with Issa Rae playing the lucky one in Deadpool two.
+[00:11:23] Adam: I get that, and I'm fully up with Issa Rae playing the lucky one in Deadpool two.
 
 [00:11:29] Will: Yeah,
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:11:49] Will: Maybe
 
-[00:11:49] Adam: I. But but all that being said, speaking of coincidences, getting your hero out of trouble, there is no bigger violator of this than the Girl with the Dragon Tattoo book series. And the subsequent movie series.
+[00:11:49] Adam: I. But all that being said, speaking of coincidences, getting your hero out of trouble, there is no bigger violator of this than the Girl with the Dragon Tattoo book series. And the subsequent movie series.
 
 [00:12:03] Will: I've never read or I've never engaged with any of that.
 
@@ -272,13 +272,13 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:12:34] Adam: Yeah, totally. But the movies are great. [unclear: The new me replaced the]
 
-[00:12:37] Will: The American ones or the or the Swedish ones.
+[00:12:37] Will: The American ones or the Swedish ones.
 
 [00:12:39] Adam: I watched all. I've watched them all.
 
 [00:12:39] Will: Okay.
 
-[00:12:39] Adam: so I watched all three Swedish ones. I watched the David Fincher one, which I love. I love all of them, and I also just watched the Claire Foy one, the girl who kicked the spider's web. It’s the same amount of terrible and and great. Claire Foy is fantastic.
+[00:12:39] Adam: so I watched all three Swedish ones. I watched the David Fincher one, which I love. I love all of them, and I also just watched the Claire Foy one, the girl who kicked the spider's web. It’s the same amount of terrible and great. Claire Foy is fantastic.
 
 [00:12:54] Will: Claire Foy is really really good and everything.
 
@@ -290,7 +290,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:13:11] Adam: Luv
 
-[00:13:11] Will: the the the the hologram?
+[00:13:11] Will: the hologram?
 
 [00:13:16] Norm: No, no, no,
 
@@ -308,7 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:13:42] Adam: I know comfort is a weird term.
 
-[00:13:44] Will: Yeah, the the yeah. We have to talk Adam. I have some thoughts about what you find comfortable. There is a couple of scenes in Casino Royale that are pretty uncomfortable, you know, and then all the the cannibalism and the the the. Do you hear the lambs?
+[00:13:44] Will: Yeah, the yeah. We have to talk Adam. I have some thoughts about what you find comfortable. There is a couple of scenes in Casino Royale that are pretty uncomfortable and then all the cannibalism and the. Do you hear the lambs?
 
 [00:13:59] Adam: Here is the thing about Silence of the Lambs, Jonathan Demme. Is so amazing. R.I.P. I mean, he's so incredible, and we talked about swimming to Cambodia, and Stop Making Sense on the podcast because those are two amazing films. But as a narrative filmmaker, * Silence of the Lambs* is a perfect movie, and it's a deeply feminist film. There are so imagine this. There's a point at which Clarice and Scott Glenn, her boss, go to. There's a body that's been found in the river. They go to the together, representing the FBI, and then he pulls the police chief aside and he says, " I need to talk to you away from like the women, meaning Clarice Starling, played by Jodie Foster,
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:14:53] Will: this is like what like 1993, supposed to take place in the late '80s, I think.
 
-[00:14:57] Adam: But I mean, yeah, so it's it's a it's a 25 year old film, right? And after that. They're in the car, and he says to her, " Look, you know I had to do that. I just had to get him out of our hair." And she goes, " Yeah, but they all watch what you do to see how to behave. It matters, just that." And then he hears that, and they move on. This is a deeply woke little movie about female empowerment and being present with your competence and knowing and trusting yourself. It's it's way more that than I remembered. Also, there's a there's a I can't remember whether it's Tony Zhou or somebody else that did a breakdown of Demme’s technique of reverse angle conversations, where instead of over the shoulder angles for conversations, he went to direct characters staring directly into frame.
+[00:14:57] Adam: But I mean, yeah, so it's a 25 year old film, right? And after that. They're in the car, and he says to her, " Look, you know I had to do that. I just had to get him out of our hair." And she goes, " Yeah, but they all watch what you do to see how to behave. It matters, just that." And then he hears that, and they move on. This is a deeply woke little movie about female empowerment and being present with your competence and knowing and trusting yourself. It's way more that than I remembered. Also, there's a I can't remember whether it's Tony Zhou or somebody else that did a breakdown of Demme’s technique of reverse angle conversations, where instead of over the shoulder angles for conversations, he went to direct characters staring directly into frame.
 
 [00:15:51] Will: Yeah,
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:16:50] Adam: Yeah,
 
-[00:16:50] Will: I need to go back and rewatch that. It's been it's been a long time since I've seen that movie.
+[00:16:50] Will: I need to go back and rewatch that. It's been a long time since I've seen that movie.
 
 [00:17:03] Adam: It's it's again it's an education in in pacing and drama. And at this point, the Hannibal Lecter stuff has become so culturally ingrained; it's no longer disturbing. I mean, it's messed up.
 
@@ -382,17 +382,17 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:18:09] Will: I want to say. I want to say it's based on a book, maybe. I don't know, but
 
-[00:18:12] Norm: in that in that vein, it has it's a
+[00:18:12] Norm: in that vein, it has it's a
 
-[00:18:14] Will: it's a it's a dark comedy
+[00:18:14] Will: it's a dark comedy
 
 [00:18:15] Norm: dark comedy Gone Girl.
 
-[00:18:17] Will: It's it's um it's about a woman who is deeply self centered who asks her friend to pick up her kid after school and then just disappears.
+[00:18:17] Will: It's about a woman who is deeply self centered who asks her friend to pick up her kid after school and then just disappears.
 
 [00:18:26] Norm: The roles are delicious,
 
-[00:18:27] Will: and and it is it is about characterizations. It reminds me a little bit of what was the Nicole Kidman movie where she was a weather the weather girl. Is it the weather
+[00:18:27] Will: and it is about characterizations. It reminds me a little bit of what was the Nicole Kidman movie where she was a weather the weather girl. Is it the weather
 
 [00:18:36] Adam: to die for?
 
@@ -420,7 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:19:04] Norm: It's hilarious.
 
-[00:19:04] Will: It is very, very funny, and and
+[00:19:04] Will: It is very, very funny, and
 
 [00:19:08] Norm: in a dry way.
 
@@ -430,13 +430,13 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:19:11] Norm: Yes, I saw it in theaters last year.
 
-[00:19:12] Will: Yeah. The the so Anna Kendrick plays like a mommy blogger, and everybody has a lot of baggage, and it's very, very, very dark.
+[00:19:12] Will: Yeah. The so Anna Kendrick plays like a mommy blogger, and everybody has a lot of baggage, and it's very, very, very dark.
 
 [00:19:20] Adam: I love Anna Kendrick. I think she’s amazing.
 
-[00:19:20] Will: very funny. I think she's she's great. She's the best. Yeah.
+[00:19:20] Will: very funny. I think she's great. She's the best. Yeah.
 
-[00:19:23] Adam: Um, I also have been watching Russian Doll.
+[00:19:23] Adam: I also have been watching Russian Doll.
 
 [00:19:30] Will: Oh God, the next it's the next thing. Have you not seen it, Norm?
 
@@ -540,7 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:21:52] Norm: And it's like wow.
 
-[00:21:53] Adam: So again, speaking of Spielberg and comfort, I've been watching a whole bunch of old " Every Frame a Painting" by the great Tony Zhou and his wife. Yeah. And I watched the Spielberg oner. So Tony points out that, and and he has a whole video devoted. I think it's called the Spielberg oner.
+[00:21:53] Adam: So again, speaking of Spielberg and comfort, I've been watching a whole bunch of old " Every Frame a Painting" by the great Tony Zhou and his wife. Yeah. And I watched the Spielberg oner. So Tony points out that, and he has a whole video devoted. I think it's called the Spielberg oner.
 
 [00:22:11] Will: Yeah, I think so.
 
@@ -580,21 +580,21 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:24:00] Will: the one villain Tom Cruise couldn't defeat was family.
 
-[00:24:04] Norm: Someone asked us this question on Twitter, and I'll propose. I I don't know if we've prepared for it, but what film that's not universally well received? I don't want to say bad films, but what film would you want to remake?
+[00:24:04] Norm: Someone asked us this question on Twitter, and I'll propose. I don't know if we've prepared for it, but what film that's not universally well received? I don't want to say bad films, but what film would you want to remake?
 
 [00:25:35] Adam: Ah, so funnily enough, I I retweeted Boots Riley recently about this because he was saying, " Oh, if I was going to remake a movie, I'd remake a terrible movie."
 
-[00:25:43] Will: It's that's that's the right call. Why go back and make something good again?
+[00:25:43] Will: It's that's the right call. Why go back and make something good again?
 
 [00:25:46] Adam: The trick is, is that for a studio, it doesn't make sense to do a movie that was reviled. Like no one's going to try and reboot the Remo Williams franchise or the Hudson Hawk franchise.
 
 [00:25:56] Norm: I don't care about the business aspect of this. Right.
 
-[00:25:59] Adam: Okay, so I mean, of course, the first place my my brain goes is to one of the all time great terrible movies, which is Space Hunters: Adventures in the Forbidden Zone.
+[00:25:59] Adam: Okay, so I mean, of course, the first place my brain goes is to one of the all time great terrible movies, which is Space Hunters: Adventures in the Forbidden Zone.
 
 [00:26:10] Will: That's bad enough. I haven't even seen it.
 
-[00:26:10] Adam: Michael Ironside and Molly Ringwald. It's a it's a mid '80s debacle. Um. This is a movie that famously, when it was released, there's a shot of a spaceship landing on a planet's surface, and in the corner of the frame, you can see cars in the parking lot they were filming in. Like there's like you could see the edge of frame, and you can see like a car bumper.
+[00:26:10] Adam: Michael Ironside and Molly Ringwald. It's a mid '80s debacle. This is a movie that famously, when it was released, there's a shot of a spaceship landing on a planet's surface, and in the corner of the frame, you can see cars in the parking lot they were filming in. Like there's like you could see the edge of frame, and you can see like a car bumper.
 
 [00:26:34] Will: Wow.
 
@@ -606,13 +606,13 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:26:51] Adam: unfulfilled
 
-[00:26:52] Will: premise, like the like the '50s giant ant insect movies, right? Like something like that.
+[00:26:52] Will: premise the '50s giant ant insect movies, right? Like something like that.
 
 [00:26:52] Adam: Yeah,
 
-[00:26:52] Will: I mean, we kind of have we kind of get that with monster movies now, with your Pacific Rims and your whatever, but they're they're you know fantasy monsters, basically. I feel like a giant ant movie. You could really you could really do some work with today.
+[00:26:52] Will: I mean, we kind of have we kind of get that with monster movies now, with your Pacific Rims and your whatever, but they're you know fantasy monsters, basically. I feel like a giant ant movie. You could really do some work with today.
 
-[00:27:10] Adam: You know, I mean, it's. I remember a friend of mine talking about the original, the original Men in Black. So the Men in Black series is a really interesting series because I happen to think the third movie in the series is the best one of the three by far.
+[00:27:10] Adam: I mean, it's. I remember a friend of mine talking about the original Men in Black. So the Men in Black series is a really interesting series because I happen to think the third movie in the series is the best one of the three by far.
 
 [00:27:23] Will: Is that the one [unclear: time travel one with the Charles as / one with the Thanos as / one with Josh Brolin]?
 
@@ -626,7 +626,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:27:38] Norm: It nailed the landing, and it made the relationship. If you rewatch the first two films, made it stronger.
 
-[00:27:45] Adam: And but but so going back to the first film, I remember a friend of mine saying, " Oh, Men in Black drags itself out of the muck just enough to make you angry. It's not better."
+[00:27:45] Adam: And but so going back to the first film, I remember a friend of mine saying, " Oh, Men in Black drags itself out of the muck just enough to make you angry. It's not better."
 
 [00:27:55] Will: I don't dislike the first movie,
 
@@ -646,7 +646,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:28:19] Will: Lara Flynn Boyle.
 
-[00:28:20] Adam: Yeah. You know, I, I briefly met Vincent D'Onofrio at the Mortal Engines premiere.
+[00:28:20] Adam: Yeah. I briefly met Vincent D'Onofrio at the Mortal Engines premiere.
 
 [00:28:26] Will: Is Vincent D'Onofrio the first one? Right,
 
@@ -700,7 +700,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:29:25] Norm: it was part of the Sony leaks.
 
-[00:29:26] Adam: Oh, you know, you know what Boots could really do would be the tie through between Home Alone and the Saw films.
+[00:29:26] Adam: Oh, you know what Boots could really do would be the tie through between Home Alone and the Saw films.
 
 [00:29:34] Will: Yeah,
 
@@ -760,11 +760,11 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:30:32] Norm: There was a guy named Ford Lincoln Mercury.
 
-[00:30:33] Will: That look, Ford Prefect is one of the greatest characters in in modern fiction. So,
+[00:30:33] Will: That look, Ford Prefect is one of the greatest characters in modern fiction. So,
 
 [00:30:39] Norm: but you're right. The Postman had a lot of potential. That that kind of post-apocalypse, what it takes to rebuild. The idea of America, yeah, in that world.
 
-[00:30:46] Adam: So it's interesting that as we're thinking of unfulfilled premises, we keep thinking of these giant films that were science fiction with films, right? So inherently difficult to make if the film, the original failed. I think that like if if you if we really want to indulge in this exercise, and I'm not saying that we're ready to do this, but it's worth talking about. If we really want to indulge in this exercise, we should look for films like small dramas with unfulfilled premises because those would be much easier to remake.
+[00:30:46] Adam: So it's interesting that as we're thinking of unfulfilled premises, we keep thinking of these giant films that were science fiction with films, right? So inherently difficult to make if the film, the original failed. I think that like if you if we really want to indulge in this exercise, and I'm not saying that we're ready to do this, but it's worth talking about. If we really want to indulge in this exercise, we should look for films like small dramas with unfulfilled premises because those would be much easier to remake.
 
 [00:31:18] Will: Then you could lift that drama and put it in a science fiction setting, and it's even better.
 
@@ -780,7 +780,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:31:27] Will: Yeah. Yeah. Yeah. This is consulting.
 
-[00:31:29] Norm: Hey, you started talking about comfort movies and watching Casino Royale, which is the first of the the
+[00:31:29] Norm: Hey, you started talking about comfort movies and watching Casino Royale, which is the first of the
 
 [00:31:35] Adam: first of the rebooted Bond films starring Daniel Craig.
 
@@ -792,7 +792,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:31:52] Adam: Yes, yeah.
 
-[00:31:52] Norm: You know which one's my favorite? My favorite is George Lazenby.
+[00:31:52] Norm: Which one's my favorite? My favorite is George Lazenby.
 
 [00:31:59] Will: Yeah, really, sir. It's so good. I, I'm with Norm on this.
 
@@ -802,11 +802,11 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:32:04] Adam: better than. I'm sorry, but if you did a showdown watching those two back to back, you'd choose Casino Royale.
 
-[00:32:10] Will: But you have to, you have to put them in the context of their time.
+[00:32:10] Will: But you have to put them in the context of their time.
 
 [00:32:12] Adam: And Lazenby, no, I don't.
 
-[00:32:13] Will: Okay, I, I do. You don't. Do whatever the hell you want. I, I feel like Lazenby's was such a departure from Connery, and set such a unique tone. It was a real bummer that they sacked him and hired Roger Moore.
+[00:32:13] Will: Okay, I, I do. You don't. Do whatever the hell you want. I feel like Lazenby's was such a departure from Connery, and set such a unique tone. It was a real bummer that they sacked him and hired Roger Moore.
 
 [00:32:28] Norm: He only did the one.
 
@@ -822,15 +822,15 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:32:36] Norm: I know.
 
-[00:32:37] Adam: His wife dies. I know, I know.
+[00:32:37] Adam: His wife dies. I know.
 
 [00:32:39] Will: Is murdered. She doesn't die.
 
-[00:32:40] Norm: They, they ski. Uh, there. So there's one more Daniel Craig Bond film coming out, and I think director is Cary Fukunaga, who did um, directed the whole first season of True Detective.
+[00:32:40] Norm: They ski. There. So there's one more Daniel Craig Bond film coming out, and I think director is Cary Fukunaga, who did directed the whole first season of True Detective.
 
 [00:32:40] Adam: Oh, okay.
 
-[00:32:40] Norm: He was the one that was going to direct the It film. He did um, the, the soldier child soldiers movie for Netflix, a Beast of um, something nation, uh. But my point is, who was going to direct the Bond film was Danny Boyle,
+[00:32:40] Norm: He was the one that was going to direct the It film. He did the soldier child soldiers movie for Netflix, a Beast of something nation. But my point is, who was going to direct the Bond film was Danny Boyle,
 
 [00:32:40] Adam: right?
 
@@ -866,7 +866,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:33:31] Adam: Okay.
 
-[00:33:31] Norm: Uh, but Danny Boyle, instead of making that film, has another film coming out, which a trailer dropped I think yesterday.
+[00:33:31] Norm: But Danny Boyle, instead of making that film, has another film coming out, which a trailer dropped I think yesterday.
 
 [00:33:31] Will: Last night, late, yeah.
 
@@ -878,7 +878,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:34:04] Will: it's Last Man on Earth.
 
-[00:34:05] Norm: No, it's a it's a science fiction story ostensibly where the conceit is this aspiring artist, struggling musician, wakes up in the world where no one remembers and knows about the Beatles, and then takes and accidentally takes credit for.
+[00:34:05] Norm: No, it's a science fiction story ostensibly where the conceit is this aspiring artist, struggling musician, wakes up in the world where no one remembers and knows about the Beatles, and then takes and accidentally takes credit for.
 
 [00:34:21] Will: I don't think it's accidental.
 
@@ -942,7 +942,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:36:37] Adam: Yeah,
 
-[00:36:37] Will: he does a he he plays at that and it is astounding. Like it's just
+[00:36:37] Will: he does a he plays at that and it is astounding. Like it's just
 
 [00:36:37] Adam: amazing.
 
@@ -950,7 +950,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:36:37] Adam: Kills me.
 
-[00:36:37] Will: He's young and he's just he just comes out and wails. There's the one where at the end he just throws the guitar up in the air and it it never comes down. Like still don't like I assume that there's some poor bastard hanging from the rafters.
+[00:36:37] Will: He's young and he's just he just comes out and wails. There's the one where at the end he just throws the guitar up in the air and it never comes down. Like still don't like I assume that there's some poor bastard hanging from the rafters.
 
 [00:37:19] Adam: Watch him on the Super Bowl. There's like you know trap doors opening up in the stage and people handing him tuned guitars in pouring rain.
 
@@ -962,23 +962,23 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:37:37] Adam: yeah,
 
-[00:37:37] Will: Super Bowl halftime show every year, and. And she said that people don't know the half of that one. Like when it rains like that, it's just who knows how it's going to. Like they they're they're all just dying the entire time.
+[00:37:37] Will: Super Bowl halftime show every year, and. And she said that people don't know the half of that one. Like when it rains like that, it's just who knows how it's going to. Like they they're all just dying the entire time.
 
 [00:37:53] Norm: Is there a documentary about the production of that?
 
-[00:37:54] Will: I don’t, I don’t. Like that would be a great oral
+[00:37:54] Will: I don’t. Like that would be a great oral
 
 [00:37:56] Adam: history behind the scenes. It's about 30 minutes long of it that I just watched on YouTube.
 
 [00:37:56] Will: Okay.
 
-[00:37:56] Adam: Um. But also the Grammys happened. Yeah. Yeah. A few days ago, and I learned two things from those. Alicia Keys is maybe one of the great humans of the world.
+[00:37:56] Adam: But also the Grammys happened. Yeah. Yeah. A few days ago, and I learned two things from those. Alicia Keys is maybe one of the great humans of the world.
 
 [00:38:12] Will: She seems really good.
 
-[00:38:13] Adam: She her hosting of that show was so magnificently grounded and balanced and loving and artistic and maternal and a warrior. It was just phenomenal. And Brandi Carlile did a song. She sang the joke, just off of her new album, and I'm obsessed with Brandi Carlile lately because I can't stop listening to the mother. Listen to the mother. It's incredible. Um, but Brandi Carlile sang, and her song is incendiary and amazing and really worth going and watching.
+[00:38:13] Adam: She her hosting of that show was so magnificently grounded and balanced and loving and artistic and maternal and a warrior. It was just phenomenal. And Brandi Carlile did a song. She sang the joke, just off of her new album, and I'm obsessed with Brandi Carlile lately because I can't stop listening to the mother. Listen to the mother. It's incredible. But Brandi Carlile sang, and her song is incendiary and amazing and really worth going and watching.
 
-[00:38:47] Will: Um. Speaking of awards shows,
+[00:38:47] Will: Speaking of awards shows,
 
 [00:38:47] Adam: yes.
 
@@ -994,7 +994,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:38:59] Will: they're doing it during commercials.
 
-[00:39:00] Adam: They're they're doing those during commercials, but they are going to cut them down and put them into the regular broadcast. This is what they that.
+[00:39:00] Adam: They're doing those during commercials, but they are going to cut them down and put them into the regular broadcast. This is what they that.
 
 [00:39:08] Norm: So live editing.
 
@@ -1002,7 +1002,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:39:11] Will: I didn't know that part, so I'm glad you. Glad you clarified it.
 
-[00:39:13] Adam: Guillermo, I follow Guillermo del Toro on Twitter, and he was very vocal about saying these, you know, cinematography and editing are not ancillary to film. They are, he says, they are cinema itself.
+[00:39:13] Adam: Guillermo, I follow Guillermo del Toro on Twitter, and he was very vocal about saying these cinematography and editing are not ancillary to film. They are, he says, they are cinema itself.
 
 [00:39:13] Will: The core process.
 
@@ -1012,7 +1012,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:39:13] Adam: I agree.
 
-[00:39:41] Will: Hey, which which acceptance speeches are people who aren't famous enough for people to be excited about? So which can we cut down to 10 seconds?
+[00:39:41] Will: Hey, which acceptance speeches are people who aren't famous enough for people to be excited about? So which can we cut down to 10 seconds?
 
 [00:39:49] Adam: But I mean. I would always want to watch Roger Deakins finally getting his Oscar, like we got to last year.
 
@@ -1062,7 +1062,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:41:28] Norm: Avengers Endgame..
 
-[00:41:35] Will: I don’t, I don’t.
+[00:41:35] Will: I don’t.
 
 [00:41:35] Adam: Oh, I'm not watching them. I'm not watching those trailers. Although I did watch half of Infinity War the other night, as also as part of watching.
 

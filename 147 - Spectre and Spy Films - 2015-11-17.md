@@ -10,7 +10,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:01:28] Norm: and I'm Norm.
 
-[00:01:30] Adam: Um. Oh, wait a second. Okay, cool. Uh, I’m—sorry, I just got some text.
+[00:01:30] Adam: Oh, wait a second. Okay, cool. I’m—sorry, I just got some text.
 
 [00:01:35] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
@@ -30,9 +30,9 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:01:53] Adam: So One of my favorite X Files episodes ever is the one where Mulder finds a genie who grants three wishes. Oh. Have you ever seen this one?
 
-[00:02:01] Will: I, I— it’s familiar, but I don't remember what happened.
+[00:02:01] Will: I— it’s familiar, but I don't remember what happened.
 
-[00:02:03] Adam: So the episode starts with these idiots who find the genie, and one of them's like, " I want to be invisible," and she's like, " Great, boom, you're invisible." And he's wearing clothes, and he's like, " Why aren't my clothes invisible?" She's like, " You didn't specify that your clothes." So he takes off his clothes, and he's like, " I'm cold," and she's like, " Yeah, well, that's goes to the territory." And then he runs into traffic and gets hit by a car, right? It’s a very—so there's this great scene where where Scully is invited to do an autopsy on a body that's invisible, and she like, there's a table and there's a dent in the table, but she takes powder and it falls on a human form.
+[00:02:03] Adam: So the episode starts with these idiots who find the genie, and one of them's like, " I want to be invisible," and she's like, " Great, boom, you're invisible." And he's wearing clothes, and he's like, " Why aren't my clothes invisible?" She's like, " You didn't specify that your clothes." So he takes off his clothes, and he's like, " I'm cold," and she's like, " Yeah, well, that's goes to the territory." And then he runs into traffic and gets hit by a car, right? It’s a very—so there's this great scene where Scully is invited to do an autopsy on a body that's invisible, and she like, there's a table and there's a dent in the table, but she takes powder and it falls on a human form.
 
 [00:02:36] Will: Wow, that is amazing effects for like 1990, yeah, four or five probably.
 
@@ -50,7 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:03:39] Adam: Okay.
 
-[00:03:39] Will: Um, which with X Files, you know, X Files
+[00:03:39] Will: Which with X Files X Files
 
 [00:03:41] Adam: was up and down.
 
@@ -60,9 +60,9 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:03:43] Will: The funny thing, because that was one of the first shows with a continuity. It had a really long running continuity. Yeah. That turns out wasn't very good.
 
-[00:03:52] Adam: You know, I love Krycek.
+[00:03:52] Adam: I love Krycek.
 
-[00:03:54] Will: Oh, the characters were great, yeah, but it never kind of went anywhere because it seemed like it seemed like lost. Where they kind of got started and they were like, " Right, right. Well, what the hell are we going to do with this? We got to just keep it rolling." Yeah,
+[00:03:54] Will: Oh, the characters were great, yeah, but it never kind of went anywhere because it seemed like lost. Where they kind of got started and they were like, " Right, right. Well, what the hell are we going to do with this? We got to just keep it rolling." Yeah,
 
 [00:04:03] Norm: back then it was also 26, 24 to 26 episodes
 
@@ -78,13 +78,13 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:04:27] Will: are so good. Yeah,
 
-[00:04:30] Adam: I I think my all time favorite, and when Vince Gilligan visited us on the set, I talked specifically about this one.
+[00:04:30] Adam: I think my all time favorite, and when Vince Gilligan visited us on the set, I talked specifically about this one.
 
 [00:04:30] Will: Mm-hmm.
 
 [00:04:30] Adam: Is one of the best episodes is the I think it's the penultimate season, and it's each. Have we talked about this?
 
-[00:04:43] Will: Where the one where where
+[00:04:43] Will: Where the one where
 
 [00:04:45] Adam: each cut is in each commercial, each span of the episode between commercial breaks is a single shot.
 
@@ -160,9 +160,9 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:06:30] Will: so you're giving us the negative space review of Spectre.
 
-[00:06:33] Adam: So we're we're thinking that we're, so hazard a guess.
+[00:06:33] Adam: So we're thinking that we're, so hazard a guess.
 
-[00:06:37] Norm: So instead of instead of talking about what the movie is,
+[00:06:37] Norm: So instead of talking about what the movie is,
 
 [00:06:40] Adam: right,
 
@@ -182,7 +182,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:06:56] Norm: I'm going to presume people out there have seen at least the trailer for Spectre. Which Christoph Waltz is in there, we assume he plays the villain.
 
-[00:07:02] Adam: He has to be Blumfeld, right? We had an we had an illegal international
+[00:07:02] Adam: He has to be Blumfeld, right? We had an illegal international
 
 [00:07:07] Norm: cabal
 
@@ -198,27 +198,27 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:07:17] Norm: The one during the writer strike.
 
-[00:07:18] Adam: It was terrible. Um, but you know the idea of bringing Spectre in, I think it could. I was thinking that you are going to do stuff where you are going to tie in a lot of different pieces of Bond, and they talked about it as very much. You know, we knew the Broccolis got the rights to Spectre recently, and so this is wanting to tie in the whole series of films. Um, and I saw it as an interesting introspection of Bond into himself. Is the way the trailers played a lot of it.
+[00:07:18] Adam: It was terrible. But you know the idea of bringing Spectre in, I think it could. I was thinking that you are going to do stuff where you are going to tie in a lot of different pieces of Bond, and they talked about it as very much. We knew the Broccolis got the rights to Spectre recently, and so this is wanting to tie in the whole series of films. And I saw it as an interesting introspection of Bond into himself. Is the way the trailers played a lot of it.
 
-[00:07:47] Norm: Right, they're a some type of relationship or something. But Spectre is an organization because you are right. Quantum, there was already a secret society. There was a great, you know, for all that movies' faults,
+[00:07:47] Norm: Right, they're a some type of relationship or something. But Spectre is an organization because you are right. Quantum, there was already a secret society. There was a great for all that movies' faults,
 
 [00:07:56] Will: The ring thing, right?
 
-[00:07:56] Norm: the ring. They had the the villain from the end of the first Casino Royale, Mister White, which. Opened a great chase scene in Quantum, and they had the great opera scene where you have these cabal of the elite, the 1%, with their earbuds, and their and Bond gets to listen in. Like that sequence was great. And how do you kind of redo that and make the organization even more pervasive and powerful?
+[00:07:56] Norm: the ring. They had the villain from the end of the first Casino Royale, Mister White, which. Opened a great chase scene in Quantum, and they had the great opera scene where you have these cabal of the elite, the 1%, with their earbuds, and their and Bond gets to listen in. Like that sequence was great. And how do you kind of redo that and make the organization even more pervasive and powerful?
 
 [00:08:20] Adam: You hire Christoph Waltz,
 
 [00:08:21] Norm: and you hire Christoph Waltz as someone with huge presence and an eerie persona, and a great exactly. He says,
 
-[00:08:27] Will: but I mean the scene that scene that the the the who was the villain in the in in Sky Skyfall? It was
+[00:08:27] Will: but I mean the scene that the who was the villain in the in Sky Skyfall? It was
 
 [00:08:33] Norm: Skyfall is Javier Bardem.
 
-[00:08:35] Will: Yeah, he was he was also in the creepy supervillain oeuvre. He was really good,
+[00:08:35] Will: Yeah, he was also in the creepy supervillain oeuvre. He was really good,
 
-[00:08:42] Adam: absolutely, almost over the top. But you know, with an actor like Bardem, he can actually take that and make it both scary and weirdly funny at the same time.
+[00:08:42] Adam: absolutely, almost over the top. But with an actor like Bardem, he can actually take that and make it both scary and weirdly funny at the same time.
 
-[00:08:49] Norm: Yeah. So do you remember in in the last movie Skyfall?
+[00:08:49] Norm: Yeah. So do you remember in the last movie Skyfall?
 
 [00:08:54] Will: Yeah.
 
@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:09:45] Adam: Okay,
 
-[00:09:46] Will: yeah, yeah, that's what I that's what I took.
+[00:09:46] Will: yeah, yeah, that's what I took.
 
 [00:09:47] Norm: and I think I wanted, I
 
@@ -258,7 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:09:53] Will: It's a sibling rivalry thing,
 
-[00:09:54] Norm: and and so James Bond has like his own abandonment issues, and
+[00:09:54] Norm: and so James Bond has like his own abandonment issues, and
 
 [00:09:59] Adam: how does this apply to Spectre?
 
@@ -266,7 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:10:03] Adam: in Spectre. You said in Spectre,
 
-[00:10:04] Norm: in Spectre, in Spectre.
+[00:10:04] Norm: in Spectre.
 
 [00:10:07] Adam: That's like this is called the iPhone 6, the iPhone success,
 
@@ -302,7 +302,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:11:04] Norm: Totally. Totally.
 
-[00:11:05] Adam: Can I tell you, speaking of of of it getting exhausting after a while, I I love um all the interviews that Daniel Craig's been doing. I mean, he totally gives no fucks right now, and I like one. He said, " You're going to do another Bond film," and he's got one more on his contract, apparently. I haven't read his contract, so I don't know. But and he's just like, " I want to do another Bond film." Like I'd like ground glass in my eyeballs, and he's totally unabashed about it. Then someone says, " Have you learned anything about the ladies from Mr. Bond?" And Craig goes, " You do realize James Bond's a misogynist, right?"
+[00:11:05] Adam: Can I tell you, speaking of it getting exhausting after a while, I I love all the interviews that Daniel Craig's been doing. I mean, he totally gives no fucks right now, and I like one. He said, " You're going to do another Bond film," and he's got one more on his contract, apparently. I haven't read his contract, so I don't know. But and he's just like, " I want to do another Bond film." Like I'd like ground glass in my eyeballs, and he's totally unabashed about it. Then someone says, " Have you learned anything about the ladies from Mr. Bond?" And Craig goes, " You do realize James Bond's a misogynist, right?"
 
 [00:11:38] Will: Yeah,
 
@@ -314,11 +314,11 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:11:57] Adam: Oh,
 
-[00:11:57] Norm: the the rope, the rope torture.
+[00:11:57] Norm: the rope torture.
 
 [00:12:01] Adam: That's in the middle.
 
-[00:12:02] Will: Oh, sorry, my bad. The um, the thing. This is like this is
+[00:12:02] Will: Oh, sorry, my bad. The thing. This is like this is
 
 [00:12:06] Adam: like You’re— scratching my balls. Such a great bit.
 
@@ -332,17 +332,17 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:12:20] Adam: Skyfall is a close second.
 
-[00:12:22] Will: No, I don't think Skyfall is. I I did not like Skyfall.
+[00:12:22] Will: No, I don't think Skyfall is. I did not like Skyfall.
 
 [00:12:24] Adam: Oh really?
 
 [00:12:25] Norm: Do you like Quantum more than Skyfall?
 
-[00:12:26] Will: I don't like Quantum at all. But I think like in the in the list of great Bond movies, I think Skyfall is very very near the top. Right. It's like it's right there with with um uh the one the Lazenby one, which is fabulous.
+[00:12:26] Will: I don't like Quantum at all. But I think like in the list of great Bond movies, I think Skyfall is very very near the top. Right. It's like it's right there with the one the Lazenby one, which is fabulous.
 
 [00:12:38] Adam: Right.
 
-[00:12:38] Will: Um, Her Majesty’s Secret Service and like Thunderball. Right. Those are those are that's my list.
+[00:12:38] Will: Her Majesty’s Secret Service and like Thunderball. Right. Those are that's my list.
 
 [00:12:44] Norm: Not Never Say Never Again.
 
@@ -350,7 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:12:50] Adam: Anyway.
 
-[00:12:51] Will: Um, I I just I'm so bummed that this movie is is that you're not excited about this movie.
+[00:12:51] Will: I just I'm so bummed that this movie is is that you're not excited about this movie.
 
 [00:12:57] Norm: No, I was just disappointed. It was boring. It was Bond formula, and there is something to say about. Bond formula, but what Casino Royale did was take Bond formula and really modernize it and take him out of the Bond comfort zone, get him dirty, get him gritty, and yes, that’s all there.
 
@@ -364,11 +364,11 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:13:31] Adam: That sounds really terrible. You're okay.
 
-[00:13:35] Will: I I
+[00:13:35] Will: I
 
 [00:13:36] Adam: so and yet I don't care. I love every minute of it.
 
-[00:13:38] Norm: He was trusting the narrative, trusting the power of the narrative to to make it his way.
+[00:13:38] Norm: He was trusting the narrative, trusting the power of the narrative to make it his way.
 
 [00:13:42] Adam: Totally
 
@@ -378,33 +378,33 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:13:44] Adam: My plan is to have the screenwriters give everyone a slightly worse hand than me.
 
-[00:13:48] Will: So so when I heard it was Spectre, I was hoping it was going to be. I was hoping Spectre would be a faceless, terrifying force of chaos, chaos like Moriarty, or or you know. Rip it from the headlines and look at what's happening in in in you know like it needs to be something that's truly horrifying if you're going to invoke Spectre.
+[00:13:48] Will: So so when I heard it was Spectre, I was hoping it was going to be. I was hoping Spectre would be a faceless, terrifying force of chaos, chaos like Moriarty, or you know. Rip it from the headlines and look at what's happening in you know like it needs to be something that's truly horrifying if you're going to invoke Spectre.
 
 [00:14:08] Norm: Right.
 
-[00:14:08] Will: It can't be we're going to we're going to steal a jet and sink it in the North Sea and use that to take over the world. Right.
+[00:14:08] Will: It can't be we're going to steal a jet and sink it in the North Sea and use that to take over the world. Right.
 
 [00:14:15] Norm: What they do steal from the headlines?
 
 [00:14:17] Will: I think that's Thunderball. I can't remember. Okay.
 
-[00:14:18] Norm: Boring. I mean, again, I don't want to go into spoilers because I want to talk about what movie it's not. Um, here's what the missed opportunity I thought was, and what I wanted to say.
+[00:14:18] Norm: Boring. I mean, again, I don't want to go into spoilers because I want to talk about what movie it's not. Here's what the missed opportunity I thought was, and what I wanted to say.
 
 [00:14:27] Will: Okay.
 
-[00:14:27] Norm: Uh, and if you're talking about the studio, I understand the studio wants to make money. I understand people want big event movies. I understand studios want um build universes. Marvel, right? Marvel has their universe of movies.
+[00:14:27] Norm: And if you're talking about the studio, I understand the studio wants to make money. I understand people want big event movies. I understand studios want build universes. Marvel, right? Marvel has their universe of movies.
 
 [00:14:37] Will: Yeah.
 
-[00:14:37] Norm: Uh, Sony wants to do like their big universe of Spider-Man movies and stuff like that. If you want to turn the James Bond franchise and give it some legs and do something interesting, and also address the claims of like James Bond not being diverse enough and maybe getting new actors, make it about the double O agents.
+[00:14:37] Norm: Sony wants to do like their big universe of Spider-Man movies and stuff like that. If you want to turn the James Bond franchise and give it some legs and do something interesting, and also address the claims of like James Bond not being diverse enough and maybe getting new actors, make it about the double O agents.
 
 [00:14:55] Adam: Right. Oh yeah, yeah, that's something we haven't seen a lot of.
 
-[00:14:58] Norm: Not a lot of one, and we talk about uh, in Her Majesty’s Secret Service. One of the most awesome scenes in that movie is when all the double O agents are sitting on their tall chairs in the in the beautiful room around and like yeah, give them and and they all you imagine like just like Ghost Protocol, imagine like wow, it's not just James Bond,
+[00:14:58] Norm: Not a lot of one, and we talk about in Her Majesty’s Secret Service. One of the most awesome scenes in that movie is when all the double O agents are sitting on their tall chairs in the beautiful room around and yeah, give them and they all you imagine like just like Ghost Protocol, imagine like wow, it's not just James Bond,
 
 [00:15:16] Adam: right?
 
-[00:15:16] Norm: He has a team, right? There's a whole bunch. Maybe a whole limited selection of of 10 ultra uber agents.
+[00:15:16] Norm: He has a team, right? There's a whole bunch. Maybe a whole limited selection of 10 ultra uber agents.
 
 [00:15:24] Adam: Yeah,
 
@@ -418,13 +418,13 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:15:37] Norm: If you're Spectre and that's eight legs of an octopus, hey, you could have nine double O's fight that.
 
-[00:15:42] Adam: What um does Felix show up?
+[00:15:42] Adam: What does Felix show up?
 
 [00:15:44] Norm: No,
 
-[00:15:45] Will: ah, Felix was in uh was in Casino Royale, wasn't he?
+[00:15:45] Will: ah, Felix was in Casino Royale, wasn't he?
 
-[00:15:48] Adam: He was in Casino Royale and um Quantum Solace.
+[00:15:48] Adam: He was in Casino Royale and Quantum Solace.
 
 [00:15:51] Norm: Yeah, he doesn't. There, James Bond has he never visited America in the recent movies? He's never
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:16:08] Norm: Montenegro.
 
-[00:16:09] Will: The American, the American James Bonds have traditionally been among the crappiest. The one with the one with Jackie Gleason as the sheriff from Smokey and the Bandit. It seemed like that was that was a real low point. Live and let die.
+[00:16:09] Will: The American James Bonds have traditionally been among the crappiest. The one with Jackie Gleason as the sheriff from Smokey and the Bandit. It seemed like that was a real low point. Live and let die.
 
 [00:16:25] Norm: James Bond is a globe—
 
@@ -466,13 +466,13 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:16:36] Will: Well, they don't, but American spies, British spies don't work on American soil. That's the rule. It's the it's part of the friendly agreement.
 
-[00:16:41] Adam: I'm I'm so sad. It's disappointing. I'm going to see it because you and I have disagreed vigorously on many movies. So I'm hoping you're wrong.
+[00:16:41] Adam: I'm so sad. It's disappointing. I'm going to see it because you and I have disagreed vigorously on many movies. So I'm hoping you're wrong.
 
 [00:16:47] Will: Norm frequently has has bad opinions.
 
 [00:16:48] Adam: He does have bad.
 
-[00:16:50] Norm: Hey, I love and and another reason I'm disappointed. Point is because the last Mission Impossible is so good.
+[00:16:50] Norm: Hey, I love and another reason I'm disappointed. Point is because the last Mission Impossible is so good.
 
 [00:16:56] Adam: The last Mission Impossible is fantastic.
 
@@ -490,7 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:17:11] Norm: And no one is having fun. in Spectre.
 
-[00:17:14] Will: If you go back, if you go back to Casino Royale, the thing that I liked about it is just like he's he he's a misogynist and he's horrible, just like he kind of always has been. But it acknowledges it in a way that makes it okay. I think that I don't think that flies anymore.
+[00:17:14] Will: If you go back to Casino Royale, the thing that I liked about it is just like he's he he's a misogynist and he's horrible, just like he kind of always has been. But it acknowledges it in a way that makes it okay. I think that I don't think that flies anymore.
 
 [00:17:30] Adam: Oh, right, right, right. So another thing that Craig said in one of the interviews, they were like, " How was it working with Monica Bellucci? How was it having an older actress be in the movie?" And Craig goes, " You know that she's my age, right? So it's the first time Bond's hooked up with an age appropriate person in a long time. Just absolutely that needs to be said. I'm glad he's been saying it.
 
@@ -512,7 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:18:10] Norm: Be true to himself, but be an outdated character and surround him with the context of like Idris Elba as a double O agent, as double O five, double O six,
 
-[00:18:20] Will: and then and he's like he's like okay, Gramps, you're the old racist guy.
+[00:18:20] Will: and then and he's like okay, Gramps, you're the old racist guy.
 
 [00:18:24] Adam: I will also say that the Bond franchise is very has been very good at reinventing itself. After Austin Powers, the Daniel Craig reboot phenomenal. Quantum of Solace was terrible. Skyfall feels like a two-hour apology for Quantum of Solace, and it's terrific.
 
@@ -540,7 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:19:17] Will: They came out of the top in the cartoon. They didn't come out between his knuckles in the cartoon. They came out of the top of his hand in the cartoon. They were thinner, whippier. It was a little bit of a lighter blade. A little more. Could be—
 
-[00:19:29] Norm: Bond is a franchise that people expect reboots. They expect new actors to come in. Yes. And that's okay. You know, we can complain about oh they're rebooting Spider-Man again. Oh, they're going to reboot this again. Bond, that's part of the story.
+[00:19:29] Norm: Bond is a franchise that people expect reboots. They expect new actors to come in. Yes. And that's okay. We can complain about oh they're rebooting Spider-Man again. Oh, they're going to reboot this again. Bond, that's part of the story.
 
 [00:19:40] Adam: But they're rebooting them so fast.
 
@@ -562,7 +562,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:20:01] Norm: Yeah.
 
-[00:20:03] Will: I think on that note, anything else we want to we want to you know talk about?
+[00:20:03] Will: I think on that note, anything else we want to you know talk about?
 
 [00:20:09] Adam: Spy movies hold a very important place in my makeup. The very first prop I ever built, and I've talked about this, was a James Bond, Mission Impossible type briefcase with a bomb detonator built into it. That type of adventure of the secretive, lonely agent in the middle of nowhere, and all the machinations—actually,
 
@@ -582,7 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:20:48] Adam: Spy, both the television series on the BBC and the Gary Oldman reboot, both fantastic.
 
-[00:20:53] Will: The movie, the movie that is a movie that is a really rewards multiple viewings too.
+[00:20:53] Will: The movie that is a really rewards multiple viewings too.
 
 [00:20:59] Adam: Oh, does it really?
 
@@ -590,13 +590,13 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:21:02] Adam: I want to see Benedict Cumberbatch in his first big breakout role. I mean, he'd had some small ones before that, but that was his. That was his
 
-[00:21:09] Norm: pre-Sherlock around the same time. Yeah, I think there's a definitely there's the fantasy, the fantasy of the the world traveler, the loner, the the world of espionage.
+[00:21:09] Norm: pre-Sherlock around the same time. Yeah, I think there's a definitely there's the fantasy of the world traveler, the loner, the world of espionage.
 
 [00:21:20] Adam: Yeah,
 
 [00:21:20] Norm: politics is always interesting.
 
-[00:21:22] Adam: Well, let me tell you a story. Just to finish this, I'll finish with a story from an actual spy I met, who did a couple of, I think, three tours with the CIA, and their this spy's spouse also worked in the CIA. Now I was asking this this person about about what's in a go bag because I always ask that of anybody I meet, right? And they said there may be things in the go bag that aren't. Civilian knowledge, in which case they can't tell me about them. However, broadly speaking, what's in a go bag is whatever you need to get from wherever you are to wherever in the world you're needed within 36 hours.
+[00:21:22] Adam: Well, let me tell you a story. Just to finish this, I'll finish with a story from an actual spy I met, who did a couple of, I think, three tours with the CIA, and their this spy's spouse also worked in the CIA. Now I was asking this person about about what's in a go bag because I always ask that of anybody I meet, right? And they said there may be things in the go bag that aren't. Civilian knowledge, in which case they can't tell me about them. However, broadly speaking, what's in a go bag is whatever you need to get from wherever you are to wherever in the world you're needed within 36 hours.
 
 [00:22:04] Will: So, so this isn't your bug out bag. This isn't your. This is get the hell out of Russia to someplace safe.
 
@@ -608,25 +608,25 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:22:44] Will: Doesn’t know the identity.
 
-[00:22:45] Adam: They don't know whether their their their spouse is the one of the people that was killed, and they're in this foreign country in which. The person I was talking to, they couldn't call out. All the foreign communications are monitored, so they absolutely for two weeks couldn't alert their spouse that they were okay.
+[00:22:45] Adam: They don't know whether their spouse is the one of the people that was killed, and they're in this foreign country in which. The person I was talking to, they couldn't call out. All the foreign communications are monitored, so they absolutely for two weeks couldn't alert their spouse that they were okay.
 
 [00:23:04] Norm: Yeah,
 
 [00:23:04] Unknown speaker: wow.
 
-[00:23:04] Adam: And they said they went through that two or three times in the time that they worked for the CIA, and that that is a reality of of of what you'd call statecraft that I find would not. I would not be suited for that. I would not do that very well at all. It is way too stressful.
+[00:23:04] Adam: And they said they went through that two or three times in the time that they worked for the CIA, and that that is a reality of what you'd call statecraft that I find would not. I would not be suited for that. I would not do that very well at all. It is way too stressful.
 
-[00:23:22] Norm: The psychology, psychology of. I mean, it's it's why they have to be loners in popular media. That's why they're always loners. Like like in Casino Royale, Vesper Lynd says, you know, MI MI six takes the those orphans, troubled orphans, turn them into killers.
+[00:23:22] Norm: The psychology, psychology of. I mean, it's why they have to be loners in popular media. That's why they're always loners. Like in Casino Royale, Vesper Lynd says MI MI six takes the those orphans, troubled orphans, turn them into killers.
 
-[00:23:35] Will: Well, that was the. I mean, that was the situation. What is it? It's one of the. It's one of the Mission Impossible movies. I think it's three, maybe, where he meets the girl, and then the next movie he basically ends the marriage because he he knows that it's going to like. He can't be married and do that job. Ethan Hunt can't be Ethan Hunt and be married and have a family.
+[00:23:35] Will: Well, that was the. I mean, that was the situation. What is it? It's one of the. It's one of the Mission Impossible movies. I think it's three, maybe, where he meets the girl, and then the next movie he basically ends the marriage because he knows that it's going to like. He can't be married and do that job. Ethan Hunt can't be Ethan Hunt and be married and have a family.
 
 [00:23:52] Adam: I know it's heartbreaking, isn't it?
 
-[00:23:54] Will: And it was it was the most brutal part of that entire series, at least for the four that I've seen.
+[00:23:54] Will: And it was the most brutal part of that entire series, at least for the four that I've seen.
 
 [00:23:57] Adam: That's the Keri Russell film.
 
-[00:23:59] Will: Yeah, it's the third one. It's the it's the J. J. Abrams one.
+[00:23:59] Will: Yeah, it's the third one. It's the J. J. Abrams one.
 
 [00:24:01] Adam: Right,
 
@@ -636,11 +636,11 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:24:06] Will: So good.
 
-[00:24:06] Norm: It's um. It's a—
+[00:24:06] Norm: It's. It's a—
 
 [00:24:07] Adam: Is the villain not scary in
 
-[00:24:10] Norm: Christoph Waltz is underused. I wish he was to to reframe it to not spoil it. I wish he was used so much. I wish he was perfectly used.
+[00:24:10] Norm: Christoph Waltz is underused. I wish he was to reframe it to not spoil it. I wish he was used so much. I wish he was perfectly used.
 
 [00:24:18] Adam: I wish he was more James.
 
@@ -652,7 +652,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:24:32] Norm: And not get so from watching the trailer, I wanted to see a movie where James Bond was actually vulnerable and afraid for half the movie.
 
-[00:24:41] Adam: Actually, even more than that, right? Because what what the trailer promises is that. Whoever this is, has been one or two or three steps ahead of Bond for his whole life.
+[00:24:41] Adam: Actually, even more than that, right? Because what the trailer promises is that. Whoever this is, has been one or two or three steps ahead of Bond for his whole life.
 
 [00:24:50] Will: Yeah,
 
@@ -668,7 +668,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:25:20] Norm: don't be a loner.
 
-[00:25:22] Will: Does that does that mean that Christoph Waltz killed Bond's parents?
+[00:25:22] Will: Does that mean that Christoph Waltz killed Bond's parents?
 
 [00:25:26] Adam: Batman's parents, it turns out. Oh, Bond's really upset about that.
 
@@ -702,7 +702,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:25:52] Adam: Brilliant. In fact, it's darker than most people would make a movie these days. Her weird, difficult relationship with Jeff Bridges throughout that film is really kind of upsetting.
 
-[00:26:02] Will: That's an early like, oh, Jeff Bridges. There's something going on here that you maybe didn't think about. How? Who directed that? It's it's it's it it was a it was a nominated for Oscars and everything
+[00:26:02] Will: That's an early like, oh, Jeff Bridges. There's something going on here that you maybe didn't think about. How? Who directed that? It's it was a nominated for Oscars and everything
 
 [00:26:13] Adam: that movie. Fabulous Baker Boys. Oh God, I can't remember. I can't remember. Oh, if only the internet were in my pocket.
 
@@ -754,13 +754,13 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:27:03] Will: Oh, right.
 
-[00:27:04] Adam: On tour right now. Yes. If you would like to come out and see me and Jamie's last tour, go to MythBustersTour.com and get your tickets. They are probably available. I I don't know, but we're coming to your town. We're doing 32 cities in 35 days.
+[00:27:04] Adam: On tour right now. Yes. If you would like to come out and see me and Jamie's last tour, go to MythBustersTour.com and get your tickets. They are probably available. I don't know, but we're coming to your town. We're doing 32 cities in 35 days.
 
 [00:27:21] Will: Wow.
 
 [00:27:21] Adam: all the way up through December 19th. It's going to be fantastic. I can't wait to head out. I haven't left yet, but in the reality when this airs, I will be out in the middle of the country.
 
-[00:27:32] Norm: You'll be getting your new your new IDs and your new passports in every location.
+[00:27:32] Norm: You'll be getting your new IDs and your new passports in every location.
 
 [00:27:34] Adam: Yes, exactly. I'm handing over my true name and I'm hitting the road.
 
@@ -780,6 +780,6 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:27:48] Adam: Thanks, guys.
 
-[00:27:48] Will: Bye. Every time you get those out, I can't help but think of the guys who asked for one super, you know, yeah, one super, any superpower they could have, and they picked Wolverine claws, but not regenerative healing. Such a good video.
+[00:27:48] Will: Bye. Every time you get those out, I can't help but think of the guys who asked for one super yeah, one super, any superpower they could have, and they picked Wolverine claws, but not regenerative healing. Such a good video.
 
 [00:28:12] Adam: I can't control them. Okay, start, because I got something funny to talk about.

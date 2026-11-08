@@ -18,7 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:00:58] Adam: We did.
 
-[00:00:59] Will: I just, I just, like. I think we should skip the preamble this week.
+[00:00:59] Will: I just, like. I think we should skip the preamble this week.
 
 [00:00:59] Adam: Okay,
 
@@ -58,15 +58,15 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:02:38] Will: So, so you're like doing lashings and all that stuff.
 
-[00:02:40] Adam: Lots and lots and lots of lashing. I think we used 70 or 80 rolls. I can't quite remember the number.
+[00:02:40] Adam: Lots and lots of lashing. I think we used 70 or 80 rolls. I can't quite remember the number.
 
 [00:02:45] Will: That's less than I would expect.
 
 [00:02:46] Norm: It's what Marco Polo introduced to Kublai Khan in his invasion of China. Also, a Netflix show, the trebuchet. It's that was no no basis on reality.
 
-[00:02:57] Adam: Um. It was everyone was the number of wonderful encomiums and sweet well wishes from fans and friends alike all weekend long was really moving.
+[00:02:57] Adam: It was everyone was the number of wonderful encomiums and sweet well wishes from fans and friends alike all weekend long was really moving.
 
-[00:03:08] Will: I thought that just the stuff that you showed, the clips that you showed during the during the after show, the reunion was incredible, right? I mean, it was astronauts and presidents and Neil deGrasse Tyson and yeah, it was it was Fantastic.
+[00:03:08] Will: I thought that just the stuff that you showed, the clips that you showed during the after show, the reunion was incredible, right? I mean, it was astronauts and presidents and Neil deGrasse Tyson and yeah, it was Fantastic.
 
 [00:03:24] Adam: Jim Cameron.
 
@@ -78,11 +78,11 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:03:25] Norm: and then also your experience of watching the finale because I know you guys had a big party and got together. We can go in either order.
 
-[00:03:39] Adam: Um. So yeah, to the watching, we had a party at a at a bar in San Francisco. I can't remember what it's called, fromage or
+[00:03:39] Adam: So yeah, to the watching, we had a party at a bar in San Francisco. I can't remember what it's called, fromage or
 
 [00:03:50] Will: a cheese bar,
 
-[00:03:50] Adam: Jeopardy or something. I can't remember. Some. I I really.
+[00:03:50] Adam: Jeopardy or something. I can't remember. Some. I really.
 
 [00:03:53] Will: Is it some place you could get fancy toast?
 
@@ -102,23 +102,23 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:05:30] Will: did it explode at the end?
 
-[00:05:30] Adam: I have no idea. But I really, the fans turned out to celebrate it in their way, and it was it was amazing. I've personally gone through. We've talked about this in the podcast before. The catharsis of ending something so long. I've personally already passed through a lot of that, so I didn't find I wasn't feeling very elegiac this weekend. You know, it was mostly just really glad to be able to to tweet it to the fans and talk to talk to my old friends and old staff members and really sort of. Get to feel how what the wonderful thing that we built
+[00:05:30] Adam: I have no idea. But I really, the fans turned out to celebrate it in their way, and it was amazing. I've personally gone through. We've talked about this in the podcast before. The catharsis of ending something so long. I've personally already passed through a lot of that, so I didn't find I wasn't feeling very elegiac this weekend. You know, it was mostly just really glad to be able to tweet it to the fans and talk to my old friends and old staff members and really sort of. Get to feel how what the wonderful thing that we built
 
-[00:06:04] Will: It's almost like a reunion more than a more than a funeral
+[00:06:04] Will: It's almost like a reunion more than a funeral
 
 [00:06:07] Adam: exactly.
 
-[00:06:07] Norm: And you talked about those feelings in the episode itself, in the the stunt where you drove through all the props over the 14 years.
+[00:06:07] Norm: And you talked about those feelings in the episode itself, in the stunt where you drove through all the props over the 14 years.
 
-[00:06:15] Adam: Yeah, that when I get choked up, that's that's genuine.
+[00:06:15] Adam: Yeah, that when I get choked up, that's genuine.
 
 [00:06:18] Will: If I
 
 [00:06:19] Adam: that was the thing.
 
-[00:06:20] Will: That's that was one of those days. After that, we we saw you immediately after you did that. You came in and you were you were legitimately like I mean, and and Norm and I have both worked places for a really long time and left, but it's not quite the same. I think as as a small you know crazy tight team that made the amount of television and stuff that you did. I mean, it was really neat. I thought it was a really. I thought I thought actually all three parts of that because you had basically the huge explosion
+[00:06:20] Will: That's that was one of those days. After that, we saw you immediately after you did that. You came in and you were legitimately like I mean, and Norm and I have both worked places for a really long time and left, but it's not quite the same. I think as a small you know crazy tight team that made the amount of television and stuff that you did. I mean, it was really neat. I thought it was a really. I thought actually all three parts of that because you had basically the huge explosion
 
-[00:06:45] Adam: with four parts. We we blew up a we blew up an RV at 50,000 frames per second. Then we destroyed Buster. We sent Buster to a better place. I've got some chunks of him around here somewhere.
+[00:06:45] Adam: with four parts. We blew up a we blew up an RV at 50,000 frames per second. Then we destroyed Buster. We sent Buster to a better place. I've got some chunks of him around here somewhere.
 
 [00:06:56] Will: It looked like he hit so hard he caught on fire.
 
@@ -126,7 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:07:00] Norm: Yeah, all those stunts were incredible. I want to go through kind of each of those. Yeah,
 
-[00:07:04] Adam: and then so just to recap, then we we drove through a miles worth of MythBuster props, and then we blew up a cement truck with more explosives than we've ever used before.
+[00:07:04] Adam: and then so just to recap, then we drove through a miles worth of MythBuster props, and then we blew up a cement truck with more explosives than we've ever used before.
 
 [00:07:04] Norm: Wow. So the first one, which was blowing up the RV,
 
@@ -146,9 +146,9 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:07:53] Adam: and that's the thing is when they say, " Oh, it's got a maximum of 500,000 frames per second," that means it's like. 12 by 30 pixels.
 
-[00:08:00] Will: It means basically you need something that's going to flash the entire field of view in order to see what what happens.
+[00:08:00] Will: It means basically you need something that's going to flash the entire field of view in order to see what happens.
 
-[00:08:05] Norm: Right, which which is fine for science.
+[00:08:05] Norm: Right, which is fine for science.
 
 [00:08:06] Will: Yeah.
 
@@ -160,7 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:08:18] Adam: oh no
 
-[00:08:19] Norm: 10,000 fps for for a lot of things.
+[00:08:19] Norm: 10,000 fps for a lot of things.
 
 [00:08:21] Adam: No, someone gets smacked in the kisser you don't need more than 250 frames.
 
@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:08:29] Will: Yeah.
 
-[00:08:29] Adam: So we decided lightweight RV and and we'll use that. But you got to watch it light up from the inside. And just as a note, that was the same amount of explosives we used to dispose of the first cement truck: 850 pounds of ANFO.
+[00:08:29] Adam: So we decided lightweight RV and we'll use that. But you got to watch it light up from the inside. And just as a note, that was the same amount of explosives we used to dispose of the first cement truck: 850 pounds of ANFO.
 
 [00:08:29] Will: Yeah.
 
@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:09:56] Norm: the wide shot
 
-[00:09:56] Will: with the wide shot of that with the with the spherical lensing. Like it was unbelievable.
+[00:09:56] Will: with the wide shot of that with the spherical lensing. Like it was unbelievable.
 
 [00:10:02] Adam: So the best way to describe what that lensing really is is in the same way that light moves differently through a fish tank than it moves through water. It moves differently through denser mediums. That that bubble moving outward from the explosion is a denser medium of air compressed by the explosion, and so you're watching that denser air move the light in slightly different fashion, and thus lensing it. It's I've never seen anything like that.
 
@@ -200,7 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:10:36] Will: You wouldn't feel it, Norm. But you'd feel it really quickly.
 
-[00:10:39] Adam: You'd be there'd be this, and then your your jelly. Because what it will do is it will accelerate all the cells in your body at about 20,000 feet per second, but just the tiniest fraction of an inch. But it'll tear apart all the connective whatever inside of you and just turn you to a bag full of jelly, which arguably we already are, but
+[00:10:39] Adam: You'd be there'd be this, and then your jelly. Because what it will do is it will accelerate all the cells in your body at about 20,000 feet per second, but just the tiniest fraction of an inch. But it'll tear apart all the connective whatever inside of you and just turn you to a bag full of jelly, which arguably we already are, but
 
 [00:11:01] Will: more so,
 
@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:11:02] Will: Why do you guys use ANFO for that kind of stuff? Because it's
 
-[00:11:06] Adam: we use ANFO is cheap and it's a nice slow explosive, nice and slow. I'm sorry, I think ANFO is. You know, people will correct me. High explosives like plastic explosives or cast boosters those move at like 22,000 to 25,000 frame feet per second. The ANFO, it's slower. I think like 16,000 feet per second. Again, I'm trying to remember these numbers. I just know it's it's not like half the speed, but ANFO is meant for pushing. It's used in in mining for like pushing giant chunks of a mountain off of it.
+[00:11:06] Adam: we use ANFO is cheap and it's a nice slow explosive, nice and slow. I'm sorry, I think ANFO is. People will correct me. High explosives like plastic explosives or cast boosters those move at like 22,000 to 25,000 frame feet per second. The ANFO, it's slower. I think like 16,000 feet per second. Again, I'm trying to remember these numbers. I just know it's not like half the speed, but ANFO is meant for pushing. It's used in mining for like pushing giant chunks of a mountain off of it.
 
 [00:11:06] Unknown speaker: Okay.
 
@@ -216,7 +216,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:11:45] Norm: And all these considerations from the camera to the type of explosives to what you're blowing up. All work toward the video, all to what you are demonstrating and what you are showing for the television, yeah, which is awesome. There is an incredible cinematography aspect to it,
 
-[00:11:59] Adam: absolutely. And that was really, really key. Was I mean, that took most of the negotiating on the day, and I don't mean negotiating with New Mexico Tech, but really just sort of making sure that all of the departments that we're dealing with, and it was dozens of people. And New Mexico Tech University was amazing with us, but they have a protocol and they have to make sure everyone's safe. And we've got cameras; they can only roll for a certain amount of time. They're like spread out over about a mile, a mile in diameter of cameras. Plus, there is drones in the air, so people need to be outside. There is lockdowns. It was an incredible amount of infrastructure just to push the button.
+[00:11:59] Adam: absolutely. And that was really, really key. Was I mean, that took most of the negotiating on the day, and I don't mean negotiating with New Mexico Tech, but really just sort of making sure that all of the departments that we're dealing with, and it was dozens of people. And New Mexico Tech University was amazing with us, but they have a protocol and they have to make sure everyone's safe. And we've got cameras; they can only roll for a certain amount of time. They're like spread out over about a mile in diameter of cameras. Plus, there is drones in the air, so people need to be outside. There is lockdowns. It was an incredible amount of infrastructure just to push the button.
 
 [00:12:38] Will: Okay, so you mentioned the drones.
 
@@ -252,9 +252,9 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:13:25] Will: they meaning New Mexico Tech.
 
-[00:13:26] Adam: New Mexico Tech will say we can't put a camera there. It's not safe. We have to have you over here. We only have two miles of cord to go over there, and so then all of this has to be worked out by all of us, right? So narratively, what's important to me to see out of this? What are the three key shots I want? They can get all these other shots that they want, but I've got a couple I want on my list. Okay, so we can't get one of mine. How are we going to get something similar to it? Et cetera, et cetera, et cetera. It's all of this back and forth. Okay, turns out we can't get this up until then. What do we do about this and that?
+[00:13:26] Adam: New Mexico Tech will say we can't put a camera there. It's not safe. We have to have you over here. We only have two miles of cord to go over there, and so then all of this has to be worked out by all of us, right? So narratively, what's important to me to see out of this? What are the three key shots I want? They can get all these other shots that they want, but I've got a couple I want on my list. Okay, so we can't get one of mine. How are we going to get something similar to it? Et cetera. It's all of this back and forth. Okay, turns out we can't get this up until then. What do we do about this and that?
 
-[00:13:55] Will: I have a mechanics question about the the high speed. When you shoot a high speed, probably people don't know this. It's not like shooting a normal camera. Usually, you either have a pre, a post, or a mid trigger set for it, and that means that somebody literally needs to hit the button within X number of seconds—
+[00:13:55] Will: I have a mechanics question about the high speed. When you shoot a high speed, probably people don't know this. It's not like shooting a normal camera. Usually, you either have a pre, a post, or a mid trigger set for it, and that means that somebody literally needs to hit the button within X number of seconds—
 
 [00:13:55] Adam: Yes.
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:14:14] Adam: If it's 20 seconds, I think it's like twelve or fourteen.
 
-[00:14:16] Will: Yeah, so it's it's not very many.
+[00:14:16] Will: Yeah, so it's not very many.
 
 [00:14:18] Adam: It's not very many. You got to get it,
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:14:22] Norm: They automate it. You can have it be sound trigger,
 
-[00:14:24] Adam: light trigger, and New Mexico Tech has their own triggers for explosive for high speed cameras as well. And so we were using some of their technology. Again, I, we should probably bring Duncan on to talk about this because Duncan and Sawz managed all of this stuff, and it's it's a tremendous amount.
+[00:14:24] Adam: light trigger, and New Mexico Tech has their own triggers for explosive for high speed cameras as well. And so we were using some of their technology. Again, I, we should probably bring Duncan on to talk about this because Duncan and Sawz managed all of this stuff, and it's a tremendous amount.
 
 [00:14:42] Will: I mean, I assume Duncan
 
@@ -282,7 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:14:44] Will: You had a really other, not me.
 
-[00:14:46] Adam: Uh, sorry. Just
+[00:14:46] Adam: Sorry. Just
 
 [00:14:47] Will: to be clear,
 
@@ -298,13 +298,13 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:15:08] Will: Yes. Can you describe that a little bit, or not so much?
 
-[00:15:11] Adam: Uh, it's basically under a mountain of dirt. It's a concrete bunker. It feels like the last stand from the zombie apocalypse.
+[00:15:11] Adam: It's basically under a mountain of dirt. It's a concrete bunker. It feels like the last stand from the zombie apocalypse.
 
 [00:15:11] Will: Okay.
 
-[00:15:11] Adam: It’s hilarious. Um, The explosion was far enough away. I think we were about two kilometers from the explosion in that bunker, so we didn't feel we didn't feel it very significantly. A couple of days before that final explosion, we had filmed the Jamie flattening the car explosion, and that one we felt. That one cleared all the air out of. I mean, it moved all the air inside our bunker
+[00:15:11] Adam: It’s hilarious. The explosion was far enough away. I think we were about two kilometers from the explosion in that bunker, so we didn't feel it very significantly. A couple of days before that final explosion, we had filmed the Jamie flattening the car explosion, and that one we felt. That one cleared all the air out of. I mean, it moved all the air inside our bunker
 
-[00:15:38] Will: just because it it was slamming straight down into the ground.
+[00:15:38] Will: just because it was slamming straight down into the ground.
 
 [00:15:40] Adam: It was only a few hundred feet away.
 
@@ -326,7 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:16:04] Norm: Yeah, so Buster next, and that was at the rocket sled.
 
-[00:16:07] Adam: That was the rocket sled. That was so. You know, it seems so obvious now. It seems so right. Right, strap Buster to a rocket sled, send him into a wall. But there was a lot of back and forth about different things we could do to to destroy Buster, to send him away, et cetera. And in the end, the superhero suit, which was designed by my producer Eric Haven, who's a comic book author, he's got a graphic novel coming out soon. We should cover it on. We'll cover it on tested. It's going to be great. Eric designed that suit. We had two made, one for Buster, one for me, for that piece to camera with the phone booth.
+[00:16:07] Adam: That was the rocket sled. That was so. It seems so obvious now. It seems so right. Right, strap Buster to a rocket sled, send him into a wall. But there was a lot of back and forth about different things we could do to destroy Buster, to send him away, et cetera. And in the end, the superhero suit, which was designed by my producer Eric Haven, who's a comic book author, he's got a graphic novel coming out soon. We should cover it on. We'll cover it on tested. It's going to be great. Eric designed that suit. We had two made, one for Buster, one for me, for that piece to camera with the phone booth.
 
 [00:16:40] Norm: I wasn't the same one.
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:16:43] Adam: and then
 
-[00:16:44] Will: you've really bulked up since you since you.
+[00:16:44] Will: you've really bulked up since you.
 
 [00:16:46] Adam: I will tell you that I missed this great opportunity. So you know that I love punning on MythBusters, and I'll tell you easily half of my puns, and most most of the good ones came from my sound man Matt Jepson. Matt, Matty's been with the show for forever. And Maddie's just got the worst punning brain ever, and by worst I mean best.
 
@@ -352,11 +352,11 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:17:26] Will: Oh, poor Buster.
 
-[00:17:27] Adam: Um, we really didn't ever find the main chunks of Buster. We found lots of little pieces, which became crew gifts.
+[00:17:27] Adam: We really didn't ever find the main chunks of Buster. We found lots of little pieces, which became crew gifts.
 
 [00:17:33] Will: So do you know what happened? Like, he did he hit fast enough that the energy just converted, lit him on fire.
 
-[00:17:39] Adam: I I that's what it looks like. It looks like looks like the metal of Buster's body hit the concrete so hard that there was fire and sparks involved, which is astounding.
+[00:17:39] Adam: I that's what it looks like. It looks like the metal of Buster's body hit the concrete so hard that there was fire and sparks involved, which is astounding.
 
 [00:17:39] Will: Wow.
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:17:56] Adam: And then I had painted the target with 2002 to 2016, and he left a hole with a year on either side. I was like, if you had told me one of that, I'd have been like, I don't think that's gonna happen.
 
-[00:18:06] Will: Yeah. the the only way the only way you could have improved that is if he left the Bugs Bunny shaped hole in the wall, which and I don't, I mean,
+[00:18:06] Will: Yeah. the only way you could have improved that is if he left the Bugs Bunny shaped hole in the wall, which and I don't, I mean,
 
 [00:18:13] Adam: which my friend Ben was saying the other day, I can't believe you never tested that myth, and I'm like, yeah, it's right up there with does a frying pan adhere to the shape of your head when someone hits you really hard.
 
@@ -390,15 +390,15 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:18:48] Will: freeway and all that. Yep, yeah,
 
-[00:18:50] Adam: and so we've filmed there hundreds of times over the years on MythBusters, and that was the that was the last shoot. It was beautiful.
+[00:18:50] Adam: and so we've filmed there hundreds of times over the years on MythBusters, and that was the last shoot. It was beautiful.
 
 [00:18:58] Will: I didn't know that was the last one.
 
-[00:18:59] Adam: That was that was that was the last time we filmed there, and I can. Barely describe to you how much work the crew put into assembling all that stuff,
+[00:18:59] Adam: That was the last time we filmed there, and I can. Barely describe to you how much work the crew put into assembling all that stuff,
 
-[00:19:09] Norm: right? Because it's not like they were just in, like, ready in M5 to dig out.
+[00:19:09] Norm: right? Because it's not like they were just in ready in M5 to dig out.
 
-[00:19:13] Adam: No, no, no, no. In fact, most of the time they were making a lot of that stuff from scratch in in
+[00:19:13] Adam: No, no, no, no. In fact, most of the time they were making a lot of that stuff from scratch in
 
 [00:19:13] Norm: wow
 
@@ -420,7 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:20:12] Will: How many? How did? How did you get that stuff over there? Was it just a couple of trucks,
 
-[00:20:16] Adam: trucks, and trucks and trucks? And trucks.
+[00:20:16] Adam: trucks, and trucks? And trucks.
 
 [00:20:16] Will: Yeah, constant ferrying back and forth.
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:20:41] Adam: so most of the drive, I can't see.
 
-[00:20:44] Will: Was were you getting radio directions a little bit right, a little bit right?
+[00:20:44] Will: Was were you getting radio directions a little bit right?
 
 [00:20:47] Adam: No, I can see my camera. I can see one of my camera cars.
 
@@ -460,13 +460,13 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:20:59] Will: Yeah,
 
-[00:20:59] Adam: I don't want to err towards the camera car. I can't see on my right because I don't want to. I don't want to hurt him. Now that's being driven by a professional cop training driver, Brian. So I know he knows enough to stay safe. But again, I'm in the 60,000 pound vehicle. I want to keep it away from everybody. So I'm using touch. I'm using sight, and I'm. We put up street signs that had each year on them, and I'm using those to gauge my my direction. It was. I said this to you guys on the podcast right afterwards. It was without a doubt the best driving I've ever done in my professional life.
+[00:20:59] Adam: I don't want to err towards the camera car. I can't see on my right because I don't want to. I don't want to hurt him. Now that's being driven by a professional cop training driver, Brian. So I know he knows enough to stay safe. But again, I'm in the 60,000 pound vehicle. I want to keep it away from everybody. So I'm using touch. I'm using sight, and I'm. We put up street signs that had each year on them, and I'm using those to gauge my direction. It was. I said this to you guys on the podcast right afterwards. It was without a doubt the best driving I've ever done in my professional life.
 
 [00:21:36] Will: Did you guys put the last couple of vans in the funnel on purpose, or was that just a happy accident?
 
-[00:21:40] Adam: was no. It was it wasn't that we we didn't put them in that orientation to funnel me towards the Impala. We did that because we weren't sure how much impetus I would have, and we didn't want them to stop me. So that was a compromise that Steve O, Steve Christiansen, my director, and I came up with at the very end. We just we moved them. It was really fun using a forklift. On cars, I didn't care about.
+[00:21:40] Adam: was no. It was it wasn't that we didn't put them in that orientation to funnel me towards the Impala. We did that because we weren't sure how much impetus I would have, and we didn't want them to stop me. So that was a compromise that Steve O, Steve Christiansen, my director, and I came up with at the very end. We just we moved them. It was really fun using a forklift. On cars, I didn't care about.
 
-[00:22:03] Will: Oh my god! I can't imagine. Between that and when you did the the vacuum lifter and then just dropped it from 60 feet or whatever, how much? How much fun?
+[00:22:03] Will: Oh my god! I can't imagine. Between that and when you did the vacuum lifter and then just dropped it from 60 feet or whatever, how much? How much fun?
 
 [00:22:12] Adam: The best.
 
@@ -494,15 +494,15 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:22:55] Norm: Low center of gravity and a lot of momentum. 50 miles per hour.
 
-[00:22:59] Adam: 14 speeds. You know, I
+[00:22:59] Adam: 14 speeds. I
 
-[00:23:01] Will: were you having to shift during the during the run? Are you downshifting?
+[00:23:01] Will: were you having to shift during the run? Are you downshifting?
 
 [00:23:04] Adam: I at one point it kicked itself out of gear 70% of the way in,
 
 [00:23:10] Will: Wow.
 
-[00:23:10] Adam: and I downshifted back to seventh and back into eighth gear to get the the last the last bit.
+[00:23:10] Adam: and I downshifted back to seventh and back into eighth gear to get the last bit.
 
 [00:23:04] Will: Wow!
 
@@ -530,9 +530,9 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:24:21] Norm: no trace.
 
-[00:24:22] Will: Same thing for the for the explosions.
+[00:24:22] Will: Same thing for the explosions.
 
-[00:24:24] Adam: Yeah, and that's actually largely under the aegis of New Mexico Tech, so they have their protocols, and I wasn't party to to that stuff because we were already back home by the time we were done.
+[00:24:24] Adam: Yeah, and that's actually largely under the aegis of New Mexico Tech, so they have their protocols, and I wasn't party to that stuff because we were already back home by the time we were done.
 
 [00:24:34] Norm: Now, some of the stuff you ran through still exists, and you kept a few as mementos.
 
@@ -568,13 +568,13 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:25:38] Will: He was on Octobercast. He came on Octobercast the first year we worked with you guys.
 
-[00:25:42] Adam: So Scott had Scott bought one of the Chevy Impalas. Yeah, no, not Chevy Impala. Sorry, Chevy Caprice. Yeah, that we used in one of our cop car episodes. This one was in particularly okay shape, and he's been fixing it up and turning it into a camera platform vehicle. With with what you saw was he was off to my right, this large metal framework on the back of his car. This allowed him to dolly basically. Dolly up a remote camera from inside the car at the same time as he's filming out the window,
+[00:25:42] Adam: So Scott had Scott bought one of the Chevy Impalas. Yeah, no, not Chevy Impala. Sorry, Chevy Caprice. Yeah, that we used in one of our cop car episodes. This one was in particularly okay shape, and he's been fixing it up and turning it into a camera platform vehicle. With what you saw was he was off to my right, this large metal framework on the back of his car. This allowed him to dolly basically. Dolly up a remote camera from inside the car at the same time as he's filming out the window,
 
 [00:26:13] Norm: and he had a three three axis gimbal on that, so he could control it and actually like get some elevation. I think up to eight feet or so. It's pretty neat. And so we got test ride.
 
 [00:26:23] Adam: I also just want to I want to point out that Saws did that all on his own time at the same time as he's filming MythBusters, like 60 hours a week. So he's in on weekends, welding and machining, and you know he worked with Bimba, donated a bunch of the technology and the design work for for that rig, and he's machining giant plates of aluminum and steel to to their specs. It was a lot of work, and it worked magnificently.
 
-[00:26:50] Will: He he's been incredibly giving of his time over the years. When we wanted to find out about blowing stuff up with black powder, he said come into the shop one Saturday morning, and we came into the shop, and and he sufficiently convinced us that we shouldn't dick around with black powder that we just were like, no, we'll we'll just do something safe, like explode an airbag.
+[00:26:50] Will: He he's been incredibly giving of his time over the years. When we wanted to find out about blowing stuff up with black powder, he said come into the shop one Saturday morning, and we came into the shop, and he sufficiently convinced us that we shouldn't dick around with black powder that we just were like, no, we'll we'll just do something safe, like explode an airbag.
 
 [00:27:06] Adam: Yes, ah, terrifying.
 
@@ -586,13 +586,13 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:27:13] Adam: The 5,001 pound
 
-[00:27:15] Will: was the previous was the previous record. 5,000 pounds.
+[00:27:15] Will: was the previous record. 5,000 pounds.
 
 [00:27:18] Adam: 5,000 pounds of high speed explosives that Kari, Grant and Tory used at New Mexico Tech a few years ago to make diamonds.
 
 [00:27:18] Will: Okay.
 
-[00:27:18] Adam: Um, the high pressure helping to create diamonds. Um, so we used 5,001 pounds.
+[00:27:18] Adam: The high pressure helping to create diamonds. So we used 5,001 pounds.
 
 [00:27:30] Will: Okay.
 
@@ -602,7 +602,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:27:35] Norm: Prices right.
 
-[00:27:35] Adam: Totally. Um, we got a cement truck, and I mean, what can I tell you? It was it was so epic. I mean, every single shot is a revelation. Every single shot seems to show a different explosion. It illuminates something different about how powerful that blast was. And the the thing that's really hard to communicate is when you head back to the center of the former blast, it looks like a moonscape because there's no footprints, there's no vegetation anymore. It is just it is just Things that have fallen from the sky—it's like sandy and right. Really looks like another world. It looks like another planet.
+[00:27:35] Adam: Totally. We got a cement truck, and I mean, what can I tell you? It was so epic. I mean, every single shot is a revelation. Every single shot seems to show a different explosion. It illuminates something different about how powerful that blast was. And the thing that's really hard to communicate is when you head back to the center of the former blast, it looks like a moonscape because there's no footprints, there's no vegetation anymore. It is just Things that have fallen from the sky—it's like sandy and right. Really looks like another world. It looks like another planet.
 
 [00:28:12] Will: Everything that's loose has been blown away.
 
@@ -612,7 +612,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:28:17] Adam: Exactly.
 
-[00:28:19] Will: Um, that one left a crater.
+[00:28:19] Will: That one left a crater.
 
 [00:28:20] Adam: It did.
 
@@ -626,15 +626,15 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:28:34] Will: but pretty, pretty good sized chunks.
 
-[00:28:35] Adam: You know, I think the the biggest chunk we found was like 50 pounds. Right, so it just tore that thing to absolute shreds.
+[00:28:35] Adam: I think the biggest chunk we found was like 50 pounds. Right, so it just tore that thing to absolute shreds.
 
-[00:28:43] Will: Um, why why do you guys use cement trucks for those big for the big ones?
+[00:28:43] Will: Why why do you guys use cement trucks for those big for the big ones?
 
 [00:28:46] Adam: It's just started because of the first episode when we blew up a cement truck. Was we were testing to see there was a myth that you could clean out a cement truck with a stick of dynamite.
 
 [00:28:46] Will: Okay.
 
-[00:28:46] Adam: You could use that to loosen the cement on the inside if it had hardened inside the cement truck. Um, and then that became a fan favorite.
+[00:28:46] Adam: You could use that to loosen the cement on the inside if it had hardened inside the cement truck. And then that became a fan favorite.
 
 [00:28:46] Will: Okay.
 
@@ -644,9 +644,9 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:29:13] Adam: Yeah, totally. It was amazing.
 
-[00:29:18] Will: It was pretty incredible. I was a little disappointed when the credit, you the explosion went off. You showed all the replay shots of the explosion, and then the credits rolled. And I was like, oh man, they went out with a bang. That's amazing. And then, then you cut back because you had to look at the crater, and the crater was cool. But
+[00:29:18] Will: It was pretty incredible. I was a little disappointed when the credit, you the explosion went off. You showed all the replay shots of the explosion, and then the credits rolled. And I was like, oh man, they went out with a bang. That's amazing. And then you cut back because you had to look at the crater, and the crater was cool. But
 
-[00:29:33] Adam: we saved the coda of the codas of the codas. We saved the last coda for the end of the reunion episode. And I don't know if you watched it.
+[00:29:33] Adam: we saved the coda of the codas. We saved the last coda for the end of the reunion episode. And I don't know if you watched it.
 
 [00:29:40] Will: Oh no, my TiVo cut out before the end.
 
@@ -668,7 +668,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:30:08] Norm: and you had Tory with a hand over the mouth, covering his beard, it's like Chris covering over the beard that Chris Evans had to do.
 
-[00:30:15] Adam: Yeah, it was really was really fun. And sorry, just to finish out this amazing week, the other thing that happened was I went and did Colbert.
+[00:30:15] Adam: Yeah, it was really fun. And sorry, just to finish out this amazing week, the other thing that happened was I went and did Colbert.
 
 [00:30:15] Will: Hold on, just yeah, you took your pants off on Colbert.
 
@@ -676,7 +676,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:30:30] Will: He seemed he's he seemed way less into it.
 
-[00:30:34] Adam: Oh no, no, no! They were they were phenomenal.
+[00:30:34] Adam: Oh no, no, no! They were phenomenal.
 
 [00:30:37] Will: Yeah, no, it was good.
 
@@ -686,21 +686,21 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:30:38] Adam: loves working on that show. Stephen couldn't be nicer.
 
-[00:31:28] Will: What's What's the when you when you go in to do a segment like that? Do you come in with a bit and then kind of sit down with the writers and work through it?
+[00:31:28] Will: What's What's the when you go in to do a segment like that? Do you come in with a bit and then kind of sit down with the writers and work through it?
 
 [00:31:36] Norm: It's definitely not day of.
 
 [00:31:37] Will: No, no, no.
 
-[00:31:37] Adam: There's always there's always a lot of back and forth. So you know they asked for a bunch of ideas. I threw a few at them. They threw a few back at me. We honed it down. We came up with something that got thrown out. We came up with something else. I think that got thrown out. And then Friday before, so this is a week ago Friday, they decided they wanted to shoot me with the penny going at the terminal velocity of a penny.
+[00:31:37] Adam: There's always a lot of back and forth. So you know they asked for a bunch of ideas. I threw a few at them. They threw a few back at me. We honed it down. We came up with something that got thrown out. We came up with something else. I think that got thrown out. And then Friday before, so this is a week ago Friday, they decided they wanted to shoot me with the penny going at the terminal velocity of a penny.
 
-[00:32:00] Will: It's a very New York kind of kind of segment.
+[00:32:00] Will: It's a very New York kind of segment.
 
 [00:32:02] Adam: And it's one of it. Also, was one of the very earliest episodes we did, and one in which I really learned deeply that that. That one of the things I could could contribute to this show was figuring out unique ways of showing something rather than telling. And Penny Drop is is like one of those first worms to turn for me. So I built that gun here in the shop on Friday. The day I was like, I was sick, so I was going to. We had a build schedule that day, and I canceled it so I could rest because I was sick.
 
 [00:32:33] Will: And then you didn't rest.
 
-[00:32:34] Adam: Then I didn't rest. I spent like seven hours here making that gun, and then I I I got it home only to discover that it didn't fit in my suitcase. So I had to cut five inches off of it, and then I called Tom Sachs, whose studio is in New York, and I was like, " Dude, can you get me a three-inch PVC schedule 40 pipe cap plus some glue?" And he's like, " I'm on it." So when I landed on Sunday, I went to his shop, and he's there making some pottery with some friends, and he's got his bodega going, and it was it was awesome. It's like
+[00:32:34] Adam: Then I didn't rest. I spent like seven hours here making that gun, and then I I I got it home only to discover that it didn't fit in my suitcase. So I had to cut five inches off of it, and then I called Tom Sachs, whose studio is in New York, and I was like, " Dude, can you get me a three-inch PVC schedule 40 pipe cap plus some glue?" And he's like, " I'm on it." So when I landed on Sunday, I went to his shop, and he's there making some pottery with some friends, and he's got his bodega going, and it was awesome. It's like
 
 [00:33:07] Norm: an Avengers of
 
@@ -708,13 +708,13 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:33:25] Will: Okay. Did Did anybody else want to get shot while you were there? Did the writers' room guys volunteer?
 
-[00:33:30] Adam: This is network television, man. They were they were itchy about me being shot with the thing that I had built. So it required a lot of safety discussions. It's you know, you make when you make something that shoots something, you are dealing with the law in very some very specific ways because things can get dangerous in a hurry. And you know, you don't just. Luckily, I have a lot of expertise, so I can talk deeply to exactly how fast it's going, how much pressure is involved, what are the what are the margins of safety, et cetera.
+[00:33:30] Adam: This is network television, man. They were itchy about me being shot with the thing that I had built. So it required a lot of safety discussions. It's you make when you make something that shoots something, you are dealing with the law in very some very specific ways because things can get dangerous in a hurry. And you don't just. Luckily, I have a lot of expertise, so I can talk deeply to exactly how fast it's going, how much pressure is involved, what are the margins of safety, et cetera.
 
-[00:34:02] Norm: Yeah, they should do an episode like the South Park guys did about making of an episode, right? And document that. I mean, I know it's been on TV, like Larry Sanders' show, and that kind of. Give you an impression, but it's it's an it's a whole.
+[00:34:02] Norm: Yeah, they should do an episode like the South Park guys did about making of an episode, right? And document that. I mean, I know it's been on TV, like Larry Sanders' show, and that kind of. Give you an impression, but it's an it's a whole.
 
-[00:34:15] Will: I love I love learning about that stuff.
+[00:34:15] Will: I love learning about that stuff.
 
-[00:34:16] Adam: And Jim Fyfe, the producer that I was working with, was so like everyone was amazing. But you know, just like willing to try stuff. Okay, do you want to get shot in the ass? You want your pants up? I was thinking about having my pants up. Okay, what if would you be willing if we got you some like pink Spanx or something? You willing? And then on the day of, he's like, so we're talking about it, and if we can get permission, how do you feel about just dropping trou for real? And I'm like, I'll do it.
+[00:34:16] Adam: And Jim Fyfe, the producer that I was working with, was so like everyone was amazing. But just like willing to try stuff. Okay, do you want to get shot in the ass? You want your pants up? I was thinking about having my pants up. Okay, what if would you be willing if we got you some like pink Spanx or something? You willing? And then on the day of, he's like, so we're talking about it, and if we can get permission, how do you feel about just dropping trou for real? And I'm like, I'll do it.
 
 [00:34:16] Unknown speaker: Wow,
 
@@ -730,27 +730,27 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:34:48] Will: I've never been any more game. Yeah,
 
-[00:34:50] Norm: but that's their operating procedure. I can imagine it. They they they warm you up to the idea, and and then they on day of when you.
+[00:34:50] Norm: but that's their operating procedure. I can imagine it. They warm you up to the idea, and then they on day of when you.
 
-[00:34:56] Will: I mean, it's much less humiliating to actually just take your pants off than to wear the the pink Spanx. I think
+[00:34:56] Will: I mean, it's much less humiliating to actually just take your pants off than to wear the pink Spanx. I think
 
-[00:35:01] Adam: I feel like it would be. And then yes, we posted the the we they blurred it on television, but I got the shot unblurred, and we posted that.
+[00:35:01] Adam: I feel like it would be. And then yes, we posted the we they blurred it on television, but I got the shot unblurred, and we posted that.
 
 [00:35:10] Will: Nice, nice,
 
 [00:35:10] Adam: lovely.
 
-[00:35:10] Will: Um. It sounded like a lot of fun, and the the bit was really funny. It was
+[00:35:10] Will: It sounded like a lot of fun, and the bit was really funny. It was
 
-[00:35:15] Adam: great. Stephen is such a fan and such a deep fan. He's watched the show for years with his family, and super complimentary about the achievement. You know, he he's they just finished their 100th episode of the Late Show, so I mean, he had the he had to deal with, and we didn't even get to talking about this, but he had the thing to deal with the ending the Colbert Report, and no time to kind of acclimatize because we're already into the Late Show. That would be very intense.
+[00:35:15] Adam: great. Stephen is such a fan and such a deep fan. He's watched the show for years with his family, and super complimentary about the achievement. He he's they just finished their 100th episode of the Late Show, so I mean, he had the he had to deal with, and we didn't even get to talking about this, but he had the thing to deal with the ending the Colbert Report, and no time to kind of acclimatize because we're already into the Late Show. That would be very intense.
 
-[00:35:43] Will: Well, and and on top of that, like he had the whole, is this the performance or is this not the performance? And all that stuff to like your
+[00:35:43] Will: Well, and on top of that, like he had the whole, is this the performance or is this not the performance? And all that stuff to like your
 
 [00:35:50] Norm: identity.
 
 [00:35:51] Will: Yeah,
 
-[00:35:51] Adam: it's uh you know, again, it couldn't happen to a nicer team. I you know I'll go on and do that show as many times as they want. It was it was great,
+[00:35:51] Adam: it's again, it couldn't happen to a nicer team. I you know I'll go on and do that show as many times as they want. It was great,
 
 [00:35:59] Will: awesome,
 
@@ -776,7 +776,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:36:31] Adam: Thank you, gentlemen.
 
-[00:36:31] Norm: And you know, send Adam tweets and and well wishes. And we have a lot more stuff going on. Again, check. Wait for that video. We go to go behind the scenes of that the chase car that saws built. So that's going to be
+[00:36:31] Norm: And send Adam tweets and well wishes. And we have a lot more stuff going on. Again, check. Wait for that video. We go to go behind the scenes of that the chase car that saws built. So that's going to be
 
 [00:36:46] Will: really. It's really cool. Cool. And that'll do it for us. We'll see you guys next week. Thanks for watching.
 

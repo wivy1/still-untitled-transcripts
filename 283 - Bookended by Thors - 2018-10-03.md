@@ -30,11 +30,11 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:00:26] Will: Well, I mean, like three years, really.
 
-[00:00:28] Adam: Right? Yeah. Yeah. It was it was awful, and so now the rain is back, and it's really nice. It's like lovely in the house.
+[00:00:28] Adam: Right? Yeah. Yeah. It was awful, and so now the rain is back, and it's really nice. It's like lovely in the house.
 
 [00:00:28] Norm: Yeah.
 
-[00:00:28] Adam: You know, the rain against the windows. I put my my mom on a plane this morning to home. She was here over the weekend. Um. Oh, so last weekend,
+[00:00:28] Adam: You know, the rain against the windows. I put my mom on a plane this morning to home. She was here over the weekend. Oh, so last weekend,
 
 [00:00:44] Will: Bye, Adam's mom. I'm sorry I didn't see you this time.
 
@@ -58,11 +58,11 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:01:07] Will: She can even be on the same plane as you, and then like you'll get switched off, or she'll get switched off, or something, and then you'll just never see her again. She's gone.
 
-[00:01:14] Adam: No, it's it's really bad. But they're on the plane back to New York.
+[00:01:14] Adam: No, it's really bad. But they're on the plane back to New York.
 
 [00:01:17] Norm: That's right to New York because
 
-[00:01:18] Adam: well, we're we're headed off too. Kristen's on her way to come to New York because she's going to meet us there at Comic Con in New York this week. This
+[00:01:18] Adam: well, we're headed off too. Kristen's on her way to come to New York because she's going to meet us there at Comic Con in New York this week. This
 
 [00:01:25] Will: is two trips to New York and like in the same month basically. That's very lucky.
 
@@ -82,7 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:01:47] Norm: Wow, that's awesome.
 
-[00:01:47] Adam: Well, there were matching grants involved, but we were able to hit a whole bunch of thresholds. And yeah, it was a really, really lovely fundraiser. We we threw it in the the the Chateau Marmont, my favorite hotel in L. A. Donated donated their penthouse for the fundraiser.
+[00:01:47] Adam: Well, there were matching grants involved, but we were able to hit a whole bunch of thresholds. And yeah, it was a really, really lovely fundraiser. We threw it in the Chateau Marmont, my favorite hotel in L. A. Donated donated their penthouse for the fundraiser.
 
 [00:01:47] Will: Oh, that's awesome!
 
@@ -90,21 +90,21 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:02:15] Will: Because that would have eaten a lot of the $70,000,
 
-[00:02:17] Adam: probably. And the the the the the the lead plaintiff Kelsey is an incredible speaker. She's 22, and like it's almost annoying how brilliant she is at speaking, like public speaking, just super inspirational. So it was a fantastic weekend all around.
+[00:02:17] Adam: probably. And the lead plaintiff Kelsey is an incredible speaker. She's 22, and like it's almost annoying how brilliant she is at speaking, like public speaking, just super inspirational. So it was a fantastic weekend all around.
 
 [00:02:33] Will: Are they suing the entirety of the federal government? Are they like targeting specific places?
 
 [00:02:38] Adam: It's actually if you if you look at the list of of defendants, yeah, it is literally like all the top cabinet posts, the United States government, and many of them are still vacant.
 
-[00:02:46] Norm: And this this started in the last administration, so this is not a partisan issue. No,
+[00:02:46] Norm: And this started in the last administration, so this is not a partisan issue. No,
 
 [00:02:51] Adam: no, no, no. The Obama administration fought this tooth and nail.
 
 [00:02:51] Will: Yeah,
 
-[00:02:51] Adam: and because the implications to them are are are are anathema. They they the implication is that they're going to have to. Actually enact genuine policies to immediately start lowering the temperature.
+[00:02:51] Adam: and because the implications to them are anathema. They the implication is that they're going to have to. Actually enact genuine policies to immediately start lowering the temperature.
 
-[00:03:09] Will: Well, I mean, it's interesting because I was thinking about this after we talked about it last week. Like, what if everything that you bought had the the the total cost of that thing from creation, the carbon it creates during the creation, all the way down to disposal afterwards, safe disposal afterwards, built into it?
+[00:03:09] Will: Well, I mean, it's interesting because I was thinking about this after we talked about it last week. Like, what if everything that you bought had the total cost of that thing from creation, the carbon it creates during the creation, all the way down to disposal afterwards, safe disposal afterwards, built into it?
 
 [00:03:26] Adam: Yeah, and can you imagine the nonpartisan process for determining that?
 
@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:04:33] Will: Yeah.
 
-[00:04:39] Adam: So we are we are all in a tizzy here just to get ready for the con. This is the last con that I'm going to be attending for a while.
+[00:04:39] Adam: So we are all in a tizzy here just to get ready for the con. This is the last con that I'm going to be attending for a while.
 
 [00:04:48] Norm: For a while,
 
@@ -182,7 +182,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:05:25] Norm: Off camera,
 
-[00:05:26] Adam: my my costume is all sitting here,
+[00:05:26] Adam: my costume is all sitting here,
 
 [00:05:29] Unknown speaker (Will or Norm): so many colors.
 
@@ -204,9 +204,9 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:05:57] Adam: seven collaborators from all over the world
 
-[00:05:59] Norm: have worked on it, and this is something that absolutely happens in cosplaying in general, right? When communities of people come together, sometimes when there are Themes for costumes, you know, people do runs of things, and I asked you how difficult is it, like, to make the third one or the fourth one, and you know, when you're thinking about building a costume like this, I know you want to put a lot of effort in whether it's machining something or painting something up, but do you think about, well, ooh, this is a costume that's gonna be really difficult to make a second one?
+[00:05:59] Norm: have worked on it, and this is something that absolutely happens in cosplaying in general, right? When communities of people come together, sometimes when there are Themes for costumes people do runs of things, and I asked you how difficult is it to make the third one or the fourth one, and you know, when you're thinking about building a costume like this, I know you want to put a lot of effort in whether it's machining something or painting something up, but do you think about, well, ooh, this is a costume that's gonna be really difficult to make a second one?
 
-[00:06:30] Adam: It's a really good question. So understand that for for the various vendors I had for this this costume, part of the cost of so I had everybody make two of everything. Part of the cost of that is they're figuring out how to make this thing. So I'm paying their R and D costs as well as the the supply costs, right, for the item that I actually bought from them. Which means that the next one I get, if I ordered another one, it would be a little bit cheaper.
+[00:06:30] Adam: It's a really good question. So understand that for the various vendors I had for this costume, part of the cost of so I had everybody make two of everything. Part of the cost of that is they're figuring out how to make this thing. So I'm paying their R and D costs as well as the supply costs, right, for the item that I actually bought from them. Which means that the next one I get, if I ordered another one, it would be a little bit cheaper.
 
 [00:07:00] Will: Cost plus labor. Yeah,
 
@@ -216,17 +216,17 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:07:02] Unknown speaker (Norm or Will): right.
 
-[00:07:02] Adam: That’s actually the case. I'm, I'm, I'm in the process of making a third one.
+[00:07:02] Adam: That’s actually the case. I'm in the process of making a third one.
 
 [00:07:09] Norm: I mean, we
 
 [00:07:10] Adam: can't stop.
 
-[00:07:11] Norm: We talk like when we went down last week to to Frank Ippolito's shop. You know, we were talking about well, we want to make several of these Martian costumes too, but we're looking at it, and you know what? The the toughest part is probably the cut and sew,
+[00:07:11] Norm: We talk like when we went down last week to Frank Ippolito's shop. We were talking about well, we want to make several of these Martian costumes too, but we're looking at it, and you know what? The toughest part is probably the cut and sew,
 
 [00:07:24] Adam: the cut and sew, and the sheer rank, the wrangling of the sheer number of pieces of that costume is. I made a list on the plane on the way home, and it's ridiculous. There's so many tiny little parts of that. Well,
 
-[00:07:35] Will: looking like looking at that, looking at that film, even just like the little boom that they hung the GoPros on on the shoulders is like six different pieces,
+[00:07:35] Will: looking like looking at that film, even just like the little boom that they hung the GoPros on the shoulders is like six different pieces,
 
 [00:07:35] Adam: yeah,
 
@@ -234,7 +234,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:07:44] Adam: and it comes out of the suit, and it
 
-[00:07:47] Norm: depends on like how much of the fidelity you want. Like if there's something such as on the Martian helmet part where you're machining tons of pieces, yeah, it's gonna be unless you have a CNC, it's gonna take the same amount of time. Almost, because you'll figure out the process, or you could have it on make a mold and and mold the pieces you've machined.
+[00:07:47] Norm: depends on like how much of the fidelity you want. Like if there's something such as on the Martian helmet part where you're machining tons of pieces, yeah, it's gonna be unless you have a CNC, it's gonna take the same amount of time. Almost, because you'll figure out the process, or you could have it on make a mold and mold the pieces you've machined.
 
 [00:08:07] Adam: The other thing is that for all the parts that I did, and I did a huge amount of scratch building on this costume, even with all the vendors, I ended up doing a bunch of construction as well. I made four of everything that I needed, two of, and I've ended up with a third of every part that I made.
 
@@ -242,19 +242,19 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:08:26] Adam: Exactly, exactly. And so I have a couple that are not necessarily as perfect as I personally needed them to be, but they're absolutely good enough for you know good enough for. The problem I end up having is is that it's not enough for me for the parts to be visually perfect. I want them to feel right to me, and so that means I usually, for my own personal costume, add this level of veracity and feel and weight to things that there's no difference visually between mine and the other one. It's just a difference between how it feels, how it how you know whether it's made of actual metal or resin.
 
-[00:09:05] Will: So, I mean, what's the the most difficult part of a suit like the Martian suit? I like you look at and you first saw is the dome, but there's also all these unusual, novel textiles that are underneath that suit.
+[00:09:05] Will: So, I mean, what's the most difficult part of a suit like the Martian suit? I like you look at and you first saw is the dome, but there's also all these unusual, novel textiles that are underneath that suit.
 
 [00:09:16] Norm: I think textiles
 
 [00:09:17] Will: that are the
 
-[00:09:18] Adam: The textile, the number of different so the thing one of the things that FBFX does so well in the spacesuits that they build, and again, we've covered them on Tested. They made all the suits for the Martian, including the EVA suits. They did Covenant, Prometheus. Is they do so much deep, detailed world building with their costumes. So it's not just that there's a dome and then there's these complex little parts, but as you look closer at the textile dot patterns and halftone patterns on the suit, they're mirrored on the helmet, and those are all slip transfers. And then you look a little further, and there's little stickers. Of tiny language things like do this before this, and there actually there's words that they came up with, and then you look even deeper, and there's all these little bits of etched brass badges on stuff, and that even the the the the cobra buckles that are used to hold this have custom riveted etched brass signage on them. I mean, they really
+[00:09:18] Adam: The textile, the number of different so the thing one of the things that FBFX does so well in the spacesuits that they build, and again, we've covered them on Tested. They made all the suits for the Martian, including the EVA suits. They did Covenant, Prometheus. Is they do so much deep, detailed world building with their costumes. So it's not just that there's a dome and then there's these complex little parts, but as you look closer at the textile dot patterns and halftone patterns on the suit, they're mirrored on the helmet, and those are all slip transfers. And then you look a little further, and there's little stickers. Of tiny language things like do this before this, and there actually there's words that they came up with, and then you look even deeper, and there's all these little bits of etched brass badges on stuff, and that even the cobra buckles that are used to hold this have custom riveted etched brass signage on them. I mean, they really
 
 [00:09:18] Norm: wow.
 
-[00:09:18] Adam: The the the the storytelling goes all the way down.
+[00:09:18] Adam: The storytelling goes all the way down.
 
-[00:10:23] Norm: Oh, I wonder because you know online, as people sometimes sell like digital assets, right? You know, they'll model Greblies, and you can buy from a 3D modeler
+[00:10:23] Norm: Oh, I wonder because you know online, as people sometimes sell like digital assets, right? They'll model Greblies, and you can buy from a 3D modeler
 
 [00:10:23] Adam: Mm-hmm.
 
@@ -280,7 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:11:15] Will: Then you have to trim them yourself with an exacto or something [unclear: before you get a flat ice / before you get them out / before you get it].
 
-[00:11:18] Adam: It's complicated. Like it's it's a multi-step process, but it totally works. We've done it here in the shop. It's easier for me to order it from outside. Like for me in this shop, it's the equivalent of my wife talks about this. Like there are like baking bread is great, but a loaf of bread costs like $5.
+[00:11:18] Adam: It's complicated. Like it's a multi-step process, but it totally works. We've done it here in the shop. It's easier for me to order it from outside. Like for me in this shop, it's the equivalent of my wife talks about this. Like there are like baking bread is great, but a loaf of bread costs like $5.
 
 [00:11:18] Will: Yeah.
 
@@ -290,7 +290,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:11:53] Adam: Oh yeah yeah.
 
-[00:11:54] Will: You know you just put it in the bag and just stir the bag every once in a while. Custard's a lot easier
+[00:11:54] Will: You just put it in the bag and just stir the bag every once in a while. Custard's a lot easier
 
 [00:11:57] Norm: unless you're making batches of 50.
 
@@ -308,7 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:12:15] Will: It is very pretty.
 
-[00:12:16] Adam: That's the other part is that, and and what to be clear, because you guys have been really the the the steady line of questions from both tested premium and regular members, and on the YouTube channel, Frank has been doing the lion's share up till now of all of the little bits of problem solving on the multiple pieces of the Martian suit, and he's also got a complete full running shop with like 25 people going full time. I think
+[00:12:16] Adam: That's the other part is that, and what to be clear, because you guys have been really the steady line of questions from both tested premium and regular members, and on the YouTube channel, Frank has been doing the lion's share up till now of all of the little bits of problem solving on the multiple pieces of the Martian suit, and he's also got a complete full running shop with like 25 people going full time. I think
 
 [00:12:45] Norm: the coolest thing we didn't mention last week is as his shop grows and as he gets new toys, the tools to work with,
 
@@ -326,7 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:13:14] Adam: I didn’t realize that was happening. That was yeah.
 
-[00:13:14] Will: Oh yeah. So they so they they go out and they send them out in the world. They send them to art museums or the botanical gardens or something and tell them to to design a custom print.
+[00:13:14] Will: Oh yeah. So they go out and they send them out in the world. They send them to art museums or the botanical gardens or something and tell them to design a custom print.
 
 [00:13:15] Adam: Yeah.
 
@@ -364,9 +364,9 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:15:00] Adam: Oh, right.
 
-[00:15:00] Will: For for Michael Keaton, so he could turn his head when he was fighting. And like the the conversation, I mean, that was in like 1992, I think. So we're we're literally talking about 20 25 years.
+[00:15:00] Will: For Michael Keaton, so he could turn his head when he was fighting. And like the conversation, I mean, that was in like 1992, I think. So we're literally talking about 20 25 years.
 
-[00:15:13] Adam: It's it's really hard to make suits that can move with the actors, especially when they're you know have all this armoring and all these these different coatings. So yeah, that that that has initiated a whole wave of costume, like you see with these not just specular highlighting, but dimensional highlighting. Superman's suit has multiple you know tiny little beautiful layered details of both dimensionality and color, and it's like I love superhero suits now. I just think it's we're in this golden age of movie superheroes.
+[00:15:13] Adam: It's really hard to make suits that can move with the actors, especially when they're you know have all this armoring and all these these different coatings. So yeah, that that that has initiated a whole wave of costume, like you see with these not just specular highlighting, but dimensional highlighting. Superman's suit has multiple you know tiny little beautiful layered details of both dimensionality and color, and it's like I love superhero suits now. I just think it's we're in this golden age of movie superheroes.
 
 [00:15:45] Norm: I also notice like two classes of two different types of approaches designing superhero suits. There's like the Superman, Spider Man, and maybe even Batman's, where it looks like one consistent type of fabric. Yeah, there's like going to be seamlines and patterning, but there's screen printing of like this is the pattern.
 
@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:15:45] Norm: and it's like almost four or five different textures on a suit to make it look a little more armored.
 
-[00:16:18] Adam: Well, and then you have the the one that's fully integrated, like Vision, which is got to be the most difficult kind of suit to make.
+[00:16:18] Adam: Well, and then you have the one that's fully integrated, like Vision, which is got to be the most difficult kind of suit to make.
 
 [00:16:25] Norm: Vision has like the pattern on the front, but then there's all these hard parts and soft parts.
 
@@ -388,7 +388,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:16:34] Adam: it was crazy.
 
-[00:16:35] Will: I I wonder like, and you also wonder like you see the bits about like the suits that are virtual, right?
+[00:16:35] Will: I wonder like, and you also wonder like you see the bits about like the suits that are virtual, right?
 
 [00:16:35] Adam: Right.
 
@@ -440,7 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:17:48] Norm: Yeah, I think. Yeah,
 
-[00:17:49] Will: yeah, yeah. I saw I saw clips from your talk with the MythBusters Junior kids
+[00:17:49] Will: yeah, yeah. I saw clips from your talk with the MythBusters Junior kids
 
 [00:17:49] Adam: at Maker World Maker Faire
 
@@ -458,13 +458,13 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:18:24] Will: I mean, some are probably close to postdoctoral programs at this point, right?
 
-[00:18:28] Adam: So, and it was nice. I mean, yeah, we we all had the best summer ever. You know, I gained six new friends and six new families.
+[00:18:28] Adam: So, and it was nice. I mean, yeah, we all had the best summer ever. I gained six new friends and six new families.
 
 [00:18:36] Will: That's awesome.
 
-[00:18:36] Adam: That's what it feels like. The World Maker Faire, by the way, we talked about that already. World Maker Faire, holy cow! What a what a another again totally different than San Mateo Maker Faire and really cool.
+[00:18:36] Adam: That's what it feels like. The World Maker Faire, by the way, we talked about that already. World Maker Faire, holy cow! What a another again totally different than San Mateo Maker Faire and really cool.
 
-[00:18:46] Will: I really I really want to go to World Maker Faire one time as like Tommy Lee Jones from Men in Black. Like I think I think that there's not a lot of cosplay Maker Faires usually, but I feel like this is an appropriate one.
+[00:18:46] Will: I really want to go to World Maker Faire one time as like Tommy Lee Jones from Men in Black. Like I think that there's not a lot of cosplay Maker Faires usually, but I feel like this is an appropriate one.
 
 [00:18:56] Adam: You need to go with someone else.
 
@@ -496,11 +496,11 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:19:34] Adam: they famously did the dystopic astronaut that Norm and I built about three years ago.
 
-[00:19:37] Unknown speaker (Will or Adam): Oh, the, the Cosmonaut. Yes. Yeah, that one’s, that one’s.
+[00:19:37] Unknown speaker (Will or Adam): Oh, the Cosmonaut. Yes. Yeah, that one’s.
 
 [00:19:40] Norm: And there's a whole series of that. Yeah, there's like three new ones of smaller scale. But the whole idea behind this company is that they find artists, concept artists, 3D artists, and pair them with modelers who can design and turn their concept art into something that's a garage kit, and then they sell limited quantities.
 
-[00:19:59] Adam: And we covered this when we did the build, but it's really It's really important to call out that Industria Mechanika's. Not only is there are their castings beautiful, like there's no bubbles, no cleanup required. Their castings are great. The level of detail in those castings is astonishing and gorgeous. And the engineering of the kit is also top notch. When you finish the pieces, they slot slot together perfectly.
+[00:19:59] Adam: And we covered this when we did the build, but it's really important to call out that Industria Mechanika's. Not only is there are their castings beautiful, like there's no bubbles, no cleanup required. Their castings are great. The level of detail in those castings is astonishing and gorgeous. And the engineering of the kit is also top notch. When you finish the pieces, they slot slot together perfectly.
 
 [00:20:24] Norm: All the keying is right. The where the seams are placed, it's and it's so much detail.
 
@@ -514,11 +514,11 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:21:43] Adam: Yeah, go, but support the small builders of the world. Support those small companies working hard to all that. All Industria Mechanika wants to do is put cooler kits in the hands of more people. That's Their life goal,
 
-[00:21:56] Will: yep. And the thing that they do, pairing the artists with the with the with the people who can turn those you know 2D flats into 3D objects in the real world, is well, it's just it's just beautiful.
+[00:21:56] Will: yep. And the thing that they do, pairing the artists with the people who can turn those you know 2D flats into 3D objects in the real world, is well, it's just beautiful.
 
 [00:22:06] Norm: Yeah, that's where so much of that cost is is figuring that out, and it's all original IP, right? It's all stuff that just hits our buttons for like this is the coolest thing ever.
 
-[00:22:15] Adam: And and frankly, if you look around the world and you think about the mass production of everything, and including shipping, which means that you can no longer find what you need in a store, right? You can no long no one stocks anything. I sent Freddie over to Best Buy a couple weeks ago and said, " Can you get me a waterproof case for my iPhone? I am going to do this kayaking." And he came back and was like, " They don't have any." What?
+[00:22:15] Adam: And frankly, if you look around the world and you think about the mass production of everything, and including shipping, which means that you can no longer find what you need in a store, right? You can no long no one stocks anything. I sent Freddie over to Best Buy a couple weeks ago and said, " Can you get me a waterproof case for my iPhone? I am going to do this kayaking." And he came back and was like, " They don't have any." What?
 
 [00:22:43] Will: Well, Prime Now, Adam.
 
@@ -530,19 +530,19 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:23:08] Will: Yeah.
 
-[00:23:08] Adam: Um. Is that pretty much what you wanted me to say?
+[00:23:08] Adam: Is that pretty much what you wanted me to say?
 
-[00:23:11] Norm: Totally. Yeah. Yeah, and I think people—it's—it's shocking, like the fact that you had to put, you know, little cards and and in every kit. No, no recasting, and it's people just don't think about it.
+[00:23:11] Norm: Totally. Yeah. Yeah, and I think people—it's shocking, like the fact that you had to put little cards and in every kit. No, no recasting, and it's people just don't think about it.
 
 [00:23:23] Adam: Yeah, I mean, look, this is why I prefer to buy my garage kits and that kind of stuff on in Etsy over eBay. And don't get me wrong; there are still some shitbirds on Etsy who are cheating and stealing, but for the most part, you can reach out and contact the seller directly on Etsy, and that means you can build a relationship and you can be confident of that relationship.
 
-[00:23:46] Will: I mean, just in general, even even with computer hardware, somebody the other day sent me a link. It was like, " Hey, is this the RAM I need for my computer?" And it was an eBay link. I was like, " Dude, do not." Buy computer hardware on eBay, like especially RAM, because it's like if it's if it's like if you're buying a piece of RAM, you're buying like a high-end, high latency, you know, high-end, low latency, expensive memory. It's really easy to peel those stickers off and print some new ones and stick stick the stick the expensive RAM stickers on.
+[00:23:46] Will: I mean, just in general, even even with computer hardware, somebody the other day sent me a link. It was like, " Hey, is this the RAM I need for my computer?" And it was an eBay link. I was like, " Dude, do not." Buy computer hardware on eBay, like especially RAM, because it's like if you're buying a piece of RAM, you're buying like a high-end, high latency high-end, low latency, expensive memory. It's really easy to peel those stickers off and print some new ones and stick the expensive RAM stickers on.
 
 [00:24:12] Norm: That's burned out mining Bitcoin.
 
 [00:24:15] Will: Yeah, exactly, exactly. Don't don't don't buy buy old things that you can't find anymore. New buy clothes, buy stuff like that. Don't buy. it all.
 
-[00:24:24] Norm: It also happens in like in terms of like art and and even mass produced, minimally mass produced stuff in terms of like designer toys, and we're going to see a lot of those at New York Comic Con.
+[00:24:24] Norm: It also happens in like in terms of like art and even mass produced, minimally mass produced stuff in terms of like designer toys, and we're going to see a lot of those at New York Comic Con.
 
 [00:24:24] Will: Oh, can't wait!
 
@@ -562,9 +562,9 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:25:45] Adam: Yeah,
 
-[00:25:45] Will: yeah. So so you have to keep keep evolving and keep doing keep doing new stuff as an artist at the same time. A vendor that's knocking off somebody's designs that they've sold before to sell more like that that's shady
+[00:25:45] Will: yeah. So so you have to keep keep evolving and keep doing new stuff as an artist at the same time. A vendor that's knocking off somebody's designs that they've sold before to sell more like that that's shady
 
-[00:25:56] Adam: and and there's
+[00:25:56] Adam: and there's
 
 [00:25:57] Will: no there's no hard lines. I
 
@@ -594,7 +594,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:28:02] Adam: Are you going to? Are you just going to list them?
 
-[00:28:03] Will: We're gonna, we're gonna.
+[00:28:03] Will: We're gonna.
 
 [00:28:02] Adam: and then we're going to rank them out later?
 
@@ -634,7 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:28:50] Will: No, we can go toe to toe on Thor.
 
-[00:28:51] Norm: How about, how about?
+[00:28:51] Norm: How about?
 
 [00:28:51] Will: I will cut you.
 
@@ -646,7 +646,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:29:01] Adam: The best Captain America movies?
 
-[00:29:02] Norm: exactly. Like, like, let's talk about in the ranking of Captain America movies. The oh, simple Captain America movies: Winter Soldier, Civil War, Captain America.
+[00:29:02] Norm: exactly. Like, let's talk about in the ranking of Captain America movies. The oh, simple Captain America movies: Winter Soldier, Civil War, Captain America.
 
 [00:29:10] Will: Yeah, I think that's the right order,
 
@@ -710,9 +710,9 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:30:13] Will: no.
 
-[00:30:14] Norm: This is this is
+[00:30:14] Norm: This is
 
-[00:30:15] Will: I feel like Thor is the heart of the MCU. That's what that's what Avengers Infinity War showed us.
+[00:30:15] Will: I feel like Thor is the heart of the MCU. That's what Avengers Infinity War showed us.
 
 [00:30:19] Norm: I think, Thor one, the first Thor was a fish out of water story that was really funny, and I think the Thor movies have all been have been at their best when they're really been lighthearted.
 
@@ -720,7 +720,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:30:19] Will: agreed.
 
-[00:30:19] Norm: Even the the Warriors three, comic, and then that's why Thor Ragnarok really leading into it, awesome, and I think Thor one does that better than Thor two.
+[00:30:19] Norm: Even the Warriors three, comic, and then that's why Thor Ragnarok really leading into it, awesome, and I think Thor one does that better than Thor two.
 
 [00:30:42] Adam: Okay, I’ll have to watch, I might have to watch them again [unclear: to the comments / to do seriously],
 
@@ -728,7 +728,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:30:46] Adam: which sounds terrible too.
 
-[00:30:47] Will: Thor, yeah, Thor. The the one thing that Thor two has going for it, devil's advocating, is it shows his Asgardian buddies a lot.
+[00:30:47] Will: Thor, yeah, Thor. The one thing that Thor two has going for it, devil's advocating, is it shows his Asgardian buddies a lot.
 
 [00:30:54] Norm: It’s set more Asgard,
 
@@ -764,7 +764,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:31:22] Norm: I think this is actually a tougher conversation.
 
-[00:31:23] Will: This is an easy conversation. All right. Well, let's hear. One, three, two. Because the Shane Black one is too much. There's too much Iron Man in the third one. The first one, the the
+[00:31:23] Will: This is an easy conversation. All right. Well, let's hear. One, three, two. Because the Shane Black one is too much. There's too much Iron Man in the third one. The first one, the
 
 [00:31:33] Adam: all three Favreau.
 
@@ -788,7 +788,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:31:50] Will: I think that's safe.
 
-[00:31:50] Adam: I, I, yeah, I agree with that. I think one is amazing.
+[00:31:50] Adam: I, yeah, I agree with that. I think one is amazing.
 
 [00:31:50] Will: I think
 
@@ -800,11 +800,11 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:32:00] Will: Yeah, and one like the whole the it's the last good origin story in a superhero movie, right?
 
-[00:32:06] Adam: And you know, it's hard to remember for the kids these days, but Robert Downey Jr. His career was over when that movie came out. Well, right, not over, but
+[00:32:06] Adam: And it's hard to remember for the kids these days, but Robert Downey Jr. His career was over when that movie came out. Well, right, not over, but
 
 [00:32:16] Will: Tropic Thunder was coming, and that was very questionable for a lot of reasons.
 
-[00:32:19] Adam: But he was marginalized. He had had a bunch of chances. He'd been arrested, this and and all of that played into the Tony Stark character in the movie. So there was this wonderful sort of cultural plot mix going on for Iron Man that made it even more exciting and funnier. A lot of those jokes hit hard because culturally at that moment Robert Downey Jr. Was very much like Tony Stark.
+[00:32:19] Adam: But he was marginalized. He had had a bunch of chances. He'd been arrested, this and all of that played into the Tony Stark character in the movie. So there was this wonderful sort of cultural plot mix going on for Iron Man that made it even more exciting and funnier. A lot of those jokes hit hard because culturally at that moment Robert Downey Jr. Was very much like Tony Stark.
 
 [00:32:19] Will: Yeah, he wasn't the executive producer on 21 MCU films at that point or whatever it is.
 
@@ -836,7 +836,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:33:15] Will: Yeah.
 
-[00:33:15] Adam: You know, get shorty. And Guardians too, absolutely. If it's on, I'm just watching it all the way.
+[00:33:15] Adam: Get shorty. And Guardians too, absolutely. If it's on, I'm just watching it all the way.
 
 [00:33:15] Norm: Interesting.
 
@@ -844,7 +844,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:33:53] Norm: I like one over two for Guardians.
 
-[00:33:55] Will: I I think one one starts off on such a huge bummer with the mom dying that it like,
+[00:33:55] Will: I think one one starts off on such a huge bummer with the mom dying that it like,
 
 [00:34:02] Adam: which is great.
 
@@ -856,7 +856,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:34:03] Adam: Yeah.
 
-[00:34:03] Will: But also, I think I think the the arc of again, like these movies live and die by their characters, and the arc that Yondu gets in the second one is so good. Like you realize that these guys, these Ravagers, are the outcasts, and that Quill didn't just grow up with some guys who are you know galactic dicks, but the dicks of the galactic dicks, and like it sets up a whole world that you didn't know was there. But I like I like I like the second one a lot.
+[00:34:03] Will: But also, I think the arc of again, like these movies live and die by their characters, and the arc that Yondu gets in the second one is so good. Like you realize that these guys, these Ravagers, are the outcasts, and that Quill didn't just grow up with some guys who are you know galactic dicks, but the dicks of the galactic dicks, and like it sets up a whole world that you didn't know was there. But I like the second one a lot.
 
 [00:34:30] Adam: Look, I I I really I'm sad about what happened to James Gunn.
 
@@ -870,7 +870,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:34:58] Will: When you sign the guy who made Tromeo and Juliet to make your big budget Marvel movie, you should know what you are going to get. Anyway,
 
-[00:35:06] Norm: Ant Man, Ant Man the Wasp.
+[00:35:06] Norm: Ant Man the Wasp.
 
 [00:35:08] Will: I haven't seen Ant Man and the Wasp yet.
 
@@ -924,7 +924,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:36:03] Will: Yeah, I mean, I feel like this. I feel like we're forgetting something, but maybe not. I mean,
 
-[00:36:07] Adam: somebody's yelling at the television at the at the computer screen right now.
+[00:36:07] Adam: somebody's yelling at the television at the computer screen right now.
 
 [00:36:10] Norm: What about this character? I'm scrolling through the list, and I think we're good.
 
@@ -948,7 +948,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:36:28] Will: Man. Spider Man. Spider Man does whatever a spider can.
 
-[00:36:30] Adam: Black Panther. I was on a long haul flight from England a few months ago, and for some reason. I watched Black Panther three times in four days, and I will tell you that that is a movie that not only is super enjoyable to watch from any point at which you pick it up, but it gets better and better. And by better, I mean it gets more more emotional. It hits you deeper. Those characters and their triumphs and and failures are more have more pathos to them. That might be my favorite of all the. MCU
+[00:36:30] Adam: Black Panther. I was on a long haul flight from England a few months ago, and for some reason. I watched Black Panther three times in four days, and I will tell you that that is a movie that not only is super enjoyable to watch from any point at which you pick it up, but it gets better and better. And by better, I mean it gets more more emotional. It hits you deeper. Those characters and their triumphs and failures are more have more pathos to them. That might be my favorite of all the. MCU
 
 [00:37:09] Norm: only one that I've choked up at. Yeah, really,
 
@@ -970,7 +970,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:37:34] Will: Well, that and then the brother sister dynamic is like you. That's one of those things that the more you watch it, the more you pick up on. And she just never lets up on him, and he loves it. Yeah, so and that's like that's such a hard thing. All great
 
-[00:37:47] Adam: characters. Angela Bassett is amazing. Oh, it's minor note, but the the wonderful guy, the Hollywood dialect coach who does YouTube videos breaking down movie accents. His name I
+[00:37:47] Adam: characters. Angela Bassett is amazing. Oh, it's minor note, but the wonderful guy, the Hollywood dialect coach who does YouTube videos breaking down movie accents. His name I
 
 [00:38:01] Norm: don't know.
 
@@ -982,7 +982,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:38:11] Will: Or you need, Adam, you need to weather up that case a little bit. That thing looks brand new.
 
-[00:38:14] Adam: I just got it because because the Apple Store just released iPhone XS, but they have no cases for them in their store. Apple, ugh, stop. Apple's the best salesman for Android I've ever met. Uh, YouTube. Sorry about this.
+[00:38:14] Adam: I just got it because the Apple Store just released iPhone XS, but they have no cases for them in their store. Apple, ugh, stop. Apple's the best salesman for Android I've ever met. YouTube. Sorry about this.
 
 [00:38:32] Will: I like Spider Man. Okay, I'm bummed that they wasted Michael Keaton on a one off villain that we're never going to see again.
 
@@ -996,7 +996,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:39:02] Will: Yeah.
 
-[00:39:02] Adam: So Erik Singer is really worth watching, and he's come out with a new one breaking down 28 accents. And he he talks about he talks about Black Panther.
+[00:39:02] Adam: So Erik Singer is really worth watching, and he's come out with a new one breaking down 28 accents. And he talks about Black Panther.
 
 [00:39:02] Will: Oh, cool!
 
@@ -1034,7 +1034,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:39:46] Adam: clear about.
 
-[00:39:46] Will: Yeah, um, I yeah, I think the hard part is figuring out where they all slot in from here. Like the the trilogies, that's pretty easy. But like, here's how we do this.
+[00:39:46] Will: Yeah I think the hard part is figuring out where they all slot in from here. Like the trilogies, that's pretty easy. But like, here's how we do this.
 
 [00:39:57] Adam: So what we should do is here's what we do.
 
@@ -1056,7 +1056,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:40:27] Adam: Nonetheless, I feel there would be some excellent suggestions in the comments that we can.
 
-[00:40:31] Will: Yeah, I would say that like Civil War stands right up there with with you know Doctor Strange.
+[00:40:31] Will: Yeah, I would say that like Civil War stands right up there with you know Doctor Strange.
 
 [00:40:38] Norm: I would agree with that.
 
@@ -1074,7 +1074,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:40:47] Adam: yeah
 
-[00:40:47] Norm: pick the like the the bottom.
+[00:40:47] Norm: pick the like the bottom.
 
 [00:40:58] Adam: Yeah, this is totally yeah the bottom half doesn't. No one cares about the bottom.
 
@@ -1086,7 +1086,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:41:04] Adam: It's the internet.
 
-[00:41:05] Norm: Yeah, and actually, right, and then right, and then next week or in a following week, we will reveal to each other our top 10 list.
+[00:41:05] Norm: Yeah, and actually, right, and then next week or in a following week, we will reveal to each other our top 10 list.
 
 [00:41:13] Will: I just hand you my list. You'll look at and you'll nod or shake your head, and then we'll move on.
 
@@ -1094,7 +1094,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:41:18] Will: at the start of the next episode.
 
-[00:41:20] Adam: So, just so one little extra thing occurred to me that if you really wanted to investigate the, if you really wanted to talk about the quality or you wanted to talk about the resonance of a product, you could talk about its cultural resonance by looking at the slash fic fanfic generated by each of these properties, and I would submit. And this is totally arguable because it just came up to my head that the ones with more with more fan fiction about them would be the ones that are more deeply cultural culturally resonant within those communities. Actually, right? It's a self selected community.
+[00:41:20] Adam: So, just so one little extra thing occurred to me that if you really wanted to investigate the, if you really wanted to talk about the quality or you wanted to talk about the resonance of a product, you could talk about its cultural resonance by looking at the slash fic fanfic generated by each of these properties, and I would submit. And this is totally arguable because it just came up to my head that the ones with more fan fiction about them would be the ones that are more deeply cultural culturally resonant within those communities. Actually, right? It's a self selected community.
 
 [00:41:20] Norm: Yeah.
 
@@ -1104,7 +1104,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:42:00] Adam: And now the Rule 34 Award for the Academy.
 
-[00:42:03] Norm: But you are right. That we need criteria. Like, what what is our criteria?
+[00:42:03] Norm: But you are right. That we need criteria. Like, what is our criteria?
 
 [00:42:03] Adam: Right.
 
@@ -1136,7 +1136,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:42:32] Will: That's me. It's Midwest farm boy Will Smith.
 
-[00:42:36] Adam: All right, I think that's a great place to leave it. We gotta, we gotta wrap this up.
+[00:42:36] Adam: All right, I think that's a great place to leave it. We gotta wrap this up.
 
 [00:42:39] Will: Yeah, I think so.
 

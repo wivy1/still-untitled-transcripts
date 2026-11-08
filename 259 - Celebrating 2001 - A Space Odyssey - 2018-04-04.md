@@ -24,17 +24,17 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:00:58] Norm: What does burning toast smell like? [unclear: It smells like / It’s not like, it’s not] when they have a stroke.
 
-[00:01:01] Will: I don't know, but it's a common it's a common report.
+[00:01:01] Will: I don't know, but it's a common report.
 
-[00:01:03] Adam: Um. So ask me why I don't have my phone.
+[00:01:03] Adam: So ask me why I don't have my phone.
 
 [00:01:06] Will: Hey Adam, I can’t help but notice you don't have your phone on the desk in front of you. Where is it?
 
-[00:01:09] Adam: I it's it's uh it's it's with my wife. It's with Mrs. Don't try this.
+[00:01:09] Adam: I it's with my wife. It's with Mrs. Don't try this.
 
 [00:01:14] Will: Did she, do you have the same phone and she picked up the wrong one by accident?
 
-[00:01:16] Adam: No, um, she uh she uh she left her phone in a car yesterday.
+[00:01:16] Adam: No she left her phone in a car yesterday.
 
 [00:01:16] Will: Uh-oh,
 
@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:01:24] Will: Like a Lyft,
 
-[00:01:26] Adam: um, some kind of service. Okay, and uh, she's still waiting to get it back, and um, I left her with mine because I'm reachable here. She's got my phone, so she's got your contact info. I said text you if she needs me.
+[00:01:26] Adam: Some kind of service. Okay, and she's still waiting to get it back, and I left her with mine because I'm reachable here. She's got my phone, so she's got your contact info. I said text you if she needs me.
 
 [00:01:39] Will: Great. Do you have a phone, a landline here?
 
@@ -62,7 +62,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:01:55] Norm: Yep. Yeah.
 
-[00:01:56] Adam: Um. So, but it is weird. So this happened last night, and I was having dinner with Thing One at the restaurant he works at, and uh. I left her with my phone then, and that was it. Was peculiar. I'm just here to say I'm completely addicted to my phone, and it's weird to not have it on my body. It was weird last night for dinner. It's weird this morning.
+[00:01:56] Adam: So, but it is weird. So this happened last night, and I was having dinner with Thing One at the restaurant he works at, and. I left her with my phone then, and that was it. Was peculiar. I'm just here to say I'm completely addicted to my phone, and it's weird to not have it on my body. It was weird last night for dinner. It's weird this morning.
 
 [00:02:18] Will: Well, let's see. Have you guys had a shoot lately where you don't have cell service? Like Norm, you went to the Arctic a year before. Well,
 
@@ -72,17 +72,17 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:02:24] Adam: It's significantly different.
 
-[00:02:29] Norm: It's like being on an airplane that has Wi-Fi, and even if you don't use the Wi-Fi, you can still visit the internal flight log, and that still, that still feels like internet.
+[00:02:29] Norm: It's like being on an airplane that has Wi-Fi, and even if you don't use the Wi-Fi, you can still visit the internal flight log, and that still feels like internet.
 
-[00:02:39] Will: The the the thing I miss the thing I hadn't realized at all until I my wife broke my her phone last year. I gave her my phone. Is how much I use the camera.
+[00:02:39] Will: The thing I miss the thing I hadn't realized at all until I my wife broke my her phone last year. I gave her my phone. Is how much I use the camera.
 
 [00:02:48] Adam: Yeah, that's exactly. This happened last night. We were at dinner, and I wanted to take pictures of some of the amazing things the kitchen was sending out, and I didn't have my phone.
 
-[00:02:55] Will: It's it's not even as something is like I take pictures. Like if I make a note on something, yeah, I never transcribe the note or anything. Where I just take a picture of it and slam it in Evernote, and then. It's there with the location data and all that stuff tagged in, like, like it's like it's like a mental catalog of the things that I need to remember, but I'm never going to remember.
+[00:02:55] Will: It's not even as something is like I take pictures. Like if I make a note on something, yeah, I never transcribe the note or anything. Where I just take a picture of it and slam it in Evernote, and then. It's there with the location data and all that stuff tagged in, like it's like a mental catalog of the things that I need to remember, but I'm never going to remember.
 
 [00:03:14] Adam: Part of your memory palace,
 
-[00:03:15] Will: yeah, it is part of the memory palace. That's absolutely right. So you you look a little cowed, you look a little subdued. You okay? Do you need a hug?
+[00:03:15] Will: yeah, it is part of the memory palace. That's absolutely right. So you look a little cowed, you look a little subdued. You okay? Do you need a hug?
 
 [00:03:22] Adam: So one, I'm not happy because I don't have my phone with me. Two, I'm not happy about not being happy because I don’t have my phone with me.
 
@@ -92,7 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:03:35] Norm: would think that this is the space where you would feel happy, even without your phone.
 
-[00:03:39] Adam: So you're you're absolutely right. You know, we're going to get started. Silicon Valley Comic Con is coming up this weekend. We are furiously in the cave with a special guest working on some stuff for this weekend, and it's a great, it's a very fun build. And you're absolutely correct. The moment we get started working, I'm going to forget. I I almost never pull out my phone while working in the shop,
+[00:03:39] Adam: So you're absolutely right. We're going to get started. Silicon Valley Comic Con is coming up this weekend. We are furiously in the cave with a special guest working on some stuff for this weekend, and it's a great, it's a very fun build. And you're absolutely correct. The moment we get started working, I'm going to forget. I almost never pull out my phone while working in the shop,
 
 [00:04:01] Will: unless you're like taking a picture or looking something up specific that you need. Yeah,
 
@@ -100,13 +100,13 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:04:16] Will: There's better stuff to do in this space,
 
-[00:04:17] Adam: so it's it's like years ago. I worked for a machine artist in San Francisco named Chico MacMurtrie of Amorphic Robot Works, and he's now in Red Hook, Brooklyn. But I was in his assistant for about a year and a half in the very early '90s, and Chico lived in a space down in Hunters Point, a building that I eventually lived in for a couple years. But Chico's shop was, if you think this is like a kind of a cave, Chico's was like this, except it was all robots and machine art and greasy hydraulic cylinders and stuff just filling this room, this giant room, like 3,000 square feet, 2,000 square feet. And Chico's place, I stayed there for a few weeks while he was in Czechoslovakia on an art tour, and I stayed in his shop. And his shop had the most amazing effect on me in that that shop required you to either be working on something or leave.
+[00:04:17] Adam: so it's like years ago. I worked for a machine artist in San Francisco named Chico MacMurtrie of Amorphic Robot Works, and he's now in Red Hook, Brooklyn. But I was in his assistant for about a year and a half in the very early '90s, and Chico lived in a space down in Hunters Point, a building that I eventually lived in for a couple years. But Chico's shop was, if you think this is like a kind of a cave, Chico's was like this, except it was all robots and machine art and greasy hydraulic cylinders and stuff just filling this room, this giant room, like 3,000 square feet, 2,000 square feet. And Chico's place, I stayed there for a few weeks while he was in Czechoslovakia on an art tour, and I stayed in his shop. And his shop had the most amazing effect on me in that that shop required you to either be working on something or leave.
 
-[00:05:11] Will: Like there’s no there’s no idle space. There’s no couch?
+[00:05:11] Will: Like there’s no idle space. There’s no couch?
 
 [00:05:13] Adam: there was no couch. Yeah. There was no place to sit and have a coffee or a table around which to have a meeting with anyone. It was like get out of the bed, which was a modified shipping crate, and go work at the welder, or get the hell out. And to a smaller extent, my shop engenders in me not being online, being actually with my hands engaged.
 
-[00:05:34] Will: Well, so when I was setting up my office at home, I was like, I should put a recliner in here so I can just kind of sit back, you know, lean back. When I need to answer some emails, I can recline in the phone and get a different posture. I was like, wait, this is a terrible idea, because what's going to end up happening is I'll stop working in my comfortable ergonomic, well apportioned desktop setup.
+[00:05:34] Will: Well, so when I was setting up my office at home, I was like, I should put a recliner in here so I can just kind of sit back lean back. When I need to answer some emails, I can recline in the phone and get a different posture. I was like, wait, this is a terrible idea, because what's going to end up happening is I'll stop working in my comfortable ergonomic, well apportioned desktop setup.
 
 [00:05:34] Adam: Yeah.
 
@@ -120,7 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:06:13] Will: What? Really?
 
-[00:06:14] Adam: Yeah. DWR sells a glass top desk with floating drawers, and they they have a specific model they sell, but the model they had in the store when I went there was slightly different, and it was much better than the production model, and it turned out to be a prototype, and I negotiated with them a little bit, and they were willing to sell me the prototype.
+[00:06:14] Adam: Yeah. DWR sells a glass top desk with floating drawers, and they have a specific model they sell, but the model they had in the store when I went there was slightly different, and it was much better than the production model, and it turned out to be a prototype, and I negotiated with them a little bit, and they were willing to sell me the prototype.
 
 [00:06:14] Will: Oh, that's awesome.
 
@@ -128,19 +128,19 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:06:35] Will: It's better than the side bar.
 
-[00:06:36] Adam: Um, I have that desk, and I sit at that and work. It's where I do most of my writing and and working stuff. But I also have a long couch. I call it my Don Draper.
+[00:06:36] Adam: I have that desk, and I sit at that and work. It's where I do most of my writing and working stuff. But I also have a long couch. I call it my Don Draper.
 
 [00:06:46] Will: Yes, I've I have I've spent time on your Don Draper. We've recorded podcasts there.
 
-[00:06:49] Adam: Exactly, and that couch is made by Vioski, a California company. They hand build them down in Los Angeles, and it's just like I. There are two different spaces within the office. So sometimes I lie down on the couch or I’ll, you know, I'll relax on the couch, and other times I'll be at the desk. But neither pulls me from one to the other.
+[00:06:49] Adam: Exactly, and that couch is made by Vioski, a California company. They hand build them down in Los Angeles, and it's just like I. There are two different spaces within the office. So sometimes I lie down on the couch or I’ll I'll relax on the couch, and other times I'll be at the desk. But neither pulls me from one to the other.
 
-[00:07:10] Norm: I, I like having a couch in my office.
+[00:07:10] Norm: I like having a couch in my office.
 
 [00:07:12] Will: You like having a couch in your office.
 
 [00:07:13] Norm: Mine's made by a Scandinavian company. IKEA. Oh, interesting.
 
-[00:07:18] Will: Very good. Well, I mean, the new couch will be coming into our life soon. So maybe when when the when the new couch enters enters our world, we'll I'll reevaluate.
+[00:07:18] Will: Very good. Well, I mean, the new couch will be coming into our life soon. So maybe when the new couch enters enters our world, we'll I'll reevaluate.
 
 [00:07:27] Adam: But couches are good.
 
@@ -168,15 +168,15 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:08:07] Adam: My mom's phone number is burned, hardwired into the firmware.
 
-[00:08:10] Will: But but that’s it. Like I like. Outside of those two people.
+[00:08:10] Will: But that’s it. Like I like. Outside of those two people.
 
 [00:08:14] Adam: My mom's phone number is like Pong; it can't be replicated digitally because it's wired right into the hardware.
 
-[00:08:19] Will: Well, yeah, like, the thing is, your fingers just know how to dial, you don't even have to look at them? Probably right, but yeah, like I don't think I don't think there is anything wrong with you being distressed that you don't have access to this information that you have outsourced to a machine,
+[00:08:19] Will: Well, yeah, the thing is, your fingers just know how to dial, you don't even have to look at them? Probably right, but yeah, like I don't think there is anything wrong with you being distressed that you don't have access to this information that you have outsourced to a machine,
 
 [00:08:19] Adam: right?
 
-[00:08:19] Will: And and like I think phones are a superpower, right?
+[00:08:19] Will: And like I think phones are a superpower, right?
 
 [00:08:19] Adam: Yeah, this is true. Yeah, it’s self-evolution.
 
@@ -204,7 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:09:25] Norm: I bet Google knows exactly where in your house your bathroom is.
 
-[00:09:29] Adam: You know, I’m quite sure of that.
+[00:09:29] Adam: I’m quite sure of that.
 
 [00:09:30] Will: There was a game I played in the early days of Google at cocktail at parties and stuff, where I would ask people if their spouse or Google knew them better.
 
@@ -222,7 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:09:30] Adam: Yeah.
 
-[00:09:30] Will: Then the game gets bad, but but but it's like it's an interesting like now in the information age.
+[00:09:30] Will: Then the game gets bad, but it's like it's an interesting like now in the information age.
 
 [00:10:04] Adam: I was like, oh, I want to look something up. Let me go. [unclear: Oh, it’s not my phone / It’s on my phone]. While we're
 
@@ -238,9 +238,9 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:10:25] Adam: The spectacles, testicles, watch, wallet.
 
-[00:10:27] Will: The other, the other one.
+[00:10:27] Will: The other one.
 
-[00:10:28] Adam: Now it's now it's wallet and phone.
+[00:10:28] Adam: Now it's wallet and phone.
 
 [00:10:30] Will: Wallet and phone. The other game I like is if you're on the BART station and you're on the platform waiting for the train, and like nobody has their phone out, and you walk up to like a group of people and just pull your phone out and watch everybody else pull their phone out at the same time.
 
@@ -252,7 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:10:44] Adam: That's like the new equivalent of yawning.
 
-[00:10:47] Will: Oh, oh, it's it's totally connected to social behavior.
+[00:10:47] Will: Oh, oh, it's totally connected to social behavior.
 
 [00:10:49] Norm: Yeah. Well, you were asking about the Arctic. Yeah, we were there. That was two weeks, two and a half weeks without internet.
 
@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:10:56] Norm: Yes, absolutely. And then on the last day, when we got off the ship and onto Is Resolute in Canada City, and we all were bussed to a hotel where we were waiting before we would get then ferried back to the airport. Everyone was very in their head it was very euphoric. Everyone was talking about the trip. And then it was in this big hotel lounge, and then very slowly we realized one person had noticed that there was a Wi-Fi password taped to the wall, and you could see the wave of silence going over as everyone's chatting, chatting, chatting, chatting, and then silence, and then everyone's checking their emails.
 
-[00:11:34] Will: Here's that last, this last moment you guys had together as a group. Yeah, you you squandered by checking your email.
+[00:11:34] Will: Here's that last, this last moment you guys had together as a group. Yeah, you squandered by checking your email.
 
 [00:11:40] Adam: All right, so
 
@@ -280,7 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:11:49] Will: seems right. Yeah.
 
-[00:11:49] Adam: Um, I just I wanted to announce that tomorrow night at 7 p.m. at the uh piano fight in the Tenderloin, I'll be participating in Rebecca Watson's Quiz-o-Tron.
+[00:11:49] Adam: I just I wanted to announce that tomorrow night at 7 p.m. at the piano fight in the Tenderloin, I'll be participating in Rebecca Watson's Quiz-o-Tron.
 
 [00:12:00] Will: Piano fight is a great venue for Quiz-o-Tron.
 
@@ -298,7 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:12:37] Will: Oh, you’ve never done it before, okay?
 
-[00:12:38] Adam: You know more than I do. about what it entails.
+[00:12:38] Adam: More than I do. about what it entails.
 
 [00:12:40] Will: It is a. It is kind of a bullshit quiz show.
 
@@ -308,15 +308,15 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:12:54] Adam: This is like the British talk show. What's my word?
 
-[00:12:56] Will: Kind of. Yeah. Yeah. It's similar, kind of similar. So, like for example, one of the one of the I expect there will be the last time I did there were a lot of Trump shots because it was right after
+[00:12:56] Will: Kind of. Yeah. Yeah. It's similar, kind of similar. So, like for example, one of the I expect there will be the last time I did there were a lot of Trump shots because it was right after
 
 [00:13:06] Adam: shocking.
 
-[00:13:07] Will: I mean, it doesn't matter. It was like sometime between now and 2015. But but yeah, like like like. Just you know, think about think about science in the news. You all, I think you also have to tell which story is real and which one's fake.
+[00:13:07] Will: I mean, it doesn't matter. It was like sometime between now and 2015. But yeah, like. Just think about science in the news. You all, I think you also have to tell which story is real and which one's fake.
 
 [00:13:07] Adam: Yep.
 
-[00:13:07] Will: And you have to justify which which one is the correct one.
+[00:13:07] Will: And you have to justify which one is the correct one.
 
 [00:13:21] Adam: They've been doing real and fake stories on Pod Save and Lovett or Leave It, and some of them are so so crazy difficult.
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:15:12] Adam: I didn't know about this.
 
-[00:15:14] Norm: The Onewheel turns out is a fantastic. Like production vehicle, yeah, to getting around on a big on a set on on location,
+[00:15:14] Norm: The Onewheel turns out is a fantastic. Like production vehicle, yeah, to getting around on a big on a set on location,
 
 [00:15:22] Adam: going to check a camera 500 feet away,
 
@@ -422,9 +422,9 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:15:29] Will: like having some some sort of wheeled transport, whether it's a bicycle or a scooter or an electric thing or whatever, has to be incredibly useful when you're like out in the salt flats doing, yeah,
 
-[00:15:40] Adam: and and it's also look being out, you know, doing production is both exciting and boring, right? There's a lot of downtime while you're waiting on cameras to be set up or cars to cool down and things like that, and having something like that to kind of move around. I got I I gave myself some new skills of turning in very very tight radii, like less than a few inches.
+[00:15:40] Adam: and it's also look being out doing production is both exciting and boring, right? There's a lot of downtime while you're waiting on cameras to be set up or cars to cool down and things like that, and having something like that to kind of move around. I got I I gave myself some new skills of turning in very very tight radii, like less than a few inches.
 
-[00:16:02] Will: Did you get your your guest on the on the Onewheel?
+[00:16:02] Will: Did you get your guest on the Onewheel?
 
 [00:16:04] Adam: No, I did not actually. Funnily enough, but yeah, the Onewheel, awesome. It's just coming with me on every shoot ever.
 
@@ -434,11 +434,11 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:16:21] Will: I just were killing Norm.
 
-[00:16:22] Adam: The the look of appalled, um, disrespect from you for that segue was really delightful for me.
+[00:16:22] Adam: The look of appalled disrespect from you for that segue was really delightful for me.
 
-[00:16:28] Will: Look, when he came in at the wrong beat on the on the intro, the third one we did today, we're all even now. Nobody, there's no nobody has any place to cast stones today. So Norm, what do you got?
+[00:16:28] Will: Look, when he came in at the wrong beat on the intro, the third one we did today, we're all even now. Nobody, there's no nobody has any place to cast stones today. So Norm, what do you got?
 
-[00:16:42] Norm: You know, Adam was talking earlier about this shop being a place where he dives into projects, and one of the projects talked about last week was a the Star Child from the film 2001: Space Odyssey. And it turns out this week is the 50th anniversary of 2001: Space Odyssey.
+[00:16:42] Norm: Adam was talking earlier about this shop being a place where he dives into projects, and one of the projects talked about last week was a the Star Child from the film 2001: Space Odyssey. And it turns out this week is the 50th anniversary of 2001: Space Odyssey.
 
 [00:16:57] Adam: Wow. Hold on. While you're doing that, I'm going to grab it.
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:17:01] Norm: that's what I had in mind. So let's talk about 2001.
 
-[00:17:05] Will: Yeah, I saw 2001 when I was in college. I think most people my age probably did. Uh, like I saw it in the in the university theater. And
+[00:17:05] Will: Yeah, I saw 2001 when I was in college. I think most people my age probably did. Like I saw it in the university theater. And
 
 [00:17:14] Norm: Oh, yeah, cradle that star child.
 
@@ -480,7 +480,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:17:54] Norm: Oh, it's so creepy. For people who are not watching the video, Adam was holding his star child replica that he's working on, which has a mechanized eye, an eye mech that moves left and right.
 
-[00:18:08] Adam: And this sculpt is by my friend Steve Neill, who did, as we said last week, the beautiful Moonwatcher mask with the Stuart Freeborn correct mechanics in it. This is this is such a beautiful object, and I have so coveted one of these since I saw the full size one at the Kubrick exhibit. And I had so much reference material, really helped Steve be able to see this from every angle. Because in one of the places I saw the Kubrick exhibit, I had access to the full round of the figure, and so I took photos at like every 20 degrees all the way around.
+[00:18:08] Adam: And this sculpt is by my friend Steve Neill, who did, as we said last week, the beautiful Moonwatcher mask with the Stuart Freeborn correct mechanics in it. This is such a beautiful object, and I have so coveted one of these since I saw the full size one at the Kubrick exhibit. And I had so much reference material, really helped Steve be able to see this from every angle. Because in one of the places I saw the Kubrick exhibit, I had access to the full round of the figure, and so I took photos at like every 20 degrees all the way around.
 
 [00:18:08] Unknown speaker: Oh, man.
 
@@ -494,7 +494,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:18:53] Will: Did you see it in theater, or was it on video?
 
-[00:18:55] Adam: No, I saw it on, I saw it on video. Yeah.
+[00:18:55] Adam: No, I saw it on video. Yeah.
 
 [00:18:57] Will: Yeah. So I saw it like my university did a Kubrick festival, so we like the film department had five nights with five different Kubrick films, and I think they're probably off DVD. Maybe I can't remember, but it was maybe even film, but it was like seeing that in a. It was a small theater.
 
@@ -512,11 +512,11 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:19:13] Adam: and that was.
 
-[00:19:25] Will: I mean, it's it's
+[00:19:25] Will: I mean, it's
 
 [00:19:26] Adam: amazing.
 
-[00:19:27] Will: Like it, it is the, it is probably the first film that I saw that I was like, oh right, you have to see this. It's like that, and like and like Lawrence of Arabia, and those kind of like '60s huge epic cinema scope, you know.
+[00:19:27] Will: It is the, it is probably the first film that I saw that I was like, oh right, you have to see this. It's like that, and Lawrence of Arabia, and those kind of like '60s huge epic cinema scope.
 
 [00:19:39] Adam: So what do you? There's been. It is the we're now at the 50th anniversary of the release of 2001, and it's a super important movie and really important to remember. A couple of things that I find really shocking: there are no motion control shots in 2001.
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:20:20] Adam: Right, and not only that, this is '68, so it's nine years before Star Wars. It's like it's. Given its vision of life in space, it's an astounding achievement for what it is.
 
-[00:20:32] Will: Well, and it used it used images from one of the space probes, probably from Pioneer, right?
+[00:20:32] Will: Well, and it used images from one of the space probes, probably from Pioneer, right?
 
 [00:20:32] Adam: I can’t remember.
 
@@ -548,19 +548,19 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:20:42] Will: I'll look that up on my pocket internet device. and just decide.
 
-[00:20:45] Adam: but the the internet fervor over the 50th anniversary has yielded a brand new not conspiracy theory, but idea.
+[00:20:45] Adam: but the internet fervor over the 50th anniversary has yielded a brand new not conspiracy theory, but idea.
 
 [00:20:51] Norm: interpretation
 
-[00:20:52] Adam: about the theme of of of of 2001 being all about food.
+[00:20:52] Adam: about the theme of 2001 being all about food.
 
 [00:20:52] Norm: What
 
 [00:20:52] Adam: Have you heard about this?
 
-[00:20:57] Norm: No, I've read. I've read the ones about the about the film.
+[00:20:57] Norm: No, I've read. I've read the ones about the film.
 
-[00:21:01] Adam: In almost every scene that is not specifically, basically, every human based scene, someone's eating is apparently what what is
+[00:21:01] Adam: In almost every scene that is not specifically, basically, every human based scene, someone's eating is apparently what is
 
 [00:21:01] Unknown speaker (Adam then Will or Adam): being said.
 
@@ -568,21 +568,21 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:21:14] Adam: The ham sandwiches that Floyd Heywood Floyd eats with his crew on the way to Tycho. Yes, it’s true. And. by the way, I love the fact that on the moon in the future, they like. Well, we called Tycho base, but we've just got the machine. Like,
 
-[00:21:28] Will: like, look! If you look at, if you look at, it's fascinating to look at like late '60s science fiction, including 2001, the Charlton Heston trio with Planet of the Apes and and Omega Man and Soylent Green, and and see which of the tiny bits of these films they got right, right? Like, like, there's they're real close on a lot of stuff, but just you know, the AT and T video phone terminal in the airport,
+[00:21:28] Will: like, look! If you look at, it's fascinating to look at like late '60s science fiction, including 2001, the Charlton Heston trio with Planet of the Apes and Omega Man and Soylent Green, and see which of the tiny bits of these films they got right, right? Like, there's they're real close on a lot of stuff, but just you know, the AT and T video phone terminal in the airport,
 
 [00:21:28] Adam: yeah,
 
 [00:21:28] Will: you're like you're solid 80% of the way there, guys.
 
-[00:21:57] Adam: Um, they, I, I, you know, there's also the fact that all the beautiful flat screen computer screens in 2001 also have these big push buttons next to them.
+[00:21:57] Adam: They, I, I there's also the fact that all the beautiful flat screen computer screens in 2001 also have these big push buttons next to them.
 
 [00:21:57] Norm: Yeah,
 
-[00:21:57] Adam: just they didn't realize that you could have windows within windows. All the displays were primary displays with no secondary sub displays. Um, let's see what else. I love the iPads on the table, but so
+[00:21:57] Adam: just they didn't realize that you could have windows within windows. All the displays were primary displays with no secondary sub displays. Let's see what else. I love the iPads on the table, but so
 
 [00:22:16] Norm: FaceTime and video calls.
 
-[00:22:18] Adam: Yeah. Um, my favorite. Have I told the story about the wireframe? I have on the.
+[00:22:18] Adam: Yeah. My favorite. Have I told the story about the wireframe? I have on the.
 
 [00:22:22] Norm: I don’t think so.
 
@@ -604,7 +604,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:23:13] Unknown speaker (Adam or Norm): Isn’t that the best?
 
-[00:23:13] Norm: I don't think 2001 is the first movie with wireframe graphics. I thought that was Future World with with Peter Fonda and. Wow. Okay.
+[00:23:13] Norm: I don't think 2001 is the first movie with wireframe graphics. I thought that was Future World with Peter Fonda and. Wow. Okay.
 
 [00:23:23] Adam: I love the analog solution to the digital.
 
@@ -618,13 +618,13 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:23:31] Norm: Hmm, hmm. What are you looking at, Will? Which part of your film is your favorite or the most impactful? You think? It's a film with many acts.
 
-[00:23:49] Adam: I I have. So I have a particular fondness for the Dawn of Man.
+[00:23:49] Adam: I have. So I have a particular fondness for the Dawn of Man.
 
-[00:23:56] Will: I I think the Dawn of Man is the like, it's astounding.
+[00:23:56] Will: I think the Dawn of Man is the like, it's astounding.
 
-[00:23:59] Adam: It really is the makeup, the characters, the fact that that's all shot on a soundstage with front projection, 3M backing material, like the the the techniques they use to get that are still world class special effects that it's really hard to see that it's an effect. It feels like they're on the African veldt.
+[00:23:59] Adam: It really is the makeup, the characters, the fact that that's all shot on a soundstage with front projection, 3M backing material, like the techniques they use to get that are still world class special effects that it's really hard to see that it's an effect. It feels like they're on the African veldt.
 
-[00:24:21] Will: I mean, so it's been. I probably don't need to watch 2000. I'm probably actually now that we talk about, I'm probably going to watch 2001 tonight. But like the scenes that stick with me are Dawn of Man, the the Pan Am, the the trans, the the circular walk, which is an unbelievable effect sequence that they did in in the '60s. I mean,
+[00:24:21] Will: I mean, so it's been. I probably don't need to watch 2000. I'm probably actually now that we talk about, I'm probably going to watch 2001 tonight. But like the scenes that stick with me are Dawn of Man, the Pan Am, the trans, the circular walk, which is an unbelievable effect sequence that they did in the '60s. I mean,
 
 [00:24:40] Adam: it's crazy,
 
@@ -632,13 +632,13 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:24:42] Adam: And then you, the more you know about how they did it, the more crazy it gets, right?
 
-[00:24:46] Will: Well, and then the the last one is the. I mean, there's actually way more than this, but the pod bay doors scene when they're or not the pod bay doors, when they're sitting in the when the pod and talking to each other and Hal's reading their lips and you're like like the way the way that's shot and like
+[00:24:46] Will: Well, and then the last one is the. I mean, there's actually way more than this, but the pod bay doors scene when they're or not the pod bay doors, when they're sitting in the when the pod and talking to each other and Hal's reading their lips and you're like the way that's shot and like
 
 [00:25:01] Adam: the way it's communicated,
 
 [00:25:02] Will: you're like, oh right, the computer knows what they're saying and they're completely fucked now. So, yeah,
 
-[00:25:07] Adam: I also really love. I also really love the sound of Bowman's breathing and and while Hal is singing,
+[00:25:07] Adam: I also really love. I also really love the sound of Bowman's breathing and while Hal is singing,
 
 [00:25:15] Will: where’s like when you put your helmet on me and you’re like, just let me. I want to show you something. And you put put your 2001 helmet on me. He’s like. They recorded the sound from inside the helmet. This is the best thing.
 
@@ -652,7 +652,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:25:58] Adam: It's the coolest. So when I went to the Mars conference, I had a lot of people try on the helmet, and they were like, " You're right."
 
-[00:26:07] Will: Yeah, it's it's I it's it's the first. Also, it's incredible that it was a big budget Hollywood movie that was the hardest of hard sci-fi. It was Arthur C. Clarke writing a a The novel for this and the screenplay for this simultaneously.
+[00:26:07] Will: Yeah, it's I it's the first. Also, it's incredible that it was a big budget Hollywood movie that was the hardest of hard sci-fi. It was Arthur C. Clarke writing a The novel for this and the screenplay for this simultaneously.
 
 [00:26:23] Adam: In conjunction with Kubrick, right?
 
@@ -660,11 +660,11 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:26:32] Norm: It's on Jupiter,
 
-[00:26:34] Will: so the the movie's on Jupiter and the book is on Saturn. So the book the book they they flip flop Europa and Titan basically. It's it's a it's like the story of how it how the movie is made is exceptional as well because it was it was kind of a first of a kind collaboration between like one of the greats of the golden age of science fiction and Stanley Kubrick man
+[00:26:34] Will: so the movie's on Jupiter and the book is on Saturn. So the book they flip flop Europa and Titan basically. It's a it's like the story of how it how the movie is made is exceptional as well because it was kind of a first of a kind collaboration between like one of the greats of the golden age of science fiction and Stanley Kubrick man
 
-[00:26:34] Adam: I know I know
+[00:26:34] Adam: I know
 
-[00:26:34] Will: like he did a genre like people didn't do genre films like serious directors didn't do genre films like that so it's it's it's it's a fascinating film
+[00:26:34] Will: He did a genre like people didn't do genre films like serious directors didn't do genre films like that so it's a fascinating film
 
 [00:27:04] Adam: so if you have not seen it on the big screen all of us exhort you to find a big screen near you where it is likely to be playing and this whole 50th anniversary thing is about to get really cool. Because we're only a year away from the 50th anniversary of the Apollo Moon.
 
@@ -672,7 +672,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:27:20] Adam: Very cool.
 
-[00:27:20] Will: So, like, yeah, it's it's coming. And just to be clear, like, I'm going to give you some grief. Like, I do you guys think 2001's like? I It's hard to watch for me now. What
+[00:27:20] Will: So yeah, it's coming. And just to be clear I'm going to give you some grief. Like, I do you guys think 2001's like? I It's hard to watch for me now. What
 
 [00:27:42] Norm: part of it's hard to watch?
 
@@ -684,25 +684,25 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:27:46] Will: Yeah. No, I mean it is, but I mean I just want to set people's expectations so they don't go in expecting Star Wars.
 
-[00:27:52] Adam: It's the it's the opposite of Star Wars.
+[00:27:52] Adam: It's the opposite of Star Wars.
 
 [00:27:54] Will: Yeah.
 
 [00:27:54] Adam: It is in many ways. It this is a slow tone poem of a piece about space and death and mortality and
 
-[00:28:01] Will: it's it's very deliberate and it's like just pay attention to what's going on in the shots. There's a lot of places where there's not a lot of exposition and it's just a really gorgeous sequence. It's like six minutes long in the middle of the film.
+[00:28:01] Will: it's very deliberate and it's like just pay attention to what's going on in the shots. There's a lot of places where there's not a lot of exposition and it's just a really gorgeous sequence. It's like six minutes long in the middle of the film.
 
-[00:28:14] Adam: So I have a I have a whole library of books on 2001, as having been obsessed with it for years. And one of them is this old paperback that goes into all these news articles about it, and it it sort of it felt like one of those things they rushed out when the film because I remember like visiting going to New York with my dad in the early '70s, and 2001 was always playing in some theater. It played for years.
+[00:28:14] Adam: So I have a whole library of books on 2001, as having been obsessed with it for years. And one of them is this old paperback that goes into all these news articles about it, and it sort of it felt like one of those things they rushed out when the film because I remember like visiting going to New York with my dad in the early '70s, and 2001 was always playing in some theater. It played for years.
 
 [00:28:37] Will: Well, that used to happen more often too for kind of big, yes,
 
-[00:28:40] Adam: it's true. Like a movie like Jaws would stick around in theaters for 6 to 10 months. Yeah. Um. But um. I will tell
+[00:28:40] Adam: it's true. Like a movie like Jaws would stick around in theaters for 6 to 10 months. Yeah. But. I will tell
 
-[00:28:40] Unknown speaker (Adam then Will or Norm): the book, the paperback book, the paperback book.
+[00:28:40] Unknown speaker (Adam then Will or Norm): the book, the paperback book.
 
 [00:28:50] Will: Thank you.
 
-[00:28:50] Adam: Um. In the paperback book, there is a letter reproduced of a young college student who went and saw the film and sent a letter to Kubrick saying, " I don't know what you meant to say by this film, but looking at its larger themes, here is my breakdown of what I believe you were trying to say," and Kubrick. Apparently responded to that letter saying, " Of all of the critical theory and assumptions about what 2001 is about, this young woman has written a more cogent and thoughtful analysis than anybody else."
+[00:28:50] Adam: In the paperback book, there is a letter reproduced of a young college student who went and saw the film and sent a letter to Kubrick saying, " I don't know what you meant to say by this film, but looking at its larger themes, here is my breakdown of what I believe you were trying to say," and Kubrick. Apparently responded to that letter saying, " Of all of the critical theory and assumptions about what 2001 is about, this young woman has written a more cogent and thoughtful analysis than anybody else."
 
 [00:28:50] Norm: Wow!
 
@@ -742,7 +742,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:30:37] Unknown speaker (Will or Adam): No,
 
-[00:30:38] Adam: no. You so you actually discover this is funny that Hal killed the killed the astronauts because he was given conflicting orders and he couldn’t resolve them.
+[00:30:38] Adam: no. You so you actually discover this is funny that Hal killed the astronauts because he was given conflicting orders and he couldn’t resolve them.
 
 [00:30:48] Will: it's the Robocop problem,
 
@@ -754,15 +754,15 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:30:52] Adam: That's actually one of the more realistic reasons that an AI could.
 
-[00:30:57] Will: It's that it's funny because that's something that's really established in the 2001 book and is just hinted at through the movie. And it's like you're watching the movie, then you you know,
+[00:30:57] Will: It's that it's funny because that's something that's really established in the 2001 book and is just hinted at through the movie. And it's like you're watching the movie, then you know,
 
 [00:31:05] Adam: right?
 
-[00:31:06] Will: But if you're if you're if you watch the movie after you read the book, then you know. But if you don't, then it's not there, and you completely have no idea.
+[00:31:06] Will: But if you're if you watch the movie after you read the book, then you know. But if you don't, then it's not there, and you completely have no idea.
 
 [00:31:06] Adam: Yeah.
 
-[00:31:06] Will: Um, I learned yesterday. This is a bit of a tangent, but talking about authorial intent film, I think it's relevant that the Last Jedi has a director's commentary from Rian Johnson on the disc.
+[00:31:06] Will: I learned yesterday. This is a bit of a tangent, but talking about authorial intent film, I think it's relevant that the Last Jedi has a director's commentary from Rian Johnson on the disc.
 
 [00:31:06] Adam: Oh,
 
@@ -782,7 +782,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:31:44] Unknown speaker (Norm or Will): yeah.
 
-[00:31:44] Will: And his his director commentaries are are usually very interesting and definitely worth listening to, so I’m excited.
+[00:31:44] Will: And his his director commentaries are usually very interesting and definitely worth listening to, so I’m excited.
 
 [00:31:53] Norm: he should record those in binaural audio, so it sounds like he's sitting next to you.
 
@@ -830,9 +830,9 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:32:32] Norm: Ooh, we're gonna talk about this offline. Yeah. That’s a great place to end.
 
-[00:32:34] Will: Don't post it. We gotta, we gotta get some domains registered.
+[00:32:34] Will: Don't post it. We gotta get some domains registered.
 
-[00:32:36] Adam: You get a, you get a bunch of comedians.
+[00:32:36] Adam: You get a bunch of comedians.
 
 [00:32:38] Norm: Yes.
 

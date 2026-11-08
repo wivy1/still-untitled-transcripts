@@ -4,13 +4,13 @@
 **Duration:** 35m 28s  
 Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
-[00:00:00] Adam: Um, so the joke that I wanted to tell you,
+[00:00:00] Adam: So the joke that I wanted to tell you,
 
 [00:00:00] Norm: yeah,
 
 [00:00:00] Adam: is, uh—
 
-[00:00:08] Norm: welcome to Still Untitled the Adam Savage Adam Savage Project. This is not easy.
+[00:00:08] Norm: welcome to Still Untitled the Adam Savage Project. This is not easy.
 
 [00:00:08] Adam: No,
 
@@ -30,7 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:00:21] Rebecca: Excited to be here.
 
-[00:00:23] Adam: But really, most importantly, most importantly, David Bowie died.
+[00:00:23] Adam: But really, most importantly, David Bowie died.
 
 [00:00:27] Rebecca: I know.
 
@@ -66,13 +66,13 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:01:12] Adam: yeah.
 
-[00:01:13] Rebecca: He made that album, you know, knowing that it was going to be his last. Released it on his birthday, knowing, like, for fans, so that he would have a chance to release one more album. And I was listening to Lazarus today, which is all about you know being you know dead. He's going to die, and it's so moving. And it what really blows my mind is the whole album is brilliant. I think, but he made that while he was literally dying,
+[00:01:13] Rebecca: He made that album knowing that it was going to be his last. Released it on his birthday, knowing for fans, so that he would have a chance to release one more album. And I was listening to Lazarus today, which is all about you know being you know dead. He's going to die, and it's so moving. And it what really blows my mind is the whole album is brilliant. I think, but he made that while he was literally dying,
 
 [00:01:13] Adam: I know.
 
 [00:01:13] Rebecca: and he still nailed it.
 
-[00:01:41] Adam: Well, this is the thing: is is that Bowie the the place Bowie occupies, and you we say this when a giant of the of of an art form passes. Um. That they that they they it's how do I put this? There are so—certain artists. Most artists fit like a keyhole into the culture, but there are some that are the door. Michael Jackson,
+[00:01:41] Adam: Well, this is the thing: is is that Bowie the place Bowie occupies, and you we say this when a giant of the of an art form passes. That they it's how do I put this? There are so—certain artists. Most artists fit like a keyhole into the culture, but there are some that are the door. Michael Jackson,
 
 [00:02:09] Norm: yeah,
 
@@ -84,11 +84,11 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:02:37] Norm: he was always whatever cool was. He's he made it cool.
 
-[00:02:44] Rebecca: And having been born in the '80s, it is completely mind-boggling to me that " Space Oddity" at one point didn't exist, and David Bowie had to come along and make it. You know, like. It wasn't nothing like that was out there.
+[00:02:44] Rebecca: And having been born in the '80s, it is completely mind-boggling to me that " Space Oddity" at one point didn't exist, and David Bowie had to come along and make it. Like. It wasn't nothing like that was out there.
 
 [00:02:44] Adam: Yeah,
 
-[00:02:44] Rebecca: he he needed to do it,
+[00:02:44] Rebecca: he needed to do it,
 
 [00:03:03] Norm: and of course, his presence in movies from Labyrinth all the way to The Prestige, playing Nikola Tesla.
 
@@ -100,11 +100,11 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:03:18] Rebecca: Scared the living fuck out of me. I had nightmares about David Bowie for years.
 
-[00:03:24] Adam: Yeah, no, I know, and a genuinely wonderful actor, a genuinely terrific personality. I mean, very. You never felt like he was rigorously controlling his brand. You just felt like he was existing. We were in his world. He and Iman would walk around, and everyone would just be like, " How is such beauty possible?" As they, it is literally like we're being allowed to view unicorns in the wild as they as they move around.
+[00:03:24] Adam: Yeah, no, I know, and a genuinely wonderful actor, a genuinely terrific personality. I mean, very. You never felt like he was rigorously controlling his brand. You just felt like he was existing. We were in his world. He and Iman would walk around, and everyone would just be like, " How is such beauty possible?" As they, it is literally like we're being allowed to view unicorns in the wild as they move around.
 
 [00:03:52] Rebecca: A friend of mine just said she was hanging out in a bar once when they walked in and you know. It was like in the old west when a gunslinger walks in and the entire bar just falls silent. It was like royalty walking in.
 
-[00:04:04] Adam: So this this week, the amazing and wonderful sketch fest is happening in San Francisco, and it's taking over San Francisco and taking over some of our lives for days here and there. We all have good friends who come into town, and we get to see them and spend time with them. And yesterday, there was a lot of time spent with Ben Acker and Ben Blacker from the Thrilling Adventure Hour, Mark Gagliardi, Hal Lublin,
+[00:04:04] Adam: So this week, the amazing and wonderful sketch fest is happening in San Francisco, and it's taking over San Francisco and taking over some of our lives for days here and there. We all have good friends who come into town, and we get to see them and spend time with them. And yesterday, there was a lot of time spent with Ben Acker and Ben Blacker from the Thrilling Adventure Hour, Mark Gagliardi, Hal Lublin,
 
 [00:04:04] Rebecca: John Hodgman,
 
@@ -120,9 +120,9 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:05:14] Rebecca: Wait, I know we're all skeptics, but maybe it was his spirit showing up in all of the places simultaneously that he knew he was wanted.
 
-[00:05:26] Adam: Well, you know, so this is where this is where I am totally able to come up with the literary analogy for spirit and say, you know, that people do live on in the way that we think about them and their import into us and the way that they alter moments of our lives. As soon as we're done recording this, I'm putting my phone on my stereo and I'm going to be working in this shop, blasting Bowie as loud as I can possibly do for the rest of the day, and I'm going to live inside a little Bowie.
+[00:05:26] Adam: Well so this is where I am totally able to come up with the literary analogy for spirit and say, you know, that people do live on in the way that we think about them and their import into us and the way that they alter moments of our lives. As soon as we're done recording this, I'm putting my phone on my stereo and I'm going to be working in this shop, blasting Bowie as loud as I can possibly do for the rest of the day, and I'm going to live inside a little Bowie.
 
-[00:05:52] Norm: Yeah, and he made it okay for for. You to feel weird. I think that’s a good thing. Danica was telling me this yesterday. When you watch him in movies and listen to his music and saw his public persona change over the years, and you are growing up and you feel awkward and confused about your own life, you look at David Bowie and you are like, " That's okay."
+[00:05:52] Norm: Yeah, and he made it okay for. You to feel weird. I think that’s a good thing. Danica was telling me this yesterday. When you watch him in movies and listen to his music and saw his public persona change over the years, and you are growing up and you feel awkward and confused about your own life, you look at David Bowie and you are like, " That's okay."
 
 [00:06:10] Rebecca: Yeah,
 
@@ -130,27 +130,27 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:06:12] Rebecca: he was gender fluid before gender fluid was a thing.
 
-[00:06:16] Adam: He he was gender fluid and gave he was a. I've often I've often enjoyed saying that I like to feel like in my best I can be a permission machine for a 10 year old me to go ahead and let the freak flag fly. Yeah, but Bowie's confidence at that fluidity—I think he announced that he was gay in 1973 as part of space as part of Ziggy Stardust. And there are some accounts that it was a cynical attempt to get more attention for the album, but really, in the in the arc of his life, none of that matters. He really was so weird and so bizarre. And so confident at it that he transcended any opinions you could have about it, because at the same time it was totally public. It was also completely personal, and it was his, and he owned it totally.
+[00:06:16] Adam: He was gender fluid and gave he was a. I've often enjoyed saying that I like to feel like in my best I can be a permission machine for a 10 year old me to go ahead and let the freak flag fly. Yeah, but Bowie's confidence at that fluidity—I think he announced that he was gay in 1973 as part of space as part of Ziggy Stardust. And there are some accounts that it was a cynical attempt to get more attention for the album, but really, in the arc of his life, none of that matters. He really was so weird and so bizarre. And so confident at it that he transcended any opinions you could have about it, because at the same time it was totally public. It was also completely personal, and it was his, and he owned it totally.
 
 [00:07:05] Rebecca: Yeah, I I watched Man Who Fell to Earth in college, and I I remember thinking I've never been so bored by a movie that, while still finding the central protagonist so so completely captivating.
 
-[00:07:22] Adam: Well, and let's talk about you know I caught a I caught a bit of the Golden Globes last night. So Lady Gaga won for Best Comedy Actress for Best Actress for American Horror Story. Now I haven't seen the show. Friends of mine who've watched it have said she's unbelievably terrible, and I I but watching her speech, if you. She's often. I am bringing this up because Lady Gaga is often compared to David Bowie for like the weirdness and the you know the persona that goes way beyond music.
+[00:07:22] Adam: Well, and let's talk about you know I caught a bit of the Golden Globes last night. So Lady Gaga won for Best Comedy Actress for Best Actress for American Horror Story. Now I haven't seen the show. Friends of mine who've watched it have said she's unbelievably terrible, and I I but watching her speech, if you. She's often. I am bringing this up because Lady Gaga is often compared to David Bowie for like the weirdness and the you know the persona that goes way beyond music.
 
 [00:07:22] Rebecca: Yeah.
 
-[00:07:22] Adam: And I say, besides those words I just spoke, no way. She stood up there at her acceptance speech, and it was like a it was a a liturgy of need, and it was I felt gross watching it.
+[00:07:22] Adam: And I say, besides those words I just spoke, no way. She stood up there at her acceptance speech, and it was like a it was a liturgy of need, and it was I felt gross watching it.
 
 [00:07:22] Rebecca: Yeah.
 
-[00:07:22] Adam: It was. It was just theater, and there was nothing personal really about it. There was nothing. There was no cultural connection about it. It it upset me.
+[00:07:22] Adam: It was. It was just theater, and there was nothing personal really about it. There was nothing. There was no cultural connection about it. It upset me.
 
 [00:07:22] Norm: Hmm, Speaking. Oh, sorry. What did you say?
 
-[00:08:25] Rebecca: I, I just wanted to offer a brief, wimpy defense of Lady Gaga, only in that I I enjoy her music as pop, and I enjoy her her outward presence. Like I enjoy the theatricality that she brings to things, and her. I like her particular viewpoint. On, on women, and on being, you know, thin, and on being a central character, you know, that she has to do. But you know, I agree with you, on that I agree with you, but I also think that it's tough to live up to any comparison to somebody like David Bowie.
+[00:08:25] Rebecca: I just wanted to offer a brief, wimpy defense of Lady Gaga, only in that I I enjoy her music as pop, and I enjoy her her outward presence. Like I enjoy the theatricality that she brings to things, and her. I like her particular viewpoint. On women, and on being thin, and on being a central character, you know, that she has to do. But I agree with you, on that I agree with you, but I also think that it's tough to live up to any comparison to somebody like David Bowie.
 
-[00:09:01] Adam: Absolutely right. No, you are right. It's an unfair comparison, and to be clear, like I put paparazzi on repeat on my iPhone for months, and I love, I love a ton of her music, and actually have enjoyed it immensely. But there is a point at which it feels a little like you are you are grinding the same mill wheel on my time, and that's what last night's speech felt like to me.
+[00:09:01] Adam: Absolutely right. No, you are right. It's an unfair comparison, and to be clear, like I put paparazzi on repeat on my iPhone for months, and I love a ton of her music, and actually have enjoyed it immensely. But there is a point at which it feels a little like you are grinding the same mill wheel on my time, and that's what last night's speech felt like to me.
 
-[00:09:24] Rebecca: Yeah, and what she is is it's an act. When you talk about David Bowie, there is nothing ever that came across as phony about him. Everything he did, he did with sincerity.
+[00:09:24] Rebecca: Yeah, and what she is is it's an act. When you talk about David Bowie, there is nothing ever that came across as phony about him. Everything he did with sincerity.
 
 [00:09:33] Adam: even as theatrical as it was,
 
@@ -178,7 +178,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:10:31] Norm: No, absolutely.
 
-[00:10:31] Rebecca: Did it beat out any? I I have not paid attention at all.
+[00:10:31] Rebecca: Did it beat out any? I have not paid attention at all.
 
 [00:10:34] Norm: What was up against?
 
@@ -190,7 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:10:38] Rebecca: Okay.
 
-[00:10:40] Norm: It's it's the way the system works, right? The producers at Fox submitted it for this category because, like you said, it knew they knew it's a good movie, but That kind of genre film usually doesn't win.
+[00:10:40] Norm: It's the way the system works, right? The producers at Fox submitted it for this category because, like you said, it knew they knew it's a good movie, but That kind of genre film usually doesn't win.
 
 [00:10:52] Adam: Yeah, and I don't mean to just—I don't mean to be disdainful of * The Martian*. I loved it; wonderful movie. But when it comes to best comedy, that feels like gamesmanship, as far as I'm concerned.
 
@@ -220,7 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:11:53] Rebecca: I don't know.
 
-[00:11:53] Adam: You know, maybe he's maybe he’s commiserating with Bill Maher. You never know.
+[00:11:53] Adam: Maybe he's maybe he’s commiserating with Bill Maher. You never know.
 
 [00:11:53] Rebecca: Yeah. Come back to us, Jim Carrey. Come back.
 
@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:12:36] Rebecca: It was the best show that I've seen in forever.
 
-[00:12:39] Adam: We we talked about the fact that I so we covered this, but just to reiterate, I so I was so joyful when I realized. By the third episode, that I had yet to see two white people kissing, and that it was two more episodes before that happened, that everything was normalized and this is how the world heals.
+[00:12:39] Adam: We talked about the fact that I so we covered this, but just to reiterate, I so I was so joyful when I realized. By the third episode, that I had yet to see two white people kissing, and that it was two more episodes before that happened, that everything was normalized and this is how the world heals.
 
 [00:12:59] Rebecca: It's a casually diverse show.
 
@@ -276,25 +276,25 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:14:41] Rebecca: right? And but that's where I think the brilliance lies is in the fact that yeah, you're talking about an abusive relationship, and those are the sort of things that, from an outside perspective, seem to have very easy solutions. Just leave. Oh, did he hit you? Just leave, but that's not the solution, and for a number of reasons that the show explores very well, I think.
 
-[00:15:01] Adam: And it uses the look. All superhero stories, the superpower is the stand-in for our self-esteem, and that what you're saying. Why not just leave? The most amazing part is you're really clear. Very quickly, why she's blaming herself, even as you understand that she’s blaming herself, she’s blaming herself, she’s blaming herself, and she shouldn't, and so does she. You also understand deeply why why she's doing that, and that's an impressive little bit of of narrative magic that they're achieving there.
+[00:15:01] Adam: And it uses the look. All superhero stories, the superpower is the stand-in for our self-esteem, and that what you're saying. Why not just leave? The most amazing part is you're really clear. Very quickly, why she's blaming herself, even as you understand that she’s blaming herself, and she shouldn't, and so does she. You also understand deeply why why she's doing that, and that's an impressive little bit of narrative magic that they're achieving there.
 
-[00:15:36] Rebecca: Yeah, and and you know that she knows it because she's telling other characters this, you know, and while she's internalizing her own " it's my fault," she's repeatedly telling people, " It's not your fault. It's not your fault. I believe you." You know, she's saying the things that she needs to hear to other people. It's so affecting.
+[00:15:36] Rebecca: Yeah, and you know that she knows it because she's telling other characters this and while she's internalizing her own " it's my fault," she's repeatedly telling people, " It's not your fault. It's not your fault. I believe you." she's saying the things that she needs to hear to other people. It's so affecting.
 
 [00:15:55] Norm: I want to also give credit to. The to David Tennant, and
 
 [00:16:00] Adam: the scariest villain I have seen in a long time.
 
-[00:16:03] Norm: I mean, one of the great things I think the show does is make you feel so nervous and on edge the entire time, almost getting just a taste of what the character of what Jessica Jones is supposed to be feeling. Because in I think is at the very first episode where the girl Hope, or is Hope she she kills her parents,
+[00:16:03] Norm: I mean, one of the great things I think the show does is make you feel so nervous and on edge the entire time, almost getting just a taste of what the character of what Jessica Jones is supposed to be feeling. Because in I think is at the very first episode where the girl Hope, or is Hope she kills her parents,
 
 [00:16:03] Rebecca: yeah,
 
-[00:16:03] Norm: and just that moment you know, okay, you can't trust anyone in this show, just like she can't trust anyone in the city,
+[00:16:03] Norm: and just that moment okay, you can't trust anyone in this show, just like she can't trust anyone in the city,
 
 [00:16:03] Rebecca: Right.
 
 [00:16:03] Norm: and you get that feeling throughout the entire show.
 
-[00:16:31] Rebecca: And the casting of Tennant, perfect, because one huge part about what makes an abuser so successful is that they they don't look like monsters and they don't act like monsters generally on the outside. And David Tennant perfectly encapsulated a monster who is so likable,
+[00:16:31] Rebecca: And the casting of Tennant, perfect, because one huge part about what makes an abuser so successful is that they don't look like monsters and they don't act like monsters generally on the outside. And David Tennant perfectly encapsulated a monster who is so likable,
 
 [00:16:31] Norm: right?
 
@@ -308,21 +308,21 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:17:12] Adam: and I thought it was even more intense with Jessica Jones that you don't see him at all, but the first time you do see him is only from the back of his head, and this scene is one in which [unclear: he / he’s like, oh my God, I don’t know what to do with him, I don’t know]. So the villain, if you're if you haven't watched the show and you're listening to this, well, just welcome. The villain can control what people want to do by giving them instructions. So he can say, " Take that coffee and throw it in your face," and you will throw it in your face. And he so he walks into this house and says, " I'd like to stay here." And the person who answers the door says, " Yes, please come in and stay here." And then he says to the children, " Go into the closet and stay there." And because they've already introduced to you the fact that when he gives you an instruction, you want to fulfill it over all other biological and emotional needs, you will soil yourself, you will kill yourself, you will shoot your parents. You, by the time you see him do that to this family, it's disgusting. Like it's really upsetting.
 
-[00:18:11] Norm: I think it's an important distinction because they could have written a superhero, and in the comics, they could have written a superhero or a supervillain whose power is just to make you do things. Like if you, it was just give a command and that action happens. Like you can't control yourself. But what's really important is that his power is it's a psychology. When he gives a command, you feel like you want to. You're compelled to, even though all logic says otherwise, and that's that's the toll. It's not that you did something, but then you also felt like you wanted to do it above everything else.
+[00:18:11] Norm: I think it's an important distinction because they could have written a superhero, and in the comics, they could have written a superhero or a supervillain whose power is just to make you do things. Like if you, it was just give a command and that action happens. Like you can't control yourself. But what's really important is that his power is it's a psychology. When he gives a command, you feel like you want to. You're compelled to, even though all logic says otherwise, and that's the toll. It's not that you did something, but then you also felt like you wanted to do it above everything else.
 
 [00:18:43] Adam: Yes, exactly. And I, you go ahead.
 
-[00:18:45] Rebecca: I really loved how he was introduced as being, you know, in the first episode. You get he first shows up inside her head, and as someone who wasn't terribly familiar with the comics, but and also knowing that the character might be a little different, my first thought was, oh, he's psychic and he's flashing into her head somehow. But eventually, you learn. No, that's not a superpower. That's what happens in abusive relationship.
+[00:18:45] Rebecca: I really loved how he was introduced as being in the first episode. You get he first shows up inside her head, and as someone who wasn't terribly familiar with the comics, but and also knowing that the character might be a little different, my first thought was, oh, he's psychic and he's flashing into her head somehow. But eventually, you learn. No, that's not a superpower. That's what happens in abusive relationship.
 
 [00:18:45] Adam: Right, right.
 
-[00:18:45] Rebecca: He gets into her head, you know, in a very non superhuman way, but in a terrifying way. And that's what makes it terrifying is that that's not his superpower.
+[00:18:45] Rebecca: He gets into her head in a very non superhuman way, but in a terrifying way. And that's what makes it terrifying is that that's not his superpower.
 
 [00:19:23] Norm: I also like that they didn't wait to reveal that abusive relationship for long. In the comics, that's supposed to be a big plot twist.
 
 [00:19:32] Adam: Oh, is it really?
 
-[00:19:33] Norm: Where you you find out like you know because Jessica Jones, the the comic series called Alias, written by Brian Michael Bendis, back in the early thousands, and she's a she's a PI, but you never know why she quit being a superhero till late in the series, and it's supposed to be this big reveal that she was abducted for years and and forced in servitude for for Kilgrave, the Purple Man. But they get right to it, and they let that be the story as opposed to, and that's an important story to tell. And so that there's time to flesh it out. I also love that Kilgrave is. Like every monster doesn't.
+[00:19:33] Norm: Where you find out like you know because Jessica Jones, the comic series called Alias, written by Brian Michael Bendis, back in the early thousands, and she's a PI, but you never know why she quit being a superhero till late in the series, and it's supposed to be this big reveal that she was abducted for years and forced in servitude for Kilgrave, the Purple Man. But they get right to it, and they let that be the story as opposed to, and that's an important story to tell. And so that there's time to flesh it out. I also love that Kilgrave is. Like every monster doesn't.
 
 [00:20:08] Adam: Kilgrave is the villain.
 
@@ -332,11 +332,11 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:20:09] Norm: He thinks he's a hero, and
 
-[00:20:14] Adam: well, it's the it's the he's the physical embodiment of the of the one question narcissist test. Are you a narcissist? And the narcissist will 80% of the time say yes because they don't view the things that make them a narcissist as nags.
+[00:20:14] Adam: well, it's the he's the physical embodiment of the one question narcissist test. Are you a narcissist? And the narcissist will 80% of the time say yes because they don't view the things that make them a narcissist as nags.
 
 [00:20:14] Norm: Right. Right.
 
-[00:20:27] Rebecca: Yeah, and and again, that's a human trait, and and to me, that's a much more realistic villain is one who doesn't think of themselves as the cackling, you know, evil overlord. It's yeah. He just he thinks that he's doing what's best for Jessica, and that's what an abuser does.
+[00:20:27] Rebecca: Yeah, and again, that's a human trait, and to me, that's a much more realistic villain is one who doesn't think of themselves as the cackling evil overlord. It's yeah. He just he thinks that he's doing what's best for Jessica, and that's what an abuser does.
 
 [00:20:45] Adam: Yeah, and and he yeah, and he comes from himself a pretty messed up childhood,
 
@@ -344,13 +344,13 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:20:52] Adam: Very gray, yes.
 
-[00:20:52] Rebecca: You know, and I like that it's left gray. You you. There are times when you sympathize with him deeply, and then there are times where you're like, " Wait, was he lying about that? Did he?"
+[00:20:52] Rebecca: And I like that it's left gray. You. There are times when you sympathize with him deeply, and then there are times where you're like, " Wait, was he lying about that? Did he?"
 
 [00:21:03] Adam: So so this whole thing, I I really want to give. Props! Like it's a great time to love superhero movies because not only are the movies themselves great, but the people that they're casting from—Chris Evans, Robert Downey Jr., even the Hemsworths, especially the Hemsworths,
 
 [00:21:19] [unclear: Rebecca / Adam]: not even the Hemsworths. Especially the
 
-[00:21:21] Adam: no, no, no! Like all these, all these men and women—Scarlett Johansson—they're all actually terrific actors with great directors, making lovely product. And then Marvel delves into television. Daredevil was really wonderful. I think some of the dialogue in Daredevil is is really difficultly bad. At the same time, as Vincent D'Onofrio does a world-beating villain in Kingpin, the Kingpin I always wanted from the Frank Millers that I was reading 30 years ago. Jessica Jones, which is created by Melissa Rosenberg, I would love to see her original pitch documents because she brings. She's clearly influenced by Chandler. With the the smoked glass window on Jessica's apartment door, she's quoting Chinatown. I think of the broken front door as Jack Nicholson's bandaged nose. Yeah. Again, Vince Vince Gilligan played around with this in Breaking Bad. That this character is there's a line. Chandler wrote an essay, and I've quoted it on the podcast before. The simple art of murder. One of the things that he said, and in it he illustrates the things that make a proper hero of this kind of noir tale. And Jessica Jones is absolutely noir.
+[00:21:21] Adam: no, no, no! Like all these men and women—Scarlett Johansson—they're all actually terrific actors with great directors, making lovely product. And then Marvel delves into television. Daredevil was really wonderful. I think some of the dialogue in Daredevil is is really difficultly bad. At the same time, as Vincent D'Onofrio does a world-beating villain in Kingpin, the Kingpin I always wanted from the Frank Millers that I was reading 30 years ago. Jessica Jones, which is created by Melissa Rosenberg, I would love to see her original pitch documents because she brings. She's clearly influenced by Chandler. With the smoked glass window on Jessica's apartment door, she's quoting Chinatown. I think of the broken front door as Jack Nicholson's bandaged nose. Yeah. Again, Vince Vince Gilligan played around with this in Breaking Bad. That this character is there's a line. Chandler wrote an essay, and I've quoted it on the podcast before. The simple art of murder. One of the things that he said, and in it he illustrates the things that make a proper hero of this kind of noir tale. And Jessica Jones is absolutely noir.
 
 [00:22:39] Rebecca: Yeah.
 
@@ -364,17 +364,17 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:23:42] Adam: Yeah.
 
-[00:23:42] Rebecca: And I really admire that because it makes it more it more appropriate to the noir aspect where she is the central character, she's the detective, and also it's. Immensely satisfying as a woman to see another woman doing the things you know. Growing up, I would pretend to be all the male characters. I would never play as the female character. It didn't even occur to me.
+[00:23:42] Rebecca: And I really admire that because it makes it more appropriate to the noir aspect where she is the central character, she's the detective, and also it's. Immensely satisfying as a woman to see another woman doing the things you know. Growing up, I would pretend to be all the male characters. I would never play as the female character. It didn't even occur to me.
 
 [00:23:42] Adam: As the damsel.
 
-[00:23:42] Rebecca: Yeah, it didn't even occur to me. I was Han Solo, you know. And so to see a woman inhabiting that role so completely as a damaged but ultimately victorious, you know, hero, it's just so immensely satisfying.
+[00:23:42] Rebecca: Yeah, it didn't even occur to me. I was Han Solo. And so to see a woman inhabiting that role so completely as a damaged but ultimately victorious hero, it's just so immensely satisfying.
 
-[00:25:23] Adam: And there's, there's, you know, there's, there's some allusion to her sort of discarding men towards the beginning of the show. Then as she dances into this relationship with Luke Cage, neither of them realize that the other has superpowers. He's iron skin. What do they call it?
+[00:25:23] Adam: And there's, there's there's, there's some allusion to her sort of discarding men towards the beginning of the show. Then as she dances into this relationship with Luke Cage, neither of them realize that the other has superpowers. He's iron skin. What do they call it?
 
 [00:25:40] Norm: Unbreakable skin.
 
-[00:25:40] Adam: Unbreakable skin. Yes. Yeah. And at a certain point, and this the show has some very graphic sex in it. She and and Luke are in bed. And things are getting very vigorous, and he says, " I might. I am gonna calm down. I might break you." And she says, " No, you won't." And he said, " Yes, I might." And it's this moment that is so again these allegories about what we reveal to each other, about how we reveal ourselves to the people that we belong with and the people we choose to to to to spend our lives with. It's really lovely. I haven't felt like that duality so deeply since Buffy.
+[00:25:40] Adam: Unbreakable skin. Yes. Yeah. And at a certain point, and this the show has some very graphic sex in it. She and Luke are in bed. And things are getting very vigorous, and he says, " I might. I am gonna calm down. I might break you." And she says, " No, you won't." And he said, " Yes, I might." And it's this moment that is so again these allegories about what we reveal to each other, about how we reveal ourselves to the people that we belong with and the people we choose to spend our lives with. It's really lovely. I haven't felt like that duality so deeply since Buffy.
 
 [00:26:23] Rebecca: Yeah. Oh God, I am glad you mentioned that because when you brought up Luke Cage, my I cannot wait for the Luke Cage television show. But my first thought when I saw he's gonna get his own show is they're gonna angel him. We're never gonna see our Buffy and Angel together. They're gonna be apart, and I want them to be together.
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:27:00] Rebecca: Yes. So I am looking forward to their relationship, but also at the same time, it's going to break my heart because Jessica.
 
-[00:27:07] Adam: Um, the best jokes last night at the Golden Globes were America Ferrera and Eva Longoria getting up and telling you all the Latina actresses they're not
+[00:27:07] Adam: The best jokes last night at the Golden Globes were America Ferrera and Eva Longoria getting up and telling you all the Latina actresses they're not
 
 [00:27:17] Norm: right, which was self-aware because when the when their nominations were announced, they mixed up America Ferrera with the actress from Jane the Virgin.
 
@@ -418,7 +418,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:28:08] Rebecca: So good,
 
-[00:28:08] Adam: Jason Reitman’s Jason Reitman’s show on Hulu. It is a show about a 39-year-old woman who is recently divorced and trying to find love again or find herself again. And she has a sort of dysfunctional relationship with her brother and her daughter. The pilot. I have I have repeatedly been on this podcast talking about pilots that I was like, " Yeah, I watched a part of that. I didn't like it. I got to stop doing that
+[00:28:08] Adam: Jason Reitman’s show on Hulu. It is a show about a 39-year-old woman who is recently divorced and trying to find love again or find herself again. And she has a sort of dysfunctional relationship with her brother and her daughter. The pilot. I have repeatedly been on this podcast talking about pilots that I was like, " Yeah, I watched a part of that. I didn't like it. I got to stop doing that
 
 [00:28:37] Rebecca: Yeah, because the pilots are always bad. Yeah, except for the one that you guys read yesterday as part of Sketchfest. Which you guys, if the podcast is up by now, can we talk about it? Is it? It's not a secret.
 
@@ -434,7 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:29:08] Adam: and wrote this beautiful pilot about himself at 14, in which within the pilot, all the kids he's hanging out with are played by children. And at our reading, we had many children, including a couple of people I already knew, but Hodgman playing himself as an adult, playing 14-year-old Hodgman, and it was
 
-[00:29:38] Rebecca: so I I laughed until I was crying. And what I really loved is that he introduced it. I love the whole concept of this podcast. I can't wait for it to come out. But he talked a little bit about why. It didn't get picked up, and he said that they pitched it to I think it was FX, and FX was like, " We really like it," and they bought it in the end. But they said it's we we tend to go edgier, and he said, " So you're saying that a 45 year old man almost kissing a 13 year old girl is not edgy?"
+[00:29:38] Rebecca: so I I laughed until I was crying. And what I really loved is that he introduced it. I love the whole concept of this podcast. I can't wait for it to come out. But he talked a little bit about why. It didn't get picked up, and he said that they pitched it to I think it was FX, and FX was like, " We really like it," and they bought it in the end. But they said it's we tend to go edgier, and he said, " So you're saying that a 45 year old man almost kissing a 13 year old girl is not edgy?"
 
 [00:30:09] Adam: I was thinking about that too because there's this point towards the end where they're slow dancing, and I was like, " This is going to be really." Actually, it wouldn't be that hard to shoot. The director in me is thinking, right? You do the slow dance where they're both sort of arced away, and then it's not too creepy, especially if the girl has her own sort of. You cast somebody and you direct them well, and then that won't be too creepy. But he's right,
 
@@ -460,7 +460,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:31:12] Norm: I love the experience of listening to people read scripts because it’s not something that you see.
 
-[00:31:18] Rebecca: I didn't think I would like it, but it it really worked well because I know there is a there's another podcast that does a similar thing. I can't think of the name. It's on Earwolf.
+[00:31:18] Rebecca: I didn't think I would like it, but it really worked well because I know there is a there's another podcast that does a similar thing. I can't think of the name. It's on Earwolf.
 
 [00:31:27] Norm: Is it the one with the Blacklist where they do the full Blacklist scripts?
 
@@ -502,7 +502,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:32:03] Norm: Yeah, go watch Jessica Jones. What are your hopes? We'll ask and with us. What are your hopes for season two? Because it ends very definitively.
 
-[00:32:11] Adam: It ends definitively. It ends definitively because Jessica, both literally and figuratively, finds her self-esteem, finds what it is about her power that she can utilize. the The fact that at the end, the way she convinces Tennant that he has control over her is by telling him the truth, and I found that so moving.
+[00:32:11] Adam: It ends definitively. It ends definitively because Jessica, both literally and figuratively, finds her self-esteem, finds what it is about her power that she can utilize. the fact that at the end, the way she convinces Tennant that he has control over her is by telling him the truth, and I found that so moving.
 
 [00:32:11] Rebecca: Yeah.
 
@@ -512,11 +512,11 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:32:11] Adam: it's not as simple as you can reach out and pluck someone up and they'll be okay. I think that I feel like they're going to continue the theme of damaged relationships. Have damaged relationships that harm us have long tails, and they have tails that can affect others. And when you reach out to save someone, you form a relationship with them, and you can become affected by those relationships. And I I feel like that's what the second season is going to explore.
 
-[00:33:19] Rebecca: That's so well put, and I agree. And I really, one of the things that I loved most about that ending was the it brought her relationship with her sister, her adopted sister. Their relationship, I mean, it's like Frozen, you know, in in how suddenly we haven't talked about it at all. But to me, it's a huge part of the show. Is Their bond as women and as sisters and as friends,
+[00:33:19] Rebecca: That's so well put, and I agree. And I really, one of the things that I loved most about that ending was the it brought her relationship with her sister, her adopted sister. Their relationship, I mean, it's like Frozen in how suddenly we haven't talked about it at all. But to me, it's a huge part of the show. Is Their bond as women and as sisters and as friends,
 
 [00:33:50] Adam: and it will be as superheroes too, because Patsy Trish becomes Hellcat, yeah, and that’s a whole nother.
 
-[00:33:56] Rebecca: I am really looking forward to exploring because they're two very different people who have this friendship, and to me, it's it's one of the best examples of a friendship between two women on screen right now. And so I am really looking forward to them exploring more of the, yeah, the all of the facets of that complicated relationship.
+[00:33:56] Rebecca: I am really looking forward to exploring because they're two very different people who have this friendship, and to me, it's one of the best examples of a friendship between two women on screen right now. And so I am really looking forward to them exploring more of the, yeah, the all of the facets of that complicated relationship.
 
 [00:34:15] Adam: It passes the Bechdel test.
 

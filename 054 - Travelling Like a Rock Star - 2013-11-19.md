@@ -74,7 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:01:42] Adam: Predator grew out of a pitch that Rocky should fight aliens.
 
-[00:01:46] Will: So that means the Rocky universe is connected to the to the Blade Runner universe. No, no, no,
+[00:01:46] Will: So that means the Rocky universe is connected to the Blade Runner universe. No, no, no,
 
 [00:01:51] Adam: no, no. Predator is Blade Runner. Oh,
 
@@ -114,11 +114,11 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:02:20] Norm: Yes, to Enya
 
-[00:02:22] Adam: to Enya. It is, it is transformative. This video.
+[00:02:22] Adam: to Enya. It is transformative. This video.
 
-[00:02:25] Will: Well, it's it's
+[00:02:25] Will: Well, it's
 
-[00:02:27] Norm: It, it could be.
+[00:02:27] Norm: It could be.
 
 [00:02:28] Will: I think it's the. I think that that is a symbol that the world is like wrapped back around on itself, and we're all getting ready to just poof and disappear.
 
@@ -126,25 +126,25 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:02:45] Will: stuff. It's been there've been Family Guy bits, I'm sure, about him doing splits,
 
-[00:02:48] Norm: but this this commercial takes him seriously. It takes Volvo. It's and
+[00:02:48] Norm: but this commercial takes him seriously. It takes Volvo. It's and
 
 [00:02:52] Adam: it's amazing, and it's totally amazing to watch. Yeah, could I have a little more volume in my headphones?
 
 [00:02:56] Will: Yeah, of course.
 
-[00:02:56] Adam: So yeah, I guess you're right. The the Rocky universe does connect. Right to the Prometheus universe,
+[00:02:56] Adam: So yeah, I guess you're right. The Rocky universe does connect. Right to the Prometheus universe,
 
 [00:03:03] Will: all the way through Blade Runner, through Aliens, through Predator. What a complete disaster!
 
 [00:03:09] Adam: That's amazing.
 
-[00:03:10] Will: That is that is not. I don't know if that's good or not.
+[00:03:10] Will: That is not. I don't know if that's good or not.
 
 [00:03:12] Adam: No, there should be. There must be a graphical information poster out there that that.
 
 [00:03:17] Will: Well, if there isn't, there will be tomorrow.
 
-[00:03:19] Adam: Yes, exactly. So this is my this is my Rambo First Blood knife. It's a pretty darn good replica. It's even got the the compass. It's actually a liquid-filled compass in the.
+[00:03:19] Adam: Yes, exactly. So this is my Rambo First Blood knife. It's a pretty darn good replica. It's even got the compass. It's actually a liquid-filled compass in the.
 
 [00:03:30] Will: That's actually a good compass.
 
@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:03:37] Adam: Yeah, I know. That's that's where it's kind of cheap. The one problem I have with my Rambo First Blood knife is it's labeled Rambo First Blood knife.
 
-[00:03:46] Will: That's um. That's a little on the nose. It's just
+[00:03:46] Will: That's. That's a little on the nose. It's just
 
 [00:03:49] Adam: like no. That's okay. Let's put it there and we'll just
 
@@ -166,7 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:03:54] Norm: it's it's not even like a sticker. It's it's etched in there.
 
-[00:03:56] Will: It's it's stamped in. Yeah,
+[00:03:56] Will: It's stamped in. Yeah,
 
 [00:03:57] Adam: I can't get rid of it.
 
@@ -174,15 +174,15 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:04:07] Adam: Really?
 
-[00:04:07] Will: Yeah, I got my my mom or my dad got me like a seven inch strap on your thigh kill a bear knife when I was 10 years old.
+[00:04:07] Will: Yeah, I got my mom or my dad got me like a seven inch strap on your thigh kill a bear knife when I was 10 years old.
 
 [00:04:16] Adam: Nice.
 
 [00:04:16] Will: And it even had a little pouch on the side with the little tiny whetstone.
 
-[00:04:19] Adam: Yeah, I've got I've got the pouch for this one right there.
+[00:04:19] Adam: Yeah, I've got the pouch for this one right there.
 
-[00:04:21] Will: But the whetstone that comes in a in a knife this size, unless you are really good at sharpening knives, is is not quite useless, but actively damaging. Like it's it is.
+[00:04:21] Will: But the whetstone that comes in a knife this size, unless you are really good at sharpening knives, is is not quite useless, but actively damaging. Like it's it is.
 
 [00:04:31] Adam: Oh yeah. You don't know what you're doing. You could just yeah.
 
@@ -190,7 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:04:41] Adam: Oh my god, so what?
 
-[00:04:42] Will: So I I was sitting on the first night at the end of the day, we'd hiked eight miles. I was like, I'm gonna bust out my I'm gonna sharpen the old knife just like they do in movies. And I got the the two inch by half inch whetstone and was just cutting straight across it.
+[00:04:42] Will: So I I was sitting on the first night at the end of the day, we'd hiked eight miles. I was like, I'm gonna bust out my I'm gonna sharpen the old knife just like they do in movies. And I got the two inch by half inch whetstone and was just cutting straight across it.
 
 [00:04:55] Adam: Oh no.
 
@@ -210,15 +210,15 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:05:17] Adam: Yeah,
 
-[00:05:17] Will: but it was never. You know, I never lived that down.
+[00:05:17] Will: but it was never. I never lived that down.
 
 [00:05:19] Adam: There are however many knives for however many Rambo movies, and they show up on the RPF from time to time. The trick is, if you want the one that is the most accurate, it's made by the guy who made the original, or a guy who actually worked for him and has the license and makes the perfect replica. But they're expensive, like genuinely expensive, well over $1,000.
 
-[00:05:40] Will: A well knife, like a like a should be any kind of well any kind of blade is expensive.
+[00:05:40] Will: A well knife, like a should be any kind of well any kind of blade is expensive.
 
 [00:05:44] Adam: Yeah,
 
-[00:05:44] Will: if if it's made well, if it's not stamped out of metal and then ground down,
+[00:05:44] Will: if it's made well, if it's not stamped out of metal and then ground down,
 
 [00:05:47] Adam: this is true. This is true.
 
@@ -226,11 +226,11 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:05:50] Will: Yeah,
 
-[00:05:50] Adam: yeah. Have we we've talked about Bill Harsey on the on the podcast before?
+[00:05:50] Adam: yeah. Have we we've talked about Bill Harsey on the podcast before?
 
 [00:05:54] Will: Yeah, long time ago.
 
-[00:05:55] Adam: He did the Yarborough knife for the for the Green Berets, and I have a knife I bought from him. Not from him, but hand ground by him. So he and I were corresponding. He sent me this picture of all these blanks on his workbench, and then a picture of him grinding them, and a picture of them being sent off to the manufacturer. And then I bought one of those knives from the manufacturer.
+[00:05:55] Adam: He did the Yarborough knife for the Green Berets, and I have a knife I bought from him. Not from him, but hand ground by him. So he and I were corresponding. He sent me this picture of all these blanks on his workbench, and then a picture of him grinding them, and a picture of them being sent off to the manufacturer. And then I bought one of those knives from the manufacturer.
 
 [00:06:17] Will: Oh, that's funny.
 
@@ -244,7 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:06:36] Adam: So in a way, the folding is is mostly a method of distributing the shitty parts of the steel throughout so that they're so that the blade has a uniform behavioral response to being sharp and to being flexible and its ductility, etc.
 
-[00:06:52] Will: But with a with a knife, usually it's stamped, right? So you you they cut a blank, and then you actually just grind it out, or is that were they folded as well in the old days?
+[00:06:52] Will: But with a knife, usually it's stamped, right? So you they cut a blank, and then you actually just grind it out, or is that were they folded as well in the old days?
 
 [00:07:01] Adam: That's a good question. There are knives that are folded. There are makers around the world who buy folded steel specifically for making knives. I don't know what the. I think most knives are stamped. But I don't know enough about the industry to say definitively.
 
@@ -252,7 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:07:16] Adam: and there are people that do things like they make knives only out of old files. Yeah, the difference between a sword and a knife is that a sword needs to have, it needs to be flexible. So, in general, swords are folded and then treated so that their blade, the edge of their blade, is extra hard so that it holds that sharpness, and the back has more ductility so that when you smack it against something, it doesn't shatter.
 
-[00:07:41] Will: So, if you look at a at a at a sword on a high-speed camera when it when you have two guys going at each other with swords, the sword is actually flexing backwards away from the blade.
+[00:07:41] Will: So, if you look at a sword on a high-speed camera when it when you have two guys going at each other with swords, the sword is actually flexing backwards away from the blade.
 
 [00:07:50] Adam: I the sword is, that's hard to that's hard to say. I'm I'm not exactly sure. It mostly is that in a knife you can have a nice, really rigid blade that's brittle because you're not going to be smacking it against stuff. You're using it to hold its edge, but a sword that won't work because there's just too much leverage.
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:08:38] Adam: oh yeah
 
-[00:08:38] Norm: and breaks and that's that's the brittleness.
+[00:08:38] Norm: and breaks and that's the brittleness.
 
 [00:08:40] Adam: That's a classic. I used to watch that guy.
 
@@ -286,7 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:08:44] Unknown speaker: He sells Dells.
 
-[00:08:44] Adam: It is fun if you. There we go. If you hang out with um, if you hang out with Mike Rowe, he will tell you um all three of the stories for all three of the times he's been fired from the Home Shopping Network.
+[00:08:44] Adam: It is fun if you. There we go. If you hang out with if you hang out with Mike Rowe, he will tell you all three of the stories for all three of the times he's been fired from the Home Shopping Network.
 
 [00:08:57] Norm: Nun. I know the nun story.
 
@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:09:35] Adam: I yeah. It turns out people don't have a sense of humor.
 
-[00:09:38] Will: Well, and and people just get excited about what's on TV. Yes, exactly. Like I don't. I mean, yeah. Okay. Um, we're here the Saturday before you go on tour.
+[00:09:38] Will: Well, and people just get excited about what's on TV. Yes, exactly. Like I don't. I mean, yeah. Okay. We're here the Saturday before you go on tour.
 
 [00:09:48] Adam: We are. I'm leaving Monday for Texas, and I won't come back to my house or this shop until really almost New Year's.
 
@@ -330,7 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:10:27] Adam: There is still time.
 
-[00:10:27] Will: Okay, so so you guys get a so when you're on the tour, and just so you know, we're talking about Behind the Myths tour, which is the thing that you and Jamie do.
+[00:10:27] Will: Okay, so so you guys get a so when you're on the tour, and just so we're talking about Behind the Myths tour, which is the thing that you and Jamie do.
 
 [00:10:36] Adam: Yeah, this is the Behind the Myths tour. Jamie and I are doing 29 cities in 33 days.
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:11:10] Norm: real rock star experience.
 
-[00:11:11] Adam: It is it is a little bit of a rock star experience. You
+[00:11:11] Adam: It is a little bit of a rock star experience. You
 
 [00:11:14] Norm: do your laundry.
 
@@ -378,13 +378,13 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:11:53] Will: Right. That makes sense.
 
-[00:11:54] Adam: So this works. This works like this, and it's a it's a reasonable it's a it's a reasonable cost in terms instead you know there are rock stars who I'm sure travel out with their whole own bus like an apartment.
+[00:11:54] Adam: So this works. This works like this, and it's a reasonable cost in terms instead you know there are rock stars who I'm sure travel out with their whole own bus like an apartment.
 
 [00:12:05] Will: Oh yeah.
 
 [00:12:05] Adam: We are not them.
 
-[00:12:07] Will: So so when you when people are driving along the interstate over the next few months, and they will they be able to see a a Pair of buses running in tandem, one with Jamie's face painted 12 feet tall on the side, one with your face. No, because that would be kind of rad.
+[00:12:07] Will: So so when you when people are driving along the interstate over the next few months, and they will they be able to see a Pair of buses running in tandem, one with Jamie's face painted 12 feet tall on the side, one with your face. No, because that would be kind of rad.
 
 [00:12:20] Adam: It's not. Yeah, it would be rad, but it's not. That's
 
@@ -398,7 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:12:32] Will: Yeah.
 
-[00:12:32] Adam: I think. I think that's the model. I'm not sure. This time, I'm not sure. I have a different bus. What's really nice is, you you you know, you wake up in a city. Let's say, you know, next week it'll be Midland, Texas. You have most of the day to yourself to hang out, and it's really for me. Last time, I kind of calcified and just spent the whole time like surfing the web in my bus, like never leaving.
+[00:12:32] Adam: I think. I think that's the model. I'm not sure. This time, I'm not sure. I have a different bus. What's really nice is you wake up in a city. Let's say next week it'll be Midland, Texas. You have most of the day to yourself to hang out, and it's really for me. Last time, I kind of calcified and just spent the whole time like surfing the web in my bus, like never leaving.
 
 [00:12:55] Will: You became a bus person.
 
@@ -410,7 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:13:18] Norm: Are there cities that you haven't been to before on this tour that you're kind of excited about getting to.
 
-[00:13:22] Adam: Yeah, good good portion of them I haven't been to before. If you go to Behind the Myths tour or MythbustersTour dot com, you can see the list. I'd say about two thirds are new for me and Jamie. And then we don't really have anything to do during the day until about six o'clock when it's time for a mic check. The crew's already loaded in. Only takes a few hours to load in the show, and then they go off and take a break. At six o'clock we do mic check. 6:30, and then we we had we head back on the bus, chill out until it's show time.
+[00:13:22] Adam: Yeah, good good portion of them I haven't been to before. If you go to Behind the Myths tour or MythbustersTour dot com, you can see the list. I'd say about two thirds are new for me and Jamie. And then we don't really have anything to do during the day until about six o'clock when it's time for a mic check. The crew's already loaded in. Only takes a few hours to load in the show, and then they go off and take a break. At six o'clock we do mic check. 6:30, and then we had we head back on the bus, chill out until it's show time.
 
 [00:13:52] Will: Show time is 7:30.
 
@@ -422,21 +422,21 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:14:32] Adam: This is the Second time I've done this. The first time we did it in two three week legs. This is the longest thing we've ever done. We're doing it in one five week leg.
 
-[00:14:38] Will: So okay. So that's that's the day. You wake up the next morning. You do it all over again.
+[00:14:38] Will: So okay. So that's the day. You wake up the next morning. You do it all over again.
 
 [00:14:42] Adam: Yeah.
 
 [00:14:42] Will: And is it is there a show every day?
 
-[00:14:45] Adam: Uh, we're doing I think six day weeks. So we do like six shows in a row, and then we have a day off. And
+[00:14:45] Adam: We're doing I think six day weeks. So we do like six shows in a row, and then we have a day off. And
 
 [00:14:50] Will: do you do matinees or anything anywhere?
 
-[00:14:52] Adam: It depends. It depends on ticket sales go. Um, if matinees, if the ticket sales are fantastic, we will add a matinee if it's a weekend show or if the market looks good.
+[00:14:52] Adam: It depends. It depends on ticket sales go. If matinees, if the ticket sales are fantastic, we will add a matinee if it's a weekend show or if the market looks good.
 
 [00:14:59] Will: Okay.
 
-[00:14:59] Adam: Um, every venue knows its market really well. Um, and so last time we did add a bunch of matinees towards the end because there was a high demand, and the matinees are great. It's it's actually really fun.
+[00:14:59] Adam: Every venue knows its market really well. And so last time we did add a bunch of matinees towards the end because there was a high demand, and the matinees are great. It's actually really fun.
 
 [00:15:11] Norm: I gotta imagine one of the best things about going on tour and doing shows in different cities is seeing the. Theaters that you perform at,
 
@@ -474,7 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:16:18] Adam: or do something where we don't know what the outcome's going to be. But we also don't want to just do a bunch of science demos. Like, isn't gravity amazing? So we settled on playing around.
 
-[00:16:28] Will: It just it just sits right here. The phone's been here this whole time.
+[00:16:28] Will: It just sits right here. The phone's been here this whole time.
 
 [00:16:31] Adam: Cereal just goes right into the bowl,
 
@@ -488,19 +488,19 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:17:10] Will: You're thinking out loud. Right. To make sure that that the people at home understand what just happened, even if you couldn't necessarily show it, or if it gets lost in translation or whatever.
 
-[00:17:18] Adam: Exactly, but on stage it doesn't work like that. On stage, you are the ringleader, like it or not. You are the ringleader, and they want you to take them on a journey, and it's a different style of thing. So we use the audience as the audience's avatar. We bring up like 13 people on stage in the course of the show, and we we play around with them, we mess with their perceptions, we test them against each other in feats of strength, utilizing some physics and some counterintuitive physics as well, and it's really, really, really fun. Like
+[00:17:18] Adam: Exactly, but on stage it doesn't work like that. On stage, you are the ringleader, like it or not. You are the ringleader, and they want you to take them on a journey, and it's a different style of thing. So we use the audience as the audience's avatar. We bring up like 13 people on stage in the course of the show, and we play around with them, we mess with their perceptions, we test them against each other in feats of strength, utilizing some physics and some counterintuitive physics as well, and it's really, really, really fun. Like
 
 [00:17:49] Norm: tests of character.
 
-[00:17:51] Adam: What's that? Yeah, there is a great test of character bit we have in the show, and we have some real playing around with people's perceptions. And in fact, we have a perceptual we have a perceptual gag in the show that we that I've totally updated.
+[00:17:51] Adam: What's that? Yeah, there is a great test of character bit we have in the show, and we have some real playing around with people's perceptions. And in fact, we have a perceptual gag in the show that we that I've totally updated.
 
-[00:18:04] Norm: Yes, you're working on it. You tweeted a photo of the so it's like. It's a thing that you actually worked on, and we talked about this last time when we talked about the the tour. But you know, you're very hands on with the equipment.
+[00:18:04] Norm: Yes, you're working on it. You tweeted a photo of the so it's like. It's a thing that you actually worked on, and we talked about this last time when we talked about the tour. But you're very hands on with the equipment.
 
-[00:18:13] Adam: Yeah, Jamie and I designed Jamie and I wrote the show with the director Jim Millan, who's wonderful director. He worked with my friend Todd Robbins and directing the show Play Dead, which is I think in L. A. Right now. It was co directed by Teller, and Jim brought great structure and intelligence to the the bunch of random things that Jamie and I threw at him that we thought we could do, and really helped shape something that I have fun doing every single night. And the audiences are fantastic. It's a lot of kids, it's a lot of families, a lot of grizzled old engineers. I mean, it's 7 to 70. It's just like the Mythbusters viewing audience.
+[00:18:13] Adam: Yeah, Jamie and I designed Jamie and I wrote the show with the director Jim Millan, who's wonderful director. He worked with my friend Todd Robbins and directing the show Play Dead, which is I think in L. A. Right now. It was co directed by Teller, and Jim brought great structure and intelligence to the bunch of random things that Jamie and I threw at him that we thought we could do, and really helped shape something that I have fun doing every single night. And the audiences are fantastic. It's a lot of kids, it's a lot of families, a lot of grizzled old engineers. I mean, it's 7 to 70. It's just like the Mythbusters viewing audience.
 
-[00:18:49] Will: Okay, so so when you guys were when you sat sat down to do this, like you just you just came in said, hey, we want to have these three gags, we want to have these three things, and then they kind of helped you work out what they ended up doing.
+[00:18:49] Will: Okay, so so when you guys were when you sat sat down to do this, like you just came in said, hey, we want to have these three gags, we want to have these three things, and then they kind of helped you work out what they ended up doing.
 
-[00:19:00] Adam: Yeah, we had a different conception of how we wanted to do it at the beginning, and Jim and our tour promoter Lee Marshall really helped guide us as to you know what would What would be a successful show that people would want to come back to that people that would spread word of mouth, et cetera? And it mostly grew out of the fact that we've done 70 or 80 college appearances and corporate appearances, and people always want us to do some big stage set piece, and we were always at a loss about what to do.
+[00:19:00] Adam: Yeah, we had a different conception of how we wanted to do it at the beginning, and Jim and our tour promoter Lee Marshall really helped guide us as to you know what would be a successful show that people would want to come back to that people that would spread word of mouth, et cetera? And it mostly grew out of the fact that we've done 70 or 80 college appearances and corporate appearances, and people always want us to do some big stage set piece, and we were always at a loss about what to do.
 
 [00:19:24] Will: Okay.
 
@@ -514,9 +514,9 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:20:03] Adam: Oh, you were at ILM, at [unclear: Kerner Works?], yeah, yes,
 
-[00:20:05] Norm: and and I. Didn't know what it was that for, and then when I saw the bit, I'm like, ah, that's where that was that was built.
+[00:20:05] Norm: and I. Didn't know what it was that for, and then when I saw the bit, I'm like, ah, that's where that was built.
 
-[00:20:11] Adam: That Nvidia thing, and we should post a we should post a link.
+[00:20:11] Adam: That Nvidia thing, and we should post a link.
 
 [00:20:14] Will: We can post a link to it. Yeah,
 
@@ -524,27 +524,27 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:20:21] Will: serial
 
-[00:20:21] Adam: serial computing, and we decided to do it by making a robot that painted a picture by aiming each paintball like a pixel, and then we built a robot with 1,100 barrels that fired them all at once at a canvas and painted the Mona Lisa, and the the crowd was the most interesting part of it. Nvidia still to this day one of our favorite clients we've ever worked with. They were amazing. They they kind of really let us run. They gave us all the support that we needed, and we were all ecstatic with the results. The gaming crowd very very different crowd than your normal crowd. Like a a real a real level of aggression from the crowd, but an enjoyable aggression. But there was like a ah.
+[00:20:21] Adam: serial computing, and we decided to do it by making a robot that painted a picture by aiming each paintball like a pixel, and then we built a robot with 1,100 barrels that fired them all at once at a canvas and painted the Mona Lisa, and the crowd was the most interesting part of it. Nvidia still to this day one of our favorite clients we've ever worked with. They were amazing. They kind of really let us run. They gave us all the support that we needed, and we were all ecstatic with the results. The gaming crowd very very different crowd than your normal crowd. Like a real level of aggression from the crowd, but an enjoyable aggression. But there was like a ah.
 
 [00:21:03] Will: That was a it was at one of their GPU conferences. Yes, yes, right. So it was a tough crowd because it was probably a lot of like journalists too,
 
-[00:21:09] Adam: and and a lot of those. Kids have been up all night doing gaming competitions and stuff like that. We passed a bunch of people.
+[00:21:09] Adam: and a lot of those. Kids have been up all night doing gaming competitions and stuff like that. We passed a bunch of people.
 
 [00:21:15] Will: Yeah, a lot of people. Yeah, and hopped up on Red Bull and
 
 [00:21:18] Norm: one big conference.
 
-[00:21:19] Adam: Right, right, right. It was a very intense crowd to perform for, and of course, you're performing for two crowds. You're performing for the crowd that's in front of you, and you know that you're recording this because you know you want people to see it. So there are times that you like when I'm out on the touring show. One of my favorite things that I've gotten to really understand is that relationship that the performer can have with the audience. It's not just I hope they like me. It's way it's way much more of an interaction between the performer and the audience, and what they expect, and how you can play with those expectations, how you can subvert them, how you can redirect them, how you can lose them. I'm we were down south in some football college, and I made a joke about oh, is this the one with the pointy ball? And the whole crowd was like oh,
+[00:21:19] Adam: Right, right, right. It was a very intense crowd to perform for, and of course, you're performing for two crowds. You're performing for the crowd that's in front of you, and you know that you're recording this because you know you want people to see it. So there are times that you like when I'm out on the touring show. One of my favorite things that I've gotten to really understand is that relationship that the performer can have with the audience. It's not just I hope they like me. It's way much more of an interaction between the performer and the audience, and what they expect, and how you can play with those expectations, how you can subvert them, how you can redirect them, how you can lose them. I'm we were down south in some football college, and I made a joke about oh, is this the one with the pointy ball? And the whole crowd was like oh,
 
 [00:22:03] Will: no, no, no, no, no.
 
-[00:22:06] Adam: and then I turned around and I said, calm down. It was a joke, and they all like oh. You know, it's like you can that that relationship with the audience is a very interesting one, and I stand up comedians really. That's the thing that I'm most fascinated by. What stand up comedians do is have that deep interaction with the audience in a way that most people find absolutely terrifying. But it's like a comedian sits up there and puts his head in the lion's mouth every night.
+[00:22:06] Adam: and then I turned around and I said, calm down. It was a joke, and they all like oh. It's like you can that that relationship with the audience is a very interesting one, and I stand up comedians really. That's the thing that I'm most fascinated by. What stand up comedians do is have that deep interaction with the audience in a way that most people find absolutely terrifying. But it's like a comedian sits up there and puts his head in the lion's mouth every night.
 
 [00:22:30] Will: Well, sounds good. Lion's mouth head. Why would you not want to do that?
 
-[00:22:34] Adam: So for me, this show is like a. It's again still like the learn while you earn program. It's like I'm getting this this master's degree in in in changing up a script every night and playing around with joke timings and adding bits and you know every now and then you'll get an audience that's just off the charts enthusiastic and that allows you to play around with some all new stuff because they'll love everything and they kind of give you some even better feedback. It's really fun.
+[00:22:34] Adam: So for me, this show is like a. It's again still like the learn while you earn program. It's like I'm getting this master's degree in changing up a script every night and playing around with joke timings and adding bits and you know every now and then you'll get an audience that's just off the charts enthusiastic and that allows you to play around with some all new stuff because they'll love everything and they kind of give you some even better feedback. It's really fun.
 
-[00:22:59] Will: And then you you but you guys actually build all the all the build the stuff right?
+[00:22:59] Will: And then you but you guys actually build all the build the stuff right?
 
 [00:23:03] Adam: No,
 
@@ -554,33 +554,33 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:23:12] Will: okay,
 
-[00:23:12] Adam: up in up in Marin County, and he's actually just finished refurbishing a bunch of stuff because it's beaten up after 70 shows.
+[00:23:12] Adam: up in Marin County, and he's actually just finished refurbishing a bunch of stuff because it's beaten up after 70 shows.
 
 [00:23:20] Will: Yeah, I can imagine
 
 [00:23:20] Adam: touring is really hard on objects
 
-[00:23:23] Will: and people too. I would think. I remember at the end of the tour last year, you guys had planned a big trip, and and you were just like, I just want to spend some time at home with the sweatpants on, watching movies.
+[00:23:23] Will: and people too. I would think. I remember at the end of the tour last year, you guys had planned a big trip, and you were just like, I just want to spend some time at home with the sweatpants on, watching movies.
 
 [00:23:33] Adam: Yes, exactly.
 
 [00:23:34] Will: It seemed good.
 
-[00:23:35] Adam: And this this tour will end in just before Christmas, and actually, I think I am going to bring my family up to New York, and we're going to spend Christmas in New York with some of my other family.
+[00:23:35] Adam: And this tour will end in just before Christmas, and actually, I think I am going to bring my family up to New York, and we're going to spend Christmas in New York with some of my other family.
 
 [00:23:44] Will: Beautiful,
 
 [00:23:44] Adam: yeah, it's going to be really nice.
 
-[00:23:46] Will: Um, so that's your next. 37 days.
+[00:23:46] Will: So that's your next. 37 days.
 
-[00:23:48] Adam: holiday season. Oh, we are going to. There is there is a question of what do you do over Thanksgiving? We're going to Canada, where they don't care about
+[00:23:48] Adam: holiday season. Oh, we are going to. There is a question of what do you do over Thanksgiving? We're going to Canada, where they don't care about
 
 [00:23:55] Will: Thanksgiving. eh? And that was in July.
 
 [00:23:57] Norm: They must care about.
 
-[00:23:58] Will: No, they care about. They they have Canadian Thanksgiving.
+[00:23:58] Will: No, they care about. They have Canadian Thanksgiving.
 
 [00:24:00] Adam: Do they? When is that?
 
@@ -598,7 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:24:23] Adam: And Toronto was a close second. Montreal clapped so long, I went and got Jamie in his dressing room and said, " Dude, we need to do a curtain call." And he said, " What is that?"
 
-[00:24:35] Will: So hold on. So what does Jamie do on his like you you like?
+[00:24:35] Will: So hold on. So what does Jamie do on his like you like?
 
 [00:24:40] Adam: I have a goal.
 
@@ -606,15 +606,15 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:24:46] Adam: Yeah.
 
-[00:24:47] Will: What What does Jamie do during like? Because there's a lot of downtime, and he doesn't usually have a lot of downtime.
+[00:24:47] Will: What does Jamie do during like? Because there's a lot of downtime, and he doesn't usually have a lot of downtime.
 
 [00:24:50] Norm: There's no shop to work in.
 
 [00:24:51] Adam: I haven't the slightest idea. I think maybe he sets a timer on his cryonic chamber with a time lock so it wakes him up in time.
 
-[00:24:58] Norm: I I want to find out.
+[00:24:58] Norm: I want to find out.
 
-[00:24:59] Adam: I you know I pictured Jamie like like like Leon the professional in a chair with his sunglasses on and a gun right here
+[00:24:59] Adam: I you know I pictured Jamie like Leon the professional in a chair with his sunglasses on and a gun right here
 
 [00:25:07] Will: just sitting there waiting. Oh, it's time. Okay.
 
@@ -624,7 +624,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:25:17] Adam: Yes, tell us in the comments when Canadian Thanksgiving. We love Canada.
 
-[00:25:19] Will: I, I, I love Canada, dude.
+[00:25:19] Will: I love Canada, dude.
 
 [00:25:24] Adam: Poutine?
 
@@ -668,7 +668,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:26:38] Will: I've heard good things about Manitoba and Winnipeg.
 
-[00:26:41] Adam: I've always wanted to go to Banff, and actually, one of the one of the trips that I want to do with my family. It's in the middle.  And there's like giant lodges there for the winter,
+[00:26:41] Adam: I've always wanted to go to Banff, and actually, one of the trips that I want to do with my family. It's in the middle. And there's like giant lodges there for the winter,
 
 [00:26:51] Will: like the old kind with the big fireplace in the middle and a hole above it.
 
@@ -686,9 +686,9 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:27:20] Adam: Whistler's great.
 
-[00:27:21] Will: Whistler's fantastic. We we went to Whistler in the summer a few years ago.
+[00:27:21] Will: Whistler's fantastic. We went to Whistler in the summer a few years ago.
 
-[00:27:23] Adam: Yeah, we we did a couple last year
+[00:27:23] Adam: Yeah, we did a couple last year
 
 [00:27:25] Will: because I don't like cold. I'm anti cold weather. But we went to Whistler in the summer and we went like mountain biking and just kind of hiking.
 
@@ -712,11 +712,11 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:28:02] Will: No, okay. First off, Best Westerns in Canada are actually pretty nice hotels. It's not the normal thing that we have here.
 
-[00:28:07] Adam: I will tell you, I'm just as a as a slight aside to agree with you. There's a California Best Western at Pismo Beach.
+[00:28:07] Adam: I will tell you, I'm just as a slight aside to agree with you. There's a California Best Western at Pismo Beach.
 
 [00:28:15] Will: That one's those are good.
 
-[00:28:16] Adam: That we that we have declared in my family is the best.
+[00:28:16] Adam: That we have declared in my family is the best.
 
 [00:28:19] Will: Oh, the Western. There was one in Whistler. I'll give it a run.
 
@@ -730,7 +730,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:28:58] Adam: Wow.
 
-[00:28:58] Will: And we, and he told he, you know, they told him we were coming, and we got the tour of the wine cellar, and it was unbelievable. It was like the, it was like those castles in the basement of European, you know. The cellars in the bottom of European castles. It was rad, and the food was just unbelievably good.
+[00:28:58] Will: And we, and he told he they told him we were coming, and we got the tour of the wine cellar, and it was unbelievable. It was like the, it was like those castles in the basement of European, you know. The cellars in the bottom of European castles. It was rad, and the food was just unbelievably good.
 
 [00:29:12] Norm: American franchise, or is it?
 
@@ -758,15 +758,15 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:29:43] Adam: Yes.
 
-[00:29:43] Will: Um. And I guess on that note, I guess I have no idea what this podcast was about.
+[00:29:43] Will: And I guess on that note, I guess I have no idea what this podcast was about.
 
 [00:29:47] Adam: It's all been about travel. Yeah. I'd say travel is a unifying element. Okay. Can Canada? We'll see you over Thanksgiving week.
 
-[00:29:54] Will: Um. We will have a few more. You're going to be gone for a little while. We're going to record a couple more podcasts, so don't freak out.
+[00:29:54] Will: We will have a few more. You're going to be gone for a little while. We're going to record a couple more podcasts, so don't freak out.
 
-[00:29:59] Adam: But we're also going to try and do some from the from the road.
+[00:29:59] Adam: But we're also going to try and do some from the road.
 
-[00:30:01] Will: We're going to learn how to do them from the road. Yeah. So we'll um uh we'll see you guys next week. If you like us, rate us, leave comments, all the love and stuff applies. Yeah. See you guys later.
+[00:30:01] Will: We're going to learn how to do them from the road. Yeah. So we'll we'll see you guys next week. If you like us, rate us, leave comments, all the love and stuff applies. Yeah. See you guys later.
 
 [00:30:10] Adam: Bye, guys.
 

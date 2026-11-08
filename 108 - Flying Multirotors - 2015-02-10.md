@@ -18,15 +18,15 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:01:18] Will: Okay. Norm's microphone's down low, but we're good now.
 
-[00:01:21] Adam: I've been I've been woodworking all morning.
+[00:01:21] Adam: I've been woodworking all morning.
 
 [00:01:21] Will: Uh huh. So proper eye protection, I'm sure.
 
 [00:01:26] Adam: Um. Well, there's just dust everywhere.
 
-[00:01:29] Will: That is a problem when you're when you're woodworking.
+[00:01:29] Will: That is a problem when you're woodworking.
 
-[00:01:31] Adam: Um. Hey, this morning.
+[00:01:31] Adam: Hey, this morning.
 
 [00:01:33] Will: Yes.
 
@@ -64,19 +64,19 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:02:25] Adam: It's never at the same time?
 
-[00:02:25] Norm: never same time. I can leave, and the neighbors, every all the garbage will be out. Yeah, missing the missing the run is the worst thing.
+[00:02:25] Norm: never same time. I can leave, and the neighbors, every all the garbage will be out. Yeah, missing the run is the worst thing.
 
 [00:02:32] Adam: The missing the run is
 
 [00:02:33] Norm: because you're paying a lot per month,
 
-[00:02:36] Adam: and and you can also actually you can get them to make a special trip.
+[00:02:36] Adam: and you can also actually you can get them to make a special trip.
 
 [00:02:40] Norm: That's no.
 
 [00:02:40] Adam: It's like an extra $30 or something. I don't even know how much it is.
 
-[00:02:43] Will: When I lived in Tennessee in the sub in the deep suburbs in the real suburbs, not like toy suburbs like we have here where it's dense. Um, but I one morning I woke up and I heard the trash go, and I did I chased him down the street with the cans.
+[00:02:43] Will: When I lived in Tennessee in the sub in the deep suburbs in the real suburbs, not like toy suburbs like we have here where it's dense. But I one morning I woke up and I heard the trash go, and I did I chased him down the street with the cans.
 
 [00:02:43] Adam: Nice,
 
@@ -92,7 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:03:09] Adam: Right, and he's like, " Oh, cool! Now I got a story."
 
-[00:03:11] Norm: Isn’t that interesting? The the iconic, the prototypical garbage can in all our minds, even though none of us have used this garbage can for years, is still
+[00:03:11] Norm: Isn’t that interesting? The iconic, the prototypical garbage can in all our minds, even though none of us have used this garbage can for years, is still
 
 [00:03:21] Adam: the galvanized
 
@@ -116,7 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:03:54] Adam: That's very.
 
-[00:03:54] Will: Glows, makes me happy every time. You had kind of an adventure last night, or night, or last two nights ago, three nights ago.
+[00:03:54] Will: Glows, makes me happy every time. You had kind of an adventure last night, or last two nights ago, three nights ago.
 
 [00:04:09] Adam: Which one are you referring to?
 
@@ -146,7 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:04:46] Will: Yes,
 
-[00:04:46] Adam: and I, Janet is a friend of mine. Cole has become a friend of mine, and so has David. And I've done lots of stuff for them over the years when they come. So I've interviewed the the all the puppeteers from Labyrinth on stage at the Castro. I've participated with RiffTrax, Bill Corbett, Kevin Murphy, those guys at the on stage at the Castro multiple times. We do a w00tstock Founders Night every year, so
+[00:04:46] Adam: and I, Janet is a friend of mine. Cole has become a friend of mine, and so has David. And I've done lots of stuff for them over the years when they come. So I've interviewed the all the puppeteers from Labyrinth on stage at the Castro. I've participated with RiffTrax, Bill Corbett, Kevin Murphy, those guys at the on stage at the Castro multiple times. We do a w00tstock Founders Night every year, so
 
 [00:05:15] Norm: it's not just stand-up comedy.
 
@@ -154,11 +154,11 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:05:18] Will: It’s all kinds of comedy.
 
-[00:05:18] Adam: No, it's it's all kinds of comedy. It is storytelling. It is stand-up. It is you know
+[00:05:18] Adam: No, it's all kinds of comedy. It is storytelling. It is stand-up. It is you know
 
 [00:05:24] Norm: retrospective,
 
-[00:05:25] Adam: retrospective tributes. So we did a tribute to Spinal Tap and Harry Shearer, Michael McKean, and Christopher Guest. Now I know Chris Christopher Guest a little bit. We have we are social and friendly. His son has watched a and he by default have watched a tremendous amount of MythBusters over the years, and that's how we that's how we met.
+[00:05:25] Adam: retrospective tributes. So we did a tribute to Spinal Tap and Harry Shearer, Michael McKean, and Christopher Guest. Now I know Chris Christopher Guest a little bit. We have we are social and friendly. His son has watched a and he by default have watched a tremendous amount of MythBusters over the years, and that's how we met.
 
 [00:05:48] Norm: And you interviewed him.
 
@@ -168,13 +168,13 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:05:49] Adam: and I was nervous about this interview. These guys are like legends.
 
-[00:06:02] Will: Well, they have a like they clearly have worked together long enough, not just on Spinal Tap but on other stuff too. That they have a Like a rhythm and a language that, like they they they know what the jokes what the punchlines are going to be.
+[00:06:02] Will: Well, they have a like they clearly have worked together long enough, not just on Spinal Tap but on other stuff too. That they have a Like a rhythm and a language that, like they know what the jokes what the punchlines are going to be.
 
-[00:06:13] Adam: I don't know whether I am going to be able to be part of that or not, and which is going to be funny. And also, I don't even know, like, do they still like each other? I I really didn't know the answers to these questions.
+[00:06:13] Adam: I don't know whether I am going to be able to be part of that or not, and which is going to be funny. And also, I don't even know do they still like each other? I really didn't know the answers to these questions.
 
 [00:06:22] Norm: Is it kind of like Monty Python?
 
-[00:06:22] Adam: Right. You you wonder what it's going to be like to get them all in the same room.
+[00:06:22] Adam: Right. You wonder what it's going to be like to get them all in the same room.
 
 [00:06:26] Will: Well, and and the the added layer that there's that they're a rock band, they're a faux rock band, so they could come out and just decide to be dicks during the interview with you because that's the thing that rock bands do.
 
@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:06:54] Will: oh yeah,
 
-[00:06:54] Adam: and you know, watching them riff on different things, seeing the different bends of each of their senses of humor. You know, I'm such a huge. I've been a huge fan of all of theirs for decades, right?
+[00:06:54] Adam: and watching them riff on different things, seeing the different bends of each of their senses of humor. I'm such a huge. I've been a huge fan of all of theirs for decades, right?
 
 [00:07:28] Norm: Independently, also
 
@@ -198,11 +198,11 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:07:53] Will: TV back then was a much lower production affair.
 
-[00:07:55] Adam: Harry Shearer, in addition to doing dozens of voices on The Simpsons for the last 25 years, also hosts one of my favorite Sunday radio shows, Le Show, out of Los Angeles. Actually, now out of New Orleans, where he lives. I've been listening to that for over 20 years. So, like, independently. All three of these guys have really infused me and my perception of our culture, my politics, my sense of humor, and I was not disappointed at all. They—they just dinner was lovely. The interview was lovely. It was very, very funny, and I actually got a laugh from Chris on stage.
+[00:07:55] Adam: Harry Shearer, in addition to doing dozens of voices on The Simpsons for the last 25 years, also hosts one of my favorite Sunday radio shows, Le Show, out of Los Angeles. Actually, now out of New Orleans, where he lives. I've been listening to that for over 20 years. So independently. All three of these guys have really infused me and my perception of our culture, my politics, my sense of humor, and I was not disappointed at all. They just dinner was lovely. The interview was lovely. It was very, very funny, and I actually got a laugh from Chris on stage.
 
 [00:07:55] Will: Ooh. So, what did everybody order? Do you remember?
 
-[00:08:37] Adam: Michael had the Michael had the cod. Was it the cod?
+[00:08:37] Adam: Michael had the cod. Was it the cod?
 
 [00:08:43] Will: Fish of some kind.
 
@@ -214,19 +214,19 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:08:55] Will: like there are lots of good burgers here.
 
-[00:09:01] Adam: So that was just that was fantastic. I came home like on a on a on a on a cloud.
+[00:09:01] Adam: So that was just that was fantastic. I came home like on a cloud.
 
 [00:09:01] Will: I'm sure
 
-[00:09:01] Adam: you know to tell my wife all about it. It was fantastic. It was it was really lovely evening.
+[00:09:01] Adam: To tell my wife all about it. It was fantastic. It was really lovely evening.
 
 [00:09:13] Will: Awesome. I have to imagine those guys are so sick of the eleven joke. At this point,
 
 [00:09:17] Adam: yes, there was someone who named their daughter Eleven. That Eleven was her middle name.
 
-[00:09:24] Will: I can see that. I mean, that's not middle names. Daughter middle names are throwaways, right? Like that's that's you can do whatever you want there.
+[00:09:24] Will: I can see that. I mean, that's not middle names. Daughter middle names are throwaways, right? Like that's you can do whatever you want there.
 
-[00:09:31] Adam: You know, well, yeah, I guess it could be.
+[00:09:31] Adam: Well, yeah, I guess it could be.
 
 [00:09:31] Will: Yeah,
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:10:06] Will: The iPhone controls were bad,
 
-[00:10:07] Adam: and the footage, the low-res footage was was shite. The Inspire, on the other hand, is a magnificent piece of kit that I'm continually blown away by. And I know that you know Jamie and I were at their launch event for the Inspire. So you should take my opinion with a grain of salt, but I swear, up and down, this this thing is incredible.
+[00:10:07] Adam: and the footage, the low-res footage was was shite. The Inspire, on the other hand, is a magnificent piece of kit that I'm continually blown away by. And I know that you know Jamie and I were at their launch event for the Inspire. So you should take my opinion with a grain of salt, but I swear, up and down, this thing is incredible.
 
 [00:10:28] Will: Just, I mean, just that that thing exists. All of those things, like from the $500 kit quads that you put together at home, all the way up to $3,000 or $4,000 for something that's pro, semi pro level in a lot of cases, is amazing.
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:11:23] Adam: I got to see. I got a little uptight. I will admit.
 
-[00:11:28] Will: It's it's it's like it's high stress.
+[00:11:28] Will: It's like it's high stress.
 
 [00:11:30] Adam: Well, and I was telling them this thing costs a lot of money.
 
@@ -272,7 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:11:36] Will: You should have had Norm bring our Phantom to let them practice on.
 
-[00:11:39] Norm: I did have, I did have enough batteries. And there's big differences between those quadcopters. And we'll talk more about it when we actually go in depth into the the technology and in a separate tested video. But the DJI, just this one company with these two classes of quadcopters, the Phantom is something that is very maneuverable, not as maneuverable as you know your own 250 millimeter quad. But you can, you know, you can turn off the safety modes. You can do flips. You can, you can, you can race them.
+[00:11:39] Norm: I did have enough batteries. And there's big differences between those quadcopters. And we'll talk more about it when we actually go in depth into the technology and in a separate tested video. But the DJI, just this one company with these two classes of quadcopters, the Phantom is something that is very maneuverable, not as maneuverable as you know your own 250 millimeter quad. But you can, you know, you can turn off the safety modes. You can do flips. You can race them.
 
 [00:12:02] Will: You can get kind of crazy.
 
@@ -280,7 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:12:05] Adam: It's just a camera platform. So
 
-[00:12:07] Will: it's like it's like it drives like a Cadillac, right?
+[00:12:07] Will: it's like it drives like a Cadillac, right?
 
 [00:12:07] Norm: Yes.
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:12:38] Will: Yeah.
 
-[00:12:38] Adam: Watched my signal, but but get spotty. I had reset my top height.
+[00:12:38] Adam: Watched my signal, but get spotty. I had reset my top height.
 
 [00:12:38] Will: Okay.
 
@@ -326,11 +326,11 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:13:01] Norm: Return home height.
 
-[00:13:01] Adam: Okay. But, you know, as a look, it's a new piece of kit, and as such, I get my own little obsessive ways with it. So I immediately built a plywood launch table that holds the Inspire on one side and has a felt-bottomed compartment on the other side for the transmitter, so that I can Move around with the camera, and I'm not doing it kneeling on the ground, which is what a lot of people I'm seeing doing.
+[00:13:01] Adam: Okay. But as a look, it's a new piece of kit, and as such, I get my own little obsessive ways with it. So I immediately built a plywood launch table that holds the Inspire on one side and has a felt-bottomed compartment on the other side for the transmitter, so that I can Move around with the camera, and I'm not doing it kneeling on the ground, which is what a lot of people I'm seeing doing.
 
-[00:13:26] Will: It's not a good way to to do any kind of fine work.
+[00:13:26] Will: It's not a good way to do any kind of fine work.
 
-[00:13:28] Adam: Yeah, I like to. I don't. My back hurts, and I'm older, and you know, I want to be sitting upright. I'm actually putting camping chairs on the list of gear to go out with every single time now.
+[00:13:28] Adam: Yeah, I like to. I don't. My back hurts, and I'm older, and I want to be sitting upright. I'm actually putting camping chairs on the list of gear to go out with every single time now.
 
 [00:13:28] Will: Okay. Next is the cooler and the barbecue.
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:13:45] Will: Okay.
 
-[00:13:45] Adam: And I'm logging date, time, duration, how many batteries worth of flying, how many minutes of footage I'm gathering, weather conditions, who is in attendance, etc. And that's also just because, like, when I'm enjoying something, I like kind of cascade effects of all the data around it.
+[00:13:45] Adam: And I'm logging date, time, duration, how many batteries worth of flying, how many minutes of footage I'm gathering, weather conditions, who is in attendance, etc. And that's also just because when I'm enjoying something, I like kind of cascade effects of all the data around it.
 
 [00:14:44] Will: But I kind of go otaku.
 
@@ -352,13 +352,13 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:14:45] Will: You kind of go otaku.
 
-[00:14:46] Adam: Go otaku, yes, man. And I've also been making a checklist, which is really important because, you know, even though the Inspire makes a lot of things really easy, you do want to pay attention to the buildings around you, what the minimum height will be for return, because if you lose signal, the Inspire will rise to that height and fly across you. And if you have set a height lower than the buildings you're in, it's just going to fly into
+[00:14:46] Adam: Go otaku, yes, man. And I've also been making a checklist, which is really important because even though the Inspire makes a lot of things really easy, you do want to pay attention to the buildings around you, what the minimum height will be for return, because if you lose signal, the Inspire will rise to that height and fly across you. And if you have set a height lower than the buildings you're in, it's just going to fly into
 
 [00:15:08] Will: trees, buildings, power lines, the whole thing. Yeah.
 
-[00:15:10] Adam: Um, you want to choose a clear frequency. You want to look at the frequency spread and choose one that's not alone among a lot of interference. You want to choose one within a field of some clear signals.
+[00:15:10] Adam: You want to choose a clear frequency. You want to look at the frequency spread and choose one that's not alone among a lot of interference. You want to choose one within a field of some clear signals.
 
-[00:15:21] Will: That's especially important when you're in dense urban areas where there's a lot of competition for for open spectrum.
+[00:15:21] Will: That's especially important when you're in dense urban areas where there's a lot of competition for open spectrum.
 
 [00:15:26] Adam: And I have noticed glitches in my video transmitting just by flying next to Norm.
 
@@ -370,7 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:15:33] Adam: With the Phantom.
 
-[00:15:34] Norm: If we're doing other type of production with microphones, you know, all the frequencies, or other people
+[00:15:34] Norm: If we're doing other type of production with microphones all the frequencies, or other people
 
 [00:15:38] Will: with other
 
@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:15:40] Will: When you when you watch the video of Norm and I racing at CES, you could see the interference, and that was on an analog spectrum. So it's it's the interference is literally visible from the other quads that were flying around at the same time.
 
-[00:15:49] Adam: So so I've been I've been building this checklist, and I've been building a pre flight checklist, a gear checklist of what you can't leave the house without, a flight checklist, which often includes the protocol for landing and taking off again, like turn off the battery after it lands. The Inspire has a specific thing where the battery, like you could pull a live battery and it stays on. And I just feel like that's bad form.
+[00:15:49] Adam: So so I've been building this checklist, and I've been building a pre flight checklist, a gear checklist of what you can't leave the house without, a flight checklist, which often includes the protocol for landing and taking off again, like turn off the battery after it lands. The Inspire has a specific thing where the battery, like you could pull a live battery and it stays on. And I just feel like that's bad form.
 
 [00:15:49] Norm: Yeah.
 
@@ -388,11 +388,11 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:16:19] Adam: The battery stays on, right? So turn the battery off, swap it out, put it. Back, make sure your signal's good. Hover in front of you for 30 seconds. Make sure the controls work the way you think, and then take off. Those, this is to me like using a table saw. Every time I approach it, I'm going to expect that this thing could fly into something and be a really bad situation.
 
-[00:16:38] Norm: You're always aware of what it's over, and you're always preparing your mind for the worst possible consequence. You, you mentioned something like one of the reasons that airplanes and airlines are so statistically safe is because they have the pre flight checklist that they go over, no matter what.
+[00:16:38] Norm: You're always aware of what it's over, and you're always preparing your mind for the worst possible consequence. You mentioned something like one of the reasons that airplanes and airlines are so statistically safe is because they have the pre flight checklist that they go over, no matter what.
 
-[00:16:53] Adam: No matter what, no. I mean, 99% of the time, most of the things on that checklist are are are have no need to be checked. I have. They never don't do it.
+[00:16:53] Adam: No matter what, no. I mean, 99% of the time, most of the things on that checklist are have no need to be checked. I have. They never don't do it.
 
-[00:17:03] Will: The the other thing you said, the constant spatial awareness and situational awareness is really important. I have a friend who, um, flies little small airplanes. He fly. He owns a small Cessna, and had an engine failure while he was flying in the mountains in northeast Tennessee.
+[00:17:03] Will: The other thing you said, the constant spatial awareness and situational awareness is really important. I have a friend who flies little small airplanes. He fly. He owns a small Cessna, and had an engine failure while he was flying in the mountains in northeast Tennessee.
 
 [00:17:03] Adam: Yeah.
 
@@ -430,7 +430,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:18:46] Will: Wow.
 
-[00:18:46] Adam: I hit the branch and somehow did not lose the Inspire. Now it really wouldn't have gotten super damaged. This is a steep hillside with lots of lots of you know bushes and everything.
+[00:18:46] Adam: I hit the branch and somehow did not lose the Inspire. Now it really wouldn't have gotten super damaged. This is a steep hillside with lots of you know bushes and everything.
 
 [00:19:07] Norm: You're not that high up.
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:19:12] Will: Yeah.
 
-[00:19:12] Adam: Yeah. You know, again, you can see I'm making sure I'm flying where there’s, You know, nobody's there. Nobody I can fly into.
+[00:19:12] Adam: Yeah. Again, you can see I'm making sure I'm flying where there’s nobody's there. Nobody I can fly into.
 
 [00:19:21] Norm: You have the line of sight between you and the quad.
 
@@ -452,11 +452,11 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:19:24] Norm: In front of you. Yeah.
 
-[00:19:26] Will: But I mean, safety with this, with these things. We've talked about this a little bit. On this is only a test as well with with Jeremy, who's also a quad flyer.
+[00:19:26] Will: But I mean, safety with this, with these things. We've talked about this a little bit. On this is only a test as well with Jeremy, who's also a quad flyer.
 
 [00:19:26] Adam: Yeah.
 
-[00:19:26] Will: And and you know, it starts with the realization that what you're essentially what you essentially have is a cinder block with some propellers on it.
+[00:19:26] Will: And it starts with the realization that what you're essentially what you essentially have is a cinder block with some propellers on it.
 
 [00:19:26] Adam: Right.
 
@@ -464,17 +464,17 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:19:46] Norm: I've not crashed it.
 
-[00:19:47] Will: We we were flying when we were test flying one of the 3D robotics quads. We lost one propeller, shot up because I didn't put Loctite on the nuts and they didn't use lock nuts. It's a eight, it's a by eight though, so still fine. But then the vibrations that happened from that made the other propellers shoot off the bottom. And at that point, it was the scariest thing I've ever seen because I was close enough. You know, as soon as the first propeller went off, I immediately started bringing it down to land.
+[00:19:47] Will: We were flying when we were test flying one of the 3D robotics quads. We lost one propeller, shot up because I didn't put Loctite on the nuts and they didn't use lock nuts. It's a eight, it's a by eight though, so still fine. But then the vibrations that happened from that made the other propellers shoot off the bottom. And at that point, it was the scariest thing I've ever seen because I was close enough. As soon as the first propeller went off, I immediately started bringing it down to land.
 
 [00:19:47] Adam: Yeah.
 
-[00:19:47] Will: But we were still probably four or five feet off the ground when the second one shot off. And and I mean, there's nothing. There's literally nothing you can do. So so you always have to be aware. That's why you shouldn't fly over crowds, even with multiple redundancies and all that stuff. Don't fly when there's where there's other people. Don't fly where you can hurt someone or interfere with somebody. You know, follow follow the rules. There there are good rules posted.
+[00:19:47] Will: But we were still probably four or five feet off the ground when the second one shot off. And I mean, there's nothing. There's literally nothing you can do. So so you always have to be aware. That's why you shouldn't fly over crowds, even with multiple redundancies and all that stuff. Don't fly when there's where there's other people. Don't fly where you can hurt someone or interfere with somebody. Follow follow the rules. There are good rules posted.
 
-[00:20:33] Adam: And let me put it even further: the the the drone hobby, which is now becoming so much more than a hobby, is fantastic and includes some really breathtaking technology being developed by some incredibly bright companies. I mean, I'm just gobsmacked by how complete the system for the Inspire really is in terms of all the ways it unifies these myriad systems that people have been bolting together. Like really clever people have been bolting together in kit form for so long, they make it a one stop shop. But it is still a nascent hobby, and if we people who enjoy this hobby, and I'm a new one, want to enjoy it fully, it is up to every single one of us to realize we represent the hobby. So. Anybody out there with a quad who's not flying it safely can potentially drunkenly drop it on the White House lawn, and all of a sudden Congress wants to pass some really stupid legislation about it because of one incident. Well, that's very dangerous.
+[00:20:33] Adam: And let me put it even further: the drone hobby, which is now becoming so much more than a hobby, is fantastic and includes some really breathtaking technology being developed by some incredibly bright companies. I mean, I'm just gobsmacked by how complete the system for the Inspire really is in terms of all the ways it unifies these myriad systems that people have been bolting together. Like really clever people have been bolting together in kit form for so long, they make it a one stop shop. But it is still a nascent hobby, and if we people who enjoy this hobby, and I'm a new one, want to enjoy it fully, it is up to every single one of us to realize we represent the hobby. So. Anybody out there with a quad who's not flying it safely can potentially drunkenly drop it on the White House lawn, and all of a sudden Congress wants to pass some really stupid legislation about it because of one incident. Well, that's very dangerous.
 
-[00:21:38] Will: And by passing, right? Everybody's the representative of their hobby, which is something that the that the amateur airplane flyers and helicopter flyers have understood really, really well for a long time.
+[00:21:38] Will: And by passing, right? Everybody's the representative of their hobby, which is something that the amateur airplane flyers and helicopter flyers have understood really, really well for a long time.
 
-[00:21:47] Adam: And the FAA actually, I was reading the regulations last night. Among the regulations for more than X number of pound for for hobby planes of higher than a certain amount of poundage,
+[00:21:47] Adam: And the FAA actually, I was reading the regulations last night. Among the regulations for more than X number of pound for hobby planes of higher than a certain amount of poundage,
 
 [00:22:00] Will: like three kilograms or something, right?
 
@@ -486,11 +486,11 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:22:39] Norm: that you are just as capable as someone who's been doing it for 10, 15 years.
 
-[00:22:45] Will: Well, you you don't have the instincts.
+[00:22:45] Will: Well, you don't have the instincts.
 
 [00:22:45] Adam: No,
 
-[00:22:45] Will: like I mean, even Norm and I, who've flown quite a bit at this point, don't have don't have that always looking for a place to land instinct, and don't have the the kind of reactions that people who are even novice racers have when they when they don't have to think. Oh, okay, right stick is this, left stick is this.
+[00:22:45] Will: like I mean, even Norm and I, who've flown quite a bit at this point, don't have that always looking for a place to land instinct, and don't have the kind of reactions that people who are even novice racers have when they don't have to think. Oh, okay, right stick is this, left stick is this.
 
 [00:22:45] Norm: Well, muscle memory.
 
@@ -502,7 +502,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:23:30] Adam: Oh, really?
 
-[00:23:30] Will: And it's because it takes X number of years. This is why all the driver's license legislation is changing across the country, is it takes a long period of time to to change your your your sensorium to detect the car as the the body analog, and just know like right after you've been driving for 10 years, you know, okay, this is how big my car is. This is how it goes. And when you get a new car, you have to adjust to that. But it doesn't take very long. When you're first learning to drive, it takes a really long time to get an innate sense of how big the car is and what kind of space you take up. And once you once you've logged enough flight hours with a quad to do the same thing, then you have that same ability. But it you have to really work at it.
+[00:23:30] Will: And it's because it takes X number of years. This is why all the driver's license legislation is changing across the country, is it takes a long period of time to change your sensorium to detect the car as the body analog, and just know like right after you've been driving for 10 years okay, this is how big my car is. This is how it goes. And when you get a new car, you have to adjust to that. But it doesn't take very long. When you're first learning to drive, it takes a really long time to get an innate sense of how big the car is and what kind of space you take up. And once you once you've logged enough flight hours with a quad to do the same thing, then you have that same ability. But it you have to really work at it.
 
 [00:24:17] Adam: The term that I that I've been using more and more lately, because we use it on MythBusters when we're talking about this stuff, is proprioception. And I've said it on the podcast before. It means your spatial awareness of the of your body or the thing you're in, and the space around you. And proprioception is it's Hard to develop in new vehicles and with new devices, but it's absolutely vital in order to do it safely.
 
@@ -528,7 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:25:34] Norm: technology.
 
-[00:25:36] Adam: Well, and basically, that's just going to force companies like 3D robotics and DJI to to have countermeasures for that sort of thing. Not just have it be open,
+[00:25:36] Adam: Well, and basically, that's just going to force companies like 3D robotics and DJI to have countermeasures for that sort of thing. Not just have it be open,
 
 [00:25:47] Will: yeah, open open Wi Fi signals, which is what everybody uses now.
 
@@ -540,11 +540,11 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:25:54] Will: don't fly your quad at Def Con.
 
-[00:25:55] Adam: Look, I think the main thing that I want to just to talk about is that really everybody who's flying a drone, even little tiny ones, you fly a little tiny five ounce drone into your brother's eye, and the news will cover it, right? Like, so every one of us is responsible for you know, you like this thing, then consider yourself responsible for representing the hobby and think about it like that with the stuff you do.
+[00:25:55] Adam: Look, I think the main thing that I want to just to talk about is that really everybody who's flying a drone, even little tiny ones, you fly a little tiny five ounce drone into your brother's eye, and the news will cover it, right? Like, so every one of us is responsible for you like this thing, then consider yourself responsible for representing the hobby and think about it like that with the stuff you do.
 
-[00:26:19] Will: Well, and and one one last smaller note: when you're dealing with something like this, we're used to, especially nerds, we're used to just updating firmwares and updating drivers and stuff like that without really thinking about it because. You know, on your PC, you get a bad firmware update. What's the worst thing that happens? You roll back, and everything's fine. With this, if you get a bad firmware update, there are real consequences. So, when you do things like update your firmware, update to a new version of the software, you should really treat it as if it's a brand new device, at least for that first flight.
+[00:26:19] Will: Well, and one one last smaller note: when you're dealing with something like this, we're used to, especially nerds, we're used to just updating firmwares and updating drivers and stuff like that without really thinking about it because. On your PC, you get a bad firmware update. What's the worst thing that happens? You roll back, and everything's fine. With this, if you get a bad firmware update, there are real consequences. So, when you do things like update your firmware, update to a new version of the software, you should really treat it as if it's a brand new device, at least for that first flight.
 
-[00:26:45] Adam: And go on the forums and check out other people's results with upgrading that firmware. You know, if you if you, yeah, it would be ridiculous to like a firmware update comes online comes online at midnight for you to be flying at six a.m. the next morning in a public space with that firmware update is crazy. You need to
+[00:26:45] Adam: And go on the forums and check out other people's results with upgrading that firmware. You know, if you, yeah, it would be ridiculous to like a firmware update comes online at midnight for you to be flying at six a.m. the next morning in a public space with that firmware update is crazy. You need to
 
 [00:27:03] Will: think about would you want to update the firmware for your car, right?
 
@@ -562,15 +562,15 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:27:24] Adam: Of course, they are,
 
-[00:27:25] Will: but still, you know, you're the one that's responsible at the end of the day. If your quad takes off because you put a bad firmware update and forgot to recalibrate the mag, the the compass, or whatever,
+[00:27:25] Will: but still you're the one that's responsible at the end of the day. If your quad takes off because you put a bad firmware update and forgot to recalibrate the mag, the compass, or whatever,
 
-[00:27:33] Adam: and it's more than who's responsible. It's like if if it goes and hits somebody, it doesn't matter who's responsible. That's a terrible thing to happen.
+[00:27:33] Adam: and it's more than who's responsible. It's like if it goes and hits somebody, it doesn't matter who's responsible. That's a terrible thing to happen.
 
-[00:27:40] Will: Well, I mean, yeah, but but you like that's you that's on you.
+[00:27:40] Will: Well, I mean, yeah, but you like that's you that's on you.
 
 [00:27:40] Adam: Yeah,
 
-[00:27:40] Will: you have to live with that, and that's thing that's a thing you have to keep in mind. So, okay, this was kind of a downer at the end, but there's a lot of lot of neat stuff.
+[00:27:40] Will: you have to live with that, and that's thing that's a thing you have to keep in mind. So, okay, this was kind of a downer at the end, but there's a lot of neat stuff.
 
 [00:27:51] Adam: Yeah, it is really like I can't describe my joy at at at playing with this thing and filming. I I it really is. It the multi rotors have added tremendously to MythBusters' production value over the last couple of years. Duncan Clark, our our second camera op, does amazing stuff with it, and this copter copter quad drone
 
@@ -592,7 +592,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:28:35] Will: Just out of curiosity, did you buy one of those micro nano quads to practice flying before you got the Inspire?
 
-[00:28:40] Adam: And you know, I Duncan actually gave me one of the super micro ones. I found it super hard to fly, super hard to trim, and super hard to fly.
+[00:28:40] Adam: And I Duncan actually gave me one of the super micro ones. I found it super hard to fly, super hard to trim, and super hard to fly.
 
 [00:28:48] Will: Some are definitely better than others. Norm has a Hubsan that he recommends. I know. I actually saw when I was in Chicago a straight out of China $15 gyro and accelerometer stabilized micro that was about or nano that was about the size of a silver dollar.
 
@@ -612,7 +612,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:29:22] Will: using the sticks.
 
-[00:29:23] Adam: Yeah, and you you have to turn on the the the quad the multirotor. You have to turn on the Inspire. Because Eric Cheng told me it's actually using the the drone software to work with the flight simulator.
+[00:29:23] Adam: Yeah, and you have to turn on the quad the multirotor. You have to turn on the Inspire. Because Eric Cheng told me it's actually using the drone software to work with the flight simulator.
 
 [00:29:39] Will: So you take the props off or something? I'm sure.
 

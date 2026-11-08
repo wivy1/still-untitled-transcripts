@@ -78,7 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:02:40] Norm: They went to [unclear: Europe session / your obsession] on the site, and
 
-[00:02:45] Will: yeah. So it happened, and I said, " Hey, that's me," out loud. It's like room of 20 people while this guy's giving his talk, and he he
+[00:02:45] Will: yeah. So it happened, and I said, " Hey, that's me," out loud. It's like room of 20 people while this guy's giving his talk, and he
 
 [00:02:45] Adam: did they laugh? Did he get a laugh?
 
@@ -98,7 +98,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:03:19] Adam: Well, we got back from Comic Con. We had a lovely time there.
 
-[00:03:22] Norm: Yeah, and all our content's out here out by now. The panel is great, actually. One of the things that we had done at the panel that we we didn't get to do the panel is get a camera on the audience. And the last person who asked a question built
+[00:03:22] Norm: Yeah, and all our content's out here out by now. The panel is great, actually. One of the things that we had done at the panel that we didn't get to do the panel is get a camera on the audience. And the last person who asked a question built
 
 [00:03:22] Adam: Yes.
 
@@ -132,15 +132,15 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:04:15] Adam: yeah. Sorry,
 
-[00:04:15] Will: I've I've seen this person perform live 10 or 12 times at this point. Yeah. Christmas Christmas shows. Yeah. At the Greek, a bunch.
+[00:04:15] Will: I've seen this person perform live 10 or 12 times at this point. Yeah. Christmas Christmas shows. Yeah. At the Greek, a bunch.
 
-[00:04:26] Adam: We the the amazing and the amazing and wonderful craftspeople and geniuses at Third Man Records in Detroit. Jack White's Detroit leg of his famous Third Man Records label opened their doors to tested, and we were able to go in and not only cover the the the operation as a lot of news outlets did, the operation of the first brand new record pressing plant in the U.S. in over three decades. They have eight brand new pressing machines, but Jack himself. Was in Detroit and gave us some time to talk about how the limitations of a fully analog system yield better creative results, and it was really inspiring. And I recorded the Brain Candy song live on their stage, and you watched the video.
+[00:04:26] Adam: We the amazing and wonderful craftspeople and geniuses at Third Man Records in Detroit. Jack White's Detroit leg of his famous Third Man Records label opened their doors to tested, and we were able to go in and not only cover the operation as a lot of news outlets did, the operation of the first brand new record pressing plant in the U.S. in over three decades. They have eight brand new pressing machines, but Jack himself. Was in Detroit and gave us some time to talk about how the limitations of a fully analog system yield better creative results, and it was really inspiring. And I recorded the Brain Candy song live on their stage, and you watched the video.
 
 [00:05:09] Will: Yeah. So
 
 [00:05:09] Adam: that that the whole idea that there was nothing digital between me and the needle cutting the record was amazing to me.
 
-[00:05:18] Norm: So I think with Jack, the way he explained it, he did it was he did in his very a very Jack White way. But the way he talked about how digital is zeros and ones, and as even as fine and as as packed as you can get,
+[00:05:18] Norm: So I think with Jack, the way he explained it, he did it was he did in his very a very Jack White way. But the way he talked about how digital is zeros and ones, and as even as fine and as packed as you can get,
 
 [00:05:18] Adam: yeah,
 
@@ -148,15 +148,15 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:05:33] Will: Yeah, the DAC still does, or the ADC still does something. And he
 
-[00:05:36] Adam: And he had, like, you know the jury's out on how much that affects us. I totally you know everyone audio people have their own particular interpretation.
+[00:05:36] Adam: And he had you know the jury's out on how much that affects us. I totally you know everyone audio people have their own particular interpretation.
 
-[00:05:44] Norm: but it was it was less about the listening,
+[00:05:44] Norm: but it was less about the listening,
 
 [00:05:44] Adam: yeah,
 
 [00:05:44] Norm: and it was more about the recording.
 
-[00:05:47] Adam: It was more about the soul of the recording and his stance, which is lovely and poetic, is that when the needle never lifts, you are getting something much more directly. Akin to, to what was being recorded,
+[00:05:47] Adam: It was more about the soul of the recording and his stance, which is lovely and poetic, is that when the needle never lifts, you are getting something much more directly. Akin to what was being recorded,
 
 [00:05:59] Will: I and and look, I I can see that, right? You like you're at some point. It's it's the what's the prob— what's the logic problem where you have to walk half the distance to the thing and you're not.
 
@@ -170,7 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:06:13] Adam: infinitely.
 
-[00:06:13] Will: And when you're when you're when you're converting an analog sound signal into a digital signal, something I've done a lot of lately, then you're you're chopping it into infinitesimally smaller and smaller and smaller and smaller pieces, and then converting that into a number.
+[00:06:13] Will: And when you're converting an analog sound signal into a digital signal, something I've done a lot of lately, then you're chopping it into infinitesimally smaller and smaller pieces, and then converting that into a number.
 
 [00:06:26] Norm: But it's also the fact that you're recording directly to a master. There's no editing. There's no like even
 
@@ -178,11 +178,11 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:06:33] Norm: recordings, you could take that, you digitize it, you can edit it. There's there's something at stake here when you're recording directly.
 
-[00:06:41] Adam: There's a mistake in my recording, and we we chose the take with the mistake.
+[00:06:41] Adam: There's a mistake in my recording, and we chose the take with the mistake.
 
 [00:06:46] Will: Well, so so they're recording live, and they're not doing mastery on like a on like reel to reel tapes or anything like that.
 
-[00:06:52] Adam: Also recorded on a reel to reel, but but the recording that we did was cut directly onto a record lathe. Wow. Not to a reel to reel, and then to a record lathe. And by the way, we have
+[00:06:52] Adam: Also recorded on a reel to reel, but the recording that we did was cut directly onto a record lathe. Wow. Not to a reel to reel, and then to a record lathe. And by the way, we have
 
 [00:06:52] Norm: Oh.
 
@@ -200,7 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:07:16] Adam: the brain candy song is the first song to be recorded on their stage that is also being produced in the plant.
 
-[00:07:29] Norm: Oh. They they have a Excuse me. they have what looks like a I guess they call like a um like a photo booth for music.
+[00:07:29] Norm: Oh. They have a Excuse me. they have what looks like a I guess they call like a photo booth for music.
 
 [00:07:35] Adam: Yes, they have this old '40s photo booth that cut a record on acetate for three minutes.
 
@@ -220,13 +220,13 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:07:58] Adam: That is your guess is as good as mine. Okay. I have not researched that deeply into it.
 
-[00:08:02] Will: I am super curious about the the economics and mechanics of rebuilding this. Like, it's got to be kind of like the like what NASA did with the SLS, where they came in and re. If they're starting from scratch 40 years after people stop making records,
+[00:08:02] Will: I am super curious about the economics and mechanics of rebuilding this. Like, it's got to be kind of like the like what NASA did with the SLS, where they came in and re. If they're starting from scratch 40 years after people stop making records,
 
 [00:08:16] Adam: That’s lost knowledge.
 
-[00:08:18] Will: Yeah, then there has to be lost knowledge, and they have to be going back and recreating all this stuff from from from from 
+[00:08:18] Will: Yeah, then there has to be lost knowledge, and they have to be going back and recreating all this stuff from
 
-[00:08:23] Adam: Good question. I don’t know the answer to that. Wow the the the third man people could not have been more welcoming or or helpful. I mean, it was just that was a fantastic trip.
+[00:08:23] Adam: Good question. I don’t know the answer to that. Wow the third man people could not have been more welcoming or helpful. I mean, it was just that was a fantastic trip.
 
 [00:08:34] Norm: And also, just watching it when the recording when you sit up on stage because it is a stage
 
@@ -234,23 +234,23 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:08:34] Norm: with an audience, yeah, and you recorded onto a really interesting microphone,
 
-[00:08:44] Adam: a ribbon microphone. So it literally is a ribbon of of stainless steel or some fine material, yeah. And they they set them up in in this. I can't remember what he called it. The figure eight. So that one was pointed, one ribbon was pointed directly at my mouth, and the other was pointed directly at my uke, and they really didn't pick up anything that was outside their their signal band.
+[00:08:44] Adam: a ribbon microphone. So it literally is a ribbon of stainless steel or some fine material, yeah. And they set them up in this. I can't remember what he called it. The figure eight. So that one was pointed, one ribbon was pointed directly at my mouth, and the other was pointed directly at my uke, and they really didn't pick up anything that was outside their signal band.
 
 [00:09:07] Norm: Okay, okay. Yeah. The way the audio engineer explained
 
 [00:09:09] Adam: is not the way to describe it, but
 
-[00:09:10] Norm: I just the the space in which microphones pick up, like the volume.
+[00:09:10] Norm: I just the space in which microphones pick up, like the volume.
 
 [00:09:14] Will: Yeah. It
 
 [00:09:14] Norm: was perfectly. It's it's not like they're not going to get any interference, but I didn't know that you could have mics directional in that form factor.
 
-[00:09:22] Will: Well, that's an old timey kind of mic, too, right? Yeah. Like this is it was it was probably designed specifically for the problem of hey we need somebody who's playing a string instrument at their waist and singing at their mouth. Well, and and they didn't have super cardioid condenser mics at that point.
+[00:09:22] Will: Well, that's an old timey kind of mic, too, right? Yeah. Like this is it was probably designed specifically for the problem of hey we need somebody who's playing a string instrument at their waist and singing at their mouth. Well, and they didn't have super cardioid condenser mics at that point.
 
 [00:09:34] Adam: And Jack's obsessed with that technology. The oldest technology. It has a lineage and an import to him and to the stuff that he does that is really really cool because he's breathing, breathing breath back into this like humans did this. You don't just speak into a black box and hear it later from black headphones. It is. These sounds have a history, and the way we've recorded them has a history. And it’s beautiful.
 
-[00:09:58] Will: There's an intrinsic nature to the to the sound. That's rad. That's so— I'm so glad you went there. I'm so excited.
+[00:09:58] Will: There's an intrinsic nature to the sound. That's rad. That's so— I'm so glad you went there. I'm so excited.
 
 [00:09:58] Adam: It was the best.
 
@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:10:21] Adam: I also. I didn't tell Jack this, but I sang his song " Love Interruption" on stage at w00tstock at Comic Con this year. Yeah, I decided to do it. I decided to try it out.
 
-[00:10:30] Will: My my daughter's favorite is from I think the acoustic recording albums, but it's the cover of of the song that he and Meg used to sing when they were in the White Stripes. The song, the the I know the love one another. I love, Jack White, like he's my brother. That song, you know the.
+[00:10:30] Will: My daughter's favorite is from I think the acoustic recording albums, but it's the cover of the song that he and Meg used to sing when they were in the White Stripes. The song, the I know the love one another. I love, Jack White, like he's my brother. That song, you know the.
 
 [00:10:48] Adam: It's. I'm sorry, no. Not the way you've just said it.
 
@@ -280,11 +280,11 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:11:20] Norm: in San Francisco, and
 
-[00:11:21] Adam: Well, Space Fest was last weekend up in up in Napa. Okay, so Al Worden, who visited the shop here earlier this year, and our friend Ryan Nagata was up there showing off some stuff. That was really cool. But the Thursday before Space Fest,
+[00:11:21] Adam: Well, Space Fest was last weekend up in Napa. Okay, so Al Worden, who visited the shop here earlier this year, and our friend Ryan Nagata was up there showing off some stuff. That was really cool. But the Thursday before Space Fest,
 
 [00:11:36] Norm: the Exploratorium did one of their after dark events, and it was all space themed. And and you brought spacesuits among other types of suits to to have on display that evening. But want to give people who even weren't who even were there what they didn't see, which is that you spent the Two days before that, rebuilding stands for your spacesuits.
 
-[00:11:56] Adam: I spent more than two days before that. But when you when you collect costumes and you want to display them, you want to display them in ways that feel right, that look good, and that is a thorny and complicated issue.
+[00:11:56] Adam: I spent more than two days before that. But when you collect costumes and you want to display them, you want to display them in ways that feel right, that look good, and that is a thorny and complicated issue.
 
 [00:12:10] Will: The first time we did the Comic Con party, and for that matter, the second time we did the Comic Con party,
 
@@ -300,11 +300,11 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:12:24] Adam: Yep.
 
-[00:12:24] Will: And and like you look at what you look at what like Deborah Landis did, Nadoolman Landis did at the LACMA exposition.
+[00:12:24] Will: And like you look at what like Deborah Landis did, Nadoolman Landis did at the LACMA exposition.
 
 [00:12:35] Adam: It was not LACMA. It was not LACMA. It was actually the Academy. Was next door to LACMA, but anyway,
 
-[00:12:41] Will: okay. Anyway, but what what they did with mannequins there was
+[00:12:41] Will: okay. Anyway, but what they did with mannequins there was
 
 [00:12:44] Adam: unbelievable. Every single one of those mannequins was custom built to the dimensions of the actor that wore the costume. The mannequin was holding up
 
@@ -342,19 +342,19 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:14:34] Adam: Yes, I guess. Wow. So it was pressurized with an atmosphere so that its radio equipment could work, and the beeping was the radio equipment going, " We work."
 
-[00:14:49] Norm: It was to measure the the atmosphere,
+[00:14:49] Norm: It was to measure the atmosphere,
 
 [00:14:49] Will: Wow.
 
-[00:14:49] Norm: The the interval of the beeping was a way of measuring the atmosphere.
+[00:14:49] Norm: The interval of the beeping was a way of measuring the atmosphere.
 
-[00:14:57] Will: Oh, because if it gets hotter, the beeping's going to go slower and slower and slower, something like that. That
+[00:14:57] Will: Oh, because if it gets hotter, the beeping's going to go slower and slower, something like that. That
 
 [00:14:59] Norm: Wow. [unclear: so that became more regular than the radio equipment / so that the radio equipment would work]. Wow!
 
 [00:15:02] Will: I assume it was something like they were measuring Doppler because they want to know how fast things were going. But I guess they knew how because they have radar. But that's bonkers.
 
-[00:15:09] Adam: Yeah. So Nicholas is full of wonderful stuff like that. We we we talked about the history of the spacesuit, the development, the design, how Hollywood's gotten it right and wrong. I would have loved to have had the the the Martian spacesuit there, still still being still working on it. But to me, it's I love pointing out to people that the spacesuit is the most futuristic part of the movie, The Martian.
+[00:15:09] Adam: Yeah. So Nicholas is full of wonderful stuff like that. We talked about the history of the spacesuit, the development, the design, how Hollywood's gotten it right and wrong. I would have loved to have had the Martian spacesuit there, still still being still working on it. But to me, it's I love pointing out to people that the spacesuit is the most futuristic part of the movie, The Martian.
 
 [00:15:31] Will: Oh, far and away. Like the thing, so there's. I would love to look at like the last four or five years of of spacesuits in film, like like from
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:16:11] Unknown speaker: Yeah.
 
-[00:16:11] Adam: Yeah. You got you got to watch like Ridley's just going to light the scene. You should watch Thelma and Louise when it looks like they've got a 10k under the dashboard pointed at Susan Sarandon and Geena Davis.
+[00:16:11] Adam: Yeah. You got to watch like Ridley's just going to light the scene. You should watch Thelma and Louise when it looks like they've got a 10k under the dashboard pointed at Susan Sarandon and Geena Davis.
 
 [00:16:23] Will: Oh yeah.
 
@@ -398,7 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:16:24] Adam: Like they're driving at night and it's just a giant light on them from inside.
 
-[00:16:26] Will: So I rewatched that movie last year. I assumed that he had like Klieg lights when they were shooting outside in the desert because it is it's just it's just vivid.
+[00:16:26] Will: So I rewatched that movie last year. I assumed that he had like Klieg lights when they were shooting outside in the desert because it is it's just vivid.
 
 [00:16:34] Adam: Yeah.
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:16:36] Will: a fine film.
 
-[00:16:37] Adam: Um. Uh. So yes, spacesuits in film.
+[00:16:37] Adam: So yes, spacesuits in film.
 
 [00:16:42] Will: Yes.
 
@@ -424,7 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:16:49] Unknown speaker: Go ahead.
 
-[00:16:49] Adam: The thing I was going to point out was my favorite spacesuit in film, and I wore the beautiful FBFX Covenant suit, and I've talked about those my friends there. A lot because they do such amazing work, but their hard suit for Danny McBride for Alien Covenant for for Tennessee is one of the coolest things I've ever seen,
+[00:16:49] Adam: The thing I was going to point out was my favorite spacesuit in film, and I wore the beautiful FBFX Covenant suit, and I've talked about those my friends there. A lot because they do such amazing work, but their hard suit for Danny McBride for Alien Covenant for Tennessee is one of the coolest things I've ever seen,
 
 [00:16:49] Unknown speaker: Really?
 
@@ -434,7 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:17:18] Will: really?
 
-[00:17:18] Adam: Uh huh. 3D printed races with phenolic balls and a and a 3D printed bearing race that holds those balls in orientation, and it
+[00:17:18] Adam: Uh huh. 3D printed races with phenolic balls and a 3D printed bearing race that holds those balls in orientation, and it
 
 [00:17:18] Will: wow,
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:17:28] Will: Yeah, yeah, yeah, it looks like the kind of hard side dive suit that people use right now on the bottom of the ocean. Yeah. So
 
-[00:17:33] Adam: apparently there was a stand in one of those that didn't actually function in Prometheus, and Ridley really liked that, and the FBFX Andrew Dow and Grant they they decided to tackle this.
+[00:17:33] Adam: apparently there was a stand in one of those that didn't actually function in Prometheus, and Ridley really liked that, and the FBFX Andrew Dow and Grant they decided to tackle this.
 
 [00:17:33] Unknown speaker: Wow.
 
@@ -452,7 +452,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:17:33] Will: Yeah.
 
-[00:17:33] Adam: I mean, like a the six inch two six inch bearings that are in my Hellboy mecha glove over there. Are retail for over $600 a piece. Yeah. So when you think about like 25 bearings within a suit, it's it's impossible.
+[00:17:33] Adam: I mean, like a the six inch two six inch bearings that are in my Hellboy mecha glove over there. Are retail for over $600 a piece. Yeah. So when you think about like 25 bearings within a suit, it's impossible.
 
 [00:18:04] Will: You can't do that.
 
@@ -476,11 +476,11 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:18:27] Adam: Yeah.
 
-[00:18:27] Norm: There, there.
+[00:18:27] Norm: There.
 
 [00:18:27] Will: Yeah.
 
-[00:18:27] Norm: I think I'm not sure if it's their EMU, but the one they near the end of the movie. Yeah. Um, and there are so many lights and displays, like actual displays on the gloves,
+[00:18:27] Norm: I think I'm not sure if it's their EMU, but the one they near the end of the movie. Yeah. And there are so many lights and displays, like actual displays on the gloves,
 
 [00:18:27] Adam: Yeah.
 
@@ -494,9 +494,9 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:18:53] Norm: they run like an Hour of footage,
 
-[00:18:54] Adam: you know. Yeah. 10 years ago, that would have been a little bit of acetate with some LEDs behind, not even some incandescents behind it to light it up, and now it's an actually animated screen.
+[00:18:54] Adam: Yeah. 10 years ago, that would have been a little bit of acetate with some LEDs behind, not even some incandescents behind it to light it up, and now it's an actually animated screen.
 
-[00:19:03] Will: And I mean, you look at what you can get on on like Adafruit or something like that,
+[00:19:03] Will: And I mean, you look at what you can get on like Adafruit or something like that,
 
 [00:19:03] Unknown speaker: Totally.
 
@@ -544,23 +544,23 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:19:44] Norm: Yeah.
 
-[00:19:44] Adam: Because I, sorry, I mean, you know, one of the reasons we shot this was because we wanted to let people know that we're touring Brain Candy again. Tickets are on sale at BrainCandyLive.com, and we're touring again in November and December all over the country and a little bit of Canada. And you know what? I just love hanging out with that guy.
+[00:19:44] Adam: Because I, sorry, I mean one of the reasons we shot this was because we wanted to let people know that we're touring Brain Candy again. Tickets are on sale at BrainCandyLive.com, and we're touring again in November and December all over the country and a little bit of Canada. And you know what? I just love hanging out with that guy.
 
 [00:20:16] Norm: That, that’s. He seems like a
 
 [00:20:17] Will: delightful nerd.
 
-[00:20:18] Norm: The build video—it's an hour long, but it's like maybe 60% of it is about the Kendama and the build. The other 40% is just watching you guys hang out and ask each other questions and go into deep, random, tangential deep dives into things like the the napkin 
+[00:20:18] Norm: The build video—it's an hour long, but it's like maybe 60% of it is about the Kendama and the build. The other 40% is just watching you guys hang out and ask each other questions and go into deep, random, tangential deep dives into things like the napkin
 
 [00:20:34] Adam: ring, napkin ring paradox. Man, we’re totally gonna. Okay, the napkin ring paradox. You ready to have your mind blown?
 
 [00:20:39] Will: I made the eyebrow at you.
 
-[00:20:41] Adam: Okay. So take a take a tennis ball.
+[00:20:41] Adam: Okay. So take a tennis ball.
 
 [00:20:45] Will: Yeah.
 
-[00:20:45] Adam: And take a a beach ball, three foot diameter beach ball.
+[00:20:45] Adam: And take a beach ball, three foot diameter beach ball.
 
 [00:20:45] Norm: Yes.
 
@@ -568,7 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:20:54] Norm: like cored it with a cylinder,
 
-[00:20:56] Adam: you cored it out so that the remaining the remaining ring that you were left with was let's say an inch and a half tall.
+[00:20:56] Adam: you cored it out so that the remaining ring that you were left with was let's say an inch and a half tall.
 
 [00:21:02] Will: Okay.
 
@@ -584,13 +584,13 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:21:15] Adam: Yes. Yes. Topologically, a torus. Yeah. A toroid. Torus?
 
-[00:21:19] Will: Toroid. You're right. Because a torus would be would be a cylinder all the way around. Okay. This is not. This is. This is anyway.
+[00:21:19] Will: Toroid. You're right. Because a torus would be a cylinder all the way around. Okay. This is not. This is. This is anyway.
 
-[00:21:24] Adam: So we've cored a solid ball the size of a tennis ball, and we're left with a a remainder that is an inch and a half tall.
+[00:21:24] Adam: So we've cored a solid ball the size of a tennis ball, and we're left with a remainder that is an inch and a half tall.
 
 [00:21:24] Unknown speaker: Okay.
 
-[00:21:24] Adam: We do the same thing to the beach ball. We cored the beach ball so that the so that the remaining ring
+[00:21:24] Adam: We do the same thing to the beach ball. We cored the beach ball so that the remaining ring
 
 [00:21:39] Will: is an inch and a half.
 
@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:21:59] Norm: Not the mass, the volume.
 
-[00:21:59] Will: No, no, I mean I mean the volume inside the the circle or—
+[00:21:59] Will: No, no, I mean the volume inside the circle or—
 
 [00:21:59] Norm: the volume of the strip,
 
@@ -620,7 +620,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:22:09] Will: Well, but that's because the tennis ball is thicker than the beach ball.
 
-[00:22:13] Adam: No. Okay. So again, picture picture that you're you're you're taking a tennis ball and coring out almost everything, but leaving enough of the tennis ball sphere.
+[00:22:13] Adam: No. Okay. So again, picture picture that you're taking a tennis ball and coring out almost everything, but leaving enough of the tennis ball sphere.
 
 [00:22:22] Will: Yes.
 
@@ -706,7 +706,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:23:57] Norm: Any any similar height.
 
-[00:23:58] Adam: Yeah. And to do that, you realize that the the ring of the beach ball would be incredibly skinny.
+[00:23:58] Adam: Yeah. And to do that, you realize that the ring of the beach ball would be incredibly skinny.
 
 [00:24:03] Will: Okay.
 
@@ -726,15 +726,15 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:24:21] Adam: All the way through.
 
-[00:24:22] Will: You know, I get that part.
+[00:24:22] Will: I get that part.
 
 [00:24:22] Norm: Yeah.
 
-[00:24:22] Will: I. This is this is why it's a paradox. You absolutely flummoxed me today, sir. We're gonna go get the big drill out in a minute, and we're gonna get some tennis balls and beach balls. We’re drilling right through a ball.
+[00:24:22] Will: I. This is why it's a paradox. You absolutely flummoxed me today, sir. We're gonna go get the big drill out in a minute, and we're gonna get some tennis balls and beach balls. We’re drilling right through a ball.
 
 [00:24:22] Norm: Yes.
 
-[00:24:34] Adam: And we're left with a with a ring.
+[00:24:34] Adam: And we're left with a ring.
 
 [00:24:35] Norm: Yes.
 
@@ -760,7 +760,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:24:52] Will: I mean, I think the people in Canada might be upset.
 
-[00:24:57] Adam: At any rate, we spent some time talking about the napkin ring paradox. Wow! I mean, that's a mind-blowing paradox, and to to demonstrate it is is actually possible using a good lathe.
+[00:24:57] Adam: At any rate, we spent some time talking about the napkin ring paradox. Wow! I mean, that's a mind-blowing paradox, and to demonstrate it is is actually possible using a good lathe.
 
 [00:25:06] Will: So it has to work with a sphere, though it has to be a perfect sphere or something close to a perfect sphere. Yeah.
 
@@ -776,7 +776,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:25:21] Unknown speaker: slightly pear-shaped, like me.
 
-[00:25:21] Will: to introduce my new podcast. Actually, comma. Um. Wow.
+[00:25:21] Will: to introduce my new podcast. Actually, comma. Wow.
 
 [00:25:33] Unknown speaker: Wow. Wow.
 
@@ -788,11 +788,11 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:25:38] Will: Yeah.
 
-[00:25:38] Adam: Um. Lately, Joey's editing has been just blowing my mind. How much I love the the sword build. Yeah,
+[00:25:38] Adam: Lately, Joey's editing has been just blowing my mind. How much I love the sword build. Yeah,
 
-[00:25:50] Norm: Excalibur sword build. Yeah, Gunther did this one, and yeah, they're they're really great.
+[00:25:50] Norm: Excalibur sword build. Yeah, Gunther did this one, and yeah, they're really great.
 
-[00:25:55] Adam: They're really lovely. Um. So this one with with with with Michael Stevens was really lovely. Like it is just like that. To hang out.
+[00:25:55] Adam: They're really lovely. So this one with Michael Stevens was really lovely. Like it is just like that. To hang out.
 
 [00:26:02] Will: Did he come up here?
 
@@ -806,11 +806,11 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:26:14] Will: So what else is coming up, guys? We got a minute or two left.
 
-[00:26:17] Norm: Um. So last week I spent a couple days down at Frank's shop where we hung out with these guys out of Washington, called CNC Router Parts. They make full-size CNCs that are like a fraction of the cost of like a giant, you know, pre-built Tormach or something. And we built one. We built. They they they sell a CNC kit that's
+[00:26:17] Norm: So last week I spent a couple days down at Frank's shop where we hung out with these guys out of Washington, called CNC Router Parts. They make full-size CNCs that are like a fraction of the cost of like a giant pre-built Tormach or something. And we built one. We built. They sell a CNC kit that's
 
 [00:26:17] Will: Like a mill?
 
-[00:26:37] Norm: four feet by eight feet. Yep. Wow. And they they equipped gave us one with two heads, a two-headed CNC. So they think of like a three-axis 3D printer. Yeah. Uh, one for your rotary tool. Uh huh. And one for a plasma cutter.
+[00:26:37] Norm: four feet by eight feet. Yep. Wow. And they equipped gave us one with two heads, a two-headed CNC. So they think of like a three-axis 3D printer. Yeah. One for your rotary tool. Uh huh. And one for a plasma cutter.
 
 [00:26:37] Will: Whoa.
 
@@ -818,7 +818,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:26:37] Will: Nice.
 
-[00:26:37] Norm: Wow. And those these things, the the most interesting to me thing to me though, and I kept asking about this was the drive system they use for the CNCs, because like you know we have some desktop CNCs at our office, and they're perfectly fine. They're a little smaller, you know, a little more self-contained,
+[00:26:37] Norm: Wow. And those these things, the most interesting to me thing to me though, and I kept asking about this was the drive system they use for the CNCs, because like you know we have some desktop CNCs at our office, and they're perfectly fine. They're a little smaller, you know, a little more self-contained,
 
 [00:27:10] Will: like the Carvey and stuff like that, Right?
 
@@ -826,7 +826,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:27:17] Will: what's usually stepper motors on a series of gears and pulleys, Right?
 
-[00:27:20] Norm: Right. But what, yeah, gears and pulleys, or they they have you know your tensioning band, a screw drive, or something. And they were using things where they needed to be fast, need to have a zero very low backlash when it stops acceleration, and very accurate. And this thing moves it like it hauls
+[00:27:20] Norm: Right. But what, yeah, gears and pulleys, or they have you know your tensioning band, a screw drive, or something. And they were using things where they needed to be fast, need to have a zero very low backlash when it stops acceleration, and very accurate. And this thing moves it like it hauls
 
 [00:27:38] Adam: how many inches per foot, many inches per minute. I don't
 
@@ -850,7 +850,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:27:57] Will: How many tries did it take you to get it to work? Just out of curiosity.
 
-[00:28:00] Adam: Okay, so yeah, I built it in my office. They they sent me one when they first sent shipped them out. So I sat there in my office for a couple days and put it together. And I, I, I’m, I’m, I’m not sure I can tell you I got a good print out of it.
+[00:28:00] Adam: Okay, so yeah, I built it in my office. They sent me one when they first sent shipped them out. So I sat there in my office for a couple days and put it together. And I, I, I’m, I’m, I’m not sure I can tell you I got a good print out of it.
 
 [00:28:13] Will: We eventually got okay prints on that.
 
@@ -864,7 +864,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:28:20] Norm: Yep, yep.
 
-[00:28:20] Will: We did, we did.
+[00:28:20] Will: We did.
 
 [00:28:20] Adam: Too many nut slots.
 
@@ -878,7 +878,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:28:39] Will: Yeah,
 
-[00:28:40] Norm: yeah, a four by eight, which like you can put in a a big four by eight sheet of ply right on top of the machine. They took one day for physical construction, one day for electronics.
+[00:28:40] Norm: yeah, a four by eight, which like you can put in a big four by eight sheet of ply right on top of the machine. They took one day for physical construction, one day for electronics.
 
 [00:28:40] Will: Wow,
 
@@ -924,7 +924,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:29:34] Norm: Oh,
 
-[00:29:34] Will: um, I wanted to shout out. I, I fell into an Atlas Obscura hole the other day.
+[00:29:34] Will: I wanted to shout out. I fell into an Atlas Obscura hole the other day.
 
 [00:29:39] Adam: Oh, such a good site.
 
@@ -934,7 +934,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:29:58] Unknown speaker: Well.
 
-[00:29:58] Will: This is like your. This is like your your your restaurant tip, right? Like, like go look and see if Parts Unknown has been.
+[00:29:58] Will: This is like your. This is like your restaurant tip, right? Like go look and see if Parts Unknown has been.
 
 [00:30:06] Adam: See if Anthony Bourdain has been there. You should go eat there.
 

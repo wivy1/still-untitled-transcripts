@@ -46,7 +46,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:01:45] Norm: 400 television shows.
 
-[00:01:46] Adam: They're very, very dedicated watchers. But what what I found fascinating is Leah had as number one, and Jessica had as number two. The O.J. Simpson documentary.
+[00:01:46] Adam: They're very, very dedicated watchers. But what I found fascinating is Leah had as number one, and Jessica had as number two. The O.J. Simpson documentary.
 
 [00:01:57] Will: People really liked it. The Netflix thing.
 
@@ -58,9 +58,9 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:02:04] Will: This isn’t People versus OJ Simpson.
 
-[00:02:05] Adam: No, this isn't the Ryan…. This isn't that one. This is a documentary on OJ that's hours long. I, it’s jaw-droppingly fascinating. Really, really amazing. Um, you get to your. I'm only halfway through the first couple of hours. It seems to be like I I come to this podcast woefully unprepared for knowing how long it is, how many episodes, etc. I'm about an hour and a half into it and I am riveted. It's talking about OJ, talking about his personality, his relationships, his friends, but also his place within the culture, his place representing African American and white culture and where they meet, how he posited and positioned that, and how people around him thought about it. It's riveting.
+[00:02:05] Adam: No, this isn't the Ryan…. This isn't that one. This is a documentary on OJ that's hours long. I, it’s jaw-droppingly fascinating. Really, really amazing. You get to your. I'm only halfway through the first couple of hours. It seems to be like I I come to this podcast woefully unprepared for knowing how long it is, how many episodes, etc. I'm about an hour and a half into it and I am riveted. It's talking about OJ, talking about his personality, his relationships, his friends, but also his place within the culture, his place representing African American and white culture and where they meet, how he posited and positioned that, and how people around him thought about it. It's riveting.
 
-[00:02:51] Will: I I will I will check it. Where Where are you watching it? What's it on? Do you know?
+[00:02:51] Will: I will check it. Where are you watching it? What's it on? Do you know?
 
 [00:02:55] Adam: I'm watching it on a laptop.
 
@@ -76,11 +76,11 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:03:09] Adam: Yes,
 
-[00:03:09] Will: and they they had both TV and movies, and they're they came out in with big love for Supergirl, the CW,
+[00:03:09] Will: and they had both TV and movies, and they're they came out in with big love for Supergirl, the CW,
 
 [00:03:16] Unknown speaker: [unclear: the / Fast].
 
-[00:03:16] Will: CW reboot of not reboot, but you know, update of Supergirl,
+[00:03:16] Will: CW reboot of not reboot, but update of Supergirl,
 
 [00:03:20] Norm: and what CW is doing with those DC characters, how it's not dark, how it's very joyful and interesting.
 
@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:05:23] Will: How how are they just hewing to the books? Because that's a pretty deep series of books at this point. Or do you know
 
-[00:05:28] Adam: it is? Yeah, they're moving around some of the dramatic elements for television. So some characters are showing up earlier than you'd expect, etc. But for the most part, their goal is to maintain rigidly with real science and holding to the books. And you know, I was there with with with my you know with the production team, and their their goal is to Is to satisfy you as the reader and the watcher.
+[00:05:28] Adam: it is? Yeah, they're moving around some of the dramatic elements for television. So some characters are showing up earlier than you'd expect, etc. But for the most part, their goal is to maintain rigidly with real science and holding to the books. And I was there with my you know with the production team, and their goal is to satisfy you as the reader and the watcher.
 
 [00:05:55] Will: So, so, speaking of real science in outer space,
 
@@ -158,9 +158,9 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:06:00] Will: [unclear: That was such a part / That was such a].
 
-[00:06:01] Norm: I know, I know, well, I know.
+[00:06:01] Norm: I know, well, I know.
 
-[00:06:02] Will: I know, it was, I know, it was the most hamfisted norm segue of all time.
+[00:06:02] Will: I know, it was the most hamfisted norm segue of all time.
 
 [00:06:05] Norm: You are not in charge of that.
 
@@ -186,25 +186,25 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:06:17] Will: Really?
 
-[00:06:17] Adam: Whoa, yeah. Now I know that it's divisive, and like full caveat: if you you got to be like me and love the old Vincent Minnelli musicals, the the the singing in the rain, and things like West Side Story, and you know,
+[00:06:17] Adam: Whoa, yeah. Now I know that it's divisive, and like full caveat: if you got to be like me and love the old Vincent Minnelli musicals, the singing in the rain, and things like West Side Story, and you know,
 
 [00:06:35] Norm: bright colors, breakout dance, choreography,
 
 [00:06:38] Adam: old Hollywood musical, La La Land is magnificent.
 
-[00:06:43] Norm: You know, it's a movie where it celebrates Hollywood and it's unabashedly in love with. Itself, like the Hollywood culture,
+[00:06:43] Norm: It's a movie where it celebrates Hollywood and it's unabashedly in love with. Itself, like the Hollywood culture,
 
 [00:06:51] Adam: it is
 
-[00:06:51] Norm: or a a vision of Hollywood.
+[00:06:51] Norm: or a vision of Hollywood.
 
-[00:06:53] Adam: A vision of Hollywood. [unclear: Just like the culture / Just like the artists], the the emotion is not stilted. It feels real. The two actors, which is Ryan Gosling and Emma Stone, are magnificent. It's like there's a reason you hire movie stars to do stuff.
+[00:06:53] Adam: A vision of Hollywood. [unclear: Just like the culture / Just like the artists] the emotion is not stilted. It feels real. The two actors, which is Ryan Gosling and Emma Stone, are magnificent. It's like there's a reason you hire movie stars to do stuff.
 
-[00:07:06] Will: Yeah, they they look like movie stars.
+[00:07:06] Will: Yeah, they look like movie stars.
 
-[00:07:09] Adam: You know, I'm always fascinated when a screenwriter, right, paints themselves into a writing corner where, oh, in order for me to really, really connect with this character at this moment, she needs to show me the audience that she is truly brilliant at what she does. And then you hire an actress, and you hope, boy, I hope she can sell this. And Emma Stone,
+[00:07:09] Adam: I'm always fascinated when a screenwriter, right, paints themselves into a writing corner where, oh, in order for me to really, really connect with this character at this moment, she needs to show me the audience that she is truly brilliant at what she does. And then you hire an actress, and you hope, boy, I hope she can sell this. And Emma Stone,
 
-[00:07:30] Will: she’s a, she’s a safe bet at this point.
+[00:07:30] Will: she’s a safe bet at this point.
 
 [00:07:31] Adam: with her eyes the size of billiard balls. She is really incredible, and also Ryan Gosling. I found myself. I keep on meaning to look this up. He's a piano player, and she's an actress. He's a jazz pianist, and she's an actress. John Legend has a large cameo in the film, and he's wonderful.
 
@@ -226,11 +226,11 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:08:14] Norm: Is it cheaper to get an actor to [unclear: be go method / deep, go method] or to CG that?
 
-[00:08:17] Adam: I I haven't looked it up. I'm sure that I. I mean, I know I can. It's just been a busy week.
+[00:08:17] Adam: I haven't looked it up. I'm sure that I. I mean, I know I can. It's just been a busy week.
 
 [00:08:21] Will: Is it they didn't do obvious cutaways and stuff like that? That where you like suddenly have a pair of really different looking hands.
 
-[00:08:25] Adam: No, no, no. Um. So I will say I did have one bone to pick with the film, which is in a musical like this, you have the choice of do the songs are the songs produced in and of themselves, or do they occur within the sonic universe that you're in? Ah. And by that I mean, Glee did this in both ways. Sometimes in Glee, the the the there's huge amounts of compression on the singing as soon as they jump into a number, right? Um. In this. They went to songs that were in and of themselves. So occasionally, the the mix on the vocals of the songs in La La Land is so low because it's more like within.
+[00:08:25] Adam: No, no, no. So I will say I did have one bone to pick with the film, which is in a musical like this, you have the choice of do the songs are the songs produced in and of themselves, or do they occur within the sonic universe that you're in? Ah. And by that I mean, Glee did this in both ways. Sometimes in Glee, the there's huge amounts of compression on the singing as soon as they jump into a number, right? In this. They went to songs that were in and of themselves. So occasionally, the mix on the vocals of the songs in La La Land is so low because it's more like within.
 
 [00:09:03] Will: You think that was the theater you were in? Maybe
 
@@ -238,27 +238,27 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:09:06] Norm: And the rule for musicals when they were brought to screen is usually it's all ADR after the fact. I think Les Mis is one of those very few,
 
-[00:09:12] Adam: right? Unlike unlike Les Mis, which they did all live on on camera, this was absolutely post produced, and some of the lip syncing was not so perfect. Right, but honestly, the emotion.
+[00:09:12] Adam: right? Unlike unlike Les Mis, which they did all live on camera, this was absolutely post produced, and some of the lip syncing was not so perfect. Right, but honestly, the emotion.
 
-[00:09:24] Norm: But you're talking about the the directorial decision of whether the you're breaking the song out of the reality of where the characters exist.
+[00:09:24] Norm: But you're talking about the directorial decision of whether the you're breaking the song out of the reality of where the characters exist.
 
-[00:09:33] Adam: So they they do both in this film, and but basically the choices that they made sometimes took me out of the drama here and there. That being said, really, like I I I want to like write. I want to choreograph a. A soft shoe routine that my wife and I can do when we're especially excited, and just like dance with each other on the road. Mandy Moore did the choreography, by the way.
+[00:09:33] Adam: So they do both in this film, and but basically the choices that they made sometimes took me out of the drama here and there. That being said, really, like I I I want to like write. I want to choreograph a. A soft shoe routine that my wife and I can do when we're especially excited, and just like dance with each other on the road. Mandy Moore did the choreography, by the way.
 
 [00:09:55] Will: Really? So, so, so some, but some of the songs are diegetic, right? They're happening in the world, and they're just picking up. Yeah, okay.
 
 [00:10:00] Adam: Yeah.
 
-[00:10:00] Will: So that that's that's always interesting because that's like that's one of my favorite musical tropes is the you know the old Rodgers and Hammerstein style. All of a sudden, oh, it’s time for the musical number! Everybody just starts dancing,
+[00:10:00] Will: So that that's always interesting because that's like that's one of my favorite musical tropes is the you know the old Rodgers and Hammerstein style. All of a sudden, oh, it’s time for the musical number! Everybody just starts dancing,
 
-[00:10:09] Adam: and that that happens in this. It's it's just great. I mean, really, look, I'm a I'm one of the people that thinks that Singing in the Rain is one of the best movies ever made.
+[00:10:09] Adam: and that that happens in this. It's just great. I mean, really, look, I'm a I'm one of the people that thinks that Singing in the Rain is one of the best movies ever made.
 
 [00:10:18] Will: Yeah.
 
-[00:10:18] Adam: And if if you have any inkling towards that, you're going to love this movie.
+[00:10:18] Adam: And if you have any inkling towards that, you're going to love this movie.
 
 [00:10:23] Will: Okay.
 
-[00:10:23] Adam: You've got to give over to the the the the mannerist, painterly aspects of a real musical where the colors are all primary and the, you know, it's great.
+[00:10:23] Adam: You've got to give over to the mannerist, painterly aspects of a real musical where the colors are all primary and the it's great.
 
 [00:10:35] Will: So I'm going to ask a question.
 
@@ -268,15 +268,15 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:10:38] Adam: Yeah.
 
-[00:10:38] Will: And I thought, man, this would be an amazing movie for for Neil Patrick Harris. Who is a old timey song and dance man in a lot of ways?
+[00:10:38] Will: And I thought, man, this would be an amazing movie for Neil Patrick Harris. Who is a old timey song and dance man in a lot of ways?
 
 [00:10:47] Adam: Yeah,
 
 [00:10:48] Will: but Ryan Gosling is an amazing performer.
 
-[00:10:50] Norm: I don't think I don't think Neil Patrick Harris can smolder.
+[00:10:50] Norm: I don't think Neil Patrick Harris can smolder.
 
-[00:10:53] Adam: I I
+[00:10:53] Adam: I
 
 [00:10:54] Norm: like that.
 
@@ -312,13 +312,13 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:11:20] Will: I rescind my comment.
 
-[00:11:21] Adam: He's a phenomenal dancer. There's there's a scene early on in the film where they meet and they're walking on the road and they just start dancing with each other and I'm getting choked up just thinking about how beautiful it is because of how well choreographed the the dancing is, how well they do it, how personal and not Stilted it is. It's just great.
+[00:11:21] Adam: He's a phenomenal dancer. There's there's a scene early on in the film where they meet and they're walking on the road and they just start dancing with each other and I'm getting choked up just thinking about how beautiful it is because of how well choreographed the dancing is, how well they do it, how personal and not Stilted it is. It's just great.
 
 [00:11:42] Will: A few weeks ago, you asked where the romantic comedies went.
 
 [00:11:44] Adam: Bingo.
 
-[00:11:44] Will: And like this, this fits.
+[00:11:44] Will: And like this fits.
 
 [00:11:42] Unknown speaker: There you go.
 
@@ -346,11 +346,11 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:12:12] Norm: You haven’t seen it? Okay. It's a very small tease, and will this is the point where you can decide whether you want to see trailers or not?
 
-[00:12:18] Will: I think I think look, I'm in a position professionally now where I don't feel an urge to watch trailers.
+[00:12:18] Will: I think look, I'm in a position professionally now where I don't feel an urge to watch trailers.
 
 [00:12:23] Norm: Yeah.
 
-[00:12:23] Will: Joey for a long [unclear: Joey Frommelli / Joey Famili / Joey Famiglietti], long time producer on Tested, has for a long time not watched any trailers for anything, and and he's gone out of his way for it. I'm not going to do that. But if I can avoid seeing trailers, I'm not going to close my eyes in the theater.
+[00:12:23] Will: Joey for a long [unclear: Joey Frommelli / Joey Famili / Joey Famiglietti] long time producer on Tested, has for a long time not watched any trailers for anything, and he's gone out of his way for it. I'm not going to do that. But if I can avoid seeing trailers, I'm not going to close my eyes in the theater.
 
 [00:12:36] Norm: Right. Or like. Not get to that early. I mean, it’s one of the reasons you reserve seats so you don't have to watch the trailers.
 
@@ -362,7 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:12:55] Adam: because it's usually very doesn't give you a lot to go on. But as on sites like Gizmodo and IO9, where they really start to take a trailer and look at every single shot of multiple trailers to break the plot down, and they're often really right. I so I stopped. Here's your segue. I stopped watching the Rogue One trailers a month and a half ago. I just stopped. I wanted to be really surprised, and I didn't want to have a lot of stuff anticipated to me.
 
-[00:13:22] Norm: There's usually teaser one, then trailer one, theatrical trailer one, theatrical trailer two, under two minutes and 30 seconds.
+[00:13:22] Norm: There's usually teaser one, then trailer one, theatrical trailer two, under two minutes and 30 seconds.
 
 [00:13:28] Will: and then some TV trailers and stuff like that too
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:14:11] Adam: Only prime number lengths of minutes.
 
-[00:14:13] Will: If we go three more, it's going to get to be a real long podcast. It's it's a movie about the original capture of the Death Star plans, which has not been depicted or even really mentioned on film before.
+[00:14:13] Will: If we go three more, it's going to get to be a real long podcast. It's a movie about the original capture of the Death Star plans, which has not been depicted or even really mentioned on film before.
 
 [00:14:22] Norm: Two lines.
 
@@ -416,7 +416,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:14:27] Adam: And this was an idea that John Knoll, creative director at ILM and special effects director of many films, including Oscar winner for Pirates of the Caribbean, Dead Man's Chest,
 
-[00:14:36] Will: and the and the Minority Report hands. right?
+[00:14:36] Will: and the Minority Report hands. right?
 
 [00:14:38] Adam: Minority Report hands. Yeah, John Knoll, good friend of mine, friend of tested.
 
@@ -428,7 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:14:56] Adam: Right.
 
-[00:14:56] Norm: called " Destroyer of Worlds," and you know, he got he as a part of the Lucasfilm family and the Star Wars family pitched that to Kathleen Kennedy, and it was fully fleshed out. It wasn't just, " Hey, let's turn this into a movie," because people have said, " Let's." I've always been curious how they get the plans, but he had a full story about and a vision about how how to make a commando like war film about the spies that stole the Death Star plans. And while the film that we eventually eventually got up is maybe not so much like that story, he actually had those ideas, and it was very much like the Guardians of the Galaxy, actually, but in the Star Wars universe.
+[00:14:56] Norm: called " Destroyer of Worlds," and he got he as a part of the Lucasfilm family and the Star Wars family pitched that to Kathleen Kennedy, and it was fully fleshed out. It wasn't just, " Hey, let's turn this into a movie," because people have said, " Let's." I've always been curious how they get the plans, but he had a full story about and a vision about how how to make a commando like war film about the spies that stole the Death Star plans. And while the film that we eventually eventually got up is maybe not so much like that story, he actually had those ideas, and it was very much like the Guardians of the Galaxy, actually, but in the Star Wars universe.
 
 [00:15:32] Adam: It's so first and foremost, I really enjoyed it.
 
@@ -448,11 +448,11 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:16:01] Norm: That's right. It's a Star Wars story and it's set in that universe, but it is not a episode one, two, three, four, five, six, seven.
 
-[00:16:09] Adam: Well, so I'm going to make an admission here, and even though I said I I try not to watch the trailers, and I didn't watch any Rogue One trailers for the last eight, you know, month and a half, I did give in, and I on Wednesday it said, " What are the reviewers saying about Rogue One?" And I just wanted to see those one paragraph encapsulations,
+[00:16:09] Adam: Well, so I'm going to make an admission here, and even though I said I I try not to watch the trailers, and I didn't watch any Rogue One trailers for the last eight month and a half, I did give in, and I on Wednesday it said, " What are the reviewers saying about Rogue One?" And I just wanted to see those one paragraph encapsulations,
 
 [00:16:27] Norm: yeah, like the Rotten Tomatoes,
 
-[00:16:28] Adam: and they were they were so different, each one that I was like, " Oh, I'm fascinated to see this," because clearly, what I’m seeing, when often when I see reviewers widely disagreeing with each other about how they felt about a movie, I feel like what that. Tells me is that a lot of people are going in with very specific expectations. It's less about the quality of the movie than the quality of the expectations of the review,
+[00:16:28] Adam: and they were so different, each one that I was like, " Oh, I'm fascinated to see this," because clearly, what I’m seeing, when often when I see reviewers widely disagreeing with each other about how they felt about a movie, I feel like what that. Tells me is that a lot of people are going in with very specific expectations. It's less about the quality of the movie than the quality of the expectations of the review,
 
 [00:16:56] Will: or that the movie is just incredibly dense.
 
@@ -460,27 +460,27 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:17:15] Norm: And I think it plays a lot of tribute to the it. It is how you remember Star Wars in a way without trying to become something completely different visually,
 
-[00:17:25] Adam: up to and including some of the sets looking kind of janky, like the original '77. Yeah. Some of the some of the effects looking a little bit janky.
+[00:17:25] Adam: up to and including some of the sets looking kind of janky, like the original '77. Yeah. Some of the effects looking a little bit janky.
 
 [00:17:34] Norm: And that's not to say the Force Awakens didn't have that. The Force Awakens they built a great Millennium Falcon. They built a great Jakku lived in world. Yep. But it did have a kind of clean, you know, a polish to it.
 
-[00:17:45] Will: It was minimal. Like like the the what we saw of Jakku was basically a tiny tiny outpost presumably somewhere on the edge of the world yes but there was like 30 or 40 buildings is what it felt like it was small right what we saw here were these dense lived in like worlds cities places where people live their entire lives and it it felt much more like it was much more reminiscent of Luke and Ben and the droids walking through Mos Eisley on Tatooine
+[00:17:45] Will: It was minimal. Like the what we saw of Jakku was basically a tiny tiny outpost presumably somewhere on the edge of the world yes but there was like 30 or 40 buildings is what it felt like it was small right what we saw here were these dense lived in like worlds cities places where people live their entire lives and it felt much more like it was much more reminiscent of Luke and Ben and the droids walking through Mos Eisley on Tatooine
 
 [00:18:11] Adam: I agree yeah
 
 [00:18:12] Will: and um
 
-[00:18:13] Adam: you were you were in a you in a world you were in a world
+[00:18:13] Adam: you were in a you in a world you were in a world
 
-[00:18:17] Will: um so other departures it was the first Star Wars that doesn't have a John Williams score
+[00:18:17] Will: So other departures it was the first Star Wars that doesn't have a John Williams score
 
 [00:18:21] Adam: yes Michael Giacchino
 
 [00:18:23] Will: oh my god it's so good
 
-[00:18:24] Adam: Michael Giacchino so I I will admit to you that Michael Michael revealed to me a couple of movements before the film came out um and the score is beautiful and has all these wonderful little tips of the hat to Williams scores
+[00:18:24] Adam: Michael Giacchino so I I will admit to you that Michael Michael revealed to me a couple of movements before the film came out and the score is beautiful and has all these wonderful little tips of the hat to Williams scores
 
-[00:18:40] Will: yeah well and and like they they drop he and he he manages to use the Williams references without feeling like he's hitting a soundboard he's like okay Darth Vader's on screen play the Imperial March He does it once.
+[00:18:40] Will: yeah well and like they drop he and he manages to use the Williams references without feeling like he's hitting a soundboard he's like okay Darth Vader's on screen play the Imperial March He does it once.
 
 [00:18:51] Adam: Yep,
 
@@ -494,7 +494,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:18:59] Will: imperial theme. His is so good.
 
-[00:19:00] Norm: We’ve gone, we’ve gone three minutes, guys.
+[00:19:00] Norm: We’ve gone three minutes, guys.
 
 [00:19:02] Unknown speaker: Okay, okay.
 
@@ -562,7 +562,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:20:48] Will: Paul Walker in Furious Seven last year was great.
 
-[00:20:51] Adam: We still are in the uncanny…. We're still heavily in the uncanny valley when it comes to this stuff, and there there were just little look. There were lots of shots of Grand Moff Tarkin that were absolutely spot on, but the performance there's there's a lot of performance.
+[00:20:51] Adam: We still are in the uncanny…. We're still heavily in the uncanny valley when it comes to this stuff, and there were just little look. There were lots of shots of Grand Moff Tarkin that were absolutely spot on, but the performance there's there's a lot of performance.
 
 [00:21:03] Norm: They required a performance.
 
@@ -574,7 +574,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:21:08] Adam: yeah.
 
-[00:21:08] Will: And I didn't think there were there were places that it definitely leapt out at me,
+[00:21:08] Will: And I didn't think there were places that it definitely leapt out at me,
 
 [00:21:12] Adam: Oh.
 
@@ -622,7 +622,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:22:47] Norm: It was because okay, we've done this with Tron, we've done this other films, and let's feel like can we do it? Yeah, let's do it.
 
-[00:22:52] Adam: And I don't want to denigrate them for trying it. You know, I like I said, it pulled me out of the plot
+[00:22:52] Adam: And I don't want to denigrate them for trying it. I like I said, it pulled me out of the plot
 
 [00:22:52] Unknown speaker: [unclear: I’ve done it / …]
 
@@ -652,11 +652,11 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:23:19] Will: She looked like a force ghost almost.
 
-[00:23:20] Adam: Okay, so like to be clear, they bring they they make Carrie Fisher young again, and they bring Peter Cushing back.
+[00:23:20] Adam: Okay, so like to be clear, they bring they make Carrie Fisher young again, and they bring Peter Cushing back.
 
 [00:23:25] Norm: And it wasn't Carrie Fisher. It was a they had a body double, and then they just CG the face.
 
-[00:23:29] Will: So they they get somebody with the same bone structure and map it to their face. Is the theory? Yeah. The the thing that I will say is that the Peter Cushing and the and the Princess Leia, and then they also did it with a bunch of other people that are kind of background characters.
+[00:23:29] Will: So they get somebody with the same bone structure and map it to their face. Is the theory? Yeah. The thing that I will say is that the Peter Cushing and the Princess Leia, and then they also did it with a bunch of other people that are kind of background characters.
 
 [00:23:39] Norm: So they did it to two characters, and this was the huge. I’m talking about CG
 
@@ -664,15 +664,15 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:23:44] Norm: Well, yeah, you're right. So they,
 
-[00:23:45] Will: I think that was makeup. Yeah, I think I think most of them were practical. or. Shots from the old movie.
+[00:23:45] Will: I think that was makeup. Yeah, I think most of them were practical. or. Shots from the old movie.
 
 [00:23:50] Norm: They had, yeah, the fan service elements of it and bringing back the old characters. They did it in three ways. You had Leia and Tarkin.
 
 [00:23:56] Will: Yeah.
 
-[00:23:56] Norm: And they're all pairs. Very interesting. The Leia and Tarkin were completely CG mapped onto body doubles as characters. Then they had um, I forget their names.
+[00:23:56] Norm: And they're all pairs. Very interesting. The Leia and Tarkin were completely CG mapped onto body doubles as characters. Then they had I forget their names.
 
-[00:24:05] Will: Rogue, Rogue Leader and Gold. Oh, the the Walrus face and the
+[00:24:05] Will: Rogue, Rogue Leader and Gold. Oh, the Walrus face and the
 
 [00:24:09] Norm: Walrus face.
 
@@ -682,7 +682,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:24:23] Will: And I think they even recorded some lines.
 
-[00:24:25] Norm: And they they added to the line. So when Red Leader says, " I'm ready to do my attack run," and they cut right when
+[00:24:25] Norm: And they added to the line. So when Red Leader says, " I'm ready to do my attack run," and they cut right when
 
 [00:24:30] Will: it's Gold Leader.
 
@@ -692,15 +692,15 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:24:51] Norm: unscanned? Okay, let's scan it. Finding those test shots and then putting that in the film and having those were the biggest cheers. I thought,
 
-[00:24:59] Adam: and and here is the thing that I really I really enjoyed getting to the end of the movie and realizing, wow, this movie ends literally like 40 minutes before Star Wars: New Hope.
+[00:24:59] Adam: and here is the thing that I really enjoyed getting to the end of the movie and realizing, wow, this movie ends literally like 40 minutes before Star Wars: New Hope.
 
 [00:25:09] Norm: But No one expected that.
 
-[00:25:10] Will: Yeah, it was like that. So, so the thing that I was gonna say about Tarkin and and Leia is they stood out because the blend between practical and digital effects was so good in the rest of the film. Yeah, that it was like you couldn't tell where the real world stopped and and and the the digital effects ended. So when you saw those faces, it just it just leapt out of the screen at me. Anyway,
+[00:25:10] Will: Yeah, it was like that. So, so the thing that I was gonna say about Tarkin and Leia is they stood out because the blend between practical and digital effects was so good in the rest of the film. Yeah, that it was like you couldn't tell where the real world stopped and the digital effects ended. So when you saw those faces, it just leapt out of the screen at me. Anyway,
 
 [00:25:30] Norm: and even to the Star Destroyers, we're talking about they use the effects to how you remember it. The way they designed the AT-AT walkers. If you compare a screenshot of the AT-ATs in Empire and the AT-ATs they have in this movie, which are Little different because they’re cargo ATs.
 
-[00:25:46] Will: Well, these are these are the these are the crappy predecessors, I assume, right? They learned from this battle to make them better for Empire.
+[00:25:46] Will: Well, these are the crappy predecessors, I assume, right? They learned from this battle to make them better for Empire.
 
 [00:25:50] Norm: They are fundamentally different. They are sleeker, but they are how you remember it in your brain
 
@@ -722,7 +722,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:26:06] Norm: Yeah.
 
-[00:26:06] Adam: Um. I thought that Jyn, Felicity…
+[00:26:06] Adam: I thought that Jyn, Felicity…
 
 [00:26:09] Norm: Erso Felicity Jones
 
@@ -734,7 +734,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:26:17] Norm: And this was the fundamental difference between the John Knoll pitch, which was about a team of commandos and each having like a very Seven Samurai type of film, to one about a personal story of the hero's journey, Jyn Erso, and in her relationship with her father.
 
-[00:26:31] Adam: And and her father, Mads Mikkelsen, was terrific
+[00:26:31] Adam: And her father, Mads Mikkelsen, was terrific
 
 [00:26:34] Will: really really like I I was on the edge of bawling within the first four minutes of the movie
 
@@ -748,7 +748,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:26:59] Adam: K-2SO.
 
-[00:27:00] Will: Him and Bodhi, the tie is it's like I don't know. They're both amazing characters. I I want more from them.
+[00:27:00] Will: Him and Bodhi, the tie is it's like I don't know. They're both amazing characters. I want more from them.
 
 [00:27:06] Adam: Here's the thing: is I've often said, and I said this on the podcast. I think one of the big differences between the original Star Wars films and the prequels is that the prequels have no real sense of humor. And
 
@@ -786,7 +786,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:28:10] Adam: And just outright guffaws.
 
-[00:28:13] Will: And then and then writing it all the way down, Oh my God.
+[00:28:13] Will: And then writing it all the way down, Oh my God.
 
 [00:28:16] Norm: he puts the jokes to the logical end. Or when he's like, " Fine, I'll stay here," and it just drops the gear. Yeah, He has an emotional climax too when he's given the gun by Jyn and says, " Jyn Erso, you've never you continually surprise me."
 
@@ -820,7 +820,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:28:53] Will: look, I've I've been to a few movies. Adam, I know how this works.
 
-[00:28:55] Norm: But also, it's a Disney film, so I think, yeah, I expected people to die. But even though my brain knew it was gonna happen, I still wanted, like, okay, maybe, maybe it can happen. Maybe one will survive. Well, and it one by one to the very end when they're watching the explosion, I'm like, oh, it's really gonna happen. Yeah,
+[00:28:55] Norm: But also, it's a Disney film, so I think, yeah, I expected people to die. But even though my brain knew it was gonna happen, I still wanted okay, maybe, maybe it can happen. Maybe one will survive. Well, and it one by one to the very end when they're watching the explosion, I'm like, oh, it's really gonna happen. Yeah,
 
 [00:29:14] Will: they don't have to make sequels.
 
@@ -830,7 +830,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:29:34] Adam: And and I found that really really lovely. I found that fantastic. The sacrifice for a greater good. The the
 
-[00:29:43] Norm: the the. Thank goodness that Kyber crystal wasn't just a. Was a red herring and not a lampshade element.
+[00:29:43] Norm: the. Thank goodness that Kyber crystal wasn't just a. Was a red herring and not a lampshade element.
 
 [00:29:48] Adam: Well, and the…
 
@@ -840,11 +840,11 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:29:57] Adam: This is the way I'll defeat the Skeksis.
 
-[00:29:59] Will: I’m Sure, there was a version of the script that had that. So, so the thing, the thing that amazed me is that you go through this whole movie, and the the whole first half of the movie is: is there a real super weapon? Is this like people don't believe it's real?
+[00:29:59] Will: I’m Sure, there was a version of the script that had that. So, so the thing that amazed me is that you go through this whole movie, and the whole first half of the movie is: is there a real super weapon? Is this like people don't believe it's real?
 
 [00:30:12] Norm: Right.
 
-[00:30:12] Will: They there's no sense of urgency, and then all of a sudden, as soon as it becomes clear that this is a thing that exists and it can actually blow up planets, they treat it with the urgency that a weapon that can blow up planets should engender, and everybody gets on board, and they they do the suicide mission.
+[00:30:12] Will: They there's no sense of urgency, and then all of a sudden, as soon as it becomes clear that this is a thing that exists and it can actually blow up planets, they treat it with the urgency that a weapon that can blow up planets should engender, and everybody gets on board, and they do the suicide mission.
 
 [00:30:27] Norm: Yeah,
 
@@ -854,7 +854,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:30:33] Adam: Right. Yeah,
 
-[00:30:33] Norm: and how and how scrappy, and how how even amongst themselves they are not a unified rebellion Alliance.
+[00:30:33] Norm: and how scrappy, and how how even amongst themselves they are not a unified rebellion Alliance.
 
 [00:30:39] Adam: They can't agree to go. And that also I found really cool. I loved the casting of Mon Mothma,
 
@@ -862,7 +862,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:30:44] Adam: who turns out to I realized a third of the way into the film is the blind. Wife, in episodes, she's the wife of the TV producer that Matt LeBlanc has an affair with.
 
-[00:30:57] Norm: You know, she was also Mon Mothma in episode three, deleted scene.
+[00:30:57] Norm: She was also Mon Mothma in episode three, deleted scene.
 
 [00:31:00] Adam: Oh shit
 
@@ -870,11 +870,11 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:31:04] Will: As had Jimmy Smits.
 
-[00:31:05] Norm: And and Jimmy Smits, it's one of the reasons I'd say watch episode three because you have elements like Jimmy Smits as Bail Organa coming back, which I, you know, even though you don't like, I love Jimmy Smits, and I think he's great in Rogue One. And you also have Vader. We got to talk about Vader. Um, he makes two appearances in the film, and he was revealed in the trailer.
+[00:31:05] Norm: And Jimmy Smits, it's one of the reasons I'd say watch episode three because you have elements like Jimmy Smits as Bail Organa coming back, which I even though you don't like, I love Jimmy Smits, and I think he's great in Rogue One. And you also have Vader. We got to talk about Vader. He makes two appearances in the film, and he was revealed in the trailer.
 
 [00:31:24] Unknown speaker: [unclear: Uh, he was / No].
 
-[00:31:25] Norm: They used him in one of the TV spots and one of the last trailer as like you got to buy tickets because Vader's in this. Um, he is used to perfect effect, and we talk about the score and how they didn't waste all the John Williams score, just like scatter it throughout. They bring it in at the right times. Same with Vader.
+[00:31:25] Norm: They used him in one of the TV spots and one of the last trailer as like you got to buy tickets because Vader's in this. He is used to perfect effect, and we talk about the score and how they didn't waste all the John Williams score, just like scatter it throughout. They bring it in at the right times. Same with Vader.
 
 [00:31:40] Unknown speaker: Yeah.
 
@@ -902,11 +902,11 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:32:22] Will: But when he pulls all the blasters out of those poor rebels' hands, and then it's just like throwing [unclear: them, starts sorting / them at the ceiling / him to start sorting].
 
-[00:32:27] Norm: So you can call back to Episode Two when they did the Yoda crazy, you know, Muppet
+[00:32:27] Norm: So you can call back to Episode Two when they did the Yoda crazy Muppet
 
 [00:32:33] Adam: Yeah.
 
-[00:32:34] Norm: flying around, and it's it's the same effect, right?
+[00:32:34] Norm: flying around, and it's the same effect, right?
 
 [00:32:36] Adam: Yeah.
 
@@ -916,9 +916,9 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:32:42] Unknown speaker: right?
 
-[00:32:42] Norm: And it was, but in retrospect, yeah, they didn't need Yoda to go crazy, and they did it because they had CG. Here, it's measured, and I think. They they had that in the rearview mirror.
+[00:32:42] Norm: And it was, but in retrospect, yeah, they didn't need Yoda to go crazy, and they did it because they had CG. Here, it's measured, and I think. They had that in the rearview mirror.
 
-[00:32:52] Will: I think Yoda fighting the way Yoda fought was important for Yoda because you needed to see Yoda as a force powered badass at some point in his arc. But but this
+[00:32:52] Will: I think Yoda fighting the way Yoda fought was important for Yoda because you needed to see Yoda as a force powered badass at some point in his arc. But this
 
 [00:33:00] Adam: look, I agree that was very satisfying. I loved that they went with the deep red lenses of the original Star Wars. It felt very much like I'm looking at the Star Wars Vader with the helmet,
 
@@ -928,7 +928,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:33:12] Will: The bacta tank.
 
-[00:33:13] Norm: And yeah, so that’s, that’s the first scene.
+[00:33:13] Norm: And yeah, so that’s the first scene.
 
 [00:33:15] Will: Yeah. And that was… His base on Mustafar, presumably.
 
@@ -940,7 +940,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:33:21] Norm: Yeah.
 
-[00:33:21] Will: To to to make his hidden lair to like have his me time with his boys.
+[00:33:21] Will: To make his hidden lair to like have his me time with his boys.
 
 [00:33:26] Norm: So that's something our friend Gary actually brought to the script.
 
@@ -954,11 +954,11 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:33:39] Adam: you really got to bring the helmet sometimes,
 
-[00:33:40] Norm: totally. But the fact that it's it's at the end of a lava channel and it takes this chaotic lava energy and then takes puts it into this. Like this waterfall of lava, and the fact that he—it's a place where he can be vulnerable because Vader doesn't have arms and legs, so he's in his his bacta jar, and I think they called it like the the Vader Spa, right? But a place where he's guarded, right? He's guarded by two red guards, and he looks while he's in the jar regenerating, looking at the place where he was born. Like that's a powerful thing, and then you have this great scene with him and Krennic, where Krennic gets put in his place, and you have the power that the the organizational structure reestablished.
+[00:33:40] Norm: totally. But the fact that it's at the end of a lava channel and it takes this chaotic lava energy and then takes puts it into this. Like this waterfall of lava, and the fact that he—it's a place where he can be vulnerable because Vader doesn't have arms and legs, so he's in his his bacta jar, and I think they called it like the Vader Spa, right? But a place where he's guarded, right? He's guarded by two red guards, and he looks while he's in the jar regenerating, looking at the place where he was born. Like that's a powerful thing, and then you have this great scene with him and Krennic, where Krennic gets put in his place, and you have the power that the organizational structure reestablished.
 
 [00:34:18] Adam: The audience when he does the little choke on Krennic and says, " Don't choke on your own aspirations."
 
-[00:34:23] Will: That one, that one though,
+[00:34:23] Will: That one though,
 
 [00:34:25] Norm: I loved it.
 
@@ -968,11 +968,11 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:34:33] Norm: Yes, yeah,
 
-[00:34:34] Will: Oh, I see. So that that and the and the the only two places that I kind of like oh were the that and the Jyn speech to the Rebel Council,
+[00:34:34] Will: Oh, I see. So that that and the only two places that I kind of like oh were the that and the Jyn speech to the Rebel Council,
 
 [00:34:43] Norm: which that that was the thing that felt out of place.
 
-[00:34:44] Will: It went. It was like. She she didn't seem like as a character she was ready to make that speech yet.
+[00:34:44] Will: It went. It was like. She didn't seem like as a character she was ready to make that speech yet.
 
 [00:34:49] Adam: I agree. I agree. I agree. And
 
@@ -980,21 +980,21 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:34:51] Adam: She sold it, and I loved the bit where she's talking to the guys, and they're all actually wearing like World War II helmets.
 
-[00:34:57] Norm: Oh yeah. Oh, casting in this film marvelous. The mustaches, the old '70s British look. I mean, Blue Leader is my hero. He he dies in the film, but he has he chuckles. He has like that World War II pilot look. Yeah.
+[00:34:57] Norm: Oh yeah. Oh, casting in this film marvelous. The mustaches, the old '70s British look. I mean, Blue Leader is my hero. He dies in the film, but he has he chuckles. He has like that World War II pilot look. Yeah.
 
-[00:35:10] Adam: Yeah. Also, you get to see you get to see Donnie Yen do some beautiful martial arts.
+[00:35:10] Adam: Yeah. Also, you get to see Donnie Yen do some beautiful martial arts.
 
 [00:35:14] Will: Okay. So that whole arc, the whole arc that those two characters have.
 
 [00:35:18] Adam: Yes.
 
-[00:35:18] Will: With is he is he just some crackpot that they picked up along the way to
+[00:35:18] Will: With is he just some crackpot that they picked up along the way to
 
 [00:35:23] Adam: a temple guard?
 
 [00:35:24] Unknown speaker: He was a, so I understand,
 
-[00:35:25] Will: but but
+[00:35:25] Will: but
 
 [00:35:26] Norm: so both of those guys, they were both temple guards. They were both Guardians of the Whills, but one had lost his faith. Baze, Blaze, Baze?
 
@@ -1006,7 +1006,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:35:37] Will: Why doesn't everybody have those kinds of blasters?
 
-[00:35:39] Norm: It's it's the Star Wars equivalent of the aliens' minigun.
+[00:35:39] Norm: It's the Star Wars equivalent of the aliens' minigun.
 
 [00:35:43] Will: It's an LMG.
 
@@ -1018,13 +1018,13 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:36:00] Will: That that was yeah,
 
-[00:36:01] Adam: and that I really liked because if you're a student of the Star Wars films, you you you already know this, but Lucas used a lot of Kurosawa in
+[00:36:01] Adam: and that I really liked because if you're a student of the Star Wars films, you already know this, but Lucas used a lot of Kurosawa in
 
 [00:36:10] Will: Star Wars.
 
 [00:36:11] Adam: C-3PO and R2-D2 are Kurosawa characters,
 
-[00:36:11] Unknown speaker: Yeah, yeah, um.
+[00:36:11] Unknown speaker: Yeah, yeah.
 
 [00:36:11] Adam: and that's in the DNA of Star Wars. And those guys felt completely natural being popped in there,
 
@@ -1034,7 +1034,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:36:24] Norm: You get it to the end, just just to win their relationship.
 
-[00:36:27] Will: Well, that's it, and and it's another place that they use to highlight the uncertainty of the time. Is Darth Vader a real thing? The people don't kind of know yet,
+[00:36:27] Will: Well, that's it, and it's another place that they use to highlight the uncertainty of the time. Is Darth Vader a real thing? The people don't kind of know yet,
 
 [00:36:34] Unknown speaker: right, right, right.
 
@@ -1054,7 +1054,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:37:02] Norm: Iceland, essentially. Then you had Jedha.
 
-[00:37:04] Adam: Jedha was beautiful, and what is um, what is the Jewish city on the on the rock where
+[00:37:04] Adam: Jedha was beautiful, and what is the Jewish city on the rock where
 
 [00:37:12] Norm: [unclear: you have the / Um, we have the Scott / we have, uh, the skull]
 
@@ -1064,7 +1064,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:37:16] Adam: Masada,
 
-[00:37:18] Norm: with the sculptures carved into the the mountains.
+[00:37:18] Norm: with the sculptures carved into the mountains.
 
 [00:37:21] Adam: God, I can’t…, this is terrible that I can't remember this.
 
@@ -1076,7 +1076,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:37:29] Norm: and then you have Eadu.
 
-[00:37:32] Will: Eadu was the was the was
+[00:37:32] Will: Eadu was the was
 
 [00:37:34] Norm: the military installation,
 
@@ -1084,11 +1084,11 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:37:37] Norm: And then, finally, oh, I mean Yavin, I guess Yavin, also Yavin Four, which and then Scarif.
 
-[00:37:42] Will: Yeah, so Yavin Four was ripped straight from my childhood memories of what I assume are like bases on the back lot of of 
+[00:37:42] Will: Yeah, so Yavin Four was ripped straight from my childhood memories of what I assume are like bases on the back lot of
 
 [00:37:50] Unknown speaker: Pinewood.
 
-[00:37:50] Will: Pinewood. The the so, the Jedha is the is the highlight I think for me
+[00:37:50] Will: Pinewood. The so, the Jedha is the highlight I think for me
 
 [00:37:58] Adam: because the Masada Masada is I believe what Jedha is based upon because it's effectively looks almost identical.
 
@@ -1096,21 +1096,21 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:38:06] Adam: Yep,
 
-[00:38:06] Will: for the first time in in start an archipelago archipelago planet, but but Jedha the density of that world and the the way that it it kind of captured what I as having never been to a market in the Middle East assume markets in the Middle East feel like.
+[00:38:06] Will: for the first time in start an archipelago archipelago planet, but Jedha the density of that world and the way that it kind of captured what I as having never been to a market in the Middle East assume markets in the Middle East feel like.
 
 [00:38:20] Adam: Yeah.
 
-[00:38:21] Will: Um. They it it was really it was neat the street ambushes and all that stuff worked really well.
+[00:38:21] Will: They it was really it was neat the street ambushes and all that stuff worked really well.
 
 [00:38:26] Norm: Fallen giant mountain giant statues that were the landscape
 
 [00:38:30] Adam: that was really cool.
 
-[00:38:30] Will: Well, and and it also had the tense because of the score. I think a lot of it it had the kind of the the tense feeling that I would expect an occupied city to have.
+[00:38:30] Will: Well, and it also had the tense because of the score. I think a lot of it had the kind of the tense feeling that I would expect an occupied city to have.
 
 [00:38:39] Adam: And again, when you talk about the score, I love the way Giacchino uses the DNA of Williams without ever overtly copying or the brief quotes that. Kept on letting you know you were in a safe space, and yet giving you a brand new Star Wars score.
 
-[00:38:55] Will: It could have been karaoke if it was done poorly, and it was executed. I mean, he did the same thing with the Star Trek score. I don't know if we're surprised. He copied. He he captured the nuance of the original Star Trek music, both and brought it into this new into this new franchise.
+[00:38:55] Will: It could have been karaoke if it was done poorly, and it was executed. I mean, he did the same thing with the Star Trek score. I don't know if we're surprised. He copied. He captured the nuance of the original Star Trek music, both and brought it into this new franchise.
 
 [00:39:08] Norm: I really love that the environments felt they were filled with things from Star Wars, but they didn't feel they were different.
 
@@ -1120,15 +1120,15 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:39:15] Will: The start. The stormtrooper doll.
 
-[00:39:16] Norm: The I mean, just like in Iceland, hadn’t it be, hadn’t it be windy with green grass? It looked gorgeous, and it didn't look like anything we'd seen in Star Wars before.
+[00:39:16] Norm: The I mean, just like in Iceland, hadn’t it be windy with green grass? It looked gorgeous, and it didn't look like anything we'd seen in Star Wars before.
 
-[00:39:26] Will: Well, and and so they did. The screenwriters and Gareth Brown did the thing where they referenced the old movies without like saying, " Hey, look, guys, there’s a, there’s a, there’s this thing over here." Yeah. You know, like like like it was just clearly made by people who love love Star Wars and know Star Wars, but didn't need to go back and explain why the Kessel Run took 12 parsecs instead of an amount of time.
+[00:39:26] Will: Well, and so they did. The screenwriters and Gareth Brown did the thing where they referenced the old movies without like saying, " Hey, look, guys, there’s a, there’s a, there’s this thing over here." Yeah. Like it was just clearly made by people who love love Star Wars and know Star Wars, but didn't need to go back and explain why the Kessel Run took 12 parsecs instead of an amount of time.
 
 [00:39:49] Adam: Right.
 
 [00:39:49] Will: Right. Like, like it wasn't. Yeah. It was just it was it was very it was a deft touch to everything.
 
-[00:39:55] Norm: I and you had the kind of the core elements of a Star Wars film. You had the the kind of confused hero's journey through a marketplace, right?
+[00:39:55] Norm: I and you had the kind of the core elements of a Star Wars film. You had the kind of confused hero's journey through a marketplace, right?
 
 [00:39:55] Unknown speaker: Mm-hmm.
 
@@ -1136,7 +1136,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:40:08] Will: in the same way Han Solo was in the beginning, yeah. The first movie.
 
-[00:40:10] Norm: her mission and Luke, her mission is not clear to her, and so their environment reflects that, where she's kind of like wandering through the Jedha and like, what am I doing here? And then like in the murky, the rainy Eadu, and then it becomes this bright, lush war zone. So you have you have like the the classic three things going on in the finale with the sky battle, like a a war, and then the the infiltration, just like just like in Jedi,
+[00:40:10] Norm: her mission and Luke, her mission is not clear to her, and so their environment reflects that, where she's kind of like wandering through the Jedha and like, what am I doing here? And then like in the murky, the rainy Eadu, and then it becomes this bright, lush war zone. So you have the classic three things going on in the finale with the sky battle a war, and then the infiltration, just like in Jedi,
 
 [00:40:41] Will: yeah,
 
@@ -1150,7 +1150,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:40:45] Adam: really really amazing.
 
-[00:40:49] Will: Well, and and somehow. So so that was the place that that I became to love the pilot, the you know the guy who gets the brain slug tentacle monster treatment,
+[00:40:49] Will: Well, and somehow. So so that was the place that that I became to love the pilot, the you know the guy who gets the brain slug tentacle monster treatment,
 
 [00:40:49] Unknown speaker: Oh, yeah.
 
@@ -1160,11 +1160,11 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:40:49] Unknown speaker: Mm-hmm.
 
-[00:40:59] Will: and and like that was when I was like oh right the balance of action in this has been really really good like it doesn't have that Marvel thing where you're like you know there's going to be a big scene in the open and then there's going to be a fight that they lose and then there's going to be them talking about how to win and then they're going to win. This this felt much more organic and much more real and and the moment in the theater for me when K two S O like people sighed in the theater like oh okay somebody's dead we're cool now right
+[00:40:59] Will: and that was when I was like oh right the balance of action in this has been really really good like it doesn't have that Marvel thing where you're like you know there's going to be a big scene in the open and then there's going to be a fight that they lose and then there's going to be them talking about how to win and then they're going to win. This felt much more organic and much more real and the moment in the theater for me when K two S O like people sighed in the theater like oh okay somebody's dead we're cool now right
 
 [00:41:28] Norm: yeah
 
-[00:41:28] Will: and then and then it just went worse and worse and worse as it progressed.
+[00:41:28] Will: and then it just went worse and worse as it progressed.
 
 [00:41:32] Adam: K two S O dying was very hard to take and very sad but I also loved the fact it's the first time I've seen in a Star Wars movie that a robot should be able to shoot at somebody without looking. I love that K two S O is sitting there talking to them and just shooting stormtroopers off to the side.
 
@@ -1186,7 +1186,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:42:04] Norm: right?
 
-[00:42:04] Will: And he's like, they have to run. The stormtroopers are coming. He's like, well, I got to kill this guy because I got no choice. He's gonna he's gonna rat me out.
+[00:42:04] Will: And he's like, they have to run. The stormtroopers are coming. He's like, well, I got to kill this guy because I got no choice. He's gonna rat me out.
 
 [00:42:10] Norm: Yes.
 
@@ -1208,7 +1208,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:42:24] Norm: When he says, " You know, they are spies, saboteurs, and assassins," and that's
 
-[00:42:27] Adam: and Diego Luna did an amazing job at writing that fine line of the moral ambiguity. You know, not pulling the trigger on on on
+[00:42:27] Adam: and Diego Luna did an amazing job at writing that fine line of the moral ambiguity. Not pulling the trigger on
 
 [00:42:38] Will: Jyn Erso's dad, Galen Erso.
 
@@ -1218,11 +1218,11 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:42:50] Adam: Right, right, right,
 
-[00:42:51] Will: yeah, and and like
+[00:42:51] Will: yeah, and like
 
 [00:42:52] Adam: totally true,
 
-[00:42:52] Will: like that that to me totally recovered the the Jyn Erso scene at the at the council. In a way that I kind of wasn't expecting quite so quick. It's like, oh man, that's a yeah. Okay,
+[00:42:52] Will: like that that to me totally recovered the Jyn Erso scene at the council. In a way that I kind of wasn't expecting quite so quick. It's like, oh man, that's a yeah. Okay,
 
 [00:43:03] Adam: I totally agree.
 
@@ -1232,7 +1232,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:43:07] Norm: Yeah,
 
-[00:43:07] Adam: I'm looking forward to going to see it again. Um, I, I’m just. I’m thrilled by this movie. I'm thrilled by how different it is than all the other eight films,
+[00:43:07] Adam: I'm looking forward to going to see it again. I, I’m just. I’m thrilled by this movie. I'm thrilled by how different it is than all the other eight films,
 
 [00:43:15] Norm: Different, and yet familiar.
 
@@ -1254,7 +1254,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:44:19] Adam: Yeah, it really does. Yeah,
 
-[00:44:21] Will: yeah, awesome. I, I somebody, somebody said, I don't know why you need to have a whole movie to see to find out where the the hole on the spaceship is. It's it's at the end of the trench. You just find the trench and fly to the end. I was like, well, yeah, maybe, but if you dig a three foot hole in the middle of the median on I-40, and you're like, well, go find it. It's there somewhere. Well, also, we're going to be shooting at you the whole time.
+[00:44:21] Will: yeah, awesome. I somebody, somebody said, I don't know why you need to have a whole movie to see to find out where the hole on the spaceship is. It's at the end of the trench. You just find the trench and fly to the end. I was like, well, yeah, maybe, but if you dig a three foot hole in the middle of the median on I-40, and you're like, well, go find it. It's there somewhere. Well, also, we're going to be shooting at you the whole time.
 
 [00:44:42] Adam: It answers the question and asked in Thumb Wars, which was fortunately they included a button that blows the whole thing up. Why would they do that? I don't know. Beats me. I would have left that part out.
 
@@ -1262,11 +1262,11 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:44:52] Norm: it was an inside job all along.
 
-[00:44:54] Will: I um. I I yeah I I was
+[00:44:54] Will: I. I yeah I I was
 
 [00:44:58] Adam: just really just a really really lovely good good solid movie
 
-[00:45:02] Will: and you saw you saw what the money is on the screen right yeah they spent a ton of money on it and it looks like it so yeah
+[00:45:02] Will: and you saw what the money is on the screen right yeah they spent a ton of money on it and it looks like it so yeah
 
 [00:45:07] Adam: I I love this new Star Wars universe and I don't just mean the standalone films but I also mean the creative collaborations the looking for plots and worlds to build outside the main arc of Star Wars it is it it a harbinger of excellent things to come
 
@@ -1292,7 +1292,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:45:41] Adam: I think so
 
-[00:45:42] Will: it's just it's just an hour and a half of Norm
+[00:45:42] Will: it's just an hour and a half of Norm
 
 [00:45:44] Adam: absolutely
 

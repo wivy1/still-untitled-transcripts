@@ -18,7 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:00:58] Kayte: Aw.
 
-[00:00:58] Adam: Yeah. You have. You have. You know, Norm's not here, so we can talk about Norm.
+[00:00:58] Adam: Yeah. You have. You have. Norm's not here, so we can talk about Norm.
 
 [00:01:03] Will: That's not nice.
 
@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:01:11] Kayte: Aw.
 
-[00:01:11] Adam: I noticed that. You know, you've been working on a project with me here for a while, but I noticed that Norm has been reaching out and grabbing you for builds more and more, and they're all the ones that he's super excited about.
+[00:01:11] Adam: I noticed that. You've been working on a project with me here for a while, but I noticed that Norm has been reaching out and grabbing you for builds more and they're all the ones that he's super excited about.
 
 [00:01:24] Kayte: Yeah.
 
@@ -34,13 +34,13 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:01:33] Kayte: I'm like his spirit guide for that. That's so cool.
 
-[00:01:36] Will: It's it's it's it's definitely good for him to have a guide for those types of things.
+[00:01:36] Will: It's definitely good for him to have a guide for those types of things.
 
 [00:01:40] Kayte: Yeah.
 
 [00:01:40] Will: Well, because he gets really anxious when he's building garage kits,
 
-[00:01:43] Adam: Like, and what's the perfect? Norm is a Norm is a maximizer. He wants to make it the best that he can.
+[00:01:43] Adam: Like, and what's the perfect? Norm is a maximizer. He wants to make it the best that he can.
 
 [00:01:49] Will: Well, he's also traditionally when like you haven't been working with him on something, he's really anxious that he's going to mess it up, and he doesn't ever say that.
 
@@ -62,17 +62,17 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:02:26] Kayte: Oh, yeah.
 
-[00:02:27] Will: Well, but but if it's something like if it's your garage kit and you spent a fairly significant amount of money, a lot of times on these things, like you don't want to mess it up. Like it's a thing that I definitely empathize with for people at home.
+[00:02:27] Will: Well, but if it's something like if it's your garage kit and you spent a fairly significant amount of money, a lot of times on these things, like you don't want to mess it up. Like it's a thing that I definitely empathize with for people at home.
 
 [00:02:37] Adam: There was a beautiful kit he was working on a few weeks ago where he laid on some paint and had a whole reaction.
 
 [00:02:43] Will: Oh no!
 
-[00:02:43] Adam: And those can be crippling when you are doing your own thing. When when you are on the clock, it's just like, okay, what do we do?
+[00:02:43] Adam: And those can be crippling when you are doing your own thing. When you are on the clock, it's just like, okay, what do we do?
 
 [00:02:50] Will: Yeah,
 
-[00:02:50] Adam: right. And you and I were both there, and we both had a very, I think, calm reaction to it because we've been there so many times. Like, okay, time to put the last clear coat on. Ah, we screwed it up totally. Like we've been there so many times that it's like, eh, here is what you do: do this, do this, and then you can hide the crimes with some oil paint. And he got totally into this.
+[00:02:50] Adam: right. And you and I were both there, and we both had a very, I think, calm reaction to it because we've been there so many times. Like, okay, time to put the last clear coat on. Ah, we screwed it up totally. Like we've been there so many times that it's like, eh, here is what you do: do this, and then you can hide the crimes with some oil paint. And he got totally into this.
 
 [00:03:10] Kayte: He did.
 
@@ -80,11 +80,11 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:03:11] Adam: It was awesome to watch.
 
-[00:03:13] Will: So it's it's funny, like you say that you kind of calmly guide him through that. There's a coffee forum I read, and about every three months, a new barista comes on, like a third wave barista. I got a job in my local town shop, and they they're letting we're over extracting the espresso here.
+[00:03:13] Will: So it's funny, like you say that you kind of calmly guide him through that. There's a coffee forum I read, and about every three months, a new barista comes on, like a third wave barista. I got a job in my local town shop, and they they're letting we're over extracting the espresso here.
 
 [00:03:27] Adam, Kayte uncertain: Oh, yeah.
 
-[00:03:27] Will: And how do I tell the owner that they're wrong? And the answer the answer is the same every time. Somebody comes in, is like, " Look, if this is what this person's serving, they know that they're serving this. This is what they want to serve. You know, this is what their customers want. You you you are the new guy here. You either get with the program or you leave. And but the the point the larger point is, there's a million ways to make coffee, and then none of none of them are wrong. This is the same thing. There's a million ways to do a lot of this stuff, and it's all right if it gives you the right answer. It’s the result you want.
+[00:03:27] Will: And how do I tell the owner that they're wrong? And the answer is the same every time. Somebody comes in, is like, " Look, if this is what this person's serving, they know that they're serving this. This is what they want to serve. You know, this is what their customers want. You you you are the new guy here. You either get with the program or you leave. And but the the point the larger point is, there's a million ways to make coffee, and then none of none of them are wrong. This is the same thing. There's a million ways to do a lot of this stuff, and it's all right if it gives you the right answer. It’s the result you want.
 
 [00:03:58] Kayte: Totally.
 
@@ -100,21 +100,21 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:04:30] Will: The place to start is CoffeeGeek.org. It's called just search Coffee Geek, and it's a website.
 
-[00:04:35] Adam: We, we ended up.
+[00:04:35] Adam: We ended up.
 
 [00:04:36] Will: It's great.
 
-[00:04:37] Adam: We ended up calling up Ritual, and we hired a barista baristo to come over for about three hours one night, and and basically all the blah blah blah blah blah. It was like do this for this long, do this for this long, and it's fine.
+[00:04:37] Adam: We ended up calling up Ritual, and we hired a barista baristo to come over for about three hours one night, and basically all the blah blah blah blah blah. It was like do this for this long, do this for this long, and it's fine.
 
-[00:04:51] Will: Like 90% of it is getting your grind right, and then once you've done once you've done that, then everything else kind of works itself out.
+[00:04:51] Will: Like 90% of it is getting your grind right, and then once you've done that, then everything else kind of works itself out.
 
-[00:04:58] Adam: And I I actually I bought a grinder that kind of failed. It was a a conical burr grinder, which I that was easy to figure out that that's the best grinder for a consistent grind. And then I bought one, and it wasn't quite great. And I think I brought it and gave it to You or Norm? I can't remember.
+[00:04:58] Adam: And I I actually I bought a grinder that kind of failed. It was a conical burr grinder, which I that was easy to figure out that that's the best grinder for a consistent grind. And then I bought one, and it wasn't quite great. And I think I brought it and gave it to You or Norm? I can't remember.
 
 [00:05:13] Will: Rancilio Rocky, I think is What you had before, right?
 
 [00:05:16] Adam: Yeah, and then I bought. A newer one, a better one that was. I can't. I don't think it was Wire Cutter, but I found a bunch of different sites that are like, oh, this is definitely the best. Prosumer version.
 
-[00:05:26] Will: The Baratza Vario is is I think the the bee's knees.
+[00:05:26] Will: The Baratza Vario is is I think the bee's knees.
 
 [00:05:29] Adam: Well, then I was over at a friend of mine's house who's a chef, and they had the same exact one,
 
@@ -124,7 +124,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:05:40] Will: Do you always buy the same espresso?
 
-[00:05:42] Adam: Yeah, I always buy the the Ritual Sweet Tooth espresso. It's a very it's a very warm blend. It's it's almost sweet. I don't like the San Francisco tang that four barrel.
+[00:05:42] Adam: Yeah, I always buy the Ritual Sweet Tooth espresso. It's a very warm blend. It's almost sweet. I don't like the San Francisco tang that four barrel.
 
 [00:05:55] Will: Oh, you don't like the high acid?
 
@@ -188,7 +188,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:08:03] Adam: Yeah, that's real.
 
-[00:08:04] Will: but man, I know what I'm doing as soon as I leave here. And and B like they feel like you know how you get a new pair of gloves and like your fingers have to work for a while
+[00:08:04] Will: but man, I know what I'm doing as soon as I leave here. And B like they feel like you know how you get a new pair of gloves and like your fingers have to work for a while
 
 [00:08:15] Kayte: right
 
@@ -216,19 +216,19 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:08:39] Adam: the I'm you know every new show is its own entity just like every film you work on has its own culture and everything this one feels like we're up and running at full bore right away which is super cool
 
-[00:08:55] Will: and well you you have a lot of the same team from before
+[00:08:55] Will: and well you have a lot of the same team from before
 
 [00:08:57] Adam: Mm-hmm. we got the band back together
 
-[00:08:58] Will: I I bumped into someone walking around Maker Faire and I was like oh hey I wonder what you guys are doing.
+[00:08:58] Will: I bumped into someone walking around Maker Faire and I was like oh hey I wonder what you guys are doing.
 
 [00:09:03] Kayte: so it feels like you're just slipping right back into your old routine
 
-[00:09:07] Adam: no not the old routine there's a lot about that that's familiar but it's a totally different show so You know, we're trying to, we're trying to find out to let this show reveal itself to us. You know, you you you look at it on the granular level of each build of each piece to camera of each scene, of each story beat of the desires of each kid of what they're interested in of each of the new MythBusters. You know, it's it's this whole alchemy, and we're all sort of on the same page and the production team about like, you know, getting together at the end of each day and being like, " That worked. That one, we we need to figure out better ways to think about that one." And you know,
+[00:09:07] Adam: no not the old routine there's a lot about that that's familiar but it's a totally different show so we're trying to find out to let this show reveal itself to us. You look at it on the granular level of each build of each piece to camera of each scene, of each story beat of the desires of each kid of what they're interested in of each of the new MythBusters. It's this whole alchemy, and we're all sort of on the same page and the production team about like getting together at the end of each day and being like, " That worked. That one, we we need to figure out better ways to think about that one." And you know,
 
 [00:09:46] Will: do you sit down with the kids for that stuff too?
 
-[00:09:48] Adam: We talk openly to them about about the pieces to camera and about getting a natural conversation. That's that's tricky to do for anybody.
+[00:09:48] Adam: We talk openly to them about about the pieces to camera and about getting a natural conversation. That's tricky to do for anybody.
 
 [00:09:56] Will: Yeah,
 
@@ -236,7 +236,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:10:00] Will: When when Norm and I started tested, you can go back and watch the old videos. Like the first three months, we were making videos every day, and they were all bad for like three or four months. Like it took us three or four months before we got to the point that we could have a a conversation that felt normal on camera. That that you know seems sincere and like it's a hard thing to do, and the fact that the kids are picking it up fast is really exciting.
 
-[00:10:23] Adam: Well, and you know they they they they trust us, and that's really the most important part is to build that that environment. One one kid was doing a piece to camera yesterday or a couple days ago, and at the end the language was perfect, but he had to think through the language, so there were pauses between the beats. And at the end, I said that was that was absolutely great. He said, " Really?" I said, " Did you think the pauses were too long?" He said, " Yeah, I did." I said, " Okay, number one, the pauses feel long to you. They didn't sound long, but even more than that, we're not just going to be cutting the whole piece that you're saying into the show. There'll be overlay. You're talking about the build. We'll be cutting to that build while you're talking. We'll be pulling those pauses out if they do feel strange. So we're going to make this work to make you seem even better.
+[00:10:23] Adam: Well, and you know they trust us, and that's really the most important part is to build that that environment. One one kid was doing a piece to camera yesterday or a couple days ago, and at the end the language was perfect, but he had to think through the language, so there were pauses between the beats. And at the end, I said that was absolutely great. He said, " Really?" I said, " Did you think the pauses were too long?" He said, " Yeah, I did." I said, " Okay, number one, the pauses feel long to you. They didn't sound long, but even more than that, we're not just going to be cutting the whole piece that you're saying into the show. There'll be overlay. You're talking about the build. We'll be cutting to that build while you're talking. We'll be pulling those pauses out if they do feel strange. So we're going to make this work to make you seem even better.
 
 [00:11:11] Kayte: Yeah,
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:12:10] Unknown speaker: Nice.
 
-[00:12:12] Adam: No, yeah, we're we're taking the train from LA to Santa Fe.
+[00:12:12] Adam: No, yeah, we're taking the train from LA to Santa Fe.
 
 [00:12:14] Will: That's awesome.
 
@@ -304,7 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:12:34] Will: Oh my! Everything I've seen in Slumdog Millionaire leads me to believe. Yeah.
 
-[00:12:40] Kayte: It it was a very interesting experience. Monkeys ruled the train stations. The toilets just open onto the track.
+[00:12:40] Kayte: It was a very interesting experience. Monkeys ruled the train stations. The toilets just open onto the track.
 
 [00:12:47] Adam: I just want to pause on that phrase. Monkeys ruled the train stations.
 
@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:13:21] Kayte: There you go.
 
-[00:13:22] Adam: I was just watching a movie. What was it? I was just watching a movie that was clear that I was like, oh, this is shot in the LA bus station, which I always recognize because it's where it's where Bryant's office is in Blade Runner.
+[00:13:22] Adam: I was just watching a movie. What was it? I was just watching a movie that was clear that I was like, oh, this is shot in the LA bus station, which I always recognize because it's where Bryant's office is in Blade Runner.
 
 [00:13:34] Will: Yeah, I was gonna say. Oh.
 
@@ -338,27 +338,27 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:13:52] Adam: It's the best.
 
-[00:13:53] Will: Years ago, right around the time, I think right around the time we started working with you, Adam, Amtrak started doing writers in residence programs where, like, you can they do writers and artists and all sorts of different stuff, but they they basically give you a pass to go wherever you want on the train system for a month or three months or something. And the only thing they want out of you is to make like sit and look out the window and make stuff. Oh, yeah. It seemed it seemed really good.
+[00:13:53] Will: Years ago, right around the time, I think right around the time we started working with you, Adam, Amtrak started doing writers in residence programs where you can they do writers and artists and all sorts of different stuff, but they basically give you a pass to go wherever you want on the train system for a month or three months or something. And the only thing they want out of you is to make like sit and look out the window and make stuff. Oh, yeah. It seemed really good.
 
-[00:14:18] Adam: It's um, unlike any other form of travel, it is the actual traveling that's the fun part. Airplanes are amazing. We get into these inflated aluminum bubbles and rocket across in these terrible seats. Even up front, they're terrible seats. They're less terrible to be sure, but they're still terrible. And the airplanes have a model. Airlines have a model in which all their customers, the moment they're done providing their services, their customers run from them. That's how bad this service is. Everyone, get going! And like taxis, cars, limos, 10-pass vans, electric vehicles, bicycles—all these are fine and useful ways to travel. But for some reason, I just remember being in Seattle on my honeymoon, and my wife and I were like, " Oh, tomorrow we go home. Tomorrow we get a 21-hour ride because there is something about this."
+[00:14:18] Adam: It's unlike any other form of travel, it is the actual traveling that's the fun part. Airplanes are amazing. We get into these inflated aluminum bubbles and rocket across in these terrible seats. Even up front, they're terrible seats. They're less terrible to be sure, but they're still terrible. And the airplanes have a model. Airlines have a model in which all their customers, the moment they're done providing their services, their customers run from them. That's how bad this service is. Everyone, get going! And like taxis, cars, limos, 10-pass vans, electric vehicles, bicycles—all these are fine and useful ways to travel. But for some reason, I just remember being in Seattle on my honeymoon, and my wife and I were like, " Oh, tomorrow we go home. Tomorrow we get a 21-hour ride because there is something about this."
 
 [00:15:15] Kayte: Yeah.
 
-[00:15:15] Adam: There's the the fact that we're I you know even on this trip we'll be the youngest people on the train by 10 or 15 years. Yeah, a lot of older folks. Um, the dining car is all four tops, and if you're a couple, there you have to sit with other people because they got to cycle the whole train through. So you're always meeting new people, which is kind of which is amazing. But then, really, for most train trips, the view out the window hasn't changed in 120 years.
+[00:15:15] Adam: There's the fact that we're I you know even on this trip we'll be the youngest people on the train by 10 or 15 years. Yeah, a lot of older folks. The dining car is all four tops, and if you're a couple, there you have to sit with other people because they got to cycle the whole train through. So you're always meeting new people, which is kind of which is amazing. But then, really, for most train trips, the view out the window hasn't changed in 120 years.
 
 [00:15:43] Kayte: Totally.
 
-[00:15:44] Adam: So you go to Colorado. We we went from we did Oakland to Chicago a few years back with a several day layover in Aspen, and the view through the Rockies that that hasn't changed since they put that track down. And that's kind of feels this sort of impressive way in the same way that driving across country gives you a really cool perspective.
+[00:15:44] Adam: So you go to Colorado. We went from we did Oakland to Chicago a few years back with a several day layover in Aspen, and the view through the Rockies that that hasn't changed since they put that track down. And that's kind of feels this sort of impressive way in the same way that driving across country gives you a really cool perspective.
 
-[00:16:04] Will: Well, but but for me, like the one long train ride I've taken, which isn't that long, was from Vancouver to Whistler, and it's kind of a tourist thing where you ride up in the morning and then you like we just rode up in the morning and stayed. But it's like in
+[00:16:04] Will: Well, but for me, like the one long train ride I've taken, which isn't that long, was from Vancouver to Whistler, and it's kind of a tourist thing where you ride up in the morning and then you like we just rode up in the morning and stayed. But it's like in
 
 [00:16:13] Adam: the morning, right back
 
-[00:16:14] Will: three or four hours. Yeah. You get up early in the morning. You get breakfast, and they serve cocktails on the on the train. Like they have the the open air viewing car, so you can like yeah you can see the whole thing
+[00:16:14] Will: three or four hours. Yeah. You get up early in the morning. You get breakfast, and they serve cocktails on the train. Like they have the open air viewing car, so you can like yeah you can see the whole thing
 
 [00:16:23] Adam: yeah.
 
-[00:16:23] Will: And like I as I was riding, I was like, oh man, like not only am I seeing stuff that hasn't changed in 100 years, but also I'm seeing stuff that you're never going to be able to see from the road. Right. And and I somehow was in a vehicle that was moving for four hours without seeing McDonald's, which is also has its own special appeal. Like if. It felt like you were someplace that you don't normally get to see,
+[00:16:23] Will: And like I as I was riding, I was like, oh man, like not only am I seeing stuff that hasn't changed in 100 years, but also I'm seeing stuff that you're never going to be able to see from the road. Right. And I somehow was in a vehicle that was moving for four hours without seeing McDonald's, which is also has its own special appeal. Like if. It felt like you were someplace that you don't normally get to see,
 
 [00:16:45] Kayte: right?
 
@@ -374,7 +374,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:17:02] Kayte: Oh.
 
-[00:17:06] Adam: So yeah, that's all happening this weekend. I I still have because I've been in production. I have not seen Solo yet.
+[00:17:06] Adam: So yeah, that's all happening this weekend. I still have because I've been in production. I have not seen Solo yet.
 
 [00:17:12] Will: Are you doing anything exciting? Are you doing? Do you doing like a talk or anything at NomCon?
 
@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:17:23] Kayte: is this the Rosie project?
 
-[00:17:25] Adam: Yes. So makerspaces all over the country have contributed 3D printed chunks of a of a giant Rosie the Riveter sculpture that Jen has.
+[00:17:25] Adam: Yes. So makerspaces all over the country have contributed 3D printed chunks of a giant Rosie the Riveter sculpture that Jen has.
 
 [00:17:33] Will: Oh, wow!
 
@@ -402,7 +402,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:17:47] Will: Good, good. Yeah, and I mean, I don't know how many pieces 5% is, but you can always jam out your own 3D printer or something.
 
-[00:17:52] Adam: Yeah, so that's that's the main thing. I'm visiting some cool spaces, and of course, just just a lot of a lot of cross pollination. You know, that's the main goal.
+[00:17:52] Adam: Yeah, so that's the main thing. I'm visiting some cool spaces, and of course, just just a lot of cross pollination. You know, that's the main goal.
 
 [00:18:03] Will: Do you feel like this is going to be like mostly like makerspace people and librarians and stuff like that?
 
@@ -410,7 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:18:09] Will: Educators. I'm curious who comes to this.
 
-[00:18:11] Adam: That is a really good question. I'll have to report back on that. Okay. I'm I'm curious myself as to who's chosen to attend.
+[00:18:11] Adam: That is a really good question. I'll have to report back on that. Okay. I'm curious myself as to who's chosen to attend.
 
 [00:18:19] Kayte: Just start polling random people you walk by. What do you do?
 
@@ -436,11 +436,11 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:19:01] Adam: Is it still astounding? Except for smartphones.
 
-[00:19:03] Will: I like it. Is it is like much of fiction of science fiction written about the '90s and 2000s. I watched I watched The Running Man the other day too. Going back in my In my '80s and '90s science fiction, oh my god,
+[00:19:03] Will: I like it. Is it is like much of fiction of science fiction written about the '90s and 2000s. I watched The Running Man the other day too. Going back in my '80s and '90s science fiction, oh my god,
 
 [00:19:16] Adam: Richard Dawson.
 
-[00:19:17] Will: That movie, that movie is prescient.
+[00:19:17] Will: That movie is prescient.
 
 [00:19:19] Kayte: I had a crush on him. Sorry,
 
@@ -462,7 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:19:35] Adam: No, no, he's one of the prisoners. He was the British. He was the British prisoner.
 
-[00:19:40] Will: Yeah, like I didn't, I didn't remember seeing that movie. I think I, I think I watched it on satellite when I was a kid.
+[00:19:40] Will: Yeah, like I didn't remember seeing that movie. I think I watched it on satellite when I was a kid.
 
 [00:19:45] Adam: Television show, not the movie.
 
@@ -470,7 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:19:47] Adam: Oh, Running Man.
 
-[00:19:48] Will: Yes, sorry. I, I think I watched that on the big satellite dish when you could like channels you didn't pay for. You could get video but not audio. So like I would watch a bunch of stuff on HBO when my parents weren't around, and
+[00:19:48] Will: Yes, sorry. I think I watched that on the big satellite dish when you could like channels you didn't pay for. You could get video but not audio. So like I would watch a bunch of stuff on HBO when my parents weren't around, and
 
 [00:19:59] Adam: you got video but no audio.
 
@@ -484,13 +484,13 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:20:05] Adam: Exactly. Or occasionally you might. I think I saw a boob.
 
-[00:20:08] Will: Yeah. It's all the same experiences, but yeah, so. It's amazing how much of the plot of that movie came through without any audio whatsoever. But the thing I didn't know about was the score is pretty amazing. It's like it's like '80s synth. It's almost like a John Carpenter score.
+[00:20:08] Will: Yeah. It's all the same experiences, but yeah, so. It's amazing how much of the plot of that movie came through without any audio whatsoever. But the thing I didn't know about was the score is pretty amazing. It's like '80s synth. It's almost like a John Carpenter score.
 
 [00:20:24] Kayte: Hmm.
 
 [00:20:24] Will: It was really good. Like I was really pleasantly surprised by it. I wasn't expecting much.
 
-[00:20:29] Adam: We watched we watched Raiders the other night at the Alamo Drafthouse.
+[00:20:29] Adam: We watched Raiders the other night at the Alamo Drafthouse.
 
 [00:20:33] Kayte: Yeah, we did.
 
@@ -516,25 +516,25 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:21:12] Adam: I didn't see. How, what was okay?
 
-[00:21:14] Will: I've not. I've kind of been afraid to watch it. I'll be honest. I downloaded that one too. The The Raiders one is incredible.
+[00:21:14] Will: I've not. I've kind of been afraid to watch it. I'll be honest. I downloaded that one too. The Raiders one is incredible.
 
 [00:21:21] Adam: I noticed something this time watching Raiders that I had not seen before,
 
 [00:21:24] Will: really,
 
-[00:21:24] Adam: which was when when they get to the well of souls and they really start uncovering it, and the lightning's happening, and it's very dramatic up there on that little hilly top. They cut several times to Harrison Ford in the throes of zeal. That's the best way to describe it, like this. You know, just the close up on his face where he's like, " Ah, I'm getting the thing I always wanted," and it's a. I want to watch it again because Spielberg cuts to this shot for many of the characters. Belloq gets that look just before he dies, and so do the other two Nazis Toht, and the other guy whose name never gets told. But it happens to Ford. Too, so you get to see his
+[00:21:24] Adam: which was when they get to the well of souls and they really start uncovering it, and the lightning's happening, and it's very dramatic up there on that little hilly top. They cut several times to Harrison Ford in the throes of zeal. That's the best way to describe it, like this. Just the close up on his face where he's like, " Ah, I'm getting the thing I always wanted," and it's a. I want to watch it again because Spielberg cuts to this shot for many of the characters. Belloq gets that look just before he dies, and so do the other two Nazis Toht, and the other guy whose name never gets told. But it happens to Ford. Too, so you get to see his
 
 [00:22:12] Will: raw avarice.
 
 [00:22:14] Adam: Yeah, exactly, and it's really fascinating. I didn't realize.
 
-[00:22:16] Will: I wonder if that's one of the things that doesn't come across on the home video. I wonder if you don't you don't get. I wonder if you lose the detail on the small screen versus the big screen.
+[00:22:16] Will: I wonder if that's one of the things that doesn't come across on the home video. I wonder if you don't get. I wonder if you lose the detail on the small screen versus the big screen.
 
 [00:22:25] Kayte: Could be.
 
 [00:22:26] Adam: That's curious
 
-[00:22:26] Will: because, like, there's there's one of the things that always struck me because I saw that in theaters before they released Last Crusade. They ran both the old movies in my theater when I was a kid, and I remember thinking, " Oh man, the lightning looks really good here," like the because it's like matte painting lightning. It's yeah, it's just hand animated, and then you go back and watch on the DVD and Blu-ray releases, and it and it it looks bad. Um, and I think I think some of that stuff is it's it's it's the thing we talked about with Pacific Rim. Like that movie does not look as good. It has a completely different impact at home than it does when you watch it on like a giant IMAX screen or something.
+[00:22:26] Will: because there's there's one of the things that always struck me because I saw that in theaters before they released Last Crusade. They ran both the old movies in my theater when I was a kid, and I remember thinking, " Oh man, the lightning looks really good here," like the because it's like matte painting lightning. It's yeah, it's just hand animated, and then you go back and watch on the DVD and Blu-ray releases, and it looks bad. And I think some of that stuff is it's the thing we talked about with Pacific Rim. Like that movie does not look as good. It has a completely different impact at home than it does when you watch it on like a giant IMAX screen or something.
 
 [00:22:58] Adam: Also, I never can't see. It's only in one shot. The snake stuff is so well done. The mix between real and rubber, the different ways they shoot in forced perspective and stuff like that. And the glasswork, because in a lot of the scenes where Cobra is like looking at Indy, there's a big pane of glass between him and the Cobra.
 
@@ -544,7 +544,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:23:22] Kayte: Right.
 
-[00:23:23] Adam: and in the Marion shot of the snake, it's there's like all this reflection that you can see, and you just once you see it, you know, with the DLP projector, like once you realize you can slide your eyes across and see that rainbow RGB rainbow,
+[00:23:23] Adam: and in the Marion shot of the snake, it's there's like all this reflection that you can see, and you just once you see it with the DLP projector, like once you realize you can slide your eyes across and see that rainbow RGB rainbow,
 
 [00:23:36] Will: yeah,
 
@@ -580,15 +580,15 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:24:50] Kayte: Yes.
 
-[00:24:50] Adam: And so they built all these costumes for six foot three Tom Selleck, and then they had to. Deborah Nadoolman Landis told me that when Harrison Ford came on, they they had one jacket in the beginning because that's all they had time to make before he arrived. Yeah, but Harrison Ford is so amazing, and he's on this set, and he says. Yeah, I don't really like being in front of people. I know that seems weird, but I'm just not comfortable being in front of people. And that sort of low affect he can have in interviews, and he's like, " This being on camera, this this is I find this pretty easy. Not the acting part, but just like the it doesn't it doesn't bother him. Yeah, he's like, I can do my job here. I just don't like being in front of people.
+[00:24:50] Adam: And so they built all these costumes for six foot three Tom Selleck, and then they had to. Deborah Nadoolman Landis told me that when Harrison Ford came on, they had one jacket in the beginning because that's all they had time to make before he arrived. Yeah, but Harrison Ford is so amazing, and he's on this set, and he says. Yeah, I don't really like being in front of people. I know that seems weird, but I'm just not comfortable being in front of people. And that sort of low affect he can have in interviews, and he's like, " This being on camera, this this is I find this pretty easy. Not the acting part, but just like the it doesn't it doesn't bother him. Yeah, he's like, I can do my job here. I just don't like being in front of people.
 
-[00:25:38] Will: Yeah, that that every time I watch that movie, I I see the last time I watched, I noticed the one of the I think it's the first one when he's teaching class and he the the girl in the front row blinks and her eyes she's written like I love you on her eyelids or something.
+[00:25:38] Will: Yeah, that that every time I watch that movie, I I see the last time I watched, I noticed the one of the I think it's the first one when he's teaching class and he the girl in the front row blinks and her eyes she's written like I love you on her eyelids or something.
 
 [00:25:51] Adam: Yeah,
 
 [00:25:51] Will: yeah, like it's there's something new every time. It's a spectacular film.
 
-[00:25:54] Adam: Um, the one that I always notice is my favorite might be one of my favorite double takes in film, and it's when the Nazi has the gun drawn on Indy in the Ravenwood bar, and you hear a gunshot, but it's Marion shooting the guy.
+[00:25:54] Adam: The one that I always notice is my favorite might be one of my favorite double takes in film, and it's when the Nazi has the gun drawn on Indy in the Ravenwood bar, and you hear a gunshot, but it's Marion shooting the guy.
 
 [00:26:12] Will: Oh right,
 
@@ -598,9 +598,9 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:26:31] Adam: amazing.
 
-[00:26:32] Will: Yes, and then then he gets it faster with more intensity from George Lucas on Empire. Um, yeah, yeah. Well, I mean, I feel like that's as good as place as any to wrap it up.
+[00:26:32] Will: Yes, and then he gets it faster with more intensity from George Lucas on Empire. Um, yeah, yeah. Well, I mean, I feel like that's as good as place as any to wrap it up.
 
-[00:26:43] Adam: Um, I I did want to say one thing. Uh, I I my wife and I are big fans of this romantic comedy called The Jane Austen Book Club. Um, weirdly, we've shown it to several different people over the years because we we really enjoy it. It's a great script. It's an amazing cast of Amy Brenneman and Maria Bello and Kathy Baker. I mean, Jimmy Smits. It's a phenomenal cast. It's a really good script, and in it, one of the characters suggests to another, " Oh, you should read," because they're all reading Jane Austen. He suggests to a woman that brought him into the Jane Austen book club, " You should read Ursula Le Guin. I think you'd really like her." And it had been so long since I've I've read I think one or two Ursula Le Guin books when I was 18 or 19. So I picked up Left Hand of Darkness, and it has been rocking my world,
+[00:26:43] Adam: I did want to say one thing. I my wife and I are big fans of this romantic comedy called The Jane Austen Book Club. Weirdly, we've shown it to several different people over the years because we really enjoy it. It's a great script. It's an amazing cast of Amy Brenneman and Maria Bello and Kathy Baker. I mean, Jimmy Smits. It's a phenomenal cast. It's a really good script, and in it, one of the characters suggests to another, " Oh, you should read," because they're all reading Jane Austen. He suggests to a woman that brought him into the Jane Austen book club, " You should read Ursula Le Guin. I think you'd really like her." And it had been so long since I've I've read I think one or two Ursula Le Guin books when I was 18 or 19. So I picked up Left Hand of Darkness, and it has been rocking my world,
 
 [00:27:35] Will: really
 
@@ -608,11 +608,11 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:28:03] Will: An anarcho-syndicalist commune?
 
-[00:28:05] Adam: It's it's more like it's more like they they commerce is their common goal, and it's not like it's not like avaricious commerce. It's just like to the benefit of all, right? But the book takes place with an envoy visiting a planet that has not yet been brought into the fold, so they don't know other planets exist. Full of sentient beings, they're all effectively humanoid because of seeding done long time ago. I guess or some plot thing.
+[00:28:05] Adam: It's more like they commerce is their common goal, and it's not like avaricious commerce. It's just like to the benefit of all, right? But the book takes place with an envoy visiting a planet that has not yet been brought into the fold, so they don't know other planets exist. Full of sentient beings, they're all effectively humanoid because of seeding done long time ago. I guess or some plot thing.
 
 [00:28:31] Will: Yeah, it doesn't matter.
 
-[00:28:32] Adam: But the the envoy is on a planet in which the inhabitants have no gender.
+[00:28:32] Adam: But the envoy is on a planet in which the inhabitants have no gender.
 
 [00:28:38] Kayte: Huh.
 
@@ -628,7 +628,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:29:16] Kayte: Ah.
 
-[00:29:16] Adam: It's and and they talk. There's a lot given to the cultural weirdness of someone with a gender visiting a planet in which gender plays no role at all in the society.
+[00:29:16] Adam: It's and they talk. There's a lot given to the cultural weirdness of someone with a gender visiting a planet in which gender plays no role at all in the society.
 
 [00:29:28] Will: Oh, that's interesting.
 
@@ -638,11 +638,11 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:29:44] Adam: No, no.
 
-[00:29:45] Will: If you if you like Ursula Le Guin, you'll love read Consider Phlebas.
+[00:29:45] Will: If you like Ursula Le Guin, you'll love read Consider Phlebas.
 
 [00:29:50] Adam: Okay,
 
-[00:29:51] Will: it's it is it's the same kind of far future. Like, what happens if these dials that we don't have access to that we have that we have grown up as being part of are no longer Relevant or interesting? Very. It's yeah. It's very good. Very similar to that.
+[00:29:51] Will: it's it is it's the same kind of far future. Like, what happens if these dials that we don't have access to that we have grown up as being part of are no longer Relevant or interesting? Very. It's yeah. It's very good. Very similar to that.
 
 [00:30:07] Adam: Yeah. And now that we're reaching the end of this podcast, I'm a little. I feel a little nervous that we brought Kayte on and we've basically talked the whole time. We haven't spoken very much, and I feel I I feel a little self conscious about that.
 
@@ -650,7 +650,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:30:22] Will: We we'll give you 15 minutes. The floor is yours, Kayte. Just fill the air. We're here. It's all good.
 
-[00:30:27] Adam: I I I I I don't want to talk about the project you're working on because I kind of want to keep it secret until we have a reveal.
+[00:30:27] Adam: I don't want to talk about the project you're working on because I kind of want to keep it secret until we have a reveal.
 
 [00:30:33] Kayte: It'll be a good reveal. It'll be a good reveal.
 
@@ -678,7 +678,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:31:18] Kayte: Yeah.
 
-[00:31:18] Adam: Um, you can head over and next time you're at the Tested offices, I think that's where it is right now.
+[00:31:18] Adam: You can head over and next time you're at the Tested offices, I think that's where it is right now.
 
 [00:31:24] Will: Okay.
 
@@ -700,11 +700,11 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:31:47] Unknown speaker: Isn't it awesome?
 
-[00:31:44] Will: It's very good. I have never been happier than when for for a person that I've been watching just a video on YouTube or on the internet of. Like when Zoe got that first drift, and she was like, the first time she felt it, and was like, " I was like, yeah,
+[00:31:44] Will: It's very good. I have never been happier than when for a person that I've been watching just a video on YouTube or on the internet of. Like when Zoe got that first drift, and she was like, the first time she felt it, and was like, " I was like, yeah,
 
 [00:32:02] Adam: oh, oh,
 
-[00:32:02] Will: this feels, this feels, yes.
+[00:32:02] Will: this feels, yes.
 
 [00:32:06] Adam: Oh, also, the 1,000 shot Nerf gun went live yesterday.
 
@@ -722,7 +722,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:32:19] Adam: it has a magazine hopper that shoots 100 rounds.
 
-[00:32:21] Will: Yeah, and it shoots them really fast. We used one at the live show to do the William Tell bit, the the the switch perspective William Tell bit a few years ago.
+[00:32:21] Will: Yeah, and it shoots them really fast. We used one at the live show to do the William Tell bit, the switch perspective William Tell bit a few years ago.
 
 [00:32:27] Adam: So this is fully automatic, so it'll shoot 100 shots without stopping. So I modified it into a magazine that held 10 times that many.
 
@@ -738,7 +738,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:32:59] Adam: Yeah,
 
-[00:32:59] Will: great. Yeah, and I guess we'll be back next week with more. Kayte, where can people find you if they? Um, your Instagram or
+[00:32:59] Will: great. Yeah, and I guess we'll be back next week with more. Kayte, where can people find you if they? Your Instagram or
 
 [00:33:06] Kayte: yeah, Instagram is is the thing I use the most. I post a lot of like progress shots of everything I'm working on. So it's just my name, which is spelled weird. So K A Y T E S A B I C E R.
 

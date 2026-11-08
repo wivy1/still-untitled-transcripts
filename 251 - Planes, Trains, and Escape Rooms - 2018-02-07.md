@@ -16,7 +16,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:00:48] Will: It's for people that are about three inches shorter than me.
 
-[00:00:52] Adam: There, yeah, you know, they they really are. Like, I think there's height requirements in the in in flying fighter jets. What are the
+[00:00:52] Adam: There, yeah they really are. Like, I think there's height requirements in the in flying fighter jets. What are the
 
 [00:00:58] Norm: buckles on that like? The seat belt buckles.
 
@@ -46,7 +46,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:01:34] Will: those used to be in cars though. That's why old timey cars had buckles, right?
 
-[00:01:38] Norm: Right. They put the belt in and snap the the hinge over.
+[00:01:38] Norm: Right. They put the belt in and snap the hinge over.
 
 [00:01:41] Adam: You know what gets me in cars?
 
@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:02:02] Will: Oh, in the back seat,
 
-[00:02:03] Adam: yeah. Right, they make them. They, they, they, they polarize them, as it were. So you can only clip the middle seat belt into the middle seat belt receiver, and the the window seat belt into the window seat belt receiver. I understand why they do that.
+[00:02:03] Adam: yeah. Right, they make them. They polarize them, as it were. So you can only clip the middle seat belt into the middle seat belt receiver, and the window seat belt into the window seat belt receiver. I understand why they do that.
 
 [00:02:15] Will: Yeah.
 
@@ -80,7 +80,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:02:39] Norm: I need you to be safe.
 
-[00:02:40] Adam: It's, It's one of those like you've made a modification that I don't think is necessary for a problem that rarely exists, that almost never exists. I mean, I guess you know what? Actually, now that I am thinking about it,
+[00:02:40] Adam: It's one of those like you've made a modification that I don't think is necessary for a problem that rarely exists, that almost never exists. I mean, I guess you know what? Actually, now that I am thinking about it,
 
 [00:02:52] Will: yeah,
 
@@ -90,13 +90,13 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:03:08] Will: So it's a car seat
 
-[00:03:08] Adam: thing, yeah, but it's plausibly a um, it's probably a regulation issue and a cost issue,
+[00:03:08] Adam: thing, yeah, but it's plausibly a it's probably a regulation issue and a cost issue,
 
-[00:03:14] Will: probably because the the the the shoulder needs to be attached to the same
+[00:03:14] Will: probably because the shoulder needs to be attached to the same
 
 [00:03:19] Adam: Yep.
 
-[00:03:19] Will: physical seat as the as the thing.
+[00:03:19] Will: physical seat as the thing.
 
 [00:03:22] Adam: It could be something like that.
 
@@ -122,7 +122,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:04:10] Will: That would be a crazy show.
 
-[00:04:11] Norm: You see the YouTube videos where they sell on like the the fancy, like
+[00:04:11] Norm: You see the YouTube videos where they sell on like the fancy, like
 
 [00:04:14] Adam: Yeah, the new first class bed seats.
 
@@ -140,17 +140,17 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:04:28] Will: good luck, mother.
 
-[00:04:29] Norm: And related to that, I mean, in the article they explain, you know, as we all know, the seatbelt on the airplane is not gonna. It's really not for crashes
+[00:04:29] Norm: And related to that, I mean, in the article they explain as we all know, the seatbelt on the airplane is not gonna. It's really not for crashes
 
 [00:04:39] Will: It's to keep you from becoming a projectile.
 
 [00:04:40] Norm: It's just for turbulence.
 
-[00:04:42] Adam: And good good for it. I love tightening that seatbelt when we're in turbulence. I I don't want to hit the ceiling.
+[00:04:42] Adam: And good good for it. I love tightening that seatbelt when we're in turbulence. I don't want to hit the ceiling.
 
 [00:04:47] Will: I like tightening it when we're not in turbulence. That's the. It's much better to tighten it before you're in turbulence than while you're in turbulence.
 
-[00:04:52] Adam: True, And yet, and yet, for some reason, I need it loose until and unless.
+[00:04:52] Adam: True, And yet, for some reason, I need it loose until and unless.
 
 [00:04:56] Norm: And turbulence is not just one direction. Turbulence is side to side, which is why it's not a three point. Belt buckle, because that your chest moving has it really doesn't matter. It's really just your hips.
 
@@ -158,15 +158,15 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:05:09] Norm: Do you know the four point?
 
-[00:05:09] Will: Do you know those? That the um. So have you? You guys have been in serious turbulence on the plane, right?
+[00:05:09] Will: Do you know those? That the. So have you? You guys have been in serious turbulence on the plane, right?
 
 [00:05:14] Adam: I have not.
 
-[00:05:15] Will: Okay, so when I was 12 or 13 years old, my dad and I came to Colorado and we flew over the Rockies on the way back, and it was springtime and it was storming, and it was one of those situations where like the entire Mississippi Valley was flooded because there was so much rain on the western half of the United States, and we hit places where the plane was jumping. What felt like 10 or 12 feet. It felt like we're on a roller coaster, and like it happened immediately. Like there was no. They said, " Hey, it's going to get bumpy. Everybody, put your seatbelts on." The seatbelt light was lit, and then the flight attendant got on the speaker when people were up walking around. Still was like, " Look, motherfucker, sit down because it's about to get bad."
+[00:05:15] Will: Okay, so when I was 12 or 13 years old, my dad and I came to Colorado and we flew over the Rockies on the way back, and it was springtime and it was storming, and it was one of those situations where like the entire Mississippi Valley was flooded because there was so much rain on the western half of the United States, and we hit places where the plane was jumping. What felt like 10 or 12 feet. It felt like we're on a roller coaster, and it happened immediately. Like there was no. They said, " Hey, it's going to get bumpy. Everybody, put your seatbelts on." The seatbelt light was lit, and then the flight attendant got on the speaker when people were up walking around. Still was like, " Look, motherfucker, sit down because it's about to get bad."
 
 [00:05:53] Norm: Right.
 
-[00:05:53] Will: And um, it was it was it was like I never ever ever. Am up and about in the airplane with my seatbelt off, unless it's it.
+[00:05:53] Will: And it was like I never ever ever. Am up and about in the airplane with my seatbelt off, unless it's it.
 
 [00:06:04] Adam: yeah, yeah, yeah.
 
@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:06:48] Adam: You mean your thongs?
 
-[00:06:49] Will: Sorry. Yeah, look, we're in America, Adam. I'm a man.. None of that, none of that thong business.
+[00:06:49] Will: Sorry. Yeah, look, we're in America, Adam. I'm a man.. None of that thong business.
 
 [00:06:55] Norm: Unrelated, but in the same vein, not obscure. There is also another article written questioning why. Have you ever tried not taking the napkin, the paper napkin?
 
@@ -212,7 +212,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:07:17] Will: Okay.
 
-[00:07:17] Norm: Even you let them. I I don't need one. They will always give you that small dinky.
+[00:07:17] Norm: Even you let them. I don't need one. They will always give you that small dinky.
 
 [00:07:21] Will: How come?
 
@@ -222,9 +222,9 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:07:23] Adam: there is an article about it, and they still didn't conclude why?
 
-[00:07:25] Norm: They don't they don't conclude why.
+[00:07:25] Norm: They don't conclude why.
 
-[00:07:26] Adam: That's a bad article. That's a that's a standard internet article. It's two paragraphs long, and it felt like it was the middle, but it was the end.
+[00:07:26] Adam: That's a bad article. That's a standard internet article. It's two paragraphs long, and it felt like it was the middle, but it was the end.
 
 [00:07:32] Norm: It could have been a tweet.
 
@@ -234,9 +234,9 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:07:37] Adam: please, yeah, their jobs are awful.
 
-[00:07:40] Will: Yeah, it's it's a hard job.
+[00:07:40] Will: Yeah, it's a hard job.
 
-[00:07:41] Adam: Yes, yes, there is a difficult job. Um, uh, uh, I have found that that flight attendants get very, very, um, confused when I don't ask for anything. Like if I don't, the water that was there when I got there was plenty for me for most flights. I don't eat on flights.
+[00:07:41] Adam: Yes, yes, there is a difficult job. I have found that that flight attendants get very, very confused when I don't ask for anything. Like if I don't, the water that was there when I got there was plenty for me for most flights. I don't eat on flights.
 
 [00:07:57] Will: Yeah,
 
@@ -256,11 +256,11 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:08:19] Will: Don't waste your life on this food.
 
-[00:08:21] Adam: Yeah, no, no, no, no. But they they look very confused. Um, I I a shout out to the incredible flight crews of New Zealand Air.
+[00:08:21] Adam: Yeah, no, no, no, no. But they look very confused. I a shout out to the incredible flight crews of New Zealand Air.
 
 [00:08:29] Will: Okay,
 
-[00:08:29] Adam: gracefully took me to and from my trip down under. Um, I flew into New Zealand. I flew out of Australia, but back via New Zealand Air, and I love those crews. They are just the sunniest, the most awesome, and I mean, I think I extolled their virtues last week.
+[00:08:29] Adam: gracefully took me to and from my trip down under. I flew into New Zealand. I flew out of Australia, but back via New Zealand Air, and I love those crews. They are just the sunniest, the most awesome, and I mean, I think I extolled their virtues last week.
 
 [00:08:44] Will: This is not a paid product placement. FTC.
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:08:51] Adam: good NZ and their airlines.
 
-[00:08:52] Norm: You know, You talk about cars. You talk about planes. I want to talk about trains.
+[00:08:52] Norm: You talk about cars. You talk about planes. I want to talk about trains.
 
 [00:08:56] Will: Okay, you took a train ride.
 
@@ -286,7 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:09:01] Adam: Where did you go?
 
-[00:09:01] Norm: Just L A. I, I.
+[00:09:01] Norm: Just L A. I.
 
 [00:09:04] Will: Just you?. If that was Muni, I would have been really disappointed.
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:09:17] Norm: a few blocks away from Pixar. 12 hours from that to Los Angeles Union Station, and then we flew back next morning.
 
-[00:09:25] Will: Why did it take so? Did you did you stop at every town?
+[00:09:25] Will: Why did it take so? Did you stop at every town?
 
 [00:09:27] Adam: Yeah, was that
 
@@ -318,11 +318,11 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:09:35] Will: okay,
 
-[00:09:35] Norm: and I don't I don't know if there. I don't believe there is.
+[00:09:35] Norm: and I don't know if there. I don't believe there is.
 
 [00:09:37] Adam: Is it a lovely ride?
 
-[00:09:38] Norm: So the reason we did it is because Amtrak, and I know there's been a lot of Amtrak in the news recently because of the recent collisions, and there was actually a collision this past weekend on the the East Coast. Amtrak was one of their most prized lines because Amtrak is a is a combination of all the the past railroads and rail world companies which built their own lines, had their own cars, had their own engines, and on the West Coast, the one that goes. Up and down the West Coast is the Coast Starlight,
+[00:09:38] Norm: So the reason we did it is because Amtrak, and I know there's been a lot of Amtrak in the news recently because of the recent collisions, and there was actually a collision this past weekend on the East Coast. Amtrak was one of their most prized lines because Amtrak is a combination of all the past railroads and rail world companies which built their own lines, had their own cars, had their own engines, and on the West Coast, the one that goes. Up and down the West Coast is the Coast Starlight,
 
 [00:10:06] Adam: right?
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:10:19] Adam: Viewing observation deck or anything? like that?
 
-[00:10:21] Norm: I'll show you some photos. I'll actually post some. It has the the it is like the equivalent of the viewing deck on most of these cars. Most most trains have a car where it's like the Mule car
+[00:10:21] Norm: I'll show you some photos. I'll actually post some. It has the it is like the equivalent of the viewing deck on most of these cars. Most most trains have a car where it's like the Mule car
 
 [00:10:31] Adam: Yeah.
 
@@ -350,11 +350,11 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:10:48] Adam: Exactly. I've taken that. Hope to take it again this summer. Actually,
 
-[00:10:51] Norm: so the the Parlor car, the Pacific Parlor car on the Amtrak, is not that it is an observation car, but it's all wood and benches and parlor tables and a bar, and downstairs there's a little movie theater room.
+[00:10:51] Norm: so the Parlor car, the Pacific Parlor car on the Amtrak, is not that it is an observation car, but it's all wood and benches and parlor tables and a bar, and downstairs there's a little movie theater room.
 
 [00:11:06] Adam: Did you play like? Cribbage with some of your co.
 
-[00:11:09] Norm: We we made a puzzle. We put together a puzzle,
+[00:11:09] Norm: We made a puzzle. We put together a puzzle,
 
 [00:11:11] Adam: okay,
 
@@ -362,7 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:11:17] Adam: You were the youngest people on the train by by 25 years,
 
-[00:11:19] Norm: by far. Oh yes, yeah, yes. A lovely gentleman we met, Eric, who's a school teacher and has ridden every long train ride across country, called it his favorite his favorite route. And they shut down that parlor car because of how expensive it is to maintain. It was the last ride.
+[00:11:19] Norm: by far. Oh yes, yeah, yes. A lovely gentleman we met, Eric, who's a school teacher and has ridden every long train ride across country, called it his favorite route. And they shut down that parlor car because of how expensive it is to maintain. It was the last ride.
 
 [00:11:35] Adam: This was the last ride.
 
@@ -384,7 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:12:03] Norm: Yeah, yeah. And we just sat there watching the coastline. It's basically right by 101. You see the sunset on Santa Barbara, and we having the meals. It's all pre-paid for because we're in the sleeper car. It was just like a 12-hour spa on a train.
 
-[00:12:19] Will: So this, when you go, when you go to the California, the starlight, the
+[00:12:19] Will: So this, when you go to the California, the starlight, the
 
 [00:12:22] Norm: Coast Starlight.
 
@@ -392,7 +392,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:12:30] Norm: That's awesome.
 
-[00:12:31] Adam: So my my Julie and I have taken a train from. Yeah, we've taken the train from New York to Montreal.
+[00:12:31] Adam: So my Julie and I have taken a train from. Yeah, we've taken the train from New York to Montreal.
 
 [00:12:39] Will: Oh, that's awesome! Oh God,
 
@@ -404,9 +404,9 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:13:24] Norm: That's right,
 
-[00:13:24] Adam: and and that's thrilling to me. That feels like an incredible way to see America and to experience the country.
+[00:13:24] Adam: and that's thrilling to me. That feels like an incredible way to see America and to experience the country.
 
-[00:13:30] Norm: Could not recommend it enough. Even with this car leaving the service, it's still a wonderful journey. And the train enthusiasts we talked to—they said this car made it this route. This parlor car made this route the best, the favorite route. But second, if you're going for the views, it is what you're talking about—the Rockies and San Francisco to Denver, then to Chicago—is the California Zephyr. It's two and a half days. If you just want to do, because it gets expensive if you want to do the the sleeper car. Um, just from San Francisco to Denver, or actually from Denver to San Francisco,
+[00:13:30] Norm: Could not recommend it enough. Even with this car leaving the service, it's still a wonderful journey. And the train enthusiasts we talked to—they said this car made it this route. This parlor car made this route the best, the favorite route. But second, if you're going for the views, it is what you're talking about—the Rockies and San Francisco to Denver, then to Chicago—is the California Zephyr. It's two and a half days. If you just want to do, because it gets expensive if you want to do the sleeper car. Just from San Francisco to Denver, or actually from Denver to San Francisco,
 
 [00:14:08] Adam: yeah,
 
@@ -450,7 +450,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:16:03] Adam: Across 20 people, that's $500.
 
-[00:16:05] Norm: They do tour groups and charter groups. I think they can. Pack like 70 people on on a car.
+[00:16:05] Norm: They do tour groups and charter groups. I think they can. Pack like 70 people on a car.
 
 [00:16:10] Adam: If you brought like 30 30 close friends and you're just all together, that could be amazing.
 
@@ -470,7 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:16:27] Norm: Yeah, but you'd sleep on the other car and walk on that car.
 
-[00:16:31] Adam: Yeah, we we did the um the first time we went, we got the um family sleeper because we thought it would be actually, because it is the largest sleeper, but it's on the bottom.
+[00:16:31] Adam: Yeah, we did the first time we went, we got the family sleeper because we thought it would be actually, because it is the largest sleeper, but it's on the bottom.
 
 [00:16:39] Norm: Yes,
 
@@ -478,19 +478,19 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:16:52] Norm: Yeah.
 
-[00:16:52] Will: Well, so the the route that I've always wanted to do is the Seattle to Minneapolis one that goes through like north through the Badlands and through Montana and all that.
+[00:16:52] Will: Well, so the route that I've always wanted to do is the Seattle to Minneapolis one that goes through like north through the Badlands and through Montana and all that.
 
 [00:16:59] Adam: Wow. Yeah.
 
-[00:17:00] Will: Just in in like the few last remaining desolate parts of the country, right? Yeah. Um. The other thing I was gonna say is that there's a, there's, people charter trains, so the train jam is a game jam, a video game jam that happens in the week before the game developer conference, which is here in San Francisco every spring. And they get on the train in Chicago and spend the three or four days going from Chicago to San Francisco, basically broken up into small teams and making a bunch of kind of you know four day game jam games, and then they present them when they get to GDC.
+[00:17:00] Will: Just in like the few last remaining desolate parts of the country, right? Yeah. The other thing I was gonna say is that there's a, there's, people charter trains, so the train jam is a game jam, a video game jam that happens in the week before the game developer conference, which is here in San Francisco every spring. And they get on the train in Chicago and spend the three or four days going from Chicago to San Francisco, basically broken up into small teams and making a bunch of kind of you know four day game jam games, and then they present them when they get to GDC.
 
 [00:17:35] Adam: Oh, that's cool.
 
-[00:17:36] Will: And and it's like one of those things that like last year I was talking to one of the organizers, a friend of mine. She was telling me that they actually like it's become such a big deal for Amtrak. They're very excited about every year that they had a snow plow run in front of them to clear the pass because last year we had so much snow and like they weren't sure the train was going to be able to get through.
+[00:17:36] Will: And it's like one of those things that like last year I was talking to one of the organizers, a friend of mine. She was telling me that they actually like it's become such a big deal for Amtrak. They're very excited about every year that they had a snow plow run in front of them to clear the pass because last year we had so much snow and like they weren't sure the train was going to be able to get through.
 
 [00:17:55] Adam: Right, right, right.
 
-[00:17:55] Will: And and they figured out a way to make it happen. Like it was, it's very cool.
+[00:17:55] Will: And they figured out a way to make it happen. Like it was, it's very cool.
 
 [00:17:59] Adam: I am sorry, I didn't know you were in LA on Friday night.
 
@@ -512,21 +512,21 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:18:27] Norm: Oh,
 
-[00:18:27] Adam: and so a friend of mine started asking him questions about himself, and he was answering in charades, and it was like it was like as he said, it was like this is the greatest thing to have happened to small talk ever.
+[00:18:27] Adam: and so a friend of mine started asking him questions about himself, and he was answering in charades, and it was like as he said, it was like this is the greatest thing to have happened to small talk ever.
 
 [00:18:44] Norm: So interactive,
 
 [00:18:46] Will: it's all it becomes a game.
 
-[00:18:47] Adam: Well, and he's a comedy writer, so by by definition, he's an amazing charades player. And this was that was that was really fun.
+[00:18:47] Adam: Well, and he's a comedy writer, so by by definition, he's an amazing charades player. And this was that was really fun.
 
 [00:18:55] Will: That's awesome.
 
-[00:18:56] Adam: Thing thing two who lives nearby where we were staying came over with his roommate and a friend, and so got to like. I'm living the dream of hanging out with my kids in different cities, right? Like this to me is like the the height of feeling like your kids are adults. Like, hey, why don't you come on over and hang out?
+[00:18:56] Adam: Thing thing two who lives nearby where we were staying came over with his roommate and a friend, and so got to like. I'm living the dream of hanging out with my kids in different cities, right? Like this to me is like the height of feeling like your kids are adults. Like, hey, why don't you come on over and hang out?
 
 [00:19:13] Norm: That's great.
 
-[00:19:13] Adam: And then and then the next day he came and took all the booze that people didn't drink.
+[00:19:13] Adam: And then the next day he came and took all the booze that people didn't drink.
 
 [00:19:17] Norm: Oh,
 
@@ -534,7 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:19:21] Norm: Yeah,
 
-[00:19:22] Adam: why not? That is that is understandable.
+[00:19:22] Adam: why not? That is understandable.
 
 [00:19:24] Norm: Yeah, can't assume everyone listened or watched the Super Bowl.
 
@@ -560,7 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:19:52] Norm: for the Cloverfield paradox? And we're calling that a direct to video. Direct to Netflix.
 
-[00:19:56] Will: It was going to be a direct to video movie. Like it bounced around, and they didn't have a release date for it, and they had one, and they didn't, and they didn't, and they did.
+[00:19:56] Will: It was going to be a direct to video movie. Like it bounced around, and they didn't have a release date for it, and they had one, and they didn't, and they did.
 
 [00:20:03] Norm: What a fascinating world where they can drop a. Big quote unquote big budget movie the day. It was Lemonade for movies.
 
@@ -596,7 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:21:18] Norm: Yeah, but maybe more relevant to our listeners out there are the movie trailers that came out during Super Bowl. Of course, we got to talk about Solo.
 
-[00:21:25] Adam: I I watched the teaser. I haven't watched the full. trailer.
+[00:21:25] Adam: I watched the teaser. I haven't watched the full. trailer.
 
 [00:21:27] Norm: You haven't watched the full trailer.
 
@@ -604,7 +604,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:21:29] Adam: I have. It's. I am in the middle of a very busy work time. I have a lot of stuff going on. I literally have not been dealing with the internet very much. at all.
 
-[00:21:38] Norm: You know, this could be your your opportunity to go into that movie totally clean.
+[00:21:38] Norm: You know, this could be your opportunity to go into that movie totally clean.
 
 [00:21:41] Adam: You know what? Maybe I should. Maybe I should.
 
@@ -618,7 +618,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:21:49] Norm: Yeah,
 
-[00:21:51] Will: yeah. I I thought
+[00:21:51] Will: yeah. I thought
 
 [00:21:51] Adam: it's very late for them to be releasing a trailer.
 
@@ -628,7 +628,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:21:57] Will: Guess what, Adam? I don't know if you are aware, but they might. It's been a little tumultuous, tumultuous over in Han Solo land.
 
-[00:22:07] Adam: You know, so I I had this idea. I was thinking about. I was thinking about when is Infinity War?
+[00:22:07] Adam: So I I had this idea. I was thinking about. I was thinking about when is Infinity War?
 
 [00:22:17] Norm: That that is also May.
 
@@ -656,19 +656,19 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:22:38] Will: Yeah, I could do a Thor. I got the right build for that, right? I need to. I'll start working out.
 
-[00:22:43] Adam: Um, what else? What else happened this week? Um, right, there was the superb owl competition.
+[00:22:43] Adam: What else? What else happened this week? Um, right, there was the superb owl competition.
 
 [00:22:50] Will: Yes,
 
 [00:22:51] Norm: that's pretty good.
 
-[00:22:52] Will: The best part about the superb owl is everybody, everybody just rolls right on, and then like four seconds later, like, oh,
+[00:22:52] Will: The best part about the superb owl is everybody, everybody just rolls right on, and then like four seconds later oh,
 
 [00:22:59] Norm: that's really good,
 
-[00:22:59] Adam: right? Um, I saw Tom Sachs this weekend. He's down in Los Angeles. We were we were hanging out. Um. That was lovely. Haven't seen him in a in a few months.
+[00:22:59] Adam: right? I saw Tom Sachs this weekend. He's down in Los Angeles. We were hanging out. That was lovely. Haven't seen him in a few months.
 
-[00:23:11] Norm: Are there any projects you're working on that you can talk about in the in the in the shop? Just like small projects here. That you know what? While you think about that, I'm going to share with people.
+[00:23:11] Norm: Are there any projects you're working on that you can talk about in the shop? Just like small projects here. That you know what? While you think about that, I'm going to share with people.
 
 [00:23:21] Adam: Yeah, that's really lovely.
 
@@ -684,7 +684,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:23:32] Norm: Jonathan Odom.
 
-[00:23:33] Adam: Jonathan Odom, who made the the files for the beautiful Blade Runner binoculars I built as one day build recently.
+[00:23:33] Adam: Jonathan Odom, who made the files for the beautiful Blade Runner binoculars I built as one day build recently.
 
 [00:23:38] Norm: Yeah, and it uses the two bearings from a fidget spinner
 
@@ -694,9 +694,9 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:23:52] Will: It looks like it's glued. So it's two rings. This outer ring, and then yeah,
 
-[00:23:56] Adam: it's a zoetrope. It's a zoetrope. It's a it's a it's a it's a little yeah zoetrope that shows an animation through the slot slits when you look at it. And he included several other. He included an envelope with some other things that we could slip in there for frames.
+[00:23:56] Adam: it's a zoetrope. It's a zoetrope. It's a little yeah zoetrope that shows an animation through the slot slits when you look at it. And he included several other. He included an envelope with some other things that we could slip in there for frames.
 
-[00:24:10] Will: It's it's clever in that. Oh, I can't believe nobody thought of this before. Like, right? Like, you look and you're like, " Oh, right, yeah these these are all things that work together."
+[00:24:10] Will: It's clever in that. Oh, I can't believe nobody thought of this before. Like, right? Like, you look and you're like, " Oh, right, yeah these these are all things that work together."
 
 [00:24:17] Adam: But there have been a lot of play with fidget spinners and animation, both 3D printed animation and flat 2D art animation. And we've been talking about me doing some more 3D drawing because I have not yet delved into the into
 
@@ -706,11 +706,11 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:24:35] Will: Oh, okay,
 
-[00:24:36] Adam: stuff like that. I, I, I now finally feel the pull of some things that I want to build in the shop. A one day build that we're going to shoot later on this week, where I could use some 3D parts. And it's time to stop just asking Sean Charlesworth to carry my water.
+[00:24:36] Adam: stuff like that. I now finally feel the pull of some things that I want to build in the shop. A one day build that we're going to shoot later on this week, where I could use some 3D parts. And it's time to stop just asking Sean Charlesworth to carry my water.
 
 [00:24:50] Norm: Well, we have a lot of listeners out there who are professional 3D modelers, and maybe they could put some advice in the comments as to what programs they use or what would be a good process to start.
 
-[00:25:00] Will: Absolutely, yeah, right. Yeah, like the starter projects are the interesting is the interesting thing for me. Like, where what was what's a good what's a good Well, it's the thing we've talked about for years, right? Where do you? What's your first project when you try to learn something new, right?
+[00:25:00] Will: Absolutely, yeah, right. Yeah, like the starter projects are the interesting is the interesting thing for me. Like, where what was what's a good Well, it's the thing we've talked about for years, right? Where do you? What's your first project when you try to learn something new, right?
 
 [00:25:12] Adam: It's yeah, and it's like I just find something I'm obsessed with and start to try and use this new process to implement it.
 
@@ -732,11 +732,11 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:26:06] Adam: Was.
 
-[00:25:48] Norm: and it was, and it is. One's Houdini themed, one's Roosevelt themed, and one's Thomas Edison themed. We did the Roosevelt themed one, and it is by far no, no. It's, it's, it's you know, it's a series of puzzles, but the the electronics that they built to automate the system and you know, multiple rooms and and things that happen with lights and sound was really, really impressive.
+[00:25:48] Norm: and it was, and it is. One's Houdini themed, one's Roosevelt themed, and one's Thomas Edison themed. We did the Roosevelt themed one, and it is by far no, no. It's a series of puzzles, but the electronics that they built to automate the system and multiple rooms and things that happen with lights and sound was really, really impressive.
 
 [00:26:31] Adam: Oh, cool!
 
-[00:26:32] Will: Those are the those are the only ones in the Bay Area that I haven't done yet, just because I haven't gotten a 10 person group to go or eight person group to go do them yet.
+[00:26:32] Will: Those are the only ones in the Bay Area that I haven't done yet, just because I haven't gotten a 10 person group to go or eight person group to go do them yet.
 
 [00:26:38] Norm: Yeah,
 
@@ -746,27 +746,27 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:26:48] Will: yeah, yeah.
 
-[00:26:49] Norm: So maybe we'll put a group together and and we'll do do one of those. But you've done plenty of escape rooms, Bill, right?
+[00:26:49] Norm: So maybe we'll put a group together and we'll do do one of those. But you've done plenty of escape rooms, Bill, right?
 
 [00:26:54] Will: Done a ton, yeah.
 
-[00:26:54] Norm: And they vary from a a box you get to a one room you're in, and
+[00:26:54] Norm: And they vary from a box you get to a one room you're in, and
 
-[00:26:59] Will: yes, um, so the the common theme is usually that you have some a sequence of puzzles to solve,
+[00:26:59] Will: yes so the common theme is usually that you have some a sequence of puzzles to solve,
 
 [00:27:06] Norm: right?
 
-[00:27:06] Will: Um, but they require usually they require. Some kind of divide and conquering. So, like, often you'll you'll solve an opening puzzle, and then that will open up 10 threads that you then have to unravel each thread.
+[00:27:06] Will: But they require usually they require. Some kind of divide and conquering. So often you'll you'll solve an opening puzzle, and then that will open up 10 threads that you then have to unravel each thread.
 
 [00:27:19] Adam: And each person, you divide up your team to.
 
-[00:27:21] Will: Yeah, and it may not be it may not be that like it's one person per puzzle, but like you you don't want to have six people working on one thing. Basically, is the is the core guiding thing. And usually, if they're done well, then there there are things that that appeal to people that do word puzzles, or people that are spatially oriented, or people that are you know able to solve perspective and drawing puzzles and things like that.
+[00:27:21] Will: Yeah, and it may not be that like it's one person per puzzle, but like you don't want to have six people working on one thing. Basically, is the core guiding thing. And usually, if they're done well, then there are things that that appeal to people that do word puzzles, or people that are spatially oriented, or people that are you know able to solve perspective and drawing puzzles and things like that.
 
 [00:27:41] Adam: Yeah.
 
-[00:27:41] Will: And you end up with something that that like I've taken a bunch of people who don't play video games and who aren't who aren't people who play board games or really even into puzzles to escape rooms, and people always have fun because if it's if it's a well designed room, then then there's literally something that appeals to everyone. Yeah. There should be.
+[00:27:41] Will: And you end up with something that that like I've taken a bunch of people who don't play video games and who aren't people who play board games or really even into puzzles to escape rooms, and people always have fun because if it's a well designed room, then there's literally something that appeals to everyone. Yeah. There should be.
 
-[00:27:57] Norm: Yeah. Yeah. And and the production value is this one was extraordinary.
+[00:27:57] Norm: Yeah. Yeah. And the production value is this one was extraordinary.
 
 [00:28:01] Adam: Yeah, they're.
 
@@ -774,7 +774,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:28:03] Adam: that's awesome.
 
-[00:28:03] Will: They're except that that that one's interesting and the. The problem, the the reason I haven't done it yet is because, like, usually you you can buy single tickets if you want, or you can buy out a whole room if like you're going with a friend for a birthday or something like that. You can always get four or five people, but getting eight people and getting schedules lined up is tough. But I know a friend. We have some friends of Tested who would definitely be into doing it..
+[00:28:03] Will: They're except that that that one's interesting and the. The problem, the reason I haven't done it yet is because usually you can buy single tickets if you want, or you can buy out a whole room if like you're going with a friend for a birthday or something like that. You can always get four or five people, but getting eight people and getting schedules lined up is tough. But I know a friend. We have some friends of Tested who would definitely be into doing it..
 
 [00:28:23] Adam: Let's do it.
 
@@ -806,9 +806,9 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:29:03] Adam: Nick Park.
 
-[00:29:03] Norm: Yeah, Nick Park. Oh my God! Yeah, that video is out, and and just get an insight. In the middle of productions, how generous were they?
+[00:29:03] Norm: Yeah, Nick Park. Oh my God! Yeah, that video is out, and just get an insight. In the middle of productions, how generous were they?
 
-[00:29:10] Adam: They they really did. It was impressive because they're running like 40 stages at a time, trying to keep this film filming. You know, each person can complete something like what a few seconds of animation every day.
+[00:29:10] Adam: They really did. It was impressive because they're running like 40 stages at a time, trying to keep this film filming. Each person can complete something like what a few seconds of animation every day.
 
 [00:29:23] Norm: Right.
 
@@ -818,21 +818,21 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:29:36] Adam: collaboration and creative. And they really did let us see the whole process.
 
-[00:29:39] Will: I mean, I can't believe they let you guys tromp around the set when, like, if you bump a camera, then there goes three days worth of work or two weeks. worth of work or whatever.
+[00:29:39] Will: I mean, I can't believe they let you guys tromp around the set when if you bump a camera, then there goes three days worth of work or two weeks. worth of work or whatever.
 
-[00:29:45] Norm: We had they had those concerns, and you know, past they don't do it very frequently because of those problems. You know, when when they do press tours like mid-production, not not really.
+[00:29:45] Norm: We had they had those concerns, and past they don't do it very frequently because of those problems. You know, when they do press tours like mid-production, not not really.
 
 [00:29:56] Will: You were very lucky to get to go in there. I'm really like I I can't wait to go watch those.
 
 [00:30:01] Norm: And so when Adam says 40 stages, that's really it's a giant building where they have 40 rooms. Split up and of various sizes, where they have these at scale sets, sometimes as big as this room itself, or a giant set. The opening sequence of the film is like this: this camera movement that goes through animation. So, like the camera, motion control camera systems. It's not just static.
 
-[00:30:25] Will: Yeah, yeah, that's amazing. Well, I mean, look if you look at if you look at the rise of like microcontrollers and inexpensive robotics and all that stuff, those guys have to be thrilled.
+[00:30:25] Will: Yeah, yeah, that's amazing. Well, I mean, look if you look at the rise of like microcontrollers and inexpensive robotics and all that stuff, those guys have to be thrilled.
 
 [00:30:35] Norm: Yeah.
 
 [00:30:35] Will: because like that kind of motion control camera would have been phenomenally expensive 10 years ago, and now you know you can hack it together in a weekend.
 
-[00:30:42] Adam: But still, what I keep on noticing when I visit these companies is that even though that stuff is all over the place, these guys are all still coming up with their own bespoke solutions to stuff because there is no single off the shelf solution. So FBFX will write its own software to make an auto robot carve me out of foam, and Aardman has all this proprietary technology built into everything from the pre visualization to the shooting to the execution to the compositing. I mean, all of that. You know, it's like it's really awesome seeing how much these Companies have to build their own R and D departments to to keep pace with their vision.
+[00:30:42] Adam: But still, what I keep on noticing when I visit these companies is that even though that stuff is all over the place, these guys are all still coming up with their own bespoke solutions to stuff because there is no single off the shelf solution. So FBFX will write its own software to make an auto robot carve me out of foam, and Aardman has all this proprietary technology built into everything from the pre visualization to the shooting to the execution to the compositing. I mean, all of that. It's like it's really awesome seeing how much these Companies have to build their own R and D departments to keep pace with their vision.
 
 [00:31:17] Will: Well, when you're one of what the three or four studios in the world that still does stop motion at that scale,
 
@@ -840,9 +840,9 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:31:22] Will: I mean, it's not like Adobe's making stop motion animator 2017.
 
-[00:31:28] Adam: It was also really clear that everyone was having so much fun. Like the the the the shop ethos of Aardman is one of collaboration, where people really feel like they're putting their all into something they believe in, and that's that's always good to be around.
+[00:31:28] Adam: It was also really clear that everyone was having so much fun. Like the shop ethos of Aardman is one of collaboration, where people really feel like they're putting their all into something they believe in, and that's always good to be around.
 
-[00:31:43] Will: I love those movies so much; they're they're fabulous.
+[00:31:43] Will: I love those movies so much; they're fabulous.
 
 [00:31:46] Adam: Every single one.
 

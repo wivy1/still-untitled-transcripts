@@ -50,7 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:00:38] Adam: the longest Sunday of the year.
 
-[00:00:40] Will: Yeah, I was just like, I was just like, yeah, you know what? Let's have apple pie for breakfast.
+[00:00:40] Will: Yeah, I was just like, yeah, you know what? Let's have apple pie for breakfast.
 
 [00:00:44] Adam: Yeah.
 
@@ -92,11 +92,11 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:01:20] Will: Did you put lights on the house? Make everybody come out? You go a little crazy.
 
-[00:01:24] Adam: I brought I brought sleeping bags from storage.
+[00:01:24] Adam: I brought sleeping bags from storage.
 
 [00:01:27] Will: Okay.
 
-[00:01:27] Adam: Yeah, that was the thing. It was it was great.
+[00:01:27] Adam: Yeah, that was the thing. It was great.
 
 [00:01:30] Norm: Do you guys go all out with the lights?
 
@@ -114,7 +114,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:01:39] Will: We're in year three.
 
-[00:01:40] Adam: It's it's lights are integrated into the stock, although one string went out this year.
+[00:01:40] Adam: It's lights are integrated into the stock, although one string went out this year.
 
 [00:01:46] Norm: Oh, that's
 
@@ -124,11 +124,11 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:01:55] Norm: Highly integrated is highly integrated.
 
-[00:01:56] Will: Ours does this thing. It took us a long time to find the. I I grew up on a Christmas tree farm, so it felt really naughty for me to get a fake tree.
+[00:01:56] Will: Ours does this thing. It took us a long time to find the. I grew up on a Christmas tree farm, so it felt really naughty for me to get a fake tree.
 
 [00:02:04] Adam: Blasphemy.
 
-[00:02:05] Will: yeah. But also, it means I never have to go to another tree lot again, which is fine. And ours does this thing; it has a it has a like a stiletto connector.
+[00:02:05] Will: yeah. But also, it means I never have to go to another tree lot again, which is fine. And ours does this thing; it has a like a stiletto connector.
 
 [00:02:15] Adam: Yeah.
 
@@ -144,11 +144,11 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:02:31] Adam: So we had a neighbor buttonhole my wife out in front of the house last week and said, " What's the thing in your window that's not a tree?"
 
-[00:02:41] Will: Oh, they're in for such a treat! What a wonderful, what a wonderful, wonderful thing to find out about.
+[00:02:41] Will: Oh, they're in for such a treat! What a wonderful thing to find out about.
 
 [00:02:46] Adam: Indeed.
 
-[00:02:46] Norm: Yeah. There's a neighborhood south of San Francisco. I want to say it's like Chestnut Avenue in South San Francisco, where like they go. All out. It's one of those, like, we don't have the kind of suburbs, the Christmas vacation suburbs, right?
+[00:02:46] Norm: Yeah. There's a neighborhood south of San Francisco. I want to say it's like Chestnut Avenue in South San Francisco, where like they go. All out. It's one of those we don't have the kind of suburbs, the Christmas vacation suburbs, right?
 
 [00:02:59] Adam: Or not necessarily, but there and there are Fair Oaks, a little street here between Mission and Noe Valley, does they close down and have great Christmas and Halloween,
 
@@ -160,7 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:03:24] Unknown speaker: Oh, wow.
 
-[00:03:26] Will: and it's really cool. It's it's it's like very cool if you are 10. It's you look at it and you’re like, oh man,
+[00:03:26] Will: and it's really cool. It's like very cool if you are 10. It's you look at it and you’re like, oh man,
 
 [00:03:32] Norm: where do they store that stuff? I
 
@@ -168,7 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:03:36] Unknown speaker: You got it. You got it.
 
-[00:03:37] Will: How we found out about it, yeah, Um. but it was it was it just looked like a nightmare to set up and take down. I was just looking. I was like, this is this is like a solid 10 days of work. It looks like
+[00:03:37] Will: How we found out about it, yeah. but it was it just looked like a nightmare to set up and take down. I was just looking. I was like, this is like a solid 10 days of work. It looks like
 
 [00:03:47] Norm: Don’t take it down.
 
@@ -192,7 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:04:15] Adam: and then animate shit across the front of your tree.
 
-[00:04:18] Will: We talked about it on TechPod a couple weeks ago. They, yeah, they, they, you hold the phone up and it addresses each one individually,
+[00:04:18] Will: We talked about it on TechPod a couple weeks ago. They, yeah, they, you hold the phone up and it addresses each one individually,
 
 [00:04:23] Adam: right?
 
@@ -206,17 +206,17 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:04:34] Will: It shouldn't be that difficult. of a problem.
 
-[00:04:35] Norm: All you do is either blinking at a certain speed or or just they know what the arrangement is. Yeah.
+[00:04:35] Norm: All you do is either blinking at a certain speed or just they know what the arrangement is. Yeah.
 
-[00:04:40] Will: Well, the the hard part is figuring out where the light is in 3D space, not figuring out which light. is which.
+[00:04:40] Will: Well, the hard part is figuring out where the light is in 3D space, not figuring out which light. is which.
 
 [00:04:44] Norm: That's why you have to do multiple sides.
 
 [00:04:45] Will: Yeah,
 
-[00:04:46] Adam: That’s nifty. I'm I'm those are cur. I'm curious about those. I’m light curious.
+[00:04:46] Adam: That’s nifty. I'm those are cur. I'm curious about those. I’m light curious.
 
-[00:04:50] Will: I was going to say, there's a guy in the well. They've gotten they've they've reduced in price dramatically each year they've been out so far. So like next year or the year after, they'll be affordable for for more people. Well,
+[00:04:50] Will: I was going to say, there's a guy in the well. They've gotten they've they've reduced in price dramatically each year they've been out so far. So like next year or the year after, they'll be affordable for more people. Well,
 
 [00:04:59] Adam: then the question is, can you use them for cosplay?
 
@@ -224,7 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:05:04] Norm: 100%. Yeah. Oh, yeah.
 
-[00:05:05] Will: Um, there, there's a guy in the back of the valley where I live in Pacifica that does like you pull up and there's a sign in the front that says Tune your radio to like 690 AM, and then every 15 minutes he does like a 15 minute light show where it's all animated and choreographed, and the whole thing is it is garish and amazing.
+[00:05:05] Will: There, there's a guy in the back of the valley where I live in Pacifica that does like you pull up and there's a sign in the front that says Tune your radio to like 690 AM, and then every 15 minutes he does like a 15 minute light show where it's all animated and choreographed, and the whole thing is it is garish and amazing.
 
 [00:05:24] Norm: Wait, so he's broadcasting? He's
 
@@ -240,7 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:05:35] Adam: Because there's a lot of I saw a lot of things over the holidays.
 
-[00:05:38] Will: You, you had an adventure. What happened to you? Anything exciting?
+[00:05:38] Will: You had an adventure. What happened to you? Anything exciting?
 
 [00:05:41] Adam: Yeah, my land on Saturday, December 28th, I woke up to put my mom on the plane to go visit my sister in Los Angeles.
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:06:29] Norm: Oh, you're just like
 
-[00:06:30] Adam: it's just an object. Nobody's health is in danger. You know, I have old dogs, and my kids are out of the house. It takes a lot to rattle me these days. And I saw the Land Cruiser was missing, and I thought, ah, that sucks. But it's just an object, and it's nobody's health, and frankly, it's just a thing to deal with. Plus, honestly, I'm kind of curious what tested Land Cruiser people think, but there can't be very many right hand drive 1982 diesel Land Cruisers in the United States.
+[00:06:30] Adam: it's just an object. Nobody's health is in danger. I have old dogs, and my kids are out of the house. It takes a lot to rattle me these days. And I saw the Land Cruiser was missing, and I thought, ah, that sucks. But it's just an object, and it's nobody's health, and frankly, it's just a thing to deal with. Plus, honestly, I'm kind of curious what tested Land Cruiser people think, but there can't be very many right hand drive 1982 diesel Land Cruisers in the United States.
 
 [00:07:00] Will: It seems like a low percentage car. That has to be a
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:07:25] Will: yeah,
 
-[00:07:25] Adam: because this isn't a huge community. These are these are fairly rare pieces. And as I was typing this up, I had just gotten to the end of the first tweet, and I was adding to the second tweet to the tweet thread
+[00:07:25] Adam: because this isn't a huge community. These are fairly rare pieces. And as I was typing this up, I had just gotten to the end of the first tweet, and I was adding to the second tweet to the tweet thread
 
 [00:07:37] Will: Building the storm.
 
@@ -322,13 +322,13 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:08:46] Will: It was. It had rained a lot,
 
-[00:08:49] Adam: Yeah. and to their credit, they had ground the the wheels deep, deep. The thing was resting on its drive system on the drivetrain.
+[00:08:49] Adam: Yeah. and to their credit, they had ground the wheels deep, deep. The thing was resting on its drive system on the drivetrain.
 
 [00:08:57] Norm: So why? I mean. And we'll get to what happened after, but why was this the route, and why did it end up there?
 
 [00:09:05] Adam: That's such a fascinating question. I have no idea.
 
-[00:09:08] Norm: Right? Like, what what does this go if it's a dead end? Like in their minds, they wouldn't have been stuck. They were their goal wasn't to get it stuck. So where were they? taking it to?
+[00:09:08] Norm: Right? Like, what does this go if it's a dead end? Like in their minds, they wouldn't have been stuck. They were their goal wasn't to get it stuck. So where were they? taking it to?
 
 [00:09:16] Will: Rowdy teens joyriding is what it sounds like.
 
@@ -340,15 +340,15 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:09:28] Will: Okay.
 
-[00:09:28] Adam: I think that when he when he so I I can't see his face on my ring camera because ring cameras suck, but I could see him hotwire the car and drive away. So I could hear that he could drive a stick. I know it's a he. I could see his body shape, and he left the house at four a.m. about 10 minutes before four a.m. and the neighbors didn't hear him grinding the car into the mud until about six after six. So there's a couple of hours where he's driving around the city.
+[00:09:28] Adam: I think that when he so I I can't see his face on my ring camera because ring cameras suck, but I could see him hotwire the car and drive away. So I could hear that he could drive a stick. I know it's a he. I could see his body shape, and he left the house at four a.m. about 10 minutes before four a.m. and the neighbors didn't hear him grinding the car into the mud until about six after six. So there's a couple of hours where he's driving around the city.
 
 [00:09:59] Norm: Yeah.
 
-[00:09:59] Adam: I know. Uh. Uh. Like we know where it ended up. The que- my question was actually, did he choose any other dirt roads to go up? Because this doesn't feel this didn't feel like someone who stole this car to sell it.
+[00:09:59] Adam: I know. Like we know where it ended up. The que- my question was actually, did he choose any other dirt roads to go up? Because this doesn't feel this didn't feel like someone who stole this car to sell it.
 
 [00:10:12] Will: Yeah, if they stole it to sell it, they would have driven it straight to the chop shop, and you'd never seen it again.
 
-[00:10:16] Adam: They, they, This was kind of feels like a one off joyride, and then it's hilarious because I'm almost immediately. I mean, what happened afterwards was that the cops and I called a pickup. The tow truck couldn't make it up the road, so we called a second pickup. That pickup came and got stuck trying to pull my car out. So then we had to call a third pickup truck to get the second pickup truck out of there. And then once we got the second pickup truck out, the third one was able to winch mine to safety.
+[00:10:16] Adam: They, This was kind of feels like a one off joyride, and then it's hilarious because I'm almost immediately. I mean, what happened afterwards was that the cops and I called a pickup. The tow truck couldn't make it up the road, so we called a second pickup. That pickup came and got stuck trying to pull my car out. So then we had to call a third pickup truck to get the second pickup truck out of there. And then once we got the second pickup truck out, the third one was able to winch mine to safety.
 
 [00:10:42] Will: I didn't know it took three. I saw the two on Twitter.
 
@@ -358,7 +358,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:10:54] Adam: Everything about this area made it difficult. There were tree stumps, but none of them were closer than 150 feet away. They were all off angle. It was leaning towards a neighbor's fence, and by the way, the neighbors that I dealt with—Hamidi, Kathy, Byron, and Lynette—all the neighbors were awesome. Like they were, they just they all came out.
 
-[00:11:16] Will: Look, it's the longest Sunday. They got a they got a great story to tell. No damage done.
+[00:11:16] Will: Look, it's the longest Sunday. They got a great story to tell. No damage done.
 
 [00:11:21] Adam: Some local kids came out, like saw me live tweeting, figured out where I was, and came out to say hi and shake my hand. So, look at the moment I knew I was getting it back, I kind of really chilled out and was like, " Oh, I guess I am here for the day."
 
@@ -368,9 +368,9 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:11:35] Will: The tweets,
 
-[00:11:36] Adam: I was, and and live tweeting it was very enjoyable. You know, I love it when adventures happen to people I like on Twitter and following how those adventures go, and so that was no exception. So that was my post Christmas adventure.
+[00:11:36] Adam: I was, and live tweeting it was very enjoyable. I love it when adventures happen to people I like on Twitter and following how those adventures go, and so that was no exception. So that was my post Christmas adventure.
 
-[00:11:49] Will: It's also always much more fun to watch someone having a bad time pulling something out of the mud than to be the person having a bad time pulling something out of the mud. Like it's not it's not fun to watch them suffer, but like it's definitely better to be in the witness. Position. than the cursing position.
+[00:11:49] Will: It's also always much more fun to watch someone having a bad time pulling something out of the mud than to be the person having a bad time pulling something out of the mud. Like it's not fun to watch them suffer, but like it's definitely better to be in the witness. Position. than the cursing position.
 
 [00:12:06] Adam: I was ready to help. I was, and I actually did help with some key pieces of advice because I have a lot of experience pulling heavy things out of weird places.
 
@@ -384,7 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:12:24] Will: Yeah.
 
-[00:12:24] Adam: And they were like, if we pull it, it could tip over. And I said, actually, decidedly not. It's in a hole that's making it face 30 degrees, but the ground is only at like 18 degrees. So the moment you pull it back, it's going to go level up. And they were like, well, if you are willing to take responsibility, and I’m like, well, Yeah, sure, go do it. And we did it, and it was fine. It worked perfectly.
+[00:12:24] Adam: And they were like, if we pull it could tip over. And I said, actually, decidedly not. It's in a hole that's making it face 30 degrees, but the ground is only at like 18 degrees. So the moment you pull it back, it's going to go level up. And they were like, well, if you are willing to take responsibility, and I’m like, well, Yeah, sure, go do it. And we did it, and it was fine. It worked perfectly.
 
 [00:12:45] Will: Come back out and build a fence the next day if it doesn't work out.
 
@@ -446,9 +446,9 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:14:14] Adam: Okay, so this is the company that it turns out was the company assembled for the Puerto Rican fundraising shows.
 
-[00:14:21] Norm: Where Lin Manuel came back, you know, and and did the one one more performance.
+[00:14:21] Norm: Where Lin Manuel came back and did the one one more performance.
 
-[00:14:27] Adam: And the lead and the lead that we saw was his understudy.
+[00:14:27] Adam: And the lead that we saw was his understudy.
 
 [00:14:31] Norm: That's right.
 
@@ -462,13 +462,13 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:14:57] Adam: We are super Broadway nerds for this show.
 
-[00:14:58] Norm: For example, the first time it came through San Francisco, it was the then the Chicago Hamilton, who then went on tour for for us, and then this technically is a tour they called the And Peggy tour, and it started last February in San Francisco, and they kept on extending it, so it's now going through end of May. But the company does swap out. Some of the performers.
+[00:14:58] Norm: For example, the first time it came through San Francisco, it was the then the Chicago Hamilton, who then went on tour for us, and then this technically is a tour they called the And Peggy tour, and it started last February in San Francisco, and they kept on extending it, so it's now going through end of May. But the company does swap out. Some of the performers.
 
-[00:15:18] Will: yes, and and I think the show that I saw was one of the last with the with the the brunt of that cast on Sunday, and then they split up and are going different ways.
+[00:15:18] Will: yes, and I think the show that I saw was one of the last with the brunt of that cast on Sunday, and then they split up and are going different ways.
 
 [00:15:26] Adam: Terrific cast!
 
-[00:15:27] Will: It was, it was, it was one of the most amazing performances I've ever seen live on Sunday.
+[00:15:27] Will: It was one of the most amazing performances I've ever seen live on Sunday.
 
 [00:15:32] Adam: So you got to see it for your first time,
 
@@ -476,17 +476,17 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:15:35] Adam: and you are familiar with the libretto.
 
-[00:15:37] Will: I I have listened to the original cast recording. I don't know Spotify would probably tell you at least hundreds, maybe thousands. of times.
+[00:15:37] Will: I have listened to the original cast recording. I don't know Spotify would probably tell you at least hundreds, maybe thousands. of times.
 
 [00:15:45] Adam: Okay, so that to me that's the best way to see it.
 
-[00:15:48] Will: It was like the thing. It it it was beautiful because I was able to pay attention to what was happening on stage and and the staging and the sets and the costumes and not have to worry about following the plot because I I thought I knew the plot and I knew the the high points, but there was definitely stuff that I missed only having seen the cast recording.
+[00:15:48] Will: It was like the thing. It was beautiful because I was able to pay attention to what was happening on stage and the staging and the sets and the costumes and not have to worry about following the plot because I I thought I knew the plot and I knew the high points, but there was definitely stuff that I missed only having seen the cast recording.
 
 [00:16:05] Adam: Well, and there is one part of the libretto that's not in the cast recording, which is the death of John Laurens, which is super sad.
 
 [00:16:11] Norm: Yeah, the letter that's. That she reads him
 
-[00:16:14] Will: well, and there is there is also a part. I think at the very end, there is a spoken spoken word part at the very end when Hamilton is talking when he's. I think it's. I think it's maybe his duel letter. I don’t think it’s in the cast recording either.
+[00:16:14] Will: well, and there is also a part. I think at the very end, there is a spoken spoken word part at the very end when Hamilton is talking when he's. I think it's. I think it's maybe his duel letter. I don’t think it’s in the cast recording either.
 
 [00:16:29] Norm: I am not there.
 
@@ -498,7 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:16:48] Adam: but nothing prepared me for how beautiful Hurricane is as a piece of choreography with the two circles moving in opposition to each other and the dancers. So, this is my third time seeing it on stage. We started paying attention to only the dancers.
 
-[00:17:02] Will: Well, I mean, that's that's there is so much,
+[00:17:02] Will: Well, I mean, that's there is so much,
 
 [00:17:03] Adam: yeah.
 
@@ -518,9 +518,9 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:17:46] Adam: Yeah,
 
-[00:17:46] Will: it's an it's an uncomfortable it's an uncomfortable titter from the audience.
+[00:17:46] Will: it's an uncomfortable titter from the audience.
 
-[00:17:50] Adam: I got to um we got to go backstage when we saw it, um so I got to hold King George's crown,
+[00:17:50] Adam: I got to we got to go backstage when we saw it so I got to hold King George's crown,
 
 [00:17:56] Will: ooh,
 
@@ -532,15 +532,15 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:18:11] Will: Oh, great! It's still pretty heavy.
 
-[00:18:12] Adam: Still pretty no, it's still pretty heavy. Um, and it's got a microphone built into it.
+[00:18:12] Adam: Still pretty no, it's still pretty heavy. And it's got a microphone built into it.
 
 [00:18:16] Norm: Wonderful.
 
-[00:18:17] Will: I the candle situation I wasn't aware of. We talked about this a little bit before before the show, but but the fact most of those candles are electric candles that they've gutted the electronics on.
+[00:18:17] Will: I the candle situation I wasn't aware of. We talked about this a little bit before before the show, but the fact most of those candles are electric candles that they've gutted the electronics on.
 
 [00:18:28] Adam: Except when she burns the letter.
 
-[00:18:29] Will: Except for when she burns the letter, that one obviously is real. But but but there's a lot of um there's a the the the candles are all remote controllable from the lighting booth.
+[00:18:29] Will: Except for when she burns the letter, that one obviously is real. But there's a lot of there's a the candles are all remote controllable from the lighting booth.
 
 [00:18:38] Adam: Dude, electronic candles. I mean, I know we just did my one day build with the flame bulb, but electronic candles is something we haven't covered, and they're amazing.
 
@@ -548,7 +548,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:18:51] Adam: Yeah,
 
-[00:18:51] Will: on up to to the yeah, it's bonkers. So this is
+[00:18:51] Will: on up to the yeah, it's bonkers. So this is
 
 [00:18:54] Norm: a flame.
 
@@ -564,7 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:19:21] Norm: it feels
 
-[00:19:21] Adam: super convincing. And this is this is worth a larger conversation later on. But like for my entire life, the joke has been that cheap crap comes from China, and frankly, you know the fact that that flame bulb runs for a week like a super efficient circuit on something that doesn't have to be because it's running off of house power. Like the joke about Chinesium products is is becoming more and more moot as things get better. And the iterations of fake candles have been fantastic. We have hundreds of them in the house and use them for all sorts of parties.
+[00:19:21] Adam: super convincing. And this is worth a larger conversation later on. But like for my entire life, the joke has been that cheap crap comes from China, and frankly, you know the fact that that flame bulb runs for a week like a super efficient circuit on something that doesn't have to be because it's running off of house power. Like the joke about Chinesium products is is becoming more and more moot as things get better. And the iterations of fake candles have been fantastic. We have hundreds of them in the house and use them for all sorts of parties.
 
 [00:19:53] Will: Yeah, I need the remote control ones. It turns out because you know those little tiny switches, it's just your fingers get really tired turning them on and off.
 
@@ -596,7 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:21:01] Norm: con some people.
 
-[00:21:02] Adam: Well, he's he's he's over leveraged.
+[00:21:02] Adam: Well, he's over leveraged.
 
 [00:21:04] Will: Okay,
 
@@ -658,7 +658,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:23:41] Adam: Amazing.
 
-[00:23:41] Will: He's he's very good.
+[00:23:41] Will: He's very good.
 
 [00:23:43] Norm: Yeah, I think they're casting him as the new Home Alone kid.
 
@@ -668,7 +668,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:23:48] Unknown (Adam or Norm): Yeah.
 
-[00:23:48] Adam: Have we? Um. Have so moving slightly on.
+[00:23:48] Adam: Have we? Have so moving slightly on.
 
 [00:23:51] Will: Yeah.
 
@@ -736,7 +736,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:24:48] Adam: Eichner, Chris, Chris Eigeman film. Sorry, go ahead.
 
-[00:24:51] Norm: I mean, it's it's. I guess it's tough for dudes to talk about Little Women.
+[00:24:51] Norm: I mean, it's. I guess it's tough for dudes to talk about Little Women.
 
 [00:24:56] Adam: No, it's not. It's a fantastic movie.
 
@@ -744,7 +744,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:24:59] Adam: Everyone's amazing in it.
 
-[00:25:01] Norm: I think at the end of the movie, you just kind of sit there and linger and want to be with the Marches more, like, like it. The movie is so loving.
+[00:25:01] Norm: I think at the end of the movie, you just kind of sit there and linger and want to be with the Marches more, like it. The movie is so loving.
 
 [00:25:10] Adam: It's incredibly loving, even as it's complicated and characters genuinely suffer because of each other and still love each other. All of that is extant on screen.
 
@@ -818,11 +818,11 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:27:01] Norm: Structurally, that's it's. I think part of the magic of this, but then also the way they talk and the way they dress, it all feels very modern.
 
-[00:27:08] Adam: Yeah. Um, it's the ensemble work of the sisters, the scenes of them in every pairing that there could be
+[00:27:08] Adam: Yeah. It's the ensemble work of the sisters, the scenes of them in every pairing that there could be
 
 [00:27:19] Norm: when they're just performing a play together.
 
-[00:27:22] Adam: Yeah, and the the the ways in which they talk specifically to the transactional nature of marriage and romance that has to be considered by women and can be conveniently forgotten by men, and the ways in which that can cause harm, wittingly and unwittingly, is it's a very very amazing meditation. I I really am looking forward to seeing it again, and it's probably going to be one of those ones I go back to more than a few times.
+[00:27:22] Adam: Yeah, and the ways in which they talk specifically to the transactional nature of marriage and romance that has to be considered by women and can be conveniently forgotten by men, and the ways in which that can cause harm, wittingly and unwittingly, is it's a very very amazing meditation. I really am looking forward to seeing it again, and it's probably going to be one of those ones I go back to more than a few times.
 
 [00:27:49] Norm: Oh, yeah.
 
@@ -882,7 +882,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:28:56] Will: Yeah, I was gonna say.
 
-[00:28:57] Norm: It is so from a he won he won best director at the Golden Globes, and the film won you know best film, best dramatic film.
+[00:28:57] Norm: It is so from a he won best director at the Golden Globes, and the film won you know best film, best dramatic film.
 
 [00:29:05] Adam: Yeah, yeah.
 
@@ -894,7 +894,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:29:28] Will: Well, You're just tense.
 
-[00:29:29] Norm: Yeah, you’re just tense. Why am I feeling this? And then maybe they realize, oh wow, this is single shot, like like Birdman was. But if you go in knowing that, and you have worked in film or any type of production, you're looking for the cuts,
+[00:29:29] Norm: Yeah, you’re just tense. Why am I feeling this? And then maybe they realize, oh wow, this is single shot, like Birdman was. But if you go in knowing that, and you have worked in film or any type of production, you're looking for the cuts,
 
 [00:29:38] Adam: right? Right. Right.
 
@@ -910,7 +910,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:29:56] Will: Use a pole as the cut point or whatever yeah.
 
-[00:29:57] Norm: Exactly, to a wire. Um, but the performance... Performances sometimes it's tough to have a consistency in performance. They do cuts mid conversation, and so you're asking an actor to do a take, have a conversation with one other character, walking through, you know, a forest. And they're passing by a tree, and the sentence continues.
+[00:29:57] Norm: Exactly, to a wire. But the performance... Performances sometimes it's tough to have a consistency in performance. They do cuts mid conversation, and so you're asking an actor to do a take, have a conversation with one other character, walking through, you know, a forest. And they're passing by a tree, and the sentence continues.
 
 [00:30:18] Adam: Right.
 
@@ -928,7 +928,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:30:35] Will: Adam Savage. I'm Joe Director.
 
-[00:30:37] Norm: Shows how tough that this this
+[00:30:37] Norm: Shows how tough that this
 
 [00:30:38] Adam: yeah yeah
 
@@ -938,19 +938,19 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:30:53] Will: Oh, as a bomb goes off. I mean,
 
-[00:30:55] Norm: something happens, right? Like, like.
+[00:30:55] Norm: something happens, right? Like.
 
-[00:30:58] Will: So the thing for me watching Birdman is, I the tension because there was no cut. You wait, you wait for those cuts for the tension to to to release tension in the film. And by the end of that movie, I was so just like my shoulders were clenched.
+[00:30:58] Will: So the thing for me watching Birdman is, I the tension because there was no cut. You wait for those cuts for the tension to release tension in the film. And by the end of that movie, I was so just like my shoulders were clenched.
 
 [00:31:11] Norm: Well, Birdman had the passing of time. They would do. He would pan to looking out a window, and you would see the sunset.
 
 [00:31:16] Unknown (Adam, Norm, or Will): So.
 
-[00:31:16] Norm: And and you would have time lapses essentially.
+[00:31:16] Norm: And you would have time lapses essentially.
 
-[00:31:19] Adam: But Will is bringing up something. Walter Murch has a theory about editing, and the way he edits, from what I understand, is he makes a cut and watches the scene with that cut, and then he erases the cut and chooses the cut again and watches the scene, and only when he's chosen the same exact cut point, like two or three times, that it's the natural place, that it's consistent. That's when he chooses that cut, and he has this theory that we blink in the same reason that dogs shake to kind of transition from one consciousness moment to the next, and that cuts happen on the blink. That cuts happen at a rhythm that matches the way in which we blink to change subjects and to gear shift, as it were. And so it it follows that even if you're not noticing that it's a continuous shot, that at a certain point you're getting exhausted because Mentally, there's no blinking going on.
+[00:31:19] Adam: But Will is bringing up something. Walter Murch has a theory about editing, and the way he edits, from what I understand, is he makes a cut and watches the scene with that cut, and then he erases the cut and chooses the cut again and watches the scene, and only when he's chosen the same exact cut point, like two or three times, that it's the natural place, that it's consistent. That's when he chooses that cut, and he has this theory that we blink in the same reason that dogs shake to kind of transition from one consciousness moment to the next, and that cuts happen on the blink. That cuts happen at a rhythm that matches the way in which we blink to change subjects and to gear shift, as it were. And so it follows that even if you're not noticing that it's a continuous shot, that at a certain point you're getting exhausted because Mentally, there's no blinking going on.
 
-[00:32:14] Will: Well, it's it's like old Steve Martin comedy, or you know, where he
+[00:32:14] Will: Well, it's like old Steve Martin comedy, or you know, where he
 
 [00:32:18] Adam: just he just doesn't give you
 
@@ -996,41 +996,41 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:34:26] Will: So slightly less horny than cats.
 
-[00:34:28] Adam: They spend at least 40 minutes doing storytelling that could have been done seriously in five or six minutes and gotten us into the meat of the plot. The shift that really should be the middle act two kind of turn doesn't happen until like almost the end of the movie. It's structurally bizarre, and I'm not saying it's not enjoyable, and that the casting isn't great. Constance Wu is fantastic in it, but the dialogue is all over the place, and frankly, it's just the the amount of there's literally a almost real time 15 minute pole dancing teaching sequence between J Lo and her protege.
+[00:34:28] Adam: They spend at least 40 minutes doing storytelling that could have been done seriously in five or six minutes and gotten us into the meat of the plot. The shift that really should be the middle act two kind of turn doesn't happen until like almost the end of the movie. It's structurally bizarre, and I'm not saying it's not enjoyable, and that the casting isn't great. Constance Wu is fantastic in it, but the dialogue is all over the place, and frankly, it's just the amount of there's literally a almost real time 15 minute pole dancing teaching sequence between J Lo and her protege.
 
 [00:35:08] Norm: I think that's all. I don't think that's intended to be titillating as much as it's about control and the power they have.
 
-[00:35:14] Adam: Sure, except that in every scene they seem like parodies of what a 15 year old thinks. Stripper's lives are like like they all go shopping wearing low cut cleavage dresses and like, ha ha ha, laughing and pouring champagne on each other.
+[00:35:14] Adam: Sure, except that in every scene they seem like parodies of what a 15 year old thinks. Stripper's lives are like they all go shopping wearing low cut cleavage dresses and ha ha ha, laughing and pouring champagne on each other.
 
 [00:35:29] Norm: It's. I'm curious whether that's a studio note or director note because it was directed by a woman. Like,
 
-[00:35:33] Adam: yeah, listen, you know, I'm only saying my impression of it from from my point of view. I just found it kind of shocking that I was 30 minutes into the movie before I got into someone wearing anything but lingerie.
+[00:35:33] Adam: yeah, listen I'm only saying my impression of it from my point of view. I just found it kind of shocking that I was 30 minutes into the movie before I got into someone wearing anything but lingerie.
 
 [00:35:45] Will: I haven't seen it yet, so.
 
 [00:35:46] Adam: But it'll be very soon.
 
-[00:35:48] Will: Yeah, I’ll be, I don’t know what I'm doing this afternoon. I saw Once Upon a Time, Once Upon a Time in Hollywood. Finally,
+[00:35:48] Will: Yeah, I’ll be, I don’t know what I'm doing this afternoon. I saw Once Upon a Time in Hollywood. Finally,
 
 [00:35:55] Adam: ah, yeah. How did you like it?
 
-[00:35:57] Will: I I thought it was very cool, much like Ad Astra. Like looking at Brad Pitt is very it's very satisfying.
+[00:35:57] Will: I thought it was very cool, much like Ad Astra. Like looking at Brad Pitt is very it's very satisfying.
 
 [00:36:04] Adam: It's very relaxing. I think we all can agree.
 
-[00:36:08] Will: Just like man, he looks he looks a little bit older, but wow, it's it's like he's Clooneying at a really high level. He's so pretty. So, but I I don't. Like it feels like a really odd story to do the Inglourious Basterds treatment on, and and like alt history, a thing that happened. Like I don't understand why that story had to be. I knew I I love that Tarantino went and made a movie set in the '70s that he shot like a movie made in the '70s.
+[00:36:08] Will: Just like man, he looks a little bit older, but wow, it's like he's Clooneying at a really high level. He's so pretty. So, but I I don't. Like it feels like a really odd story to do the Inglourious Basterds treatment on, and alt history, a thing that happened. Like I don't understand why that story had to be. I knew I I love that Tarantino went and made a movie set in the '70s that he shot like a movie made in the '70s.
 
 [00:36:38] Adam: I totally agree with that.
 
 [00:36:39] Will: Like I love the way it was shot. I love the cinematography. I don't think it had to. There was no reason it had to have anything to do with the Sharon Tate. murders.
 
-[00:36:46] Adam: I I found it strange that the idea of the brutality of the Manson murders, which was subverted for the brutality of the curbing of the Manson murders, was all in the vein of a networking opportunity for our main character. That made like that made when the credits rolled, I was a little pissed off.
+[00:36:46] Adam: I found it strange that the idea of the brutality of the Manson murders, which was subverted for the brutality of the curbing of the Manson murders, was all in the vein of a networking opportunity for our main character. That made like that made when the credits rolled, I was a little pissed off.
 
 [00:37:02] Will: Well, I mean, I look, I can see that as a kind of when you put it that way, it feels like commentary on Hollywood vapidness,
 
 [00:37:08] Adam: certainly.
 
-[00:37:08] Will: But but like it's commentary on Hollywood vapidness in the '70s, not Hollywood vapid vapidity with vapidity, yeah, vapidity in in the 21st century. I. I I just like it was really offputting to take something that was like to contrast with Inglourious Basterds at the end where you know she murders Hitler and all the leading generals. That's that's kind of a fantasy wish fulfillment thing that I think a lot of people would be like, man, it would be fucking awesome if somebody went through and murdered Hitler in like 1938.
+[00:37:08] Will: But like it's commentary on Hollywood vapidness in the '70s, not Hollywood vapid vapidity with vapidity, yeah, vapidity in the 21st century. I. I just like it was really offputting to take something that was like to contrast with Inglourious Basterds at the end where you know she murders Hitler and all the leading generals. That's kind of a fantasy wish fulfillment thing that I think a lot of people would be like, man, it would be fucking awesome if somebody went through and murdered Hitler in like 1938.
 
 [00:37:42] Adam: Yeah, it's not like people were clamoring for that.
 
@@ -1040,17 +1040,17 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:37:56] Will: I
 
-[00:37:56] Adam: And this is a really specific thing. It just it it made me feel strange. I got what he was like. I've read interviews with Tarantino about how he was attempting to establish Cliff Booth's character. And by the way, Cliff Booth, one of the greatest names that's ever been come up with, but. It still that scene made me feel really sad.
+[00:37:56] Adam: And this is a really specific thing. It just it made me feel strange. I got what he was like. I've read interviews with Tarantino about how he was attempting to establish Cliff Booth's character. And by the way, Cliff Booth, one of the greatest names that's ever been come up with, but. It still that scene made me feel really sad.
 
 [00:38:18] Will: He seemed it like it was especially sad to take somebody who was was very much in the kind of John Wayne shitty older area era of Hollywood, misogynist, racist. Generally, like great actor, not a great guy.
 
 [00:38:32] Adam: Yeah,
 
-[00:38:32] Will: and and to make him not the not the Brad Pitt's character in this movie was that guy, but that's the read I got on this at the beginning was that that the the lead
+[00:38:32] Will: and to make him not the Brad Pitt's character in this movie was that guy, but that's the read I got on this at the beginning was that that the lead
 
 [00:38:43] Adam: Leonardo DiCaprio
 
-[00:38:44] Will: played by Leonardo DiCaprio was very much in the John Wayne John Wayne school of Western acting,
+[00:38:44] Will: played by Leonardo DiCaprio was very much in the John Wayne school of Western acting,
 
 [00:38:50] Adam: right?
 
@@ -1104,7 +1104,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:40:24] Will: I didn't recognize Bruce Dern, which is like I don't know how you don't recognize Bruce Dern, but yeah, it was really good.
 
-[00:40:30] Adam: Yeah, look, I loved so much about that movie, and the overall end product made me feel a little cold and and just not awesome. I didn't want to hang out with those characters anymore, and I didn't fall in love with any. Frankly, that's one of the things that's great about Tarantino is even his evil characters can be so lovable and smart and amazing. And in this film, I didn't like anybody. Like there, that that was I just didn't connect with any specific character.
+[00:40:30] Adam: Yeah, look, I loved so much about that movie, and the overall end product made me feel a little cold and just not awesome. I didn't want to hang out with those characters anymore, and I didn't fall in love with any. Frankly, that's one of the things that's great about Tarantino is even his evil characters can be so lovable and smart and amazing. And in this film, I didn't like anybody. Like there, that that was I just didn't connect with any specific character.
 
 [00:41:04] Norm: Sharon Tate, Margot Robbie, too.
 
@@ -1122,7 +1122,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:41:24] Will: Again, like this to me seemed like a thing that he wanted to make because he wanted to make a movie set in that specific. Like he hasn't made '70s movies before.
 
-[00:41:33] Adam: Sure. So that's totally his prerogative. I I want him to make all the movies he wants to make.
+[00:41:33] Adam: Sure. So that's totally his prerogative. I want him to make all the movies he wants to make.
 
 [00:41:33] Will: Yeah.
 
@@ -1134,11 +1134,11 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:42:02] Adam: Yeah.
 
-[00:42:03] Norm: from the the Golden Harvest pictures and the Shaw Brothers pictures. And how all that stuff was, you know, the business behind how U.S. film studios bought those up, reedited them, redubbed them, and how then they went back to China
+[00:42:03] Norm: from the Golden Harvest pictures and the Shaw Brothers pictures. And how all that stuff was, you know, the business behind how U.S. film studios bought those up, reedited them, redubbed them, and how then they went back to China
 
 [00:42:20] Adam: Oh, wow.
 
-[00:42:21] Norm: and and that circular nature. Iron Fists and Kung Fu Kicks interview a lot of great people, and it all talks about Bruce Lee's legacy and a lot of the context that we don't really understand, like how young he died and how his legend grew after his his death.
+[00:42:21] Norm: and that circular nature. Iron Fists and Kung Fu Kicks interview a lot of great people, and it all talks about Bruce Lee's legacy and a lot of the context that we don't really understand, like how young he died and how his legend grew after his his death.
 
 [00:42:34] Adam: Right, right, right.
 
@@ -1154,7 +1154,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:42:48] Adam: Wow, wow,
 
-[00:42:48] Norm: yeah, kind of crazy. And then my name, my name is Dolemite.
+[00:42:48] Norm: yeah, kind of crazy. And then my name is Dolemite.
 
 [00:42:52] Adam: Oh, that’s really great.
 
@@ -1162,7 +1162,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:42:54] Will: I haven't seen that yet.
 
-[00:42:55] Adam: I, I am really listen. I like I haven't yet. I've been saving it. I haven't watched the Eddie Murphy SNL performance. I mean, he's one of my favorite comedians, and my friends who are comedy writers in Hollywood, I know a couple people that know him say he is still the funniest guy. Alive, that you go over to his house as a professional comedy writer, and you're like, I shouldn't be doing this. When you see him do what he does while making breakfast, so I'm really glad he's got a big film coming out. I thought he was amazing in Showgirls, and I'd love to see him get some some more current.
+[00:42:55] Adam: I am really listen. I like I haven't yet. I've been saving it. I haven't watched the Eddie Murphy SNL performance. I mean, he's one of my favorite comedians, and my friends who are comedy writers in Hollywood, I know a couple people that know him say he is still the funniest guy. Alive, that you go over to his house as a professional comedy writer, and you're like, I shouldn't be doing this. When you see him do what he does while making breakfast, so I'm really glad he's got a big film coming out. I thought he was amazing in Showgirls, and I'd love to see him get some some more current.
 
 [00:43:28] Will: Dreamgirls.
 
@@ -1182,7 +1182,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:43:47] Adam: Okay,
 
-[00:43:47] Will: I didn't love the first couple episodes. When we got to the third episode, and they did the Seven Samurai episode, and and like
+[00:43:47] Will: I didn't love the first couple episodes. When we got to the third episode, and they did the Seven Samurai episode, and like
 
 [00:43:54] Adam: that's the fourth,
 
@@ -1190,7 +1190,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:43:55] Adam: yeah,
 
-[00:43:55] Will: it started to open up for me. I was like, okay, I'm kind of in for this. And then episodes, I was up and down. Like the the sniper episode, I could give or take. The prison breakout episode, I thought was incoherent in a lot of important ways. We don't need to get into why.
+[00:43:55] Will: it started to open up for me. I was like, okay, I'm kind of in for this. And then episodes, I was up and down. Like the sniper episode, I could give or take. The prison breakout episode, I thought was incoherent in a lot of important ways. We don't need to get into why.
 
 [00:44:09] Adam: Yeah.
 
@@ -1208,11 +1208,11 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:44:24] Will: Yeah,
 
-[00:44:24] Adam: with all of his great comedy. I mean, they supplied the moment you've been waiting for for the entire Star Wars franchise.
+[00:44:24] Adam: with all of his great comedy. I mean, they supplied the moment you've been waiting for the entire Star Wars franchise.
 
 [00:44:32] Will: Yeah.
 
-[00:44:33] Adam: Of of they already made a joke during the prison episode where Bill Burr goes, " Hey, I wasn't a freaking stormtrooper."
+[00:44:33] Adam: Of they already made a joke during the prison episode where Bill Burr goes, " Hey, I wasn't a freaking stormtrooper."
 
 [00:44:33] Will: Yeah.
 
@@ -1222,29 +1222,29 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:44:52] Adam: But yeah, Taika Waititi is the perfect director to direct the first moment where you get to see just how terrible stormtroopers are at hitting things.
 
-[00:45:00] Will: I mean, well, they were able to punch the puppet pretty well, but but like it was very Troopsian. Do you remember troops?
+[00:45:00] Will: I mean, well, they were able to punch the puppet pretty well, but like it was very Troopsian. Do you remember troops?
 
 [00:45:04] Adam: Oh, yeah, totally remember troops.
 
 [00:45:06] Will: Yeah, it was very very much reminded me of troops in the fact that they were like you don't see stormtroopers talking to other stormtroopers ever.
 
-[00:45:11] Adam: No, and I love them comparing notes about like. Apparently, he just killed a guy for disagreeing with him. Like the the radio chatter around a bad guy that, of course, would be there. Like he just forced choked a guy.
+[00:45:11] Adam: No, and I love them comparing notes about like. Apparently, he just killed a guy for disagreeing with him. Like the radio chatter around a bad guy that, of course, would be there. Like he just forced choked a guy.
 
-[00:45:23] Norm: And I think that's an example of why the the main trilogy of trilogies was maybe taken not as well because it had to take itself so seriously. And you know, Star Wars is no longer just the one movie; it's a whole universe, and the meta awareness of the Star Wars culture and this kind of is able to riff on that
+[00:45:23] Norm: And I think that's an example of why the main trilogy of trilogies was maybe taken not as well because it had to take itself so seriously. And Star Wars is no longer just the one movie; it's a whole universe, and the meta awareness of the Star Wars culture and this kind of is able to riff on that
 
 [00:45:46] Adam: I agree.
 
 [00:45:46] Norm: in a way that you can't. I mean, I don't think Disney would allow a an episode nine to.
 
-[00:45:52] Will: So I think the the difference between Star Wars and Marvel for Disney is that they they'd make enough stuff with Marvel that they let people do that stuff. Like with if you look at Thor Ragnarok and Guardians two, there is a lot of very self aware humor in there that that they're clearly making a comic book movie and they're aware of it. And I feel like Star Wars doesn't get the freedom to do that because they only do one movie a year.
+[00:45:52] Will: So I think the difference between Star Wars and Marvel for Disney is that they they'd make enough stuff with Marvel that they let people do that stuff. Like with if you look at Thor Ragnarok and Guardians two, there is a lot of very self aware humor in there that that they're clearly making a comic book movie and they're aware of it. And I feel like Star Wars doesn't get the freedom to do that because they only do one movie a year.
 
 [00:46:13] Adam: But yeah, but I also think that it's a. I think that it speaks to a deep philosophy about what's important about filmmaking because I think that the I think it's really clear that the big successes within the MCU are often attributable to the specific visions of each of the directors in those seats. Whether it's the Russo brothers or Taika Waititi or
 
 [00:46:38] Will: Favreau,
 
-[00:46:39] Adam: Favreau, yeah, you you get these totally different viewpoints that are that are quite unique and different from each other. So there are multiple genres of MCU films. So I'm really glad that within the Star Wars universe, I had no idea how much I wanted a 30 minute Star Wars nugget of plot of plot in a TV show. But man, now all I want is like dozens of seasons of this.
+[00:46:39] Adam: Favreau, yeah, you get these totally different viewpoints that are quite unique and different from each other. So there are multiple genres of MCU films. So I'm really glad that within the Star Wars universe, I had no idea how much I wanted a 30 minute Star Wars nugget of plot in a TV show. But man, now all I want is like dozens of seasons of this.
 
-[00:47:01] Will: It's it's been lovely between that and Watchmen. It's the first time I've had like a I've had appointment television in probably 10 years.
+[00:47:01] Will: It's been lovely between that and Watchmen. It's the first time I've had like a I've had appointment television in probably 10 years.
 
 [00:47:07] Adam: This me too. All over Christmas, for the whole all of December, all I've been doing is very excitedly waiting every week for His Dark Materials, Watchmen, and Mandalorian.
 
@@ -1254,7 +1254,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:47:29] Will: Yeah.
 
-[00:47:29] Adam: Even though I am very appreciative of the film that they made, the television show is phenomenal for some terrific performances. But one of the best parts about the books is that Lyra Lyra has two superpowers in the books in the plot of His Dark Materials. One of them is that she can read the alethiometer, the truth-telling device, and she can read it intuitively, where most almost everybody else needs hundreds of books in a library to cross-reference everything. She just intuits what it means, and that gives her tremendous strength. But that's almost her secondary superpower. Her primary superpower is that she's an unbelievable negotiator. And this shows up repeatedly in the show, and she's up against dangerous, weird, scary people, and knows precisely, can see precisely how to thread the needle of what they want, and how to offer it to them to her own advantage. That's it's really great, and the actress they cast as Lyra is fantastic. So I can't sing enough praises about the show. I have I have the finale to watch, and then I'm all done.
+[00:47:29] Adam: Even though I am very appreciative of the film that they made, the television show is phenomenal for some terrific performances. But one of the best parts about the books is that Lyra Lyra has two superpowers in the books in the plot of His Dark Materials. One of them is that she can read the alethiometer, the truth-telling device, and she can read it intuitively, where most almost everybody else needs hundreds of books in a library to cross-reference everything. She just intuits what it means, and that gives her tremendous strength. But that's almost her secondary superpower. Her primary superpower is that she's an unbelievable negotiator. And this shows up repeatedly in the show, and she's up against dangerous, weird, scary people, and knows precisely, can see precisely how to thread the needle of what they want, and how to offer it to them to her own advantage. That's it's really great, and the actress they cast as Lyra is fantastic. So I can't sing enough praises about the show. I have the finale to watch, and then I'm all done.
 
 [00:48:35] Norm: That's a lot of catch up.
 

@@ -18,13 +18,13 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:00:14] Adam: I've been traveling. There's been a lot of flying around the country.
 
-[00:00:18] Will: Since, since I last saw you—you, I saw a tux.
+[00:00:18] Will: Since, since I last saw you, I saw a tux.
 
 [00:00:22] Adam: Yes.
 
 [00:00:23] Will: I don't think you're going to get the deposit back on it.
 
-[00:00:25] Adam: No, no, no. We, we abused some tuxes in the course of shooting an episode of MythBusters. We went to Monument Valley, Utah, specifically to Moab.
+[00:00:25] Adam: No, no, no. We abused some tuxes in the course of shooting an episode of MythBusters. We went to Monument Valley, Utah, specifically to Moab.
 
 [00:00:34] Will: That's where all the John Ford westerns were shot, right? Or a lot of them.
 
@@ -36,17 +36,17 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:00:42] Will: Really?
 
-[00:00:43] Adam: Yeah, yeah, yeah. The ranger helping us had just spent months working with, with Gore Verbinski and Johnny Depp on the Lone Ranger film with Armie Hammer.
+[00:00:43] Adam: Yeah, yeah, yeah. The ranger helping us had just spent months working with Gore Verbinski and Johnny Depp on the Lone Ranger film with Armie Hammer.
 
 [00:00:53] Will: Fantastic.
 
 [00:00:53] Norm: That seems like the right place to shoot that.
 
-[00:00:54] Adam: Exactly. And we filmed a really, really, really stunning episode of MythBusters there. I, I actually enjoyed the fact that I tweeted a picture of me wearing a tux, holding a golf club at the top of this impossibly beautiful canyon.
+[00:00:54] Adam: Exactly. And we filmed a really, really, really stunning episode of MythBusters there. I actually enjoyed the fact that I tweeted a picture of me wearing a tux, holding a golf club at the top of this impossibly beautiful canyon.
 
 [00:01:08] Will: Perfectly, perfectly normal thing.
 
-[00:01:09] Adam: And I, and no one, no one could guess what the hell we were filming. I said nothing in the picture has anything to do with the myth. And of the several hundred responses, one of them turns out was correct.
+[00:01:09] Adam: And I, and no one could guess what the hell we were filming. I said nothing in the picture has anything to do with the myth. And of the several hundred responses, one of them turns out was correct.
 
 [00:01:19] Will: Fantastic.
 
@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:01:22] Adam: Right. Yeah.
 
-[00:01:23] Will: Not that the listeners are monkeys, but, you know, Hamlet. You got Hamlet there. This one's a fast turn compared to normal. Usually it takes a while between when you shoot stuff and when it airs.
+[00:01:23] Will: Not that the listeners are monkeys, but Hamlet. You got Hamlet there. This one's a fast turn compared to normal. Usually it takes a while between when you shoot stuff and when it airs.
 
 [00:01:32] Adam: Yeah, it's usually at least three or four months of post-production on every episode that we deliver to our—to Beyond Productions in Sydney, Australia. Yes, MythBusters is produced in Sydney, Australia.
 
@@ -96,9 +96,9 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:03:14] Will: Yeah.
 
-[00:03:15] Adam: Yeah. You know, at some point, I think in about six months, we're going to have to really hustle to get the back end and make it work.
+[00:03:15] Adam: Yeah. At some point, I think in about six months, we're going to have to really hustle to get the back end and make it work.
 
-[00:03:20] Will: Cool. Very cool. So while you were playing around in the desert, you know, doing your little thing—
+[00:03:20] Will: Cool. Very cool. So while you were playing around in the desert doing your little thing—
 
 [00:03:24] Adam: Yes.
 
@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:03:29] Norm: As close to space as either of us will probably get to go.
 
-[00:03:33] Will: We went to the place that the people who go to space go before they go to—before they go to the place that takes them to space.
+[00:03:33] Will: We went to the place that the people who go to space go before they go to the place that takes them to space.
 
 [00:03:39] Adam: That's not Russia.
 
@@ -136,7 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:04:06] Norm: We've had a problem.
 
-[00:04:07] Will: Outside Mission Control, on the wall in about six-inch letters, there's a, there's, there is the quote. They don't say—you know, there's no—actually, it wasn't even there. It was at the, it was at the Saturn rocket park across the street. They don't say, "Hey, Tom Hanks messed up the quote." It's just there for you to take note of and, and appreciate.
+[00:04:07] Will: Outside Mission Control, on the wall in about six-inch letters, there's a, there's, there is the quote. They don't say—there's no—actually, it wasn't even there. It was at the Saturn rocket park across the street. They don't say, "Hey, Tom Hanks messed up the quote." It's just there for you to take note of and appreciate.
 
 [00:04:25] Adam: I don't think that anyone at NASA, I really would be surprised if anyone at NASA is bothered by Hanks getting that quote slightly off from what it really was, given the amount of love and attention and beautiful narratives Hanks has rained down via NASA over the past 15 years.
 
@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:05:02] Adam: I'm ground control. No, I mean, like if you met him in a random bar. What do you do? "I'm ground control." "Oh, really? That's funny." "No, I'm ground control."
 
-[00:05:08] Norm: But he told a story when they were producing Apollo 13, how the set designers, production designers, gave him the tour around the facility, and he also got to visit the sets and see how authentic they were. To you know, the equipment doesn't get updated that frequently, and they're in the middle of doing that. But you know, Ron Howard and his production team did a good job.
+[00:05:08] Norm: But he told a story when they were producing Apollo 13, how the set designers, production designers, gave him the tour around the facility, and he also got to visit the sets and see how authentic they were. To you know, the equipment doesn't get updated that frequently, and they're in the middle of doing that. But Ron Howard and his production team did a good job.
 
 [00:05:30] Adam: Really? They said it was perfect?
 
@@ -166,7 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:05:39] Adam: Everyone looks a little better in the movies.
 
-[00:05:41] Will: The thing I didn't realize is that the the mission control that was used because they have multiple mission controls. It's not like there's just one, which makes sense. But the one that they used for the Apollo 11 landing is a national historic place, so it's preserved as it was.
+[00:05:41] Will: The thing I didn't realize is that the mission control that was used because they have multiple mission controls. It's not like there's just one, which makes sense. But the one that they used for the Apollo 11 landing is a national historic place, so it's preserved as it was.
 
 [00:05:54] Adam: Right. I remember during the Apollo missions.
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:05:56] Norm: That was just a floor above where the current Mission Control—
 
-[00:05:59] Will: We didn't go. We should have, we should have gone in there. But we also got to see next-gen mission controls. So right now they have like LCDs jammed into the big blue stations that, that you know from movies. They painted them green at some point during the shuttle days.
+[00:05:59] Will: We didn't go. We should have gone in there. But we also got to see next-gen mission controls. So right now they have like LCDs jammed into the big blue stations that, that you know from movies. They painted them green at some point during the shuttle days.
 
 [00:06:13] Adam: Right.
 
@@ -182,11 +182,11 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:06:18] Adam: Right. So it burns cooler.
 
-[00:06:19] Will: Yeah, it's cooler in there, and they're not hooked up to mainframes or anything anymore. They're all hooked up to PCs. But it is, it's, it's not taking advantage of the form factors that we have available today. So they've, they've designed this new thing called 21MCC. Is that it?
+[00:06:19] Will: Yeah, it's cooler in there, and they're not hooked up to mainframes or anything anymore. They're all hooked up to PCs. But it is, it's not taking advantage of the form factors that we have available today. So they've, they've designed this new thing called 21MCC. Is that it?
 
 [00:06:33] Norm: For 21st century—
 
-[00:06:35] Will: Mission Control Center. Oh, and it's—it looks like the, it looks like the set of 24.
+[00:06:35] Will: Mission Control Center. Oh, and it's—it looks like the set of 24.
 
 [00:06:39] Norm: Basically, CTU in 24.
 
@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:06:51] Will: Yeah, we have. We—
 
-[00:06:51] Adam: I just like you push a button and like a, you know.
+[00:06:51] Adam: I just like you push a button and like a.
 
 [00:06:53] Will: Oh, no! No food out of the—no food.
 
@@ -240,7 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:08:00] Adam: Where's the first one?
 
-[00:08:02] Will: It's, it's part—it's a river that they block off and has a roof over it.
+[00:08:02] Will: It's part—it's a river that they block off and has a roof over it.
 
 [00:08:05] Adam: Serious?
 
@@ -252,15 +252,15 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:08:16] Norm: Well, I also know—
 
-[00:08:17] Adam: So how big, how big is this pool?
+[00:08:17] Adam: So how big is this pool?
 
 [00:08:18] Norm: This pool is like 100 by 200 by 40.
 
-[00:08:21] Will: I think it's 100. It's even a little bit bigger than that. But yeah, it's so deep that when you stand on the edge, well, they have marks a foot back from the expansion joint, so you have to step back away from it because you kind of get vertigo when you look down into it. But it's so big and clear that you kind of don't—you're not able to process how deep and clear it is. It looks like it's about 10 feet deep, 20 feet deep, and it's actually 40 feet deep. It's, it's—it kind of reminds me of the reactor vessel at, um, at, uh, at, at, uh, the Reed Reactor—
+[00:08:21] Will: I think it's 100. It's even a little bit bigger than that. But yeah, it's so deep that when you stand on the edge, well, they have marks a foot back from the expansion joint, so you have to step back away from it because you kind of get vertigo when you look down into it. But it's so big and clear that you kind of don't—you're not able to process how deep and clear it is. It looks like it's about 10 feet deep, 20 feet deep, and it's actually 40 feet deep. It's—it kind of reminds me of the reactor vessel at the Reed Reactor—
 
 [00:08:47] Adam: Right.
 
-[00:08:48] Will: Like it's that, it's kind of super clear. Um, so we talked to him about, about what it's like to dive in the pool because they have a whole team, support team with astronauts when they're training for ISS. Um, what else do we do?
+[00:08:48] Will: Like it's that, it's kind of super clear. So we talked to him about, about what it's like to dive in the pool because they have a whole team, support team with astronauts when they're training for ISS. What else do we do?
 
 [00:08:57] Adam: They have special spacesuits that they wear for those.
 
@@ -278,7 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:09:12] Norm: Small, medium, large.
 
-[00:09:13] Will: Yeah, the shells are in small, medium, and large. The pants are, are fixed sizes.
+[00:09:13] Will: Yeah, the shells are in small, medium, and large. The pants are fixed sizes.
 
 [00:09:17] Norm: The gloves are custom.
 
@@ -298,7 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:09:31] Norm: And helmets are one size for all.
 
-[00:09:32] Will: Yeah, the, the helmet—like, so looking at this thing up close in a way that I had never been able to before—
+[00:09:32] Will: Yeah, the helmet—like, so looking at this thing up close in a way that I had never been able to before—
 
 [00:09:33] Adam: Ah.
 
@@ -310,9 +310,9 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:09:48] Adam: Yeah.
 
-[00:09:48] Will: So if you get, if you get in there and you start freaking out, it could be really bad.
+[00:09:48] Will: So if you get in there and you start freaking out, it could be really bad.
 
-[00:09:53] Adam: Yeah, I can imagine it is. Uh, uh, among the things I've learned on the show is that I am just in no way claustrophobic whatsoever. Yeah. I have, I have, I can sit through an MRI no problem. I can sit through three of them in a row.
+[00:09:53] Adam: Yeah, I can imagine it is. Among the things I've learned on the show is that I am just in no way claustrophobic whatsoever. Yeah. I have, I can sit through an MRI no problem. I can sit through three of them in a row.
 
 [00:10:08] Norm: Eight hours at a time.
 
@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:10:13] Adam: No, yeah, I, I, I really, I'm, I'm good with that stuff.
 
-[00:10:16] Will: Um, so we talked. We, we got—
+[00:10:16] Will: So we talked. We got—
 
 [00:10:18] Adam: I would love to put on—that's my way of saying to NASA, who's listening.
 
@@ -330,11 +330,11 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:10:21] Adam: I would love to put on one of those suits.
 
-[00:10:23] Will: I, um, we, we, we, we kind of looked at him, and and there wasn't even the opportunity to ask. They didn't give you the opening to ask. Hey, can I, can I try on the suit? We got to see from the diapers on up though. They showed the whole thing. That's cool. Um,
+[00:10:23] Will: I we kind of looked at him, and there wasn't even the opportunity to ask. They didn't give you the opening to ask. Hey, can I try on the suit? We got to see from the diapers on up though. They showed the whole thing. That's cool.
 
 [00:10:37] Adam: you guys got some pictures.
 
-[00:10:39] Will: We got pictures, video, the whole thing. Um,
+[00:10:39] Will: We got pictures, video, the whole thing.
 
 [00:10:41] Norm: but we're there primarily for food.
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:10:45] Norm: Oh, yes. Oh my goodness.
 
-[00:10:47] Will: Because, because my dream as a small child, you know, I, I had that book that had the fold-out thing in the inside that was the control panel of the space shuttle. Yeah, and I never thought I'd be able to climb up when when they retired them all. I thought my opportunity to get in into a cockpit of a spaceship had gone from very very low of a of a space shuttle had gone from very very small to gone when they retired them all because they're because they're
+[00:10:47] Will: Because my dream as a small child I, I had that book that had the fold-out thing in the inside that was the control panel of the space shuttle. Yeah, and I never thought I'd be able to climb up when they retired them all. I thought my opportunity to get in into a cockpit of a spaceship had gone from very very low of a space shuttle had gone from very very small to gone when they retired them all because they're
 
 [00:11:07] Adam: right, but
 
@@ -350,7 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:11:09] Adam: Oh, right. You would think they'd strip out the cockpit.
 
-[00:11:11] Will: Well, before they put those put them in the places, they they took in the gigapans and they did like the the 400 megapixel images of the inside 360 panorama, so we could see it all. But then they're they're being preserved, so they seal them off, and you know it's limited access and all that.
+[00:11:11] Will: Well, before they put those put them in the places, they took in the gigapans and they did like the 400 megapixel images of the inside 360 panorama, so we could see it all. But then they're being preserved, so they seal them off, and you know it's limited access and all that.
 
 [00:11:26] Adam: But even with a limited access, I mean, you were saying you'll probably never get to space, but I would have to say that you guys in your position as communicators,
 
@@ -362,7 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:11:39] Adam: On a shorter list of people who might get to space.
 
-[00:11:42] Will: yes. And I am going to go ahead and tell you right now: if I had $60 million, I would spend fifty million for for two weeks, no question.
+[00:11:42] Will: yes. And I am going to go ahead and tell you right now: if I had $60 million, I would spend fifty million for two weeks, no question.
 
 [00:11:50] Adam: So I have to tell you when this. All right, so yeah, this won't mess up the auction right now. There is. Freaking Mercury helmet on eBay,
 
@@ -424,7 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:13:01] Adam: Nice!
 
-[00:13:02] Norm: The PR lady had never been up there, and so to explain, this is the mock. There's a whole facility called Building Nine in Houston, which is a giant warehouse of training vehicles, and and they have everything from the rovers to the robots to the
+[00:13:02] Norm: The PR lady had never been up there, and so to explain, this is the mock. There's a whole facility called Building Nine in Houston, which is a giant warehouse of training vehicles, and they have everything from the rovers to the robots to the
 
 [00:13:16] Will: Canadarm.
 
@@ -432,7 +432,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:13:27] Will: Right.
 
-[00:13:27] Norm: It's still in the facility, because they're, they're not retiring that yet.
+[00:13:27] Norm: It's still in the facility, because they're not retiring that yet.
 
 [00:13:30] Will: We just assumed it was cheaper to leave it there than to actually remove it from the place and store it someplace else.
 
@@ -440,9 +440,9 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:13:40] Will: The flight test.
 
-[00:13:41] Norm: The flight test, and never went to space. But you get to get, you know, 10 feet close to it, but you don't get to actually go inside. And the director of the museum there, at the Intrepid in New York, said that he had brought astronauts inside, because who had actually flown into space. And so like, you know, it's, it's a very short list. Um, here we got to go in, and two decks of the space shuttle. So it is a very, very cramped space, and I can't believe they at one point had eight people in there.
+[00:13:41] Norm: The flight test, and never went to space. But you get to get 10 feet close to it, but you don't get to actually go inside. And the director of the museum there, at the Intrepid in New York, said that he had brought astronauts inside, because who had actually flown into space. And so like it's a very short list. Here we got to go in, and two decks of the space shuttle. So it is a very, very cramped space, and I can't believe they at one point had eight people in there.
 
-[00:14:04] Will: Yeah, it's, it's, it's, um, so, you know, you—you've probably seen like an Apollo capsule at museums and stuff over the years. It seems like it's maybe three times the interior volume of that.
+[00:14:04] Will: Yeah, it's so you—you've probably seen like an Apollo capsule at museums and stuff over the years. It seems like it's maybe three times the interior volume of that.
 
 [00:14:14] Adam: Wow.
 
@@ -458,21 +458,21 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:14:25] Adam: Can you imagine if someone's got serious BO?
 
-[00:14:27] Will: Oh, I think I think you just well, there's no running water. You have you have sponge baths,
+[00:14:27] Will: Oh, I think you just well, there's no running water. You have sponge baths,
 
 [00:14:32] Norm: wet naps,
 
 [00:14:33] Will: wet naps.
 
-[00:14:33] Adam: Wow, that's that's rough.
+[00:14:33] Adam: Wow, that's rough.
 
 [00:14:35] Will: So so I didn't appreciate how small it was.
 
 [00:14:39] Adam: Can you imagine what it smells like when they can bring it back?
 
-[00:14:40] Will: Oh, it's got to it's got to be like the worst locker room smell ever.
+[00:14:40] Will: Oh, it's got to be like the worst locker room smell ever.
 
-[00:14:42] Adam: I will tell you that we, we did an episode which will air this coming Thanksgiving about boarding airplanes, and we had some flight attendants from an airline help us out, and they were awesome. But I said, "So at the end of a flight, the cabin smells pretty bad, right?" Because like the pressurization, everyone's farting and—
+[00:14:42] Adam: I will tell you that we did an episode which will air this coming Thanksgiving about boarding airplanes, and we had some flight attendants from an airline help us out, and they were awesome. But I said, "So at the end of a flight, the cabin smells pretty bad, right?" Because like the pressurization, everyone's farting and—
 
 [00:15:04] Will: Farts and sweat.
 
@@ -512,7 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:16:07] Adam: right?
 
-[00:16:08] Will: So it's on the launch pad, ready to go up. I don't know how you would have climbed into the, into the, the, the seats, the launch seats.
+[00:16:08] Will: So it's on the launch pad, ready to go up. I don't know how you would have climbed into the seats, the launch seats.
 
 [00:16:15] Adam: Wow.
 
@@ -520,7 +520,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:16:20] Adam: Oh.
 
-[00:16:21] Will: So Norm and I just kind of farted around inside the, inside the shuttle trainer for a little bit, but they had like the manuals for the flights and all that stuff. It was really neat.
+[00:16:21] Will: So Norm and I just kind of farted around inside the shuttle trainer for a little bit, but they had like the manuals for the flights and all that stuff. It was really neat.
 
 [00:16:28] Norm: Every switch.
 
@@ -532,11 +532,11 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:16:37] Adam: Yes.
 
-[00:16:38] Will: So we went. We, we brought David Chang from Momofuku and Traci Des Jardins, who you know from the omelet video—
+[00:16:38] Will: So we went. We brought David Chang from Momofuku and Traci Des Jardins, who you know from the omelet video—
 
 [00:16:44] Adam: Yeah.
 
-[00:16:44] Will: And you know, from, you know.
+[00:16:44] Will: And from.
 
 [00:16:46] Adam: She's a friend.
 
@@ -548,7 +548,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:17:11] Adam: Every day up there on the space station, to take those ingredients and put together something maybe more awesome.
 
-[00:17:18] Will: So, but but the pitch that we gave to NASA was basically, " Hey, or to the CSA actually, because we were working with with with them through Commander Hadfield, was that we wanted to do the Apollo 13 thing for space food. This is what you have,
+[00:17:18] Will: So, but the pitch that we gave to NASA was basically, " Hey, or to the CSA actually, because we were working with with with them through Commander Hadfield, was that we wanted to do the Apollo 13 thing for space food. This is what you have,
 
 [00:17:36] Adam: right? Yes,
 
@@ -558,7 +558,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:17:40] Adam: And here's the protocol for how to put it all together,
 
-[00:17:42] Will: Exactly. Um, so we did that, and as a, through part of this, we got to see kind of the history of space food, which was really fascinating, all the way from like the tubes and cubes—the tubes—that they used for the Apollo, sorry, for the Mercury and Gemini programs.
+[00:17:42] Will: Exactly. So we did that, and as a, through part of this, we got to see kind of the history of space food, which was really fascinating, all the way from like the tubes and cubes—the tubes—that they used for the Apollo, sorry, for the Mercury and Gemini programs.
 
 [00:17:55] Adam: So, did you actually end up trying a lot of this?
 
@@ -582,17 +582,17 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:18:15] Adam: Yeah.
 
-[00:18:15] Will: Had made canned ESA food, and it was like a duck pâté and, and pureed celery. So it's the most French space food imaginable.
+[00:18:15] Will: Had made canned ESA food, and it was like a duck pâté and pureed celery. So it's the most French space food imaginable.
 
 [00:18:25] Adam: Awesome.
 
 [00:18:26] Norm: I love that pureed celery.
 
-[00:18:28] Will: We got to taste a lot of space food. Like, and and
+[00:18:28] Will: We got to taste a lot of space food. Like, and
 
 [00:18:32] Adam: what was the best?
 
-[00:18:33] Will: So the so well, there's two things to to know is that there's no refrigeration on the space station.
+[00:18:33] Will: So the so well, there's two things to know is that there's no refrigeration on the space station.
 
 [00:18:38] Adam: Oh, I didn't know that.
 
@@ -606,7 +606,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:18:47] Norm: Only in the vacuum on the shade side, and there is a module on ISS where you—experiments where organic life and stuff is—they're all exposed to the vacuum. It's on the Japanese module, but no, there's no—space shuttle had refrigeration. ISS, because the power requirements would be too much.
 
-[00:19:02] Will: Right, right, right. So they're they're running off of like four megawatts or something like that, and with the with all the other stuff that goes on, it's just it was too much of a load. They have a little bit of a chiller that you can put a thing of water in, and it'll it'll make it cool so that after they finish working out, they can drink a cold beverage. But no refrigeration space, so it all has to be shelf stable, which means it has to survive at ambient temperature, ambient room temperature for the length of time it takes to get there, and then 12 months afterwards thereabouts. So
+[00:19:02] Will: Right, right, right. So they're running off of like four megawatts or something like that, and with the with all the other stuff that goes on, it's just it was too much of a load. They have a little bit of a chiller that you can put a thing of water in, and it'll it'll make it cool so that after they finish working out, they can drink a cold beverage. But no refrigeration space, so it all has to be shelf stable, which means it has to survive at ambient temperature, ambient room temperature for the length of time it takes to get there, and then 12 months afterwards thereabouts. So
 
 [00:19:30] Adam: that's a rough requirement.
 
@@ -622,15 +622,15 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:19:36] Adam: Right.
 
-[00:19:38] Will: The freeze-dried stuff was surprisingly good for the most part, and we were, we were there with chefs, so they were very into trying. They were trying to mix different flavors and textures. And we tried a lot of the freeze-dried stuff that wasn't rehydrated, as well as some that had been rehydrated.
+[00:19:38] Will: The freeze-dried stuff was surprisingly good for the most part, and we were there with chefs, so they were very into trying. They were trying to mix different flavors and textures. And we tried a lot of the freeze-dried stuff that wasn't rehydrated, as well as some that had been rehydrated.
 
 [00:19:52] Norm: So on the ISS, the the director of their food program, they've concocted up about 200 different items that they send up, including different types of beverages and and a mixture of the shelf stable, the MRE stuff and the freeze dried stuff. And we requested with the chefs sampling. So there was a whole part of that morning where Traci, David, Will, and I stood around having packages heated up and filled with water and opening them and just tasting them. Sometimes not heating them up, right? Sometimes not infusing them with water, and that was like the fun part of the day. Yeah. And it was really fun. These chefs who had the best food in the world and make some of the best food in the world, just give their honest opinion off camera about, oh man, that that's not bad. Yeah. Oh, that's so gross.
 
-[00:20:38] Will: Well, the thing that, the thing that, that Dave said was that a lot of times the freeze-dried stuff really concentrates the flavor. Yeah. So like he uses freeze-dried strawberries, like the astronaut strawberries you get at the gift shop at every space center in the country. Yeah. And he uses freeze-dried strawberries in ice cream to make them—to make it super strawberry flavored.
+[00:20:38] Will: Well, the thing that Dave said was that a lot of times the freeze-dried stuff really concentrates the flavor. Yeah. So like he uses freeze-dried strawberries, like the astronaut strawberries you get at the gift shop at every space center in the country. Yeah. And he uses freeze-dried strawberries in ice cream to make them—to make it super strawberry flavored.
 
-[00:20:54] Adam: Nice. And, and that makes sense.
+[00:20:54] Adam: Nice. And that makes sense.
 
-[00:20:56] Will: So like the freeze dried asparagus, when you ate them dry, tasted like the most asparagusy asparagus you've ever tasted. Freeze dried grits, likewise, very tasty and kind of like they almost tasted like rice cakes that were that were that actually tasted like something good instead of like rice cakes.
+[00:20:56] Will: So like the freeze dried asparagus, when you ate them dry, tasted like the most asparagusy asparagus you've ever tasted. Freeze dried grits, likewise, very tasty and kind of like they almost tasted like rice cakes that were that actually tasted like something good instead of like rice cakes.
 
 [00:21:11] Norm: So you asked what was the favorite thing? They had some barbecue brisket that I would have eaten that all day long in elementary school, middle school.
 
@@ -666,13 +666,13 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:22:32] Will: That was the worst thing I've ever put in my mouth.
 
-[00:22:34] Norm: And you put a, you put a fair number of bad things in your mouth.
+[00:22:34] Norm: And you put a fair number of bad things in your mouth.
 
-[00:22:38] Will: I have, I have eaten a lot of awful. I've eaten testicles and all sorts of other horrible things over the years. The, the freeze-dried shrimp—
+[00:22:38] Will: I have eaten a lot of awful. I've eaten testicles and all sorts of other horrible things over the years. The freeze-dried shrimp—
 
 [00:22:45] Adam: Not to get into a frat, right? But that's—
 
-[00:22:47] Will: No, no, just, just for culinary experience. I figure, you know, it's food. People eat this. Why not?
+[00:22:47] Will: No, no, just, just for culinary experience. I figure it's food. People eat this. Why not?
 
 [00:22:51] Adam: A lot of guys teabag. It's fine.
 
@@ -684,13 +684,13 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:22:59] Adam: So the freeze-dried shrimp was truly—
 
-[00:23:02] Will: Well, it's a, the freeze dried shrimp is an experience. I, I kind of want to get some and give them to people as a, as a trap food. You, you put it in your mouth, and at first you're like, "Oh, it's not so bad. It tastes like shrimp." It's maybe a little hint of like a fish flake, like a—
+[00:23:02] Will: Well, it's a, the freeze dried shrimp is an experience. I kind of want to get some and give them to people as a trap food. You put it in your mouth, and at first you're like, "Oh, it's not so bad. It tastes like shrimp." It's maybe a little hint of like a fish flake a—
 
 [00:23:14] Norm: Fish food. This is—we ate it freeze-dried. We didn't infuse it with water.
 
 [00:23:17] Will: We did not. We did not.
 
-[00:23:18] Norm: Astronauts, actually one of their favorite foods—they've told the, uh, as feedback—is cocktail, a shrimp cocktail, and that is the freeze-dried shrimp with some, you know, with some cocktail sauce.
+[00:23:18] Norm: Astronauts, actually one of their favorite foods—they've told the as feedback—is cocktail, a shrimp cocktail, and that is the freeze-dried shrimp with some with some cocktail sauce.
 
 [00:23:27] Adam: And when they infuse it with water, do they put water in and then let it sit for an hour or something?
 
@@ -710,11 +710,11 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:23:51] Adam: Right.
 
-[00:23:52] Will: The thing about the shrimp was it hit your mouth and it kind of exploded, uh, into a bunch of little tiny pieces. So you had this really strong like fish food flavor. It starts at the front of your mouth and kind of slowly encompasses your entire head. And then what happened is, like a spoonful of cinnamon, it just started absorbing all the moisture in your mouth. Oh, no! So it kept getting bigger and bigger, and the taste at the same time was getting somehow a little more stagnant and worse. So like it, it was like a five-minute experience, and it was the kind of thing that, that, that you really wanted the most pungent-tasting thing you could imagine to just kind of flush out of your head.
+[00:23:52] Will: The thing about the shrimp was it hit your mouth and it kind of exploded into a bunch of little tiny pieces. So you had this really strong like fish food flavor. It starts at the front of your mouth and kind of slowly encompasses your entire head. And then what happened is, like a spoonful of cinnamon, it just started absorbing all the moisture in your mouth. Oh, no! So it kept getting bigger and the taste at the same time was getting somehow a little more stagnant and worse. So like it, it was like a five-minute experience, and it was the kind of thing that, that, that you really wanted the most pungent-tasting thing you could imagine to just kind of flush out of your head.
 
 [00:24:31] Adam: Traci was telling me about watching all of you guys like,
 
-[00:24:34] Will: yeah, just the loss of moisture and the intensity of the fish of the fish food flavor was was real bad. It was it was like a put Tabasco in your mouth to kind of get things going again situation afterwards. So yeah, that and the tofu with hot mustard, which which Dave ate on camera, or I think Traci ate that on camera.
+[00:24:34] Will: yeah, just the loss of moisture and the intensity of the fish food flavor was was real bad. It was like a put Tabasco in your mouth to kind of get things going again situation afterwards. So yeah, that and the tofu with hot mustard, which Dave ate on camera, or I think Traci ate that on camera.
 
 [00:24:50] Adam: Oh, it was awful.
 
@@ -722,25 +722,25 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:24:57] Adam: They're just trying all sorts of. Well, someone works at NASA. They're trying all sorts of different things.
 
-[00:25:01] Will: Well, and and as as the director of the of the space food services lab, is that right? Maybe not
+[00:25:01] Will: Well, and as the director of the space food services lab, is that right? Maybe not
 
 [00:25:07] Norm: one of those.
 
-[00:25:08] Will: Yeah. She said that once they develop a recipe, then basically it's like, you know, they spend a ton of money on it, and it's going to go—
+[00:25:08] Will: Yeah. She said that once they develop a recipe, then basically it's like they spend a ton of money on it, and it's going to go—
 
 [00:25:13] Adam: Right.
 
-[00:25:14] Will: Um, and sometimes they have like dietary requirements for astronauts, like some, some of the astronauts once they get to space have to be on a low-sodium diet—
+[00:25:14] Will: And sometimes they have like dietary requirements for astronauts, like some, some of the astronauts once they get to space have to be on a low-sodium diet—
 
 [00:25:20] Adam: Right.
 
-[00:25:21] Will: Um, so then stuff like the baked tofu—
+[00:25:21] Will: So then stuff like the baked tofu—
 
 [00:25:23] Norm: astronauts also are encouraged to walk through supermarkets and find things they like because they get a personal selection of food as well.
 
 [00:25:29] Adam: Did you find out any cool stuff about what personal items the astronauts have up there in terms of culinary?
 
-[00:25:35] Will: Um, so she said that pretty much every restaurant in the greater Houston area that has packets of sauce—those things get bundled up into zip locks and sent up to the station because they'll, they'll bring, whether it's the crappy taco sauce from Taco Bell—
+[00:25:35] Will: So she said that pretty much every restaurant in the greater Houston area that has packets of sauce—those things get bundled up into zip locks and sent up to the station because they'll, they'll bring, whether it's the crappy taco sauce from Taco Bell—
 
 [00:25:48] Adam: Right.
 
@@ -752,7 +752,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:25:55] Adam: I'll bet it is.
 
-[00:25:57] Will: But, but Traci found sriracha that you can buy in packets online, so we're going to make sure that they get some—
+[00:25:57] Will: But Traci found sriracha that you can buy in packets online, so we're going to make sure that they get some—
 
 [00:26:02] Adam: Brilliant.
 
@@ -776,7 +776,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:26:45] Adam: They just go nuts for it.
 
-[00:26:46] Will: And, and yeah, even so, for the Russian flights, the Russians are in charge of that, so it's a completely different set of fresh foods. For the U.S. flights, basically, what they said is for the two weeks leading up to that, it's all the astronauts ask about is, "What have you put—what have you put in the fresh food basket?" And, and while the Russians are bringing in like whole onions and raw garlic and stuff like that and just, you know, chomping into the raw onion, by the time it gets there, usually even the Americans are like, "Yeah, give me one of those onions. I'll totally take—nom, nom, nom." So, so yeah, we, we—ton of great stuff coming out of that. I can't wait to see it. We haven't seen it yet. By the time—
+[00:26:46] Will: And yeah, even so, for the Russian flights, the Russians are in charge of that, so it's a completely different set of fresh foods. For the U.S. flights, basically, what they said is for the two weeks leading up to that, it's all the astronauts ask about is, "What have you put—what have you put in the fresh food basket?" And while the Russians are bringing in like whole onions and raw garlic and stuff like that and just chomping into the raw onion, by the time it gets there, usually even the Americans are like, "Yeah, give me one of those onions. I'll totally take—nom, nom, nom." So, so yeah, we—ton of great stuff coming out of that. I can't wait to see it. We haven't seen it yet. By the time—
 
 [00:27:21] Adam: very exciting. It's it's I love talking to anyone who works at NASA. We've always had just the best relationship with them. Going down to the NASA Ames, and like I said, I was so jealous. You guys get to go. Oh, it's fantastic. Down to Houston.
 
@@ -788,29 +788,29 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:27:49] Adam: Yeah, yeah, yeah.
 
-[00:27:50] Norm: And and they and they have so much insight, and they have stories, and you know, even before we start shooting video, we had long conversations, and it was wonderful.
+[00:27:50] Norm: And they have so much insight, and they have stories, and even before we start shooting video, we had long conversations, and it was wonderful.
 
-[00:27:59] Will: Yeah, I I wish. I mean, I know sometimes it's difficult to get people to talk in a kind of off the cuff way when you aim a camera at them, and and I think that the next time we get to go do something with NASA folks, I am probably going to just roll the cameras the entire time, and then we'll have these massive, long, sprawling 40 minute conversations. So we just post and see what see people like.
+[00:27:59] Will: Yeah, I I wish. I mean, I know sometimes it's difficult to get people to talk in a kind of off the cuff way when you aim a camera at them, and I think that the next time we get to go do something with NASA folks, I am probably going to just roll the cameras the entire time, and then we'll have these massive, long, sprawling 40 minute conversations. So we just post and see what see people like.
 
 [00:28:16] Adam: Totally agree. I totally agree. I think that's a plan.
 
-[00:28:19] Will: Um. So I guess that's, that's it. That's it. Yeah. So stuff on the site, stuff that you should come and look at on the site. Uh, Norm's got photo galleries of the inside of the ISS mockup and the space station mockup, both of which I like. Top five lifetime experiences, like it's like birth of the child, inside the space shuttle trainer, getting married. No, no, switch those sides.
+[00:28:19] Will: So I guess that's it. That's it. Yeah. So stuff on the site, stuff that you should come and look at on the site. Norm's got photo galleries of the inside of the ISS mockup and the space station mockup, both of which I like. Top five lifetime experiences, like it's like birth of the child, inside the space shuttle trainer, getting married. No, no, switch those sides.
 
 [00:28:40] Adam: Yeah, careful.
 
-[00:28:43] Will: Um, this is really cool. Ton of great stuff. Two food videos. One with Traci and Dave.
+[00:28:43] Will: This is really cool. Ton of great stuff. Two food videos. One with Traci and Dave.
 
 [00:28:46] Adam: Yeah.
 
-[00:28:46] Will: Um, the, uh, Neutral Buoyancy Lab interview that Norm did was fantastic. A guy named Chris Hull, who was a commercial diver, and now they dive nitrox, so it's super interesting. We learned all sorts of cool details about how that actually, like the mechanics of how that works.
+[00:28:46] Will: The Neutral Buoyancy Lab interview that Norm did was fantastic. A guy named Chris Hull, who was a commercial diver, and now they dive nitrox, so it's super interesting. We learned all sorts of cool details about how that actually, like the mechanics of how that works.
 
 [00:29:01] Adam: Oh, very cool.
 
-[00:29:01] Will: That I'd never heard before. Yeah. And then we get to see the inside of a spacesuit. So, um, and try on gloves and put on helmets and all that stuff. It was super cool. So, I guess, I mean, I guess that'll do it for us this week.
+[00:29:01] Will: That I'd never heard before. Yeah. And then we get to see the inside of a spacesuit. So and try on gloves and put on helmets and all that stuff. It was super cool. So, I guess, I mean, I guess that'll do it for us this week.
 
 [00:29:12] Adam: Yeah, yeah. Nice work.
 
-[00:29:14] Will: Okay. See you guys, uh, next Tuesday with another edition of Still Untitled.
+[00:29:14] Will: Okay. See you guys next Tuesday with another edition of Still Untitled.
 
 [00:29:18] Adam: Thanks for all your comments.
 

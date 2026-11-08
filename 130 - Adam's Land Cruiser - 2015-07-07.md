@@ -40,11 +40,11 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:02:15] Norm: And the fog is the medicine.
 
-[00:02:17] Adam: the fog is because I'm on my fourth round and third type of antibiotics over the last two months. Um, I'm now on Cipro, and I I cannot stand the way it makes my brain feel. It feels like I'm inside a helmet.
+[00:02:17] Adam: the fog is because I'm on my fourth round and third type of antibiotics over the last two months. I'm now on Cipro, and I I cannot stand the way it makes my brain feel. It feels like I'm inside a helmet.
 
 [00:02:31] Will: Wow, not a fun helmet either.
 
-[00:02:32] Adam: Not a fun helmet. No, a helmet that makes my neck hurt. It's just it's just terrible. You know, I'm a little foggy.
+[00:02:32] Adam: Not a fun helmet. No, a helmet that makes my neck hurt. It's just terrible. I'm a little foggy.
 
 [00:02:37] Norm: Something else that numbs your numb numb your brain. Watching Jupiter ascending.
 
@@ -108,13 +108,13 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:03:34] Adam: Oh, you enjoyed it?
 
-[00:03:35] Norm: I also. I too enjoyed the experience. Um, the filmmaking experience.
+[00:03:35] Norm: I also. I too enjoyed the experience. The filmmaking experience.
 
 [00:03:40] Adam: I. I did too. I thought filmmaking wise, it was absolutely gorgeous. Plot wise, I. I. It was a. It felt like a total hot mess. I think that's a perfect descriptor.
 
 [00:03:49] Will: It's. It's a Matrix do-over.
 
-[00:03:52] Adam: I, I. Yeah, sort of.
+[00:03:52] Adam: I. Yeah, sort of.
 
 [00:03:53] Will: There's a secret world. We're not going to spoil, but there's secret worlds in the like the whole first act is building to this big reveal, and then the big reveal comes. You're like, wait, what? And then it gets real weird from there.
 
@@ -190,7 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:06:09] Norm: It's heavy.
 
-[00:06:11] Will: You know, I would have thought our headphones wouldn't have worked either. I wonder if I have a bad cable.
+[00:06:11] Will: I would have thought our headphones wouldn't have worked either. I wonder if I have a bad cable.
 
 [00:06:16] Norm: [unclear: Well / No], it's powered on now.
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:07:23] Will: Yeah, I think we're good.
 
-[00:07:23] Adam: There we go. Where where did we lose?
+[00:07:23] Adam: There we go. Where did we lose?
 
 [00:07:23] Will: It's gonna be a nightmare.
 
@@ -240,7 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:07:28] Adam: I was talking about Channing Tatum roller skates.
 
-[00:07:31] Will: Yes, yes. Yeah. Okay. So just start with the start with the your only problem was with the hero and then we'll.
+[00:07:31] Will: Yes, yes. Yeah. Okay. So just start with the your only problem was with the hero and then we'll.
 
 [00:07:36] Adam: I had a large problem with the central piece of this movie, which is how Channing Tatum, our hero, moves through the world with his special way of moving.
 
@@ -262,19 +262,19 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:08:00] Norm: Yes, not a role that needed her talents or made use of them.
 
-[00:08:04] Adam: Yeah, it was it was.
+[00:08:04] Adam: Yeah, it was.
 
 [00:08:06] Will: So I—
 
-[00:08:06] Norm: From my perspective, it felt like that the Wachowskis were the studio because the last movie they made, Cloud Atlas, independent film, very expensive, not a commercial success. This one maybe they got the funding because they sold it as like a YA, you know. Here's your a Hunger Games style girl's gonna save the world, at least the universe. Yeah, this one's a galaxy
+[00:08:06] Norm: From my perspective, it felt like that the Wachowskis were the studio because the last movie they made, Cloud Atlas, independent film, very expensive, not a commercial success. This one maybe they got the funding because they sold it as like a YA. Here's your a Hunger Games style girl's gonna save the world, at least the universe. Yeah, this one's a galaxy
 
 [00:08:06] Adam: space opera.
 
-[00:08:06] Norm: Um, space opera,
+[00:08:06] Norm: Space opera,
 
 [00:08:06] Adam: yeah.
 
-[00:08:06] Norm: Um, with the love story, and that felt that was the stuff that felt unnecessary.
+[00:08:06] Norm: With the love story, and that felt that was the stuff that felt unnecessary.
 
 [00:08:33] Adam: But to be—
 
@@ -296,7 +296,7 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:09:02] Will: because like it. At the very minimum, you can assume that they're going to be visually arresting.
 
-[00:09:17] Norm: Yeah, and three things visually saved this movie for me. One, there was a very nice Brazil homage. In in in what I'm not going to spoil exactly the sequence, but there's a sequence
+[00:09:17] Norm: Yeah, and three things visually saved this movie for me. One, there was a very nice Brazil homage. In what I'm not going to spoil exactly the sequence, but there's a sequence
 
 [00:09:28] Adam: and in the text,
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:10:25] Norm: yeah
 
-[00:10:25] Will: like I it could have made the the reason I compare it to the Matrix is because for the first hour you're kind of going okay there's a story about this woman that's cleaning toilets and then huh because it kept cutting back and forth between these two places. Totally. You’re like, what the hell's going on I I don't know I I thought it was I was I was not disappointed that I watched it and I thought it was quite fun even though it was incomprehensible I probably watch it again
+[00:10:25] Will: like I it could have made the reason I compare it to the Matrix is because for the first hour you're kind of going okay there's a story about this woman that's cleaning toilets and then huh because it kept cutting back and forth between these two places. Totally. You’re like, what the hell's going on I I don't know I I thought it was I was not disappointed that I watched it and I thought it was quite fun even though it was incomprehensible I probably watch it again
 
 [00:10:58] Adam: All right, [unclear: Yeah], I, I should watch it again I I don't have a segue but I wanted to talk a little bit about this week about a rekindling of an old love for me
 
@@ -344,11 +344,11 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:11:07] Will: okay
 
-[00:11:11] Adam: indeed. I, I, I, I years ago was the subject of a Department of Defense briefing about security and location tracking in the new smartphones.
+[00:11:11] Adam: indeed. I years ago was the subject of a Department of Defense briefing about security and location tracking in the new smartphones.
 
 [00:11:24] Will: Okay, this was was this prior to the iPhone.
 
-[00:11:27] Adam: This was with the advent with the advent of the first iPhone.
+[00:11:27] Adam: This was with the advent of the first iPhone.
 
 [00:11:27] Will: Okay,
 
@@ -358,7 +358,7 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:11:27] Adam: But the salient point is that back in 2008, I had I bought a Land Cruiser. I had it restored, except for the engine. I had the body restored, and I drove it around a bunch, and I really enjoyed it. Then I moved here into the Mission, where parking was much more at a premium, and I had it stored for a while. And I pulled it out of storage a couple months ago. I had it mechanically fixed back up again with the idea that I was going to sell it because
 
-[00:12:36] Will: you you have said multiple times, " Hey, it doesn't make sense for me to have this car. I'm never going to drive it. It's not a good San Francisco car. Can't take it on the freeway. Yada yada
+[00:12:36] Will: you have said multiple times, " Hey, it doesn't make sense for me to have this car. I'm never going to drive it. It's not a good San Francisco car. Can't take it on the freeway. Yada yada
 
 [00:12:43] Adam: yada yada yada." And I thought, I'll sell it. It's worth a bunch. You know, the dough would be great. I started driving it around and fell totally back in love.
 
@@ -386,17 +386,17 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:13:17] Will: Okay.
 
-[00:13:19] Adam: I will say to learn to get to drive it took me two days just to to feel pretty much comfortable with it. Having not driven it in five years, I got in it three weeks ago, and it was absolutely. I was right back in it.
+[00:13:19] Adam: I will say to learn to get to drive it took me two days just to feel pretty much comfortable with it. Having not driven it in five years, I got in it three weeks ago, and it was absolutely. I was right back in it.
 
 [00:13:32] Will: It's like you're a mailman.
 
-[00:13:33] Adam: No problem. Yes. Um, the hardest part about driving a right-hand drive car on the right-hand side of the road is looking for the rearview mirror. I keep looking to my upper right for it.
+[00:13:33] Adam: No problem. Yes. The hardest part about driving a right-hand drive car on the right-hand side of the road is looking for the rearview mirror. I keep looking to my upper right for it.
 
 [00:13:42] Will: Oh, I would think left. Is it left turns? Probably changing lanes on the interstate on the freeway. [unclear: are challenging / it’s not that hard].
 
 [00:13:48] Norm: One-way streets and— Yeah.
 
-[00:13:50] Adam: Here's the thing that I found that I really like about it that's different than five years ago. And five years ago, I don't know. I basically what I've been falling back in love with is how analog it is to drive this car. You know, I love my Fiat. And it's a standard too, but you know, modern cars—they're super quiet, they're super comfy. I've got seat heaters; everything's great. My stereo's lovely. I drive to work, but the car is insulating you from the experience of the fact that you're hurtling around the world at 70 miles an hour. This car does not. This car takes all your attention to drive. It is.
+[00:13:50] Adam: Here's the thing that I found that I really like about it that's different than five years ago. And five years ago, I don't know. I basically what I've been falling back in love with is how analog it is to drive this car. I love my Fiat. And it's a standard too, but modern cars—they're super quiet, they're super comfy. I've got seat heaters; everything's great. My stereo's lovely. I drive to work, but the car is insulating you from the experience of the fact that you're hurtling around the world at 70 miles an hour. This car does not. This car takes all your attention to drive. It is.
 
 [00:14:27] Will: Is it? I assume that the wheels steering's nice and loose, and you're kind of bouncing all over.
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:14:31] Will: Wow.
 
-[00:14:31] Adam: Yeah, but you can hear it splashing around. Like you turn to the right, it's like you can hear someone go. You know, move that.
+[00:14:31] Adam: Yeah, but you can hear it splashing around. Like you turn to the right, it's like you can hear someone go. Move that.
 
 [00:14:43] Will: The little elves are working real hard up there.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:14:57] Will: It's good given our pothole situation in San Francisco.
 
-[00:14:59] Adam: It's a it's a diesel with two tanks, two batteries. This is a real zombie prepper survival tool.
+[00:14:59] Adam: It's a diesel with two tanks, two batteries. This is a real zombie prepper survival tool.
 
 [00:14:59] Will: Yeah,
 
@@ -440,9 +440,9 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:16:02] Adam: Oh wow!
 
-[00:16:02] Will: And, and my grandparents' farm up in Northern Virginia when I was a kid, it's, it's left-hand drive, like the sane person would would have. But when you put that thing into the low gear, it would drive. You could take a fallen tree tree trunk that was, you know, 24 inches diameter, and it would just drive right over it if it if it had clearance to get over. You could go right up on it, no problem. It was amazing.
+[00:16:02] Will: And my grandparents' farm up in Northern Virginia when I was a kid, it's left-hand drive, like the sane person would would have. But when you put that thing into the low gear, it would drive. You could take a fallen tree tree trunk that was 24 inches diameter, and it would just drive right over it if it had clearance to get over. You could go right up on it, no problem. It was amazing.
 
-[00:16:32] Adam: We, we, I took my boys camping down in a place called the Tumey Hills a few years ago, which is BLM land, which means where we camped there were shell casings everywhere.
+[00:16:32] Adam: We, I took my boys camping down in a place called the Tumey Hills a few years ago, which is BLM land, which means where we camped there were shell casings everywhere.
 
 [00:16:41] Will: Bureau of Land Management.
 
@@ -460,7 +460,7 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:17:17] Adam: Yes,
 
-[00:17:17] Will: at my grandmother's house there was a a creek, and it was all clay banks because North Virginia. Right. And the the Ford for the creek, they eventually built a bridge, but we would whenever we had the Land Cruiser, I was always use the Ford because it was the only the the only they had tractors because it's a farm. Everybody had to be pulled out of that thing. All the jeeps, all the other cars had to be pulled out. They had to be pulled out by a tractor at some point, except for the Land Cruiser, because you always just chunk it down. You know, you pull out of anything.
+[00:17:17] Will: at my grandmother's house there was a creek, and it was all clay banks because North Virginia. Right. And the Ford for the creek, they eventually built a bridge, but we would whenever we had the Land Cruiser, I was always use the Ford because it was the only they had tractors because it's a farm. Everybody had to be pulled out of that thing. All the jeeps, all the other cars had to be pulled out. They had to be pulled out by a tractor at some point, except for the Land Cruiser, because you always just chunk it down. You pull out of anything.
 
 [00:17:44] Adam: It is one of the most beautiful designs of a all wheel drive vehicle that I can think of. I love the Land Cruiser, specifically the short wheelbase with the curved back windows. This is the FJ design, I believe. Bj of Bj42 stands for British Jeep, actually.
 
@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:18:34] Will: Five speed. [unclear: Oh / Oh, nice].
 
-[00:18:34] Adam: Um, I, I, one of the big differences I did last week was I had put in a Garmin-based GPS fold-out screen stereo, which is a
+[00:18:34] Adam: I, one of the big differences I did last week was I had put in a Garmin-based GPS fold-out screen stereo, which is a
 
 [00:18:48] Will: little outdated now, probably
 
@@ -492,9 +492,9 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:18:52] Adam: and it works magnificently. It pairs with my phone as I get in and plays from the beginning, whatever the last song I was listening to.
 
-[00:19:03] Will: Just, just make sure you download your maps to your phone before you go out in the in the deep country.
+[00:19:03] Will: Just, just make sure you download your maps to your phone before you go out in the deep country.
 
-[00:19:08] Adam: Yes, yes, I will. I do plan to take it camping this this summer with the boys, thing one and thing two, and I it's there's no way I'm selling it. So if you're thinking about asking, don't because there's no way I'm selling this thing.
+[00:19:08] Adam: Yes, yes, I will. I do plan to take it camping this summer with the boys, thing one and thing two, and I it's there's no way I'm selling it. So if you're thinking about asking, don't because there's no way I'm selling this thing.
 
 [00:19:21] Norm: So what condition was it in when you took it out of storage, and how much work needed to be actually done on it?
 
@@ -516,17 +516,17 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:19:52] Adam: So the body is just perfect.
 
-[00:19:58] Will: Um, it's it's the same one in the from the gods might be crazy, right? The gods may be crazy.
+[00:19:58] Will: It's the same one in the from the gods might be crazy, right? The gods may be crazy.
 
-[00:20:02] Adam: I I can't quite picture that one, but I'll take your word for it.
+[00:20:02] Adam: I can't quite picture that one, but I'll take your word for it.
 
 [00:20:05] Will: I'm reasonably sure.
 
 [00:20:06] Adam: That might be an FJ40.
 
-[00:20:07] Will: I think I think it's the short. I think it's the short wheelbase.
+[00:20:07] Will: I think it's the short. I think it's the short wheelbase.
 
-[00:20:10] Adam: Well, the FJ and the BJ are hard to determine. You have to you have to know your your your Land Cruisers to tell the difference between them.
+[00:20:10] Adam: Well, the FJ and the BJ are hard to determine. You have to know your Land Cruisers to tell the difference between them.
 
 [00:20:10] Unknown speaker: I don’t know them that well.
 
@@ -534,7 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:20:17] Adam: We definitely will do a walk through
 
-[00:20:19] Will: when you're doing. Oh, when you're doing work on it, I mean, it's it's fun to work on an old fully mechanical car. There's carburetors. There's no electronics in that thing. You just hit the batteries and turn it on.
+[00:20:19] Will: when you're doing. Oh, when you're doing work on it, I mean, it's fun to work on an old fully mechanical car. There's carburetors. There's no electronics in that thing. You just hit the batteries and turn it on.
 
 [00:20:29] Adam: Well, it is a diesel, so
 

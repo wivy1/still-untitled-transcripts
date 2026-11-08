@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:02:40] Will: I was in Chicago, Illinois this weekend.
 
-[00:02:41] Adam: How how was your how was your how was your weekend?
+[00:02:41] Adam: How was your weekend?
 
 [00:02:44] Will: I had never been to Chicago like aside from airport before.
 
@@ -40,9 +40,9 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:03:07] Adam: Automated ass gasket.
 
-[00:03:09] Norm: Wait, they they lay out the paper. automatically?
+[00:03:09] Norm: Wait, they lay out the paper. automatically?
 
-[00:03:11] Will: There is a machine on the back of the toilet seat, and when you wave your hand over the top, the the ass gasket is on a track around the ring of the toilet seat, and used ass gasket goes into one side, and new ass gasket comes out of the other side.
+[00:03:11] Will: There is a machine on the back of the toilet seat, and when you wave your hand over the top, the ass gasket is on a track around the ring of the toilet seat, and used ass gasket goes into one side, and new ass gasket comes out of the other side.
 
 [00:03:25] Adam: So every now and then, someone has to come and clear out a whole like bin full of used ass. gasket.
 
@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:04:08] Norm: What do you mean, put your head inside the towel loop?
 
-[00:04:09] Adam: Well, so it's like a machine, right? And a and a and a long cloth terry cloth towel comes out and goes back into it. And the way it works is, I think it's like 50 feet long, and you do it. They launder it every day or something.
+[00:04:09] Adam: Well, so it's like a machine, right? And a long cloth terry cloth towel comes out and goes back into it. And the way it works is, I think it's like 50 feet long, and you do it. They launder it every day or something.
 
 [00:04:21] Norm: Okay,
 
@@ -136,7 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:05:18] Adam: people are awesome.
 
-[00:05:19] Will: I had such good Italian food within three minutes of yeah. It was it was delightful.
+[00:05:19] Will: I had such good Italian food within three minutes of yeah. It was delightful.
 
 [00:05:24] Adam: There's a famous burger place called Kuma's Corner.
 
@@ -144,23 +144,23 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:05:28] Adam: where they serve up a split in half sausage burger thing that they call the Goblin Cock.
 
-[00:05:37] Will: So it is it is a sausage on top of a burger.
+[00:05:37] Will: So it is a sausage on top of a burger.
 
-[00:05:39] Adam: I I I can't quite remember the specifics, but Kuma's is. I went there with our friends Kim and Clark and Julie, and I have good friends in Chicago, so we spent a lot of time there. And like Kuma's is a place where it was totally worth waiting 90 minutes to get the burger.
+[00:05:39] Adam: I can't quite remember the specifics, but Kuma's is. I went there with our friends Kim and Clark and Julie, and I have good friends in Chicago, so we spent a lot of time there. And like Kuma's is a place where it was totally worth waiting 90 minutes to get the burger.
 
 [00:05:55] Norm: It must be slathered in Miracle Whip, otherwise known as Goblin.
 
-[00:05:59] Adam: I think there's also you know, I think there was also a spice going on.
+[00:05:59] Adam: I think there's also I think there was also a spice going on.
 
-[00:06:04] Will: I'm looking up the name of something so I don't mess it up because it was it was good to the point that I don't want to mess it up.
+[00:06:04] Will: I'm looking up the name of something so I don't mess it up because it was good to the point that I don't want to mess it up.
 
 [00:06:08] Adam: All right,
 
-[00:06:08] Will: but I went for breakfast on one morning. I can't remember Friday maybe. I went to a place called a Little Goat Diner with a friend, and it is by Stephanie Izard, I think, who was on Top Chef, like one of the early seasons. of Top Chef was the winner, and I had for breakfast a thing that had a biscuit. Um. Then on top of the biscuit was a slice of pork belly. Top of the pork belly was a poached egg, and then there was some kimchi and like a kale salad. And then there was this sauce, and it has a name, but I don't remember the name. That was like pureed salt cod and potatoes.
+[00:06:08] Will: but I went for breakfast on one morning. I can't remember Friday maybe. I went to a place called a Little Goat Diner with a friend, and it is by Stephanie Izard, I think, who was on Top Chef, like one of the early seasons. of Top Chef was the winner, and I had for breakfast a thing that had a biscuit. Then on top of the biscuit was a slice of pork belly. Top of the pork belly was a poached egg, and then there was some kimchi and like a kale salad. And then there was this sauce, and it has a name, but I don't remember the name. That was like pureed salt cod and potatoes.
 
 [00:06:43] Adam: Wow.
 
-[00:06:43] Will: I mean, so it was just a little tiny hint of fish with a potato cream, almost like a like a. It was. It was. It was easily a top 10 meal of my life, and it was like $8 or $12 or something for breakfast.
+[00:06:43] Will: I mean, so it was just a little tiny hint of fish with a potato cream, almost like a. It was. It was. It was easily a top 10 meal of my life, and it was like $8 or $12 or something for breakfast.
 
 [00:06:57] Adam: So I also went to an amazing food city, Austin, Texas.
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:07:05] Adam: Yes, they are, and oh my god, it was so good. We [unclear: hit], we ate really, really well. I was down there because Tom Sachs, the artist, we've covered him on Tested a bunch.
 
-[00:07:14] Will: You should watch the the talking room if you never saw it. It's really good.
+[00:07:14] Will: You should watch the talking room if you never saw it. It's really good.
 
 [00:07:16] Adam: Is, is one of my favorites, and Tom had a retrospective of his boom boxes going back 15 years at the Contemporary Museum Austin, and then there was also talks given at the Sculpture Garden in Austin, where that has a few of Tom [unclear: Pete] Tom's pieces.
 
@@ -182,7 +182,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:07:47] Will: like parting out old boom boxes and then putting them in new cases or?
 
-[00:07:48] Adam: No, this is this is literally taking speakers. And a driver of some kind, and a mini amp, and putting them into different form factors. There's a boombox built into a cinder block.
+[00:07:48] Adam: No, this is literally taking speakers. And a driver of some kind, and a mini amp, and putting them into different form factors. There's a boombox built into a cinder block.
 
 [00:08:00] Will: Oh wow!
 
@@ -194,17 +194,17 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:08:14] Norm: self-contained units. You can play music from them,
 
-[00:08:16] Adam: [unclear: Yeah.] and they all work. They all they all they all function. There's a giant wall-sized one that weighs thousands of pounds. All you know, of course, using Tom's signatures of plywood and custom labeling and
+[00:08:16] Adam: [unclear: Yeah.] and they all work. They all function. There's a giant wall-sized one that weighs thousands of pounds. All of course, using Tom's signatures of plywood and custom labeling and
 
 [00:08:26] Will: five colors,
 
-[00:08:26] Adam: [unclear: Extra] things like zombie-killing machetes bolted to the side. Um, I don't mean to trivialize it at all. These things were gorgeous, and Julia, my wife, had never seen Tom's work in person. Oh. Um. So we went to the opening on Friday night. Um. Now, one of the one of the pieces that was down in Austin as part of this retrospective was a car, a souped-up Chevy Caprice. That that Tom has been lovingly restoring for the last 10 years.
+[00:08:26] Adam: [unclear: Extra] things like zombie-killing machetes bolted to the side. I don't mean to trivialize it at all. These things were gorgeous, and Julia, my wife, had never seen Tom's work in person. Oh. So we went to the opening on Friday night. Now, one of the pieces that was down in Austin as part of this retrospective was a car, a souped-up Chevy Caprice. That that Tom has been lovingly restoring for the last 10 years.
 
 [00:08:55] Will: So it's a like '70s era, early '80s,
 
 [00:08:57] Adam: '79, I believe.
 
-[00:08:58] Will: Okay, so it's in the in the land boat category of cars. [unclear: Land boat.] And like
+[00:08:58] Will: Okay, so it's in the land boat category of cars. [unclear: Land boat.] And like
 
 [00:09:03] Adam: you look at it, and it says cop car.
 
@@ -224,19 +224,19 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:09:20] Adam: [unclear: Yeah, yeah. Comments. / So I wish, I wish we’d show up in the comments.]
 
-[00:09:21] Will: Yeah, if only, if only we had some way to find out.
+[00:09:21] Will: Yeah, if only we had some way to find out.
 
 [00:09:23] Adam: Manifest it. So he said, " You know, I'm going to have the car down there, and it's it's working." And I said, " Do you want me to drive it?" And he said, " Well, I was thinking if we get some time to hang, maybe we should drive it around Austin." Yeah.
 
 [00:09:38] Norm: Okay.
 
-[00:09:38] Adam: But this thing has been totally souped up. It's got a it's got a bypass on the exhaust, and it's got nitrous. Um. [unclear: I don’t know. I don’t know. Um, and yeah.]
+[00:09:38] Adam: But this thing has been totally souped up. It's got a bypass on the exhaust, and it's got nitrous. [unclear: I don’t know. I don’t know. Um, and yeah.]
 
 [00:09:48] Norm: street racing. [unclear: Yeah.]
 
 [00:09:49] Will: Oh boy.
 
-[00:09:49] Adam: So. Uh, Friday we went to the opening, right? So Friday we went to the opening, and then after the opening, I hung out with Tom and his friends in the bar. Oh, we also stayed at this hotel in Austin called the Saint Cecilia, which is an amazing, amazing. It's he's instantly one of I've stayed there before. Julia has not. Is
+[00:09:49] Adam: So. Friday we went to the opening, right? So Friday we went to the opening, and then after the opening, I hung out with Tom and his friends in the bar. Oh, we also stayed at this hotel in Austin called the Saint Cecilia, which is an amazing, amazing. It's he's instantly one of I've stayed there before. Julia has not. Is
 
 [00:10:12] Will: this the place you stayed at South by?
 
@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:10:52] Will: Yes.
 
-[00:10:52] Adam: So we go to this parking lot that's right next door to the hotel, and we we do a couple, we do a few donuts for about five minutes, and then we go back, and I go to bed. Wake up the next day. There's talk at the sculpture garden, and then there's a sit-down dinner for a bunch of the supporters of the exhibition and the museum, and some speeches and such. And then after that, I guess we hang out in the bar for a while. That Julie and I are really tired. I didn't get enough sleep the night before, so we go to bed. Now we're flying home on Sunday,
+[00:10:52] Adam: So we go to this parking lot that's right next door to the hotel, and we do a couple, we do a few donuts for about five minutes, and then we go back, and I go to bed. Wake up the next day. There's talk at the sculpture garden, and then there's a sit-down dinner for a bunch of the supporters of the exhibition and the museum, and some speeches and such. And then after that, I guess we hang out in the bar for a while. That Julie and I are really tired. I didn't get enough sleep the night before, so we go to bed. Now we're flying home on Sunday,
 
 [00:11:26] Will: Mm-hmm.
 
@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:11:50] Will: Yeah.
 
-[00:11:51] Adam: So I say, look, I'm going to put on some clothes. And go say good night and say goodbye, and I open the door to my room and there's Tom coming up the stairs with the keys to the Caprice in his hand, and I said, you know, I just changed my tickets, and he says, you want to do one more drive? And I say, yes, absolutely, let's go do it. So we get in the Caprice.
+[00:11:51] Adam: So I say, look, I'm going to put on some clothes. And go say good night and say goodbye, and I open the door to my room and there's Tom coming up the stairs with the keys to the Caprice in his hand, and I said I just changed my tickets, and he says, you want to do one more drive? And I say, yes, absolutely, let's go do it. So we get in the Caprice.
 
 [00:12:12] Will: Did you hit the nitrous ever?
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:12:41] Adam: Okay. So we go back out to the same parking lot, and. I do some drifting, and I mean this car is so powerful. Now, to be clear, drifting is where the back wheels lose their traction with the ground, but you can still steer the car by utilizing the amount of throttle you are applying to them. So you can move in directions that you intend; they're just not forward.
 
-[00:13:10] Will: So you are steering with the with the centrifugal force that comes off of the transaxle because you are doing
+[00:13:10] Will: So you are steering with the centrifugal force that comes off of the transaxle because you are doing
 
 [00:13:16] Adam: no
 
@@ -322,13 +322,13 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:13:35] Will: yeah
 
-[00:13:35] Adam: and the car moves sideways and you turn into this into the skid drifting is very similar except that [unclear: But] because you are actually spinning the wheels you are getting a different kind of rolling traction and you can utilize that so. I was showing Tom how we do 360s. Now Tom wasn't drunk or anything, but I showed him how to do some drifting, and then I got back in the back in the driver's seat, and I did some final 360s. And this is understand the car is doing these 360s; it's always pointed towards the center.
+[00:13:35] Adam: and the car moves sideways and you turn into this into the skid drifting is very similar except that [unclear: But] because you are actually spinning the wheels you are getting a different kind of rolling traction and you can utilize that so. I was showing Tom how we do 360s. Now Tom wasn't drunk or anything, but I showed him how to do some drifting, and then I got back in the driver's seat, and I did some final 360s. And this is understand the car is doing these 360s; it's always pointed towards the center.
 
 [00:14:07] Will: Oh yeah,
 
 [00:14:08] Adam: and it's moving sideways [unclear: Around.] around these light poles in this parking lot,
 
-[00:14:14] Norm: and it's it's not like it's fixed in one position doing a circle. It's actually moving. There's a radius.
+[00:14:14] Norm: and it's not like it's fixed in one position doing a circle. It's actually moving. There's a radius.
 
 [00:14:18] Adam: It is both the front and yeah it is moving.
 
@@ -344,15 +344,15 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:14:49] Adam: the cops show up,
 
-[00:14:50] Will: and and and just to be clear, Tom is doing this like Tom is into this because he's kind of into functional art.
+[00:14:50] Will: and just to be clear, Tom is doing this like Tom is into this because he's kind of into functional art.
 
 [00:14:55] Adam: Yes,
 
-[00:14:55] Will: from from from my understanding, right? He wants he doesn't want to build things for the sake of building them. He wants to build them and then use them, experience them the way you would expect. [unclear: them to do / A hundred percent.]
+[00:14:55] Will: from my understanding, right? He wants he doesn't want to build things for the sake of building them. He wants to build them and then use them, experience them the way you would expect. [unclear: them to do / A hundred percent.]
 
-[00:15:02] Adam: No, that's that's that's the point. This car was built to be driven, and we are running it through its life's purpose at this point.
+[00:15:02] Adam: No, that's the point. This car was built to be driven, and we are running it through its life's purpose at this point.
 
-[00:15:09] Will: I gotta imagine that this is a weird, like, if you put yourself in the cops' shoes, this is a situation that is that is wholly unexpected.
+[00:15:09] Will: I gotta imagine that this is a weird if you put yourself in the cops' shoes, this is a situation that is wholly unexpected.
 
 [00:15:17] Adam: Well, you also so it's a fancy residential neighborhood right next door to a hotel.
 
@@ -362,17 +362,17 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:15:31] Will: Right.
 
-[00:15:31] Adam: So I have to assume that it's going to be a relief to find a sober adult behind the wheel, but it's also going to be like, what the what the hell are you doing?
+[00:15:31] Adam: So I have to assume that it's going to be a relief to find a sober adult behind the wheel, but it's also going to be like, what the hell are you doing?
 
 [00:15:38] Will: [unclear: Come on.] Come on, yeah.
 
-[00:15:39] Adam: So I say as he comes up to the car, I open the door. He's, "Stay in the car." I am like, nah. I am opening the door. I have my hands up. I'm opening the door because the window doesn't roll down. Okay, I said I'm very sorry to drag you out here at this time of night, officer, for something so stupid. We're just a couple of idiots. My friend Tom here has a retrospective at the Contemporary. This is one of the sculptures, and we're just running it through its paces. And he, the officer, says, " This isn't some MythBusters thing you're doing." And I said, " I promise you, I'm off duty." And he says, " I heard about this last night. Also, was that you too?" And I said, " I have to admit, it was." And he says, " Is this an ongoing thing? Are we going to have to come back and deal with this again?" I said, " No, I'm leaving town tomorrow, and I promise you will never hear from me about driving again." I'm really sorry. And he says, uh, he's—he's very incredibly professional and awesome, Austin PD. He goes away to check my license, and his partner comes up and goes, " This is '78 or '79?"
+[00:15:39] Adam: So I say as he comes up to the car, I open the door. He's, "Stay in the car." I am like, nah. I am opening the door. I have my hands up. I'm opening the door because the window doesn't roll down. Okay, I said I'm very sorry to drag you out here at this time of night, officer, for something so stupid. We're just a couple of idiots. My friend Tom here has a retrospective at the Contemporary. This is one of the sculptures, and we're just running it through its paces. And he, the officer, says, " This isn't some MythBusters thing you're doing." And I said, " I promise you, I'm off duty." And he says, " I heard about this last night. Also, was that you too?" And I said, " I have to admit, it was." And he says, " Is this an ongoing thing? Are we going to have to come back and deal with this again?" I said, " No, I'm leaving town tomorrow, and I promise you will never hear from me about driving again." I'm really sorry. And he says he's very incredibly professional and awesome, Austin PD. He goes away to check my license, and his partner comes up and goes, " This is '78 or '79?"
 
 [00:16:40] Will: Oh my god!
 
 [00:16:43] Adam: So, so, I mean, we are in a cop car.
 
-[00:16:45] Will: We've got to evaluate this a little bit, though, because because there's the moment. Norm, have you ever been pulled over?
+[00:16:45] Will: We've got to evaluate this a little bit, though, because there's the moment. Norm, have you ever been pulled over?
 
 [00:16:50] Norm: Yes.
 
@@ -380,7 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:17:01] Norm: Right.
 
-[00:17:01] Will: Um, you could have been in a fair amount of trouble in this situation.
+[00:17:01] Will: You could have been in a fair amount of trouble in this situation.
 
 [00:17:05] Adam: So I, I wasn't that worried. I look, anybody, you know, the cops have a tremendous amount of discretion in these situations, and I could easily imagine that I could piss him off, and he could decide to waste the next 10 or 15 hours of my life. I also know that I'm completely sober. I know that I'm in control of the vehicle. I've been professionally trained to drive it safely, and there is no property damage. So effectively, I figure,
 
@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:17:44] Will: It's the one call. Do you remember the name of the hotel?
 
-[00:17:46] Adam: Um. So the the story gets better. Uh. This next part you're gonna have to cut out.
+[00:17:46] Adam: So the story gets better. This next part you're gonna have to cut out.
 
 [00:17:54] Will: Okay.
 
@@ -440,7 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:19:06] Will: yeah.
 
-[00:19:06] Adam: We went and we went over to Jack's room and hung out for about half an hour. He's got two kids, seven and nine years old. We talked about music and vinyl. You know, he's one of the one of the firm progenitors of pressing vinyl. His his
+[00:19:06] Adam: We went and we went over to Jack's room and hung out for about half an hour. He's got two kids, seven and nine years old. We talked about music and vinyl. He's one of the firm progenitors of pressing vinyl. His his
 
 [00:19:23] Will: Third Man Records
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:19:32] Will: It's yeah, Third Man Records is the name of the label that he runs, and it's amazing.
 
-[00:19:35] Adam: Um, so hold on a second. I'm going to show you. Where is it? Where is it? There we go. There's um, Tom and Jack and I.
+[00:19:35] Adam: So hold on a second. I'm going to show you. Where is it? Where is it? There we go. There's Tom and Jack and I.
 
 [00:19:46] Will: Oh my God!
 
@@ -460,7 +460,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:19:52] Will: Oh, my wife is going to be the most jealous she's ever been of anything.
 
-[00:19:54] Adam: I'll tell you, Jack could not have been a nicer, more gracious, more grounded dude. I I don't know much about his personal life. I love his music. I'm a huge fan.
+[00:19:54] Adam: I'll tell you, Jack could not have been a nicer, more gracious, more grounded dude. I don't know much about his personal life. I love his music. I'm a huge fan.
 
 [00:20:03] Will: I've seen him probably 20 times in the last 10 years.
 
@@ -472,7 +472,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:20:14] Will: Oh, that's awesome.
 
-[00:20:15] Adam: So epic night. And wait, might I mention that the previous night, when we went to get the Caprice, the first night, we had to go over to a sister hotel, the Hotel San Jose, to pick it up. And as we were picking it up, we were literally just unlocking the car. We heard this terrible sound of a skid and a screech, and a guy wiped out on his motorcycle right in front of the hotel. Now he was totally drunk, shit-faced, and he was fine. Like the the bike went out from under him and skidded another 200 feet, and he was just lying on the ground, kind of rolling drunkenly, going "Ah, ah, ah."
+[00:20:15] Adam: So epic night. And wait, might I mention that the previous night, when we went to get the Caprice, the first night, we had to go over to a sister hotel, the Hotel San Jose, to pick it up. And as we were picking it up, we were literally just unlocking the car. We heard this terrible sound of a skid and a screech, and a guy wiped out on his motorcycle right in front of the hotel. Now he was totally drunk, shit-faced, and he was fine. Like the bike went out from under him and skidded another 200 feet, and he was just lying on the ground, kind of rolling drunkenly, going "Ah, ah, ah."
 
 [00:20:46] Will: Wow.
 
@@ -484,7 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:21:07] Will: You had the shiny gloves.
 
-[00:21:08] Adam: And then, and then the next night after the after the after the cop escapade at Jack White, Julian goes, " Every time you guys get together, it's like a fantasy date."
+[00:21:08] Adam: And then the next night after the cop escapade at Jack White, Julian goes, " Every time you guys get together, it's like a fantasy date."
 
 [00:21:17] Norm: Yeah, like a Chappie movie. No, it's half of Superbad.
 
@@ -506,31 +506,31 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:21:44] Adam: No, do not. I am not advocating doing this.
 
-[00:21:48] Will: Don't don't do parking lot trips. I think you and you and Tom need to go on a road trip in that thing.
+[00:21:48] Will: Don't don't do parking lot trips. I think you and Tom need to go on a road trip in that thing.
 
 [00:21:52] Adam: I think that's entirely a great idea.
 
 [00:21:55] Will: I mean, it's easy for me to say from here.
 
-[00:21:58] Adam: What what what kind of trouble could we get?
+[00:21:58] Adam: What kind of trouble could we get?
 
 [00:22:00] Will: You might want to talk to Julia first.
 
 [00:22:02] Adam: So yeah, that was my weekend. We got back yesterday at about 10 a.m. I slept for a couple of hours, but then I was up late last night because Tim Minchin, my friend and amazing musician, was in town playing at the Nourse, and Rebecca Watson was there, and so was one of my heroes, Dan Savage, of the writer of Savage Love column, yeah, and the Savage Love podcast, and so we all hung out and went out to dinner last night. So I was again up until 1 a.m. and then we got up. Norm and I got up early this morning to fly some drones with Eric Cheng, and so I. After this podcast, I'm going to go take a long nap.
 
-[00:22:38] Will: Yeah, the combat nap's not a bad idea. Yeah, it seems like in this in this situation,
+[00:22:38] Will: Yeah, the combat nap's not a bad idea. Yeah, it seems like in this situation,
 
 [00:22:42] Adam: I'm going to have to spend a good portion of this week earning my earning my rest back. Oh, yeah, I'm feeling it too. I'm I'm feeling it. I'm feeling it.
 
-[00:22:50] Will: High points for for Austin meals, because it is like we had some of the best barbecue. We had fancy barbecue one night that was among the the the nicest. I can't remember the name of the place now.
+[00:22:50] Will: High points for Austin meals, because it is like we had some of the best barbecue. We had fancy barbecue one night that was among the nicest. I can't remember the name of the place now.
 
 [00:23:03] Norm: It was really good.
 
-[00:23:04] Adam: We went to we went to we went to a bar called Whistlers that had a food truck attached to it.
+[00:23:04] Adam: We went to a bar called Whistlers that had a food truck attached to it.
 
 [00:23:10] Will: That sounds good.
 
-[00:23:10] Adam: And had incredible food, really amazing fried chicken, super super spicy, with some hot. No, no, no. The the sausages were later at the sit down meal at the Saint Cecilia, which was also amazing. Like when is a 80-person sit down dinner good food?
+[00:23:10] Adam: And had incredible food, really amazing fried chicken, super super spicy, with some hot. No, no, no. The sausages were later at the sit down meal at the Saint Cecilia, which was also amazing. Like when is a 80-person sit down dinner good food?
 
 [00:23:27] Will: Right.
 
@@ -542,7 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:23:34] Will: Wow.
 
-[00:23:34] Adam: Genuinely incredible. Where else? No, Whistlers was Friday night. Saturday night was a sit down dinner, and we ate breakfast at the hotel again. Our breakfast at the hotel was a was a a pork. Slices of pork sandwich that was stunning.
+[00:23:34] Adam: Genuinely incredible. Where else? No, Whistlers was Friday night. Saturday night was a sit down dinner, and we ate breakfast at the hotel again. Our breakfast at the hotel was a pork. Slices of pork sandwich that was stunning.
 
 [00:23:55] Will: Sounds sounds good. Whistler's was the name of the fancy place.
 
@@ -562,19 +562,19 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:24:11] Adam: Yes, we were.
 
-[00:24:12] Will: And and the thing that amazed me, the takeout. So I went I went to a little tiny, well, not that tiny anymore, but a small conference in Chicago. And the thing that amazed me was how game everyone was for kind of everything.
+[00:24:12] Will: And the thing that amazed me, the takeout. So I went to a little tiny, well, not that tiny anymore, but a small conference in Chicago. And the thing that amazed me was how game everyone was for kind of everything.
 
-[00:24:24] Adam: And that's what Austin felt like too. And when people we were talking to locals were were talking, the word everyone used is everyone here is chill.
+[00:24:24] Adam: And that's what Austin felt like too. And when people we were talking to locals were talking, the word everyone used is everyone here is chill.
 
 [00:24:32] Will: Yeah.
 
-[00:24:32] Adam: And it really feels like that, like a a a great city with real character. It's a really individual city, but with a really thriving art scene and a burgeoning fine arts scene. I mean, the contemporary, what the contemporary is doing, is really exciting.
+[00:24:32] Adam: And it really feels like that, like a great city with real character. It's a really individual city, but with a really thriving art scene and a burgeoning fine arts scene. I mean, the contemporary, what the contemporary is doing, is really exciting.
 
 [00:24:49] Will: They're spending money on museums, which is exciting,
 
-[00:24:51] Adam: and they've got a great. Donor culture there. I met a lot of the people intrinsic to the the up and coming art scene there, and it's just it's really exciting to be part of that.
+[00:24:51] Adam: and they've got a great. Donor culture there. I met a lot of the people intrinsic to the up and coming art scene there, and it's just it's really exciting to be part of that.
 
-[00:25:01] Will: I I think we should also take a moment to acknowledge some privilege, in your dealing with John Q. Law.
+[00:25:01] Will: I think we should also take a moment to acknowledge some privilege, in your dealing with John Q. Law.
 
 [00:25:08] Adam: 100%.
 
@@ -586,7 +586,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:25:17] Norm: doubly,
 
-[00:25:18] Adam: and I can certainly see, you know, officer approaches, sees it's me. Oh, I wonder, I wonder who I'm gonna get. I wonder if it turns out that this guy's a dick. I wonder if he's drunk. I wonder if he's on drugs. All of those things are going through his mind. So my my goal is not only to just be totally honest, you know, so sorry, we're idiots. This is you know, but also I I it is not to in any way try. I I don't want to parlay that privilege.
+[00:25:18] Adam: and I can certainly see officer approaches, sees it's me. Oh, I wonder who I'm gonna get. I wonder if it turns out that this guy's a dick. I wonder if he's drunk. I wonder if he's on drugs. All of those things are going through his mind. So my goal is not only to just be totally honest so sorry, we're idiots. This is but also I I it is not to in any way try. I don't want to parlay that privilege.
 
 [00:25:44] Will: You can't play well.
 
@@ -602,7 +602,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:25:57] Will: yeah. So anyway,
 
-[00:25:58] Adam: yeah, that's that's that is also true.
+[00:25:58] Adam: yeah, that's that is also true.
 
 [00:26:01] Will: Uh.
 
@@ -616,7 +616,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:26:14] Adam: It doesn't seem like it should be controversial, and yet.
 
-[00:26:16] Will: Yeah, well, you know, I don't know if that's a good place to stop or not, but that's where we're going to run it out. Norm, what did you do this weekend?
+[00:26:16] Will: Yeah, well I don't know if that's a good place to stop or not, but that's where we're going to run it out. Norm, what did you do this weekend?
 
 [00:26:23] Norm: I watched a lot of movies.
 

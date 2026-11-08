@@ -16,9 +16,9 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:00:12] Adam: I'm on a couch. On a
 
-[00:00:14] Will: couch. We're on a couch. Um, this is the this is the opposite shot. If you're watching the video, you you immediately know that. If you're listening to the audio, this is really kind of a disappointing moment for you, probably.
+[00:00:14] Will: couch. We're on a couch. This is the opposite shot. If you're watching the video, you immediately know that. If you're listening to the audio, this is really kind of a disappointing moment for you, probably.
 
-[00:00:24] Adam: The table, the table is right over there. That's where we normally do this.
+[00:00:24] Adam: The table is right over there. That's where we normally do this.
 
 [00:00:27] Norm: Oh my God, that looks so cool over there.
 
@@ -26,9 +26,9 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:00:27] Norm: And there,
 
-[00:00:31] Will: I can't believe what you did with the R2. You know, he looks so much better now. Oh,
+[00:00:31] Will: I can't believe what you did with the R2. He looks so much better now. Oh,
 
-[00:00:34] Adam: You guys are such bastards. Um, what I what what you are seeing is the new sword and upright thingy rack that I built for the back of the couch this weekend.
+[00:00:34] Adam: You guys are such bastards. What I what you are seeing is the new sword and upright thingy rack that I built for the back of the couch this weekend.
 
 [00:00:34] Norm: Does it say, "Do not lean back"?
 
@@ -38,9 +38,9 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:00:48] Adam: Yeah, there's there's whatever duel you feel like having is possible from this rack.
 
-[00:00:53] Will: Three fencing foils, épées, or uh.
+[00:00:53] Will: Three fencing foils, épées, or.
 
-[00:00:56] Adam: I actually—that's not all the fencing foils I have. I—I have another half dozen in storage.
+[00:00:56] Adam: I actually—that's not all the fencing foils I have. I have another half dozen in storage.
 
 [00:01:01] Will: Have you ever fenced?
 
@@ -66,7 +66,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:01:22] Adam: Yeah.
 
-[00:01:22] Will: Uh, And and it's like there's an amazing amount of skill there. Like it's one of the things you look at on the Olympics or whatever. Yeah. The one time every four years that it's on TV, and it looks like just some dudes wailing on each other. But it's it's all about anticipating what your opponent's going to do and countering that.
+[00:01:22] Will: And it's like there's an amazing amount of skill there. Like it's one of the things you look at on the Olympics or whatever. Yeah. The one time every four years that it's on TV, and it looks like just some dudes wailing on each other. But it's all about anticipating what your opponent's going to do and countering that.
 
 [00:01:43] Norm: Telegraphing, reading the telegraph.
 
@@ -84,7 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:02:05] Norm: Yeah, and you would think the broadsword would just smash.
 
-[00:02:18] Adam: Well, and it was a whole thing about the difference between the two blades, and we haven't talked about this, but I have a lovely replica of Inigo Montoya's sword from Princess Bride, and I the the the blade from it, which is sitting right behind Norm there, was a piece of stamped chrome shit. So I sent it to a rapier maker to remake the blade as a real rapier blade, and when I got it back, it terrified me about rapiers because
+[00:02:18] Adam: Well, and it was a whole thing about the difference between the two blades, and we haven't talked about this, but I have a lovely replica of Inigo Montoya's sword from Princess Bride, and I the blade from it, which is sitting right behind Norm there, was a piece of stamped chrome shit. So I sent it to a rapier maker to remake the blade as a real rapier blade, and when I got it back, it terrified me about rapiers because
 
 [00:02:44] Will: it's super sharp and scary.
 
@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:02:54] Adam: Yeah, man.
 
-[00:02:54] Will: but but it's also edged too, right?
+[00:02:54] Will: but it's also edged too, right?
 
 [00:02:54] Adam: Yeah,
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:03:12] Adam: No, and it's something I it's that's actually not by that's not by choice. I would love and San Francisco doesn't yet have a sword fighting group.
 
-[00:03:20] Will: We have a kendo. There’s a, there’s a good kendo class that Brian Lam tried to get me to go to.
+[00:03:20] Will: We have a kendo. There’s a good kendo class that Brian Lam tried to get me to go to.
 
 [00:03:25] Adam: Well, I've been trained in kendo and probably get knowing Brian, he probably went to the same guy.
 
@@ -126,13 +126,13 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:03:31] Adam: whoever it is, Brian's going to the best.
 
-[00:03:33] Will: Um, there’s a, there’s a fencing club though, I believe.
+[00:03:33] Will: There’s a fencing club though, I believe.
 
 [00:03:36] Adam: Right, but for me, I am interested in more things like Aragorn's sword, oh, that kind of sword fighting,
 
 [00:03:41] Will: like broadsword or claymore or whatever.
 
-[00:03:43] Adam: Yeah, but not. I don't want a big, you know, whatever they were doing with that with Excalibur.
+[00:03:43] Adam: Yeah, but not. I don't want a big whatever they were doing with that with Excalibur.
 
 [00:03:43] Norm: You want a one and a half hand sword?
 
@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:03:50] Will: Something, something you can two hand if you want, but it's a one hand optional.
 
-[00:03:50] Norm: It's not the local, you know, Jedi association.
+[00:03:50] Norm: It's not the local Jedi association.
 
 [00:03:57] Adam: Yes, yeah, yeah. So I, I recognize we're going to get a lot. Oh wait, I wanted to talk about this just for a second. I noticed in the comments about the last podcast, people were complaining that it was a little short.
 
@@ -152,11 +152,11 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:04:07] Adam: I don't think it was.
 
-[00:04:09] Will: I thought it was long. Usually, like the the target length is about 20 minutes.
+[00:04:09] Will: I thought it was long. Usually, like the target length is about 20 minutes.
 
 [00:04:12] Adam: Okay.
 
-[00:04:12] Will: I mean, we we haven't.
+[00:04:12] Will: I mean, we haven't.
 
 [00:04:12] Adam: I don't think we've ever hit.
 
@@ -178,15 +178,15 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:04:23] Unknown speaker: Mm-hmm.
 
-[00:04:23] Will: So it could have been that there was some confusion there, but yeah, I mean, I I think we generally let the conversation go here as long as it as long as it feels natural to go.
+[00:04:23] Will: So it could have been that there was some confusion there, but yeah, I mean, I I think we generally let the conversation go here as long as it feels natural to go.
 
-[00:04:52] Adam: Yeah. Also, I got an email from Sean, our Inventern winner this week, and we're, we're, we, we've decided upon a project to embark on. So we should talk about what that's going to be and how we're going to cover it.
+[00:04:52] Adam: Yeah. Also, I got an email from Sean, our Inventern winner this week, and we're, we, we've decided upon a project to embark on. So we should talk about what that's going to be and how we're going to cover it.
 
 [00:04:52] Will: Well, that's a heck of a tease.
 
 [00:04:52] Norm: Yeah, you can read his stuff on Tested right now. He's writing 3D printing stuff for us.
 
-[00:05:11] Will: If I, if I, is it a callback to something that we did really early on?
+[00:05:11] Will: If I, is it a callback to something that we did really early on?
 
 [00:05:14] Adam: It is, and I'm about to pull out some of the parts to dive back in and finish it off.
 
@@ -196,7 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:05:31] Norm: Are you talking about the Astro thing?
 
-[00:05:31] Adam: No, it was a, it was a, a watch from the Ministry of Silly Walks, and John Cleese was in the middle, and the hands of the watch were his legs.
+[00:05:31] Adam: No, it was a watch from the Ministry of Silly Walks, and John Cleese was in the middle, and the hands of the watch were his legs.
 
 [00:05:42] Will: That seems right. Yeah,
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:06:46] Will: Yeah, that was a huge hit on Kazaa.
 
-[00:06:48] Adam: Who knew? What was I saying? Oh, wait. Ministry of Silly Walks. John Cleese. Um, I will tell you, and I'm pretty sure I'm right about this. I have not watched a single one of the Pierce Brosnan Bond films.
+[00:06:48] Adam: Who knew? What was I saying? Oh, wait. Ministry of Silly Walks. John Cleese. I will tell you, and I'm pretty sure I'm right about this. I have not watched a single one of the Pierce Brosnan Bond films.
 
 [00:06:48] Will: What?
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:07:03] Will: Goldeneye is amazing,
 
-[00:07:03] Norm: and you know, Goldeneye it's Martin Campbell, the director who also directed Casino Royale.
+[00:07:03] Norm: and Goldeneye it's Martin Campbell, the director who also directed Casino Royale.
 
 [00:07:03] Adam: Okay,
 
@@ -314,7 +314,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:07:55] Norm: Well, I was gonna go further with Bond.
 
-[00:07:58] Adam: You know, back in the '80s when we were kids, HBO—you know what it stood for?
+[00:07:58] Adam: Back in the '80s when we were kids, HBO—you know what it stood for?
 
 [00:08:03] Will: Norm was a fetus.
 
@@ -330,7 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:08:25] Adam: No, no, no. Beastmaster, the movie starring Marc Singer and Tanya Roberts
 
-[00:08:29] Will: from the the Seventh Angel.
+[00:08:29] Will: from the Seventh Angel.
 
 [00:08:31] Adam: The Seventh Angel.
 
@@ -358,7 +358,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:09:06] Norm: I don't think Will said that seriously. No,
 
-[00:09:07] Adam: because because we I eagerly watched the first two episodes, and I have to say, it felt like Girls dropped off a cliff to me.
+[00:09:07] Adam: because we I eagerly watched the first two episodes, and I have to say, it felt like Girls dropped off a cliff to me.
 
 [00:09:13] Will: I kind of thought that towards—
 
@@ -438,7 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:11:10] Adam: Sellouts and the Super Bowl—that's the game with the pointy ball.
 
-[00:11:15] Norm: You know, Jamie made that exact same joke.
+[00:11:15] Norm: Jamie made that exact same joke.
 
 [00:11:18] Adam: Yeah, he got that joke from me?
 
@@ -454,7 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:11:32] Adam: They didn't like that joke.
 
-[00:11:32] Will: Yeah, well, you might as well tell them, tell them you're a Democrat.
+[00:11:32] Will: Yeah, well, you might as well tell them you're a Democrat.
 
 [00:11:38] Adam: I figure they know that because I'm from San Francisco.
 
@@ -466,11 +466,11 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:11:42] Adam: True Detective,
 
-[00:11:45] Will: Woody Harrelson and Matthew McConaughey, and it's a they're they're Southern Louisiana State cops, basically state detectives,
+[00:11:45] Will: Woody Harrelson and Matthew McConaughey, and it's a they're Southern Louisiana State cops, basically state detectives,
 
 [00:11:54] Adam: state detectives.
 
-[00:11:56] Will: And it seems like this is the story. I mean, the thing that they're setting up. I've only watched the first episode. too. Norm has devoured all three of them. Gina and I watched the first episode, and we hardly ever roll straight into the second, like you know, marathon stuff, just because I like to stretch things out. And you know, the lesson I learned from Jon Hamm is that delayed gratification is much better than instant gratification. So, but we both looked at it.
+[00:11:56] Will: And it seems like this is the story. I mean, the thing that they're setting up. I've only watched the first episode. too. Norm has devoured all three of them. Gina and I watched the first episode, and we hardly ever roll straight into the second, like marathon stuff, just because I like to stretch things out. And you know, the lesson I learned from Jon Hamm is that delayed gratification is much better than instant gratification. So, but we both looked at it.
 
 [00:12:19] Adam: Just a question: How did Jon teach you that lesson?
 
@@ -496,7 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:13:05] Will: I've watched them eight times already.
 
-[00:13:09] Norm: You fly over to New York to to watch them and you get get dropped earlier. I don't know.
+[00:13:09] Norm: You fly over to New York to watch them and you get get dropped earlier. I don't know.
 
 [00:13:09] Will: But let me ask you.
 
@@ -524,13 +524,13 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:13:54] Norm: You skipped way ahead because you watched the episode called "In the Locked Room."
 
-[00:14:02] Will: Well, this this episode's done. Shut it down.
+[00:14:02] Will: Well, this episode's done. Shut it down.
 
 [00:14:05] Norm: Oh no! And you're talking about the guy with the gas mask.
 
-[00:14:08] Adam: Oh shit! Really? I I watched—
+[00:14:08] Adam: Oh shit! Really? I watched—
 
-[00:14:08] Norm: You you watch. Oh no, Adam!
+[00:14:08] Norm: You watch. Oh no, Adam!
 
 [00:14:08] Adam: Stop!
 
@@ -544,7 +544,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:14:18] Will: You're gonna have to go drink yourself absolutely silly.
 
-[00:14:18] Adam: Shit. Um, but we're gonna still air this, right?
+[00:14:18] Adam: Shit. But we're gonna still air this, right?
 
 [00:14:18] Norm: We are absolutely still air this. So, my this is fascinating now because my question to you is: Did it make sense at all?
 
@@ -554,13 +554,13 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:14:33] Adam: oh, I had no problem jumping in.
 
-[00:14:36] Norm: Wow, that's that's good writing.
+[00:14:36] Norm: Wow, that's good writing.
 
 [00:14:37] Adam: I had no problem jumping in. I will say, Woody Harrelson is wonderful.
 
 [00:14:42] Will: He's always good.
 
-[00:14:43] Adam: He's always really good. I you know I loved I loved Oliver Stone for taking Woody out of his Cheers mold, putting him in Natural Born Killers, which is not necessarily a great movie. But he is so amazing and so compelling, and demonstrates such the opposite range of what you'd expect.
+[00:14:43] Adam: He's always really good. I you know I loved Oliver Stone for taking Woody out of his Cheers mold, putting him in Natural Born Killers, which is not necessarily a great movie. But he is so amazing and so compelling, and demonstrates such the opposite range of what you'd expect.
 
 [00:15:01] Will: Natural Born Killers has three absolutely amazing performances.
 
@@ -628,21 +628,21 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:16:07] Adam: I gotta first. Can't believe I haven't watched. Oh my god! I watched the wrong one.
 
-[00:16:07] Will: It's, It's so good. He, I yeah. I don't want to spoil that, but
+[00:16:07] Will: It's so good. He, I yeah. I don't want to spoil that, but
 
-[00:16:15] Norm: well, we we can spoil. Yeah, the premise. The premise, as we'll talk about, is Louisiana State Detectives, but the murder mystery that you were watching them solve for the main plot of the story is 1995.
+[00:16:15] Norm: well, we can spoil. Yeah, the premise. The premise, as we'll talk about, is Louisiana State Detectives, but the murder mystery that you were watching them solve for the main plot of the story is 1995.
 
 [00:16:15] Adam: Right.
 
-[00:16:15] Norm: And so that itself is world building. They're for callback 1995. There, you know, Clinton references.
+[00:16:15] Norm: And so that itself is world building. They're for callback 1995. There Clinton references.
 
-[00:16:15] Adam: I mean, I will tell you, watching the third episode, I couldn't figure out because Louisiana is all like, you know, I was like, am I watching something from the '50s?
+[00:16:15] Adam: I mean, I will tell you, watching the third episode, I couldn't figure out because Louisiana is all like I was like, am I watching something from the '50s?
 
-[00:16:40] Will: When he rolls out of a mid '90s Crown Vic, I'm like, wow, is the is the Louisiana PD so so hard up that they're still driving 15 year old Crown Vics?
+[00:16:40] Will: When he rolls out of a mid '90s Crown Vic, I'm like, wow, is the Louisiana PD so so hard up that they're still driving 15 year old Crown Vics?
 
 [00:16:40] Adam: Yeah.
 
-[00:16:40] Norm: So that. They first meet in 1995 as to become partners in Louisiana, but the the show is also framed in 2012 interviews with where they have become
+[00:16:40] Norm: So that. They first meet in 1995 as to become partners in Louisiana, but the show is also framed in 2012 interviews with where they have become
 
 [00:17:02] Adam: right right
 
@@ -656,15 +656,15 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:17:07] Adam: Do they? Because in the third episode, they don't say a word. They don't at all.
 
-[00:17:11] Will: They don't come in until you're not even sure what the what the when you see the the modern Harrelson.
+[00:17:11] Will: They don't come in until you're not even sure what the when you see the modern Harrelson.
 
 [00:17:11] Adam: Yeah.
 
-[00:17:11] Will: They set him up first, I think, and you're not sure what his backstory is at that point. What's happened in between now and and this previous time?
+[00:17:11] Will: They set him up first, I think, and you're not sure what his backstory is at that point. What's happened in between now and this previous time?
 
 [00:17:23] Norm: Same. Same with Matthew McConaughey.
 
-[00:17:24] Will: Well, Matthew McConaughey, you know that something bad has happened to him because he looks he looks really he looks like a strung out hillbilly.
+[00:17:24] Will: Well, Matthew McConaughey, you know that something bad has happened to him because he looks really he looks like a strung out hillbilly.
 
 [00:17:24] Adam: Yes.
 
@@ -672,19 +672,19 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:17:32] Adam: So brilliant.
 
-[00:17:33] Will: And he he he has this moment where you see what's his name from from Dazed and Confused come back, like the
+[00:17:33] Will: And he has this moment where you see what's his name from Dazed and Confused come back, like the
 
 [00:17:39] Adam: yeah yeah yeah, which is a— They stay the same age?
 
-[00:17:43] Will: He says he says it's afternoon on a Thursday, which which means it's time for me to start drinking. And he sends him out to get beer, in the police interview. And then you you like as that whole episode develops, you realize that there's more to the interview that's happening with them than otherwise. And there's southern corruption and the whole thing. It's really good.
+[00:17:43] Will: He says it's afternoon on a Thursday, which means it's time for me to start drinking. And he sends him out to get beer, in the police interview. And then you like as that whole episode develops, you realize that there's more to the interview that's happening with them than otherwise. And there's southern corruption and the whole thing. It's really good.
 
 [00:17:43] Adam: Oh, interesting.
 
-[00:17:43] Norm: You're you're watching the mystery unfold in 1995 flashbacks.
+[00:17:43] Norm: You're watching the mystery unfold in 1995 flashbacks.
 
 [00:17:43] Adam: Right, right, right.
 
-[00:17:43] Norm: Which is the telling that Woody Harrelson and Matthew McConaughey are telling these new detectives that you talked about in 2012. So there's a little bit of a you know there could be a a lying narrator aspect to this because it's
+[00:17:43] Norm: Which is the telling that Woody Harrelson and Matthew McConaughey are telling these new detectives that you talked about in 2012. So there's a little bit of a you know there could be a lying narrator aspect to this because it's
 
 [00:17:43] Will: unreliable narrator.
 
@@ -754,7 +754,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:21:34] Adam: yeah
 
-[00:21:35] Norm: and I mean that's that's the premise Special Victims is is the euphemism is the terrible euphemism now
+[00:21:35] Norm: and I mean that's the premise Special Victims is is the euphemism is the terrible euphemism now
 
 [00:21:35] Adam: yeah
 
@@ -772,7 +772,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:21:35] Adam: Well, I thought the credits are amazing.
 
-[00:22:04] Norm: The opening, the opening credits.
+[00:22:04] Norm: The opening credits.
 
 [00:22:04] Will: Opening credits?
 
@@ -802,7 +802,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:22:38] Norm: but the opening credits, which are incredible composites of faces and the landscape,
 
-[00:22:38] Adam: it's like it's like silhouettes of their faces with shots of Louisiana against it.
+[00:22:38] Adam: it's like silhouettes of their faces with shots of Louisiana against it.
 
 [00:22:38] Norm: And there's particularly one shot where you have some character. I don't know who, if they've revealed this character yet in the show, but It's like the highways across his face, and looks like snakes twisting, wrapping around his face. The show is this like like television shows a writer's medium. It's the vision of one writer. He wrote all eight episodes.
 
@@ -810,7 +810,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:22:38] Will: Only I thought there was 10
 
-[00:22:38] Norm: or 10 episodes of the season. He's the showrunner, lead writer, and so it's it's not like one of those shows. Like when you talk to Vince Gilligan, you know they did at Writers' Room, they had their plot points and made stuff
+[00:22:38] Norm: or 10 episodes of the season. He's the showrunner, lead writer, and so it's not like one of those shows. Like when you talk to Vince Gilligan they did at Writers' Room, they had their plot points and made stuff
 
 [00:23:21] Adam: Eight episodes, oh.
 
@@ -818,7 +818,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:23:36] Adam: Oh gosh,
 
-[00:23:37] Norm: Every scene has very specific purpose. Sometimes the scenes are not very subtle. It is a a writer friendly show. There are monologues, long monologues.
+[00:23:37] Norm: Every scene has very specific purpose. Sometimes the scenes are not very subtle. It is a writer friendly show. There are monologues, long monologues.
 
 [00:23:46] Will: Well, but that that's a part of the framework story mechanism. Usually, like
 
@@ -830,19 +830,19 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:24:00] Will: so I haven't watched Mud yet either. But everybody said Mud was was phenomenal, and that was the start of this McConaughey Renaissance.
 
-[00:24:08] Norm: Um, he and the the character, his character in the show, is the most cynical, nihilistic bastard ever, and it is. I can't imagine someone being more fun to write and create.
+[00:24:08] Norm: He and the character, his character in the show, is the most cynical, nihilistic bastard ever, and it is. I can't imagine someone being more fun to write and create.
 
 [00:24:20] Adam: Well, his monologue, and I won't spoil this, but well, he's got a beautiful monologue in the episode I watched about what it does to you to stare at thousands of crime scene photographs, what you see in the faces.
 
 [00:24:28] Unknown speaker: Mm-hmm.
 
-[00:24:30] Norm: Mm-hmm. In the very first episode, he walks out of a car and he looks around Louisiana like this, this like strip mall, and he talks about how it looks like the memory of a town. This it looks like the memory of how someone will remember a town,
+[00:24:30] Norm: Mm-hmm. In the very first episode, he walks out of a car and he looks around Louisiana like this like strip mall, and he talks about how it looks like the memory of a town. This it looks like the memory of how someone will remember a town,
 
-[00:24:20] Will: but the interaction with him and Woody Harrelson when he gets when he gets in his darkest places is brilliant.
+[00:24:20] Will: but the interaction with him and Woody Harrelson when he gets in his darkest places is brilliant.
 
 [00:24:20] Norm: Right. Um.
 
-[00:24:20] Will: The the the thing at in the first episode, you are introduced to the first crime scene. And they they cut immediately to that to Woody Harrelson going home to his wife, who is played I think by Bridget Moynahan. Is that right? Or
+[00:24:20] Will: The thing at in the first episode, you are introduced to the first crime scene. And they cut immediately to that to Woody Harrelson going home to his wife, who is played I think by Bridget Moynahan. Is that right? Or
 
 [00:24:20] Norm: Michelle Monaghan.
 
@@ -850,7 +850,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:24:20] Adam: Terrific.
 
-[00:24:20] Will: And and I just looked over to Gina. I was like, I don't know how you come home, like how you come home and have a normal home life after being exposed to like horrors on a daily basis.
+[00:24:20] Will: And I just looked over to Gina. I was like, I don't know how you come home, like how you come home and have a normal home life after being exposed to like horrors on a daily basis.
 
 [00:25:18] Norm: And the point of the show is that he doesn't.
 
@@ -868,7 +868,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:25:29] Norm: It's you're eight hours.
 
-[00:25:51] Will: Well, that was always the problem with 24 is that is that they had a good 10 hours of content and had 24 hours to fill.
+[00:25:51] Will: Well, that was always the problem with 24 is that they had a good 10 hours of content and had 24 hours to fill.
 
 [00:25:59] Norm: Yeah.
 
@@ -886,7 +886,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:26:04] Will: No pooping in 24. CTU doesn't have a bathroom. It turns out.
 
-[00:26:11] Norm: He he even had sex?
+[00:26:11] Norm: He even had sex?
 
 [00:26:11] Adam: They're like a gas station on five.
 
@@ -894,7 +894,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:26:16] Adam: Can't help you.
 
-[00:26:17] Will: Um. I think that'll do it. Uh. We'll we'll we'll have to revisit after the season's over and talk about True Detective again.
+[00:26:17] Will: I think that'll do it. We'll we'll we'll have to revisit after the season's over and talk about True Detective again.
 
 [00:26:17] Adam: We totally will. And I will watch the episodes in order this time.
 
@@ -902,19 +902,19 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:26:26] Adam: Wow.
 
-[00:26:26] Will: Like it is. It is. Um. It holds up at a. I guess it's not a pilot because I'm sure that they had the whole show ready to go before they shot it. But it it it holds up as a story on its own. It left me wanting more at a level which I don't usually feel with with hour long TV dramas.
+[00:26:26] Will: Like it is. It is. It holds up at a. I guess it's not a pilot because I'm sure that they had the whole show ready to go before they shot it. But it holds up as a story on its own. It left me wanting more at a level which I don't usually feel with hour long TV dramas.
 
 [00:26:26] Adam: Yeah.
 
-[00:26:26] Will: And um and it was absolutely gorgeous. So
+[00:26:26] Will: And it was absolutely gorgeous. So
 
 [00:26:52] Adam: okay, I'm totally psyched. I'm totally psyched.
 
-[00:26:54] Will: Um. And I guess that'll do it for us this week. As always, if you want to find out more, we have stuff on tested. dot com. We launched premium memberships a few months ago.
+[00:26:54] Will: And I guess that'll do it for us this week. As always, if you want to find out more, we have stuff on tested. dot com. We launched premium memberships a few months ago.
 
 [00:27:03] Adam: Yes.
 
-[00:27:04] Will: People, we're posting regular premium content content for you guys, which means video. Just to be clear, we have so far recorded a commentary of the movie AI with the three of us sitting and talking over the movie, ruining the movie. We called it totally unauthorized commentary, but I think really what we did was ruin the movie in the in the most wonderful way possible.
+[00:27:04] Will: People, we're posting regular premium content content for you guys, which means video. Just to be clear, we have so far recorded a commentary of the movie AI with the three of us sitting and talking over the movie, ruining the movie. We called it totally unauthorized commentary, but I think really what we did was ruin the movie in the most wonderful way possible.
 
 [00:27:26] Adam: I think we've got to do it again.
 

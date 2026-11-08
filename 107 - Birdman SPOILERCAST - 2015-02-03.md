@@ -44,7 +44,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:01:57] Will: Yeah. Batman's dad's get parents get killed, makes him really fucked up.
 
-[00:02:02] Adam: Do we do we tell? Have I ever told Sarah Silverman's joke about 300? How they came up with the title. Sarah Silverman's joke is that the title " 300" is based on a scale of 1 to 10, how gay the movie is. Maybe we have to cut that joke out.
+[00:02:02] Adam: Do we tell? Have I ever told Sarah Silverman's joke about 300? How they came up with the title. Sarah Silverman's joke is that the title " 300" is based on a scale of 1 to 10, how gay the movie is. Maybe we have to cut that joke out.
 
 [00:02:18] Norm: It's a Sarah Silverman joke.
 
@@ -70,9 +70,9 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:02:36] Will: Spoiler cast,
 
-[00:02:37] Adam: but but when we get to the movie in question,
+[00:02:37] Adam: but when we get to the movie in question,
 
-[00:02:39] Will: we we will give you a clear delineation when the spoilers start. We're going to talk about Birdman, which I haven't seen.
+[00:02:39] Will: we will give you a clear delineation when the spoilers start. We're going to talk about Birdman, which I haven't seen.
 
 [00:02:39] Adam: I have.
 
@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:03:12] Will: Okay.
 
-[00:03:12] Norm: So Amazon commissions a bunch of pilots, which TV networks typically do. Also, but many you don't ever see because they they greenlight the ones they know have so many to put on the schedule. Amazon commissions pilots and then puts them all online. They call it pilot season, and
+[00:03:12] Norm: So Amazon commissions a bunch of pilots, which TV networks typically do. Also, but many you don't ever see because they greenlight the ones they know have so many to put on the schedule. Amazon commissions pilots and then puts them all online. They call it pilot season, and
 
 [00:03:36] Adam: that's so far out.
 
@@ -212,7 +212,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:06:49] Unknown speaker: She's great.
 
-[00:06:54] Adam: you know, but it didn't make. Here is the problem.
+[00:06:54] Adam: But it didn't make. Here is the problem.
 
 [00:06:58] Will: This might be a double spoiler cast.
 
@@ -228,7 +228,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:07:08] Norm: Yeah, yeah.
 
-[00:07:08] Adam: Was no, it was it was a hockey stick graph,
+[00:07:08] Adam: Was no, it was a hockey stick graph,
 
 [00:07:21] Will: but then the numbers kept going up after that.
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:07:54] Adam: amazing film!
 
-[00:07:58] Will: It's on on demand now, right?
+[00:07:58] Will: It's on demand now, right?
 
 [00:07:59] Adam: Yeah, Amazon. I bought it on Amazon.
 
@@ -272,7 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:08:05] Will: The Infinite Man.
 
-[00:08:06] Norm: Small Australian movie, three actors, time travel. It's heady. You have to like follow all. It's one of those where if you try to graph the timelines and graph the people, it would be a a web of doodles. But it makes sense, unlike Primer, which I also love.
+[00:08:06] Norm: Small Australian movie, three actors, time travel. It's heady. You have to like follow all. It's one of those where if you try to graph the timelines and graph the people, it would be a web of doodles. But it makes sense, unlike Primer, which I also love.
 
 [00:08:24] Will: Did you see? Did you see the thing? This is a complete tangent, but did you see the thing? The picture of Jo Rowling's like her structure for I think it was the fourth Harry Potter book, but the way that she structured the plot so that there were no holes in where people were and what they were doing, like each each
 
@@ -288,13 +288,13 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:08:53] Will: Meat space. Meat space. Wet space is completely different. Those are for special times. The the basically the upshot is that she had each individual group of people or main character. And then she showed what they were doing at any given time. Which, if you think about the the climaxes of some of those books, there are sometimes like 10 or 12 groups of people, and she just literally had a piece of like notebook paper where she had boxes across the top that had the groups of people, and then time was going down the left side, and what they were doing was filling in the blocks along the way. It was amazing,
 
-[00:09:23] Adam: you know. And that's actually the same thing that Kubrick did with the with the file cabinet about Napoleon.
+[00:09:23] Adam: And that's actually the same thing that Kubrick did with the file cabinet about Napoleon.
 
 [00:09:23] Will: Oh, right.
 
 [00:09:23] Adam: He had a local college of historian [unclear: his,] history students work up a cross reference card catalog of every day of Napoleon's life,
 
-[00:09:40] Norm: and what what happened,
+[00:09:40] Norm: and what happened,
 
 [00:09:41] Adam: what happened, who he met, what he did, where he was.
 
@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:09:53] Norm: Yes,
 
-[00:09:53] Adam: they would totally. We we all loved John Wick, but back to Birdman.
+[00:09:53] Adam: they would totally. We all loved John Wick, but back to Birdman.
 
 [00:09:53] Norm: Birdman.
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:10:11] Unknown speaker: What was that?
 
-[00:10:11] Norm: The the how he films the movie.
+[00:10:11] Norm: The how he films the movie.
 
 [00:10:23] Adam: Oh, [unclear: I think / I don't think.] I already knew about that.
 
@@ -360,7 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:10:49] Will: So there's no cuts.
 
-[00:10:50] Adam: There, there are lots of wipes going through dark doorways, and time definitely passed.
+[00:10:50] Adam: There are lots of wipes going through dark doorways, and time definitely passed.
 
 [00:10:50] Norm: Holy shit!
 
@@ -370,17 +370,17 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:10:57] Adam: But the whole movie is, if effectively, in a single shot.
 
-[00:11:00] Norm: But just like where Boyhood, the the the you know the the novelty of the movie and is not what makes the movie good. That's not what makes Birdman good either.
+[00:11:00] Norm: But just like where Boyhood, the you know the novelty of the movie and is not what makes the movie good. That's not what makes Birdman good either.
 
 [00:11:10] Will: Well, it's like the fourth episode of True Detective, right? Like that 12-minute or 22-minute sequence, or whatever it was at the end of that, wasn't what made it good. It was just a.
 
-[00:11:19] Adam: And and and Iñárritu is doing something that I think that you know, Cuarón also did in Gravity. And Cuarón’s feeling was the long shots just make you stop feeling like you're watching a movie and sort of put you more viscerally into the action. And on that front, I totally agree.
+[00:11:19] Adam: And Iñárritu is doing something that I think that Cuarón also did in Gravity. And Cuarón’s feeling was the long shots just make you stop feeling like you're watching a movie and sort of put you more viscerally into the action. And on that front, I totally agree.
 
 [00:11:36] Will: It creates a lot of tension, and at least for me, without even me noticing the first time, most of the time.
 
 [00:11:42] Adam: And it's funny that you say that because I found that that process was exhausting at different points in the movie.
 
-[00:11:48] Norm: And and for other, you know, when it's a long take in an action movie or something like a Children of Men, a long take, you know, they have to effectively script and fill that space.
+[00:11:48] Norm: And for other, you know, when it's a long take in an action movie or something like a Children of Men, a long take they have to effectively script and fill that space.
 
 [00:11:48] Unknown speaker: Every single,
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:13:25] Will: Had I not known going in, I probably would have gotten halfway through the movie before I was like, " Wait, something's weird here."
 
-[00:13:31] Adam: But let's also talk about the key thing to me is, I was saying, actors love working with Iñárritu. That's they they all talk about what a wonderful actor’s director is. There's lots of rehearsing and there's lots of workshopping and really refining the the the the directing process. And it's totally clear because everyone in Birdman is phenomenal. Zach Galifianakis is like a revelation. He's not playing the standard Zach Galifianakis character, and there's a ton of subtlety and real intensity to his work. I watched the whole movie not realizing that I was seeing Emma Stone.
+[00:13:31] Adam: But let's also talk about the key thing to me is, I was saying, actors love working with Iñárritu. That's they all talk about what a wonderful actor’s director is. There's lots of rehearsing and there's lots of workshopping and really refining the directing process. And it's totally clear because everyone in Birdman is phenomenal. Zach Galifianakis is like a revelation. He's not playing the standard Zach Galifianakis character, and there's a ton of subtlety and real intensity to his work. I watched the whole movie not realizing that I was seeing Emma Stone.
 
 [00:13:31] Norm: Really?
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:14:18] Norm: cheery. Yeah, she's. They make her look drugged out, which is the character.
 
-[00:14:22] Adam: I was driving. So there's a there's a monologue of hers where she yells at her dad. That long monologue. Camera holds on her face, and she's got eyes like the size of pie plates, right? Just giant aliens.
+[00:14:22] Adam: I was driving. So there's a monologue of hers where she yells at her dad. That long monologue. Camera holds on her face, and she's got eyes like the size of pie plates, right? Just giant aliens.
 
 [00:14:32] Will: Her eye-to-head ratio, yeah, is enormous. Yeah,
 
@@ -474,7 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:17:29] Will: yeah, I mean that was amazing. It's a wonderful film.
 
-[00:17:31] Adam: Keaton is. I I think Keaton, and I really appreciate that he's getting a lot of love for this movie because it turns out that what a lot of people didn't realize is Michael Keaton's always been a world class actor, and you really get to see it here.
+[00:17:31] Adam: Keaton is. I think Keaton, and I really appreciate that he's getting a lot of love for this movie because it turns out that what a lot of people didn't realize is Michael Keaton's always been a world class actor, and you really get to see it here.
 
 [00:17:44] Norm: Yeah. So the movie is also commentary on Broadway, theater culture, egos in Broadway versus you know egos in Hollywood, and has a lot of you know common themes that you see of like you know actors trying to bring back their careers, performances. It's all about performances.
 
@@ -482,13 +482,13 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:18:04] Norm: Yeah, and you said something when we were talking about this earlier, how you thought. The movie lacked a good character arc for him.
 
-[00:18:12] Adam: I, you know, I, I, I did. Yeah. Yeah. But I felt that that was emblematic of Iñárritu’s scripts in general. That I find that they lack an overall narrative arc that I desire. Clearly, he is clearly he has a point to make, and he has a trajectory that he is interested in. It happens to leave it happens to leave me feeling unsatisfied at the end of his movie.
+[00:18:12] Adam: I did. Yeah. Yeah. But I felt that that was emblematic of Iñárritu’s scripts in general. That I find that they lack an overall narrative arc that I desire. Clearly, he is clearly he has a point to make, and he has a trajectory that he is interested in. It happens to leave me feeling unsatisfied at the end of his movie.
 
-[00:18:34] Norm: I agree that the end, the the last half hour, his character makes a leap in a way that does not that I didn't feel comfortable with.
+[00:18:34] Norm: I agree that the end, the last half hour, his character makes a leap in a way that does not that I didn't feel comfortable with.
 
 [00:18:34] Unknown speaker: I agree.
 
-[00:18:45] Adam: Well, so and and how do I say this? The Aristotelian rules of drama require some sort of transformation, and what I love about great screenwriters like William Goldman and Bo Goldman and Shane Black is that they take their characters and paint them into a corner to a degree that you're like, " How the hell? Are they going to redeem themselves at the end of all this? And then you get to watch as that happens, and that you know, the darker it gets, the more thrilling it's going to be. And this movie lacks that. His character is being painted into a corner the whole time, but the way he " quote unquote" gets out doesn't feel like like a any kind of rapprochement with life to me.
+[00:18:45] Adam: Well, so and how do I say this? The Aristotelian rules of drama require some sort of transformation, and what I love about great screenwriters like William Goldman and Bo Goldman and Shane Black is that they take their characters and paint them into a corner to a degree that you're like, " How the hell? Are they going to redeem themselves at the end of all this? And then you get to watch as that happens, and that you know, the darker it gets, the more thrilling it's going to be. And this movie lacks that. His character is being painted into a corner the whole time, but the way he " quote unquote" gets out doesn't feel like like a any kind of rapprochement with life to me.
 
 [00:19:29] Norm: So there is climax, but no catharsis.
 
@@ -510,29 +510,29 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:20:09] Adam: I felt like Sally Kellerman, but I don't think it was.
 
-[00:20:12] Norm: But her and she does a speech, also a monologue about her her perception of this production of and of him that I think is incredible, and and then their blow up at that moment is is the big climax, and everything after that that which is the leap I am talking about is character leap is the thing I am on.
+[00:20:12] Norm: But her and she does a speech, also a monologue about her her perception of this production of and of him that I think is incredible, and then their blow up at that moment is is the big climax, and everything after that that which is the leap I am talking about is character leap is the thing I am on.
 
-[00:20:31] Adam: Yeah, and and look, there is some amazing stuff. His scenes flying through New York are beautiful and really intense. The shots of New York.
+[00:20:31] Adam: Yeah, and look, there is some amazing stuff. His scenes flying through New York are beautiful and really intense. The shots of New York.
 
 [00:20:39] Will: Hold on, they do like fly through scenes in a movie that has no cuts.
 
 [00:20:43] Adam: Uh huh.
 
-[00:20:43] Norm: There are some really cool. Yes, and the camera moves in a way that's really interesting. In that you know they use jibs and and and pan ups and show the sun moving up and down.
+[00:20:43] Norm: There are some really cool. Yes, and the camera moves in a way that's really interesting. In that you know they use jibs and pan ups and show the sun moving up and down.
 
 [00:20:53] Adam: There is a way in which it feels very dreamlike.
 
 [00:20:57] Will: I am yes. I am like Vanilla Sky, dreamlike.
 
-[00:20:59] Adam: Um. Yeah, not quite. Not not very far off of that. Where like the the standard rules don't apply, and he's so good with the technical aspect that you totally go along for it.
+[00:20:59] Adam: Um. Yeah, not quite. Not not very far off of that. Where like the standard rules don't apply, and he's so good with the technical aspect that you totally go along for it.
 
 [00:21:10] Will: So so. I'm interested for people out there who watched the movie. How many of them got this, and and if they got it during the film, they didn't know going in. Oh, like what, what, where that where it became obvious?
 
-[00:21:23] Adam: I'd be interested if anyone didn't know before and then went in and found that because I knew about it a long time ago, and then once I knew about it, it was happening all over the place.
+[00:21:23] Adam: I'd be interested if anyone didn't know before and then went in and found that because I knew about it a long time ago, and then once I knew about it was happening all over the place.
 
 [00:21:31] Norm: We should ask Joey. He went in without knowing.
 
-[00:21:33] Will: Okay, and but post in the comments if you if you went in cold,
+[00:21:33] Will: Okay, and but post in the comments if you went in cold,
 
 [00:21:37] Norm: yes,
 
@@ -574,7 +574,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:23:21] Norm: in the woods.
 
-[00:23:23] Adam: Yeah. Oh, it's it's great.
+[00:23:23] Adam: Yeah. Oh, it's great.
 
 [00:23:24] Will: She's basically.
 
@@ -584,9 +584,9 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:23:32] Will: I do remember that.
 
-[00:23:32] Adam: In those where you actually get to see the stuff, I love fight scenes in which they they hold long shots because it's like there's nothing I hate more than a video that has great dancing in it that doesn't show me long shots of the dancing. I want to watch people dance.
+[00:23:32] Adam: In those where you actually get to see the stuff, I love fight scenes in which they hold long shots because it's like there's nothing I hate more than a video that has great dancing in it that doesn't show me long shots of the dancing. I want to watch people dance.
 
-[00:23:53] Will: I mean, it's the same thing. It is the it is the difference between good action movies and bad action movies. Why I didn't like Iron Man three, but actually I thought the fight scenes in Lucy were pretty good because you could tell what was going on. I had a sense of space through the entire film of what was going on. It's something Luc Besson has always been kind of
+[00:23:53] Will: I mean, it's the same thing. It is the difference between good action movies and bad action movies. Why I didn't like Iron Man three, but actually I thought the fight scenes in Lucy were pretty good because you could tell what was going on. I had a sense of space through the entire film of what was going on. It's something Luc Besson has always been kind of
 
 [00:24:08] Adam: well. I mean, and I, I, I'm, I blather on about this all the time, and I've probably said it on this podcast before. But my favorite directors are the ones that don't ever abandon you in physical space.
 
@@ -598,7 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:24:23] Adam: But Steven Spielberg might be one of the best ones ever.
 
-[00:24:26] Will: Yeah, and and if you look at the Michael Bay films that I love, like The Rock.
+[00:24:26] Will: Yeah, and if you look at the Michael Bay films that I love, like The Rock.
 
 [00:24:26] Adam: Ah, I love The Rock.
 
@@ -618,13 +618,13 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:24:44] Norm: what else? Up, Birdman. Any final words? Final thoughts?
 
-[00:24:47] Adam: Um, I love the I love the fact that these old friends and colleagues Iñárritu, Cuarón, and Guillermo del Toro are inventing. At this late in the film, in in in within the genre of filmmaking, are inventing brand new ways using some of the latest technology and also some of the oldest to achieve whole new ways of looking at making a movie, and that's super exciting.
+[00:24:47] Adam: I love the fact that these old friends and colleagues Iñárritu, Cuarón, and Guillermo del Toro are inventing. At this late in the film, in within the genre of filmmaking, are inventing brand new ways using some of the latest technology and also some of the oldest to achieve whole new ways of looking at making a movie, and that's super exciting.
 
 [00:25:17] Will: That's amazing.
 
 [00:25:18] Adam: Even when I don't love the ending of something like Birdman, I'm so glad that it got made. I'm so glad that it exists, and I can't wait to see what he does next.
 
-[00:25:25] Will: And you know, okay, so at some point we should talk about Hugo because we never talked about it when it was out.
+[00:25:25] Will: And okay, so at some point we should talk about Hugo because we never talked about it when it was out.
 
 [00:25:30] Adam: I've never seen Hugo.
 
@@ -632,15 +632,15 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:25:31] Adam: Yeah.
 
-[00:25:31] Will: So he he moves through the entire history of film,
+[00:25:31] Will: So he moves through the entire history of film,
 
 [00:25:31] Adam: right,
 
-[00:25:31] Will: and shows each new technique, both the creation of it in the filmmaking in the in the inside the story, but then also starts using it,
+[00:25:31] Will: and shows each new technique, both the creation of it in the filmmaking in the inside the story, but then also starts using it,
 
 [00:25:31] Adam: right, right.
 
-[00:25:31] Will: Um, like we people have been trying to add, for example, 3D to film for the last 8 or 10 years at this point.
+[00:25:31] Will: Like we people have been trying to add, for example, 3D to film for the last 8 or 10 years at this point.
 
 [00:25:53] Adam: Stop it, okay?
 
@@ -688,7 +688,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:26:58] Adam: behind them. Yeah.
 
-[00:26:59] Norm: Or between two actors in a mirror because they're in a dressing room and you see them. And the way they they do this, when you think about it, it's not that simple. Is they there is no mirror there? There's actually just another camera, and they green screen it. And they actually, it's not. It's a synchronized performance. Those are two separate performances in the mirror
+[00:26:59] Norm: Or between two actors in a mirror because they're in a dressing room and you see them. And the way they do this, when you think about it, it's not that simple. Is they there is no mirror there? There's actually just another camera, and they green screen it. And they actually, it's not. It's a synchronized performance. Those are two separate performances in the mirror
 
 [00:27:18] Will: that they're just repeating identically.
 
@@ -740,7 +740,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:28:12] Adam: We got to write this down.
 
-[00:28:13] Will: I'll send you an Evernote. Okay. And that'll do it for us this week. If you like us, like us on iTunes. Like us on review us on iTunes. Like us on YouTube. Leave comments. I want to know when you realize it was all one shot. If you did it all, and if you did not realize it, that's interesting data too.
+[00:28:13] Will: I'll send you an Evernote. Okay. And that'll do it for us this week. If you like us on iTunes. Like us on review us on iTunes. Like us on YouTube. Leave comments. I want to know when you realize it was all one shot. If you did it all, and if you did not realize it, that's interesting data too.
 
 [00:28:13] Norm: Yes.
 

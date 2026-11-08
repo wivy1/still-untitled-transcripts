@@ -48,7 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:02:31] Adam: It's all about performance.
 
-[00:02:31] Norm: We should give credit because this costume, uh, one, we had to bring a costume in New York.
+[00:02:31] Norm: We should give credit because this costume one, we had to bring a costume in New York.
 
 [00:02:31] Adam: Right.
 
@@ -86,7 +86,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:03:41] Adam: That was awesome.
 
-[00:03:41] John Scalzi: Now, if my if my daughter had been here, you would have gotten a hug from her because she absolutely loves every Miyazaki film, and that one particularly, of course.
+[00:03:41] John Scalzi: Now, if my daughter had been here, you would have gotten a hug from her because she absolutely loves every Miyazaki film, and that one particularly, of course.
 
 [00:03:56] Adam: Well, if you bring her to San Francisco, come by the cave. Totoro, Totoro is a costume. I am not going to store flat.
 
@@ -112,7 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:04:13] John Scalzi: Right. Exactly.
 
-[00:04:21] Adam: I may I may someday try and make him smile, but I don't. I want him just to. I want it to happen. I want the animatronic of this.
+[00:04:21] Adam: I may someday try and make him smile, but I don't. I want him just to. I want it to happen. I want the animatronic of this.
 
 [00:04:21] John Scalzi: Right.
 
@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:04:33] Adam: So he actually shipped in a television box.
 
-[00:04:33] John Scalzi: Wow. I did have somebody ask me if you were going to cosplay as me on the floor, and I was like, No, I don't think that one's going to work very well. You'd have to you'd have to shave a tonsure up here for one thing.
+[00:04:33] John Scalzi: Wow. I did have somebody ask me if you were going to cosplay as me on the floor, and I was like, No, I don't think that one's going to work very well. You'd have to shave a tonsure up here for one thing.
 
 [00:04:59] Adam: It's true.
 
@@ -154,7 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:05:11] John Scalzi / Norm: Well, for me. As an author?
 
-[00:05:15] John Scalzi: Oh wow! I mean, the the thing for me is that it's slightly different as a than as a fan because you're part of the show.
+[00:05:15] John Scalzi: Oh wow! I mean, the thing for me is that it's slightly different as a than as a fan because you're part of the show.
 
 [00:05:15] Adam: Right.
 
@@ -162,17 +162,17 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:05:15] Adam: Yeah.
 
-[00:05:15] John Scalzi: You you you show up. You go do a panel. People are there to see you perform. If you walk on the floor, there are always gonna be some people who are gonna recognize you. You will see people that you know, and so that you will have that discussion. So for me, it's a combination of getting to be a nerd and nerding out and doing business.
+[00:05:15] John Scalzi: You show up. You go do a panel. People are there to see you perform. If you walk on the floor, there are always gonna be some people who are gonna recognize you. You will see people that and so that you will have that discussion. So for me, it's a combination of getting to be a nerd and nerding out and doing business.
 
 [00:05:48] Adam: Yeah. Right. Right. Yeah.
 
-[00:05:49] John Scalzi: And and and you can't really you can't really separate the two of those you know without effort because even if, if you have any sort of notability at all, whether you're an author or a comic book artist or an actor, especially actors or TV performers. Uh, anybody that that people, uh, recognize as a creator, um, the experience is is going to shift. So you can't ever just be purely a fan. There's always going to be that sort of performance aspect, whether you want it to be there or not. That said, um, one of the nice things about being an author is, generally speaking, the fame accrues to your books, not to your face. So the number of people who actually can recognize me as being me, as opposed to random middle-aged white dude with a goatee and beard, you know, is fairly, you know, it's a fairly low percentage. So I can actually walk and enjoy it to, you know, some extent.
+[00:05:49] John Scalzi: And you can't really separate the two of those you know without effort because even if you have any sort of notability at all, whether you're an author or a comic book artist or an actor, especially actors or TV performers. Anybody that that people recognize as a creator the experience is is going to shift. So you can't ever just be purely a fan. There's always going to be that sort of performance aspect, whether you want it to be there or not. That said one of the nice things about being an author is, generally speaking, the fame accrues to your books, not to your face. So the number of people who actually can recognize me as being me, as opposed to random middle-aged white dude with a goatee and beard is fairly it's a fairly low percentage. So I can actually walk and enjoy it to, you know, some extent.
 
 [00:06:44] Adam: Speaking of recognizing you, I think you popped up in a thread on one of my favorite internet forums the other day to comment on somebody being a jerk.
 
 [00:06:44] John Scalzi: Uh oh.
 
-[00:06:44] Adam: And you you you posted, I won’t say the forum, but you posted, bless his heart. Was that you?
+[00:06:44] Adam: And you posted, I won’t say the forum, but you posted, bless his heart. Was that you?
 
 [00:06:58] John Scalzi: That was me.
 
@@ -192,9 +192,9 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:07:14] John Scalzi: Yes,
 
-[00:07:14] Adam: but for a really concentrated amount of time. Like it's not just like we're in, we're out, like a Vegas thing. It's literally like three days. Everyone's hanging out, and there's lots of dinners. There's lots of
+[00:07:14] Adam: but for a really concentrated amount of time. Like it's not just like we're in, we're out a Vegas thing. It's literally like three days. Everyone's hanging out, and there's lots of dinners. There's lots of
 
-[00:07:14] John Scalzi: right. Well, and that's the funny thing is, is that I tell people where I live because I live in rural Ohio in a town that has one, you know, hundredth of the population of the a number of people who are going to be here this weekend. Right. Right. I mean, it's literally, you know, a traffic jam is three cars behind an Amish buggy sort of town. [unclear reply: Yeah / Right]. And people are like, " Don't you ever feel isolated?" Or you know, and I'm like, " No, I go to conventions, and I will see I will see Wil Wheaton more often than I will see my literal next door neighbor."
+[00:07:14] John Scalzi: right. Well, and that's the funny thing is, is that I tell people where I live because I live in rural Ohio in a town that has one hundredth of the population of the a number of people who are going to be here this weekend. Right. Right. I mean, it's literally, you know, a traffic jam is three cars behind an Amish buggy sort of town. [unclear reply: Yeah / Right] And people are like, " Don't you ever feel isolated?" Or and I'm like, " No, I go to conventions, and I will see I will see Wil Wheaton more often than I will see my literal next door neighbor."
 
 [00:07:32] Adam: Yep.
 
@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:08:12] Adam: Yep.
 
-[00:08:12] John Scalzi: You know, and that was the way that we got to get introduced to each other, and so you do get that kind of cool thing because not only and this is the where it really is not only are you a creator, but you're also a fan. So like when you meet the people who you've admired, you know their work in one way or another, and and you go and you're like, oh hey, it's great to meet you. Yeah. No, we're cool together. And that, but you saw that part of your brain that's like, don't freak out, don't freak out, don't freak out. Oh, I'm gonna freak out now.
+[00:08:12] John Scalzi: And that was the way that we got to get introduced to each other, and so you do get that kind of cool thing because not only and this is the where it really is not only are you a creator, but you're also a fan. So like when you meet the people who you've admired, you know their work in one way or another, and you go and you're like, oh hey, it's great to meet you. Yeah. No, we're cool together. And that, but you saw that part of your brain that's like, don't freak out. Oh, I'm gonna freak out now.
 
 [00:08:52] Norm: Mutual appreciation society.
 
@@ -224,13 +224,13 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:09:01] Norm: [unclear: is nice / from PS9].
 
-[00:09:02] John Scalzi: Yes, and. And we met, and and it was just so great to meet her, and she knew my stuff, and I knew her stuff, and we're like, okay, for the first 20 minutes, wee at each other, and then we could like calm down and be like normal human beings. But you do, you have that, you know, you have that thing where you know someone, someone you admire, like I had, I had someone who was on Serenity, you know, come up and ask me to sign my book for them, and I was just like, oh, okay,
+[00:09:02] John Scalzi: Yes, and. And we met, and it was just so great to meet her, and she knew my stuff, and I knew her stuff, and we're like, okay, for the first 20 minutes, wee at each other, and then we could like calm down and be like normal human beings. But you do, you have that you have that thing where you know someone, someone you admire, like I had someone who was on Serenity come up and ask me to sign my book for them, and I was just like, oh, okay,
 
 [00:09:02] Adam: yeah,
 
 [00:09:02] John Scalzi: that's fabulous,
 
-[00:09:02] Adam: yeah. So it's it's always cool when that happens.
+[00:09:02] Adam: yeah. So it's always cool when that happens.
 
 [00:09:32] Norm: Speaking of your books, we're we did a spoiler cast of your book. I think it's the only one we've done a few books before, but we discussed Redshirts,
 
@@ -242,15 +242,15 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:09:32] Norm: loved it. I feel like that book ties into this environment very well.
 
-[00:09:46] John Scalzi: Yes, it does. Well, I mean, because you know, it it does it does a couple things. It is the book is explicitly about you know the science fiction culture and how it permeates in ways that you don't expect.
+[00:09:46] John Scalzi: Yes, it does. Well, I mean, because you know, it it does a couple things. It is the book is explicitly about you know the science fiction culture and how it permeates in ways that you don't expect.
 
 [00:09:46] Adam: You really don't expect.
 
-[00:09:46] John Scalzi: You really don’t expect. I mean, it does have shoutouts to Comic Con. It does have shoutouts to you know Wikipedia. Nerd culture is all over it. But it is also the sort of thing that somebody who comes here, they're going to pick up that book, and they're immediately going to get it. You know, just knowing the title of the book. I wrote a book. What is, what did you write? Redshirts.
+[00:09:46] John Scalzi: You really don’t expect. I mean, it does have shoutouts to Comic Con. It does have shoutouts to you know Wikipedia. Nerd culture is all over it. But it is also the sort of thing that somebody who comes here, they're going to pick up that book, and they're immediately going to get it. Just knowing the title of the book. I wrote a book. What is, what did you write? Redshirts.
 
 [00:09:46] Adam: Oh.
 
-[00:09:46] John Scalzi: Well, there's no, you know, they get it.
+[00:09:46] John Scalzi: Well, there's no they get it.
 
 [00:10:24] Adam: And here's actually the thing that I said on the podcast, and I love saying, pointing this out to people, is like Redshirts is an exploration into what it's like for the ensigns of the Star Trek Enterprise to go down to the planet and die,
 
@@ -268,7 +268,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:10:43] Norm: Yeah.
 
-[00:10:52] John Scalzi: Well, and that was, and that was why for me it was fun to write. I mean, the thing about Redshirts. And I think one of the reasons why no one actually wrote a novel about it before is because the surface is really easy. The expendable person dies and is expendable,
+[00:10:52] John Scalzi: Well, and that was why for me it was fun to write. I mean, the thing about Redshirts. And I think one of the reasons why no one actually wrote a novel about it before is because the surface is really easy. The expendable person dies and is expendable,
 
 [00:10:52] Norm: Right, right.
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:11:38] Adam: That was all of my grade school experience.
 
-[00:11:40] John Scalzi: Exactly. I mean, and anybody who's been a nerd has kind of had that feeling. We've all been metaphorically a red shirt in one way or another, right? And we know that there's more to it than just being the expendable one, the one that can be left behind, the one who's like, ah, it's okay if if Bob's not here. You know, we got the people that we need, sort of thing, and I think that's one of the things that resonated with people. And for me, you know, as a writer, it was just fun to to take what is really a one note joke and see how many changes you can play on it. You know, you, yeah, and I think that's the thing that surprised people. People knew going in that they were going to get the redshirt joke, but they didn't know what else they were going to get. And they, I almost certain, they didn't know that they were going to get the codas at the end.
+[00:11:40] John Scalzi: Exactly. I mean, and anybody who's been a nerd has kind of had that feeling. We've all been metaphorically a red shirt in one way or another, right? And we know that there's more to it than just being the expendable one, the one that can be left behind, the one who's like, ah, it's okay if Bob's not here. We got the people that we need, sort of thing, and I think that's one of the things that resonated with people. And for me as a writer, it was just fun to take what is really a one note joke and see how many changes you can play on it. You, yeah, and I think that's the thing that surprised people. People knew going in that they were going to get the redshirt joke, but they didn't know what else they were going to get. And they, I almost certain, they didn't know that they were going to get the codas at the end.
 
 [00:12:25] Adam: Yeah, which I found to be the most affecting, actually.
 
@@ -284,7 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:12:28] Adam: Have you seen any costumes here this weekend that have blown you away so far?
 
-[00:12:33] John Scalzi: I have seen. Well, I saw a big. I saw a Big Hero Six costume, which I I just loved. Baymax. Yeah, Baymax, and and it was and it was just super large. And there's two things that hit me. Was one authenticity just looked perfect. Second of all, that person walking around here, somebody's got to be holding their hand.
+[00:12:33] John Scalzi: I have seen. Well, I saw a big. I saw a Big Hero Six costume, which I I just loved. Baymax. Yeah, Baymax, and it was just super large. And there's two things that hit me. Was one authenticity just looked perfect. Second of all, that person walking around here, somebody's got to be holding their hand.
 
 [00:12:33] Adam: Right.
 
@@ -322,9 +322,9 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:13:29] Adam: Yes.
 
-[00:13:29] John Scalzi: You know, because that's not that's not easy to do. Well, you you're a maker, you know how it is.
+[00:13:29] John Scalzi: Because that's not easy to do. Well, you you're a maker, you know how it is.
 
-[00:13:29] Adam: I do, I do, so.
+[00:13:29] Adam: I do, so.
 
 [00:13:39] Norm: and you're wearing a shirt inspired by Stranger Things, and we just saw before we started this,
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:13:55] Adam: You know, that's so good.
 
-[00:13:55] John Scalzi: And that's you know, and that's one of the really cool things is that. You know, just the fact that people, whether it is they're wearing just a simple red shirt or they're building a Jaeger in their house and bringing it to the Javits Center in the middle of New York, which is not a simple thing to do. But
+[00:13:55] John Scalzi: And that's and that's one of the really cool things is that. Just the fact that people, whether it is they're wearing just a simple red shirt or they're building a Jaeger in their house and bringing it to the Javits Center in the middle of New York, which is not a simple thing to do. But
 
 [00:14:19] Adam: look, even look over here,
 
@@ -358,7 +358,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:14:19] Adam: And that need, when it's even when it's just crayons and construction paper, even especially when it's crayons and construction paper, inspires me when I see people doing it.
 
-[00:14:38] John Scalzi: Right. It says I am part of this too. Right. You know, this is what I identify with. Where right now somebody is walking around with a with a Walking Dead bat, you know.
+[00:14:38] John Scalzi: Right. It says I am part of this too. Right. You know, this is what I identify with. Where right now somebody is walking around with a Walking Dead bat.
 
 [00:14:47] Norm: And also, even if you're not wearing the costume, on the other end, the appreciation of it. I find that ahead of big cons, I want to binge shows or watch new shows so I can spot the things,
 
@@ -380,7 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:15:09] Adam: right?
 
-[00:15:09] John Scalzi: And you you put it all together, and you're like, I would not have thought about that, but damn if that does not work.
+[00:15:09] John Scalzi: And you put it all together, and you're like, I would not have thought about that, but damn if that does not work.
 
 [00:15:23] Adam: And there's a deep celebration here of exactly that kind of esoterica. I'm gonna be the guy you never recognize, right? I mean, I, one of the first times I saw that was ice cream guy from Empire Strikes Back.
 
@@ -418,7 +418,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:16:42] Adam: right, exactly.
 
-[00:16:43] John Scalzi: I have a t. I have a t-shirt that I that I made specific, which says, " I am here to usurp your narrative." And the reason that I have that t-shirt is it is a tribute to the minor characters that once you start writing them, they. Take over and have a life of their own, because when I'm writing my books, I will find characters that I I just need somebody there.
+[00:16:43] John Scalzi: I have a t. I have a t-shirt that I made specific, which says, " I am here to usurp your narrative." And the reason that I have that t-shirt is it is a tribute to the minor characters that once you start writing them, they. Take over and have a life of their own, because when I'm writing my books, I will find characters that I I just need somebody there.
 
 [00:17:06] Adam: Right.
 
@@ -426,7 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:17:07] Adam: Yeah.
 
-[00:17:07] John Scalzi: The the alien character Cainen, Cainen Suen Su.
+[00:17:07] John Scalzi: The alien character Cainen, Cainen Suen Su.
 
 [00:17:07] Adam: Yeah.
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:17:45] John Scalzi: Yeah.
 
-[00:17:45] Adam: It's like chills. It's It's a hard trick to pull off.
+[00:17:45] Adam: It's like chills. It's a hard trick to pull off.
 
 [00:17:45] John Scalzi: Right.
 
@@ -454,11 +454,11 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:18:04] Adam: that's great.
 
-[00:18:05] John Scalzi: But that's but that's the whole thing is and and and the the fan appreciation of the guy running around with an ice cream maker maker is exactly that. The fact that Star Wars Rebels exists and has Wedge in it.
+[00:18:05] John Scalzi: But that's the whole thing is and the fan appreciation of the guy running around with an ice cream maker maker is exactly that. The fact that Star Wars Rebels exists and has Wedge in it.
 
 [00:18:05] Adam: Right.
 
-[00:18:05] John Scalzi: Right. Right. You know, and he was literally just a guy going Red Three, you know, or Red Two, whatever. Which Red was it?
+[00:18:05] John Scalzi: Right. Right. And he was literally just a guy going Red Three or Red Two, whatever. Which Red was it?
 
 [00:18:22] Adam: I don't. That's not. That's deeper than my knowledge.
 
@@ -466,9 +466,9 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:18:25] Adam: Right.
 
-[00:18:25] John Scalzi: you know, and and and he does that because you know that the fans were like, I want to know more about. He's the only guy besides the main characters who is in all three. But I want know. I want to know more about him. I want to know more about Wedge.
+[00:18:25] John Scalzi: And he does that because you know that the fans were like, I want to know more about. He's the only guy besides the main characters who is in all three. But I want know. I want to know more about him. I want to know more about Wedge.
 
-[00:18:42] Adam: And as people interested in esoterica and collecting information and stuff, we're I think all three of us completists, right? We, we get to start to learn something, and we tease out a bit of that thread, and we start to pull, and we just want to. Keep on pulling as long as that thread's going to afford it.
+[00:18:42] Adam: And as people interested in esoterica and collecting information and stuff, we're I think all three of us completists, right? We get to start to learn something, and we tease out a bit of that thread, and we start to pull, and we just want to. Keep on pulling as long as that thread's going to afford it.
 
 [00:18:42] John Scalzi: Right, right, right,
 
@@ -484,15 +484,15 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:19:05] Norm: and in here. Right.
 
-[00:19:13] John Scalzi: Well, that's the whole thing about. There was a. It's almost 10 years now, but there was a real argument in science fiction circles about fanfic and whether it was gross appropriation or if it was positive. Uh, and my feeling was has was and always has been, if you have people making fanfic of your worlds, go ahead and buy that Mercedes because they are so invested in what you're doing that they literally can't wait for you. They're going to go on ahead and they're going to build up. And you may not necessarily follow where they go, but the point is they are thinking about the worlds that you built. That they are completists, they are.
+[00:19:13] John Scalzi: Well, that's the whole thing about. There was a. It's almost 10 years now, but there was a real argument in science fiction circles about fanfic and whether it was gross appropriation or if it was positive. And my feeling was has was and always has been, if you have people making fanfic of your worlds, go ahead and buy that Mercedes because they are so invested in what you're doing that they literally can't wait for you. They're going to go on ahead and they're going to build up. And you may not necessarily follow where they go, but the point is they are thinking about the worlds that you built. That they are completists, they are.
 
 [00:19:51] Adam: They're thinking about it while you're not thinking about it.
 
-[00:19:52] John Scalzi: Right. Exactly. While you're off doing whatever it is you're doing, they are staying up nights writing. About the things that you've created, and so for me, it has always been the thing of. I think you're right. This is all part of the completist thing of we want. I want to know everything, and now that I know everything, I want to know more. And if you're not there yet, I'll go. Well, how about this? And so it's all part of the it's all part of the same nerd spectrum, so to speak. And it just thrills me when someone says, " I wrote I wrote a story in the old man's world. Please don't be angry with me." I'm like, no, write it. Right. Don't sell it, but write it, and I'm okay with you even sharing it. You know, but as far as it goes, that means that you you are thinking about me when I'm not.
+[00:19:52] John Scalzi: Right. Exactly. While you're off doing whatever it is you're doing, they are staying up nights writing. About the things that you've created, and so for me, it has always been the thing of. I think you're right. This is all part of the completist thing of we want. I want to know everything, and now that I know everything, I want to know more. And if you're not there yet, I'll go. Well, how about this? And so it's all part of the it's all part of the same nerd spectrum, so to speak. And it just thrills me when someone says, " I wrote I wrote a story in the old man's world. Please don't be angry with me." I'm like, no, write it. Right. Don't sell it, but write it, and I'm okay with you even sharing it. But as far as it goes, that means that you are thinking about me when I'm not.
 
-[00:20:36] Adam: Well, and back to your original point, you know, we come here to Comic Con. All three of us come here for work. Right. We have lots to do while we're here, but that's by design. We like working hard. Yeah. We like coming and seeing our friends and coming to this, but also I think people might not realize how inspiring we find it to come here and see that kind of. That itch getting scratched in every possible way.
+[00:20:36] Adam: Well, and back to your original point we come here to Comic Con. All three of us come here for work. Right. We have lots to do while we're here, but that's by design. We like working hard. Yeah. We like coming and seeing our friends and coming to this, but also I think people might not realize how inspiring we find it to come here and see that kind of. That itch getting scratched in every possible way.
 
-[00:20:57] John Scalzi: Sure. Well, I mean, it is. It is easy, especially if you do a lot of conventions, as I think we all do, to begin to feel a little bit blasé about it. You know, because it is. It's a. It's a another convention center, another floor, another set of people doing all this sort of stuff, and so you can get a little bit jaded about it. And so it is actually worth it to make the effort to realize that actually, Wil, Wil Wheaton said something very smart to me once at sort of the beginning of when when I started doing that thing where I got lines. Right. Right. And he'd had lines for a long time, and he said to me, " You will see, 100, 200, 300 people, and you will not remember them all, but they are all coming to see you, and they will remember that moment. You owe them that moment. And every time that I feel myself becoming, oh God, I've got to be here, I remember what he said. It's like this is their moment. And you have to make sure that their moment with you, even if it is like waving at you in passing,
+[00:20:57] John Scalzi: Sure. Well, I mean, it is. It is easy, especially if you do a lot of conventions, as I think we all do, to begin to feel a little bit blasé about it. Because it is. It's a. It's a another convention center, another floor, another set of people doing all this sort of stuff, and so you can get a little bit jaded about it. And so it is actually worth it to make the effort to realize that actually, Wil, Wil Wheaton said something very smart to me once at sort of the beginning of when I started doing that thing where I got lines. Right. Right. And he'd had lines for a long time, and he said to me, " You will see, 100, 200, 300 people, and you will not remember them all, but they are all coming to see you, and they will remember that moment. You owe them that moment. And every time that I feel myself becoming, oh God, I've got to be here, I remember what he said. It's like this is their moment. And you have to make sure that their moment with you, even if it is like waving at you in passing,
 
 [00:20:57] Norm: Yeah.
 

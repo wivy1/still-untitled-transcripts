@@ -16,17 +16,17 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:00:11] Norm: I don't know.
 
-[00:00:13] Adam: I'm like I'm getting senile. Um, we were just talking about our children.
+[00:00:13] Adam: I'm like I'm getting senile. We were just talking about our children.
 
 [00:00:17] Will: Yeah.
 
-[00:00:18] Adam: And you were talking about your daughter caked in mud, and it was reminding me, as everyone knows, my boys are 18, but there's so much about their their tiny youthhood. I'm reminded of when you talk about, Uh, and one of them was before I had kids. I had this vision of standing on the street corner. Did we talk about this already?
+[00:00:18] Adam: And you were talking about your daughter caked in mud, and it was reminding me, as everyone knows, my boys are 18, but there's so much about their tiny youthhood. I'm reminded of when you talk about and one of them was before I had kids. I had this vision of standing on the street corner. Did we talk about this already?
 
 [00:00:18] Norm: No.
 
-[00:00:18] Adam: Um, with my kid holding my hand, and his like little hand holding my hand, and I thought about how that would feel. And I'm here to say, throughout their entire childhood, that was every bit as good and amazing as I was hoping it would be as a prospective dad.
+[00:00:18] Adam: With my kid holding my hand, and his like little hand holding my hand, and I thought about how that would feel. And I'm here to say, throughout their entire childhood, that was every bit as good and amazing as I was hoping it would be as a prospective dad.
 
-[00:00:54] Will: The the the hand coming up, hold my hand, please, Dad. Is one of the best. We so we were talking about summer camp and stuff
+[00:00:54] Will: The hand coming up, hold my hand, please, Dad. Is one of the best. We so we were talking about summer camp and stuff
 
 [00:00:54] Adam: Yeah.
 
@@ -36,11 +36,11 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:01:28] Unknown speaker: looking for
 
-[00:01:28] Will: Yeah, well they go they go to the homeless encampments and they clean up the needles.
+[00:01:28] Will: Yeah, well they go to the homeless encampments and they clean up the needles.
 
 [00:01:28] Norm: Yeah,
 
-[00:01:28] Will: Um, all the four and five year olds out there.
+[00:01:28] Will: All the four and five year olds out there.
 
 [00:01:35] Adam: They wear the puncture proof gloves.
 
@@ -78,7 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:02:16] Adam: exactly. That's the best.
 
-[00:02:16] Will: Um, so speaking of tricks,
+[00:02:16] Will: So speaking of tricks,
 
 [00:02:16] Adam: yeah,
 
@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:02:26] Norm: Whoa, it's been a while.
 
-[00:02:28] Will: Well, you know, superhero movies only come out 12 months a year now, so it's it's tough to tough
+[00:02:28] Will: Well superhero movies only come out 12 months a year now, so it's tough to tough
 
 [00:02:28] Norm: That’s right.
 
@@ -124,7 +124,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:03:01] Adam: Yeah, yeah, it's going to be amazing.
 
-[00:03:02] Will: Okay, sorry, I just did the thing that we we try not to do. But okay, so Guardians of Galaxy, you and I went and saw it on Monday, I think.
+[00:03:02] Will: Okay, sorry, I just did the thing that we try not to do. But okay, so Guardians of Galaxy, you and I went and saw it on Monday, I think.
 
 [00:03:02] Adam: Yes, Monday morning.
 
@@ -138,19 +138,19 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:03:18] Will: Ooh.
 
-[00:03:18] Adam: Um. Yeah, I am. Couldn't be more psyched, and I, you know, I enjoyed the spit out of it.
+[00:03:18] Adam: Um. Yeah, I am. Couldn't be more psyched, and I I enjoyed the spit out of it.
 
-[00:03:31] Will: Well, so so there's a thing with sequels. A lot of times, especially on new franchises, where like if you come into that movie and you make this happened with Star Trek, actually, Into Darkness. Like, I think that the the people who made the first movie thought that the thing that people reacted to positively in the first movie was not the thing that they were actually reacting to positively.
+[00:03:31] Will: Well, so so there's a thing with sequels. A lot of times, especially on new franchises, where like if you come into that movie and you make this happened with Star Trek, actually, Into Darkness. Like, I think that the people who made the first movie thought that the thing that people reacted to positively in the first movie was not the thing that they were actually reacting to positively.
 
 [00:03:31] Adam: Yes.
 
-[00:03:31] Will: And you end up with a little bit of a of a dissonance on the sequel sometimes, and this movie had none of that. Like I felt like they really nailed every part of what I liked about the original, and kind of just you know, amped it up a little bit,
+[00:03:31] Will: And you end up with a little bit of a dissonance on the sequel sometimes, and this movie had none of that. Like I felt like they really nailed every part of what I liked about the original, and kind of just amped it up a little bit,
 
 [00:03:59] Unknown speaker: yeah,
 
 [00:03:59] Norm: and then gave it some heart and. And didn't let secondary characters fall by the wayside.
 
-[00:04:05] Adam: Um, it also, both movies take their time to get around to their point. Well, both movies are just kind of like here's a world, and you're kind of swirling around in it. What I mean is, is that for some movies, there's this capital P plot. Is everything all right with the sound?
+[00:04:05] Adam: It also, both movies take their time to get around to their point. Well, both movies are just kind of like here's a world, and you're kind of swirling around in it. What I mean is, is that for some movies, there's this capital P plot. Is everything all right with the sound?
 
 [00:04:25] Will: Yeah, is there music playing?
 
@@ -164,43 +164,43 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:04:29] Norm: Yeah, well,
 
-[00:04:30] Adam: sorry about that. Oh, it’s all good. For for a lot of movies, the plot is paramount, and we talk about plot holes and plot difficulties and suspensions of disbelief and such like that. And you know, there's a standard trope that by page 11 or 15, you need to know the whole thing of what's about to happen in the movie, so you're invested. And both Guardians films are—I was thinking about this in the middle of the sequel—are much more like you're just jumping into a world, and there is a kind of some thing to do, but it's more just like people are doing what they do.
+[00:04:30] Adam: sorry about that. Oh, it’s all good. For a lot of movies, the plot is paramount, and we talk about plot holes and plot difficulties and suspensions of disbelief and such like that. And there's a standard trope that by page 11 or 15, you need to know the whole thing of what's about to happen in the movie, so you're invested. And both Guardians films are—I was thinking about this in the middle of the sequel—are much more like you're just jumping into a world, and there is a kind of some thing to do, but it's more just like people are doing what they do.
 
 [00:05:00] Will: Well, they're character pieces.
 
-[00:05:01] Norm: Yeah, I think in many ways it's a it's a really small story. I think some of the the complaints, if there are any, that I've read, is that there is it it plods and that there's not big things happening. But I'm totally fine with it. They exist in such a fantastical universe, even for they go to a place, they leave a place. That is essentially the plot of the story,
+[00:05:01] Norm: Yeah, I think in many ways it's a really small story. I think some of the complaints, if there are any, that I've read, is that there is it plods and that there's not big things happening. But I'm totally fine with it. They exist in such a fantastical universe, even for they go to a place, they leave a place. That is essentially the plot of the story,
 
 [00:05:01] Adam: right?
 
-[00:05:01] Norm: Uh, and so there's so much creativity and so much artistry to see and so many fantastical characters that they get to bring just in that simple plot that it can take its time.
+[00:05:01] Norm: And so there's so much creativity and so much artistry to see and so many fantastical characters that they get to bring just in that simple plot that it can take its time.
 
-[00:05:31] Adam: Yeah, and the the and actually, you said that take its time. That's another thing that I really appreciated. I kept on noticing these moments of sort of um uh aesthetic transcendence is the way I'll describe it. There be moments in which all this shit is happening, and James Gunn, James Gunn is the director. Yeah, James Gunn will cut to a character just standing there, realizing something, dealing with something quiet, and it'll take this moment that movies so that like. Let's just say, Bayhem would does not take
+[00:05:31] Adam: Yeah, and the and actually, you said that take its time. That's another thing that I really appreciated. I kept on noticing these moments of sort of aesthetic transcendence is the way I'll describe it. There be moments in which all this shit is happening, and James Gunn is the director. Yeah, James Gunn will cut to a character just standing there, realizing something, dealing with something quiet, and it'll take this moment that movies so that like. Let's just say, Bayhem would does not take
 
 [00:05:31] Will: well, right? And yeah,
 
-[00:05:31] Adam: it's such a peaceful, lovely respite, and that's a repeated refrain within the film. This this kind of silent part.
+[00:05:31] Adam: it's such a peaceful, lovely respite, and that's a repeated refrain within the film. This kind of silent part.
 
 [00:06:15] Will: I think of that as the, and I I say this without malice. I think of it as the Simpsonization of of media, right? Like if you think about before Simpsons, comedies, sitcoms had laugh tracks, and there was always a joke, beat, audience laughs, home audience laughs, and you move on. Then the Simpsons just came on and packed three times as many jokes into 23 minutes as anybody had ever done before. And the temptation to do that with this movie had to be there, and the restraint that they showed in in giving the characters kind of room to breathe
 
 [00:06:15] Adam: Yeah.
 
-[00:06:15] Will: was really awesome. I I thought the same thing. There was yeah, one moment we'll talk about in a little bit.
+[00:06:15] Will: was really awesome. I thought the same thing. There was yeah, one moment we'll talk about in a little bit.
 
-[00:06:47] Norm: The comparison you make with someone like Michael Bay, who I think you know the writers of those films will sometimes throw in a a capital moment, m moment of of realization or self reflection, and for someone like Michael Bay, that's an opportunity for him to To do something fancy, a flourish with with a shot
+[00:06:47] Norm: The comparison you make with someone like Michael Bay, who I think you know the writers of those films will sometimes throw in a capital moment, m moment of realization or self reflection, and for someone like Michael Bay, that's an opportunity for him to do something fancy, a flourish with a shot
 
 [00:07:06] Unknown speaker: [unclear: big explosion / Well, it's a / And it's a]
 
 [00:07:06] Adam: classic Zack Snyder. We build to a moment without building the emotional clarity to earn that moment.
 
-[00:07:12] Norm: And the actors in those scenes are often in those films just it’s pose, you know pose for the camera, flag wave the flag behind them,
+[00:07:12] Norm: And the actors in those scenes are often in those films just it’s pose pose for the camera, flag wave the flag behind them,
 
 [00:07:12] Adam: Right.
 
-[00:07:12] Norm: dramatic you know music swells, Um, and I don't think actors like that. I think actors want the the lowercase moment, m moment of reflection where they get to emote and and it's not necessarily about the dialogue or the big things happening around them.
+[00:07:12] Norm: dramatic you know music swells and I don't think actors like that. I think actors want the lowercase moment, m moment of reflection where they get to emote and it's not necessarily about the dialogue or the big things happening around them.
 
 [00:07:34] Adam: And the moments in this film are all quite emotional.
 
-[00:07:37] Will: There is there is a lot of there is a. I I think we're getting close to the part that we have to get into spoilers. Yeah,
+[00:07:37] Will: There is a lot of there is a. I think we're getting close to the part that we have to get into spoilers. Yeah,
 
 [00:07:43] Norm: I mean, were the things that you guys did not like about it
 
@@ -210,11 +210,11 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:08:04] Norm: Do you wonder if like the editors of the trailers know that they have? Well, they have the peas of people who want to want see Transformers film, but they it's like a personal challenge to turn it into something that has some coherence.
 
-[00:08:17] Will: So they they cast somebody that looks like Megan Fox five years ago, and they cast somebody that's gonna look like Megan Fox in like eight years. Like I just
+[00:08:17] Will: So they cast somebody that looks like Megan Fox five years ago, and they cast somebody that's gonna look like Megan Fox in like eight years. Like I just
 
 [00:08:27] Adam: oh. The thing about the Transformers trailer, I know we're driving off the road here, but the thing about the Transformers trailer I find hilarious is all these shots of Marky Mark like rolling out of the way while giant building size monsters roll around him, and somehow it's basically. I was thinking, oh, this is the kind of movie ants would tell themselves living around humans. It's like every time an ant escapes, it's like I escape because I'm the chosen.
 
-[00:08:52] Will: And and the other thing, the plot that they set up in that trailer is literally the same exact plot from I think. All four pre-existing Transformers movies.
+[00:08:52] Will: And the other thing, the plot that they set up in that trailer is literally the same exact plot from I think. All four pre-existing Transformers movies.
 
 [00:09:03] Norm: There wasn't a plot in two of them, so
 
@@ -228,27 +228,27 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:09:20] Will: Yes,
 
-[00:09:21] Norm: I, I, the I can't believe we're this is pivoting to Transformers talk, but that shot where you know you see Marky Mark do the slow motion and the amazing things tumbles, the CG thing tumbles and happens. That's got to be like, you know, film historians 50 years from now, 20 years from now, are going to look back and that's going to be a type of shot and a type of action sequence that is in all of Michael Bay's work. And so, from a history of filmmaking standpoint, like that's going to be like a chapter in a book on
+[00:09:21] Norm: I, the I can't believe we're this is pivoting to Transformers talk, but that shot where you know you see Marky Mark do the slow motion and the amazing things tumbles, the CG thing tumbles and happens. That's got to be like film historians 50 years from now, 20 years from now, are going to look back and that's going to be a type of shot and a type of action sequence that is in all of Michael Bay's work. And so, from a history of filmmaking standpoint, like that's going to be like a chapter in a book on
 
 [00:09:21] Will: well, that's that's the end of the hard-boiled jump. That's the end of the John. That's that's the other end of the John Woo jump with the two guns.
 
 [00:09:54] Adam: And it's also Bollywood. You remember that famous Bollywood sequence in which the guy shoots at the SUV, which rolls, and as it's rolling over him, he. Pulls the bad guy out of the sunroof.
 
-[00:10:04] Norm: Yeah, and Deadpool has you know has taken that to another level, and so yeah, you appreciate the filmmaking parts for for what they are.
+[00:10:04] Norm: Yeah, and Deadpool has you know has taken that to another level, and so yeah, you appreciate the filmmaking parts for what they are.
 
 [00:10:11] Adam: So back to Guardians.
 
 [00:10:13] Norm: Yes,
 
-[00:10:13] Adam: back to I think it's I think we should talk about some spoilers because the the screenwriters whose name names escape me right now because I I'm dumb and I didn't do my homework, Um, but I believe it's a man and a woman.
+[00:10:13] Adam: back to I think it's I think we should talk about some spoilers because the screenwriters whose name names escape me right now because I I'm dumb and I didn't do my homework but I believe it's a man and a woman.
 
 [00:10:26] Will: I'll look while you talk.
 
-[00:10:27] Adam: Thank you. Uh, the the screenplay. So this is spoiler time. I want to talk about my favorite moment in the film. I'm going to go right to my favorite moment in the film, which is. Uh, Uh, Uh. Okay.
+[00:10:27] Adam: Thank you. The screenplay. So this is spoiler time. I want to talk about my favorite moment in the film. I'm going to go right to my favorite moment in the film, which is. Uh, Uh, Uh. Okay.
 
 [00:10:42] Norm: Is it a favorite line or a favorite moment?
 
-[00:10:44] Adam: No, no, no. Help me because I'm old. Uh, Gamora as sisters with
+[00:10:44] Adam: No, no, no. Help me because I'm old. Gamora as sisters with
 
 [00:10:48] Will: Nebula.
 
@@ -272,7 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:11:44] Norm: There's no way you could have related to that at all, Adam."
 
-[00:11:48] Will: Well, but but but like it was one of those things in the trailer. I saw. Okay, they have they have Yondu is going to be part of the. They're bringing everybody from the first movie into the team. I was like, oh, this isn't. This is I I I don't I don't want the bad guys to be the good guys now that's that's that's a bad trope and then they totally earned it like that that whole I had the same reaction I saw that I was like oh this was a fucked up childhood for both of them in a really specific like relatable way
+[00:11:48] Will: Well, but like it was one of those things in the trailer. I saw. Okay, they have Yondu is going to be part of the. They're bringing everybody from the first movie into the team. I was like, oh, this isn't. This is I I I don't want the bad guys to be the good guys now that's a bad trope and then they totally earned it like that that whole I had the same reaction I saw that I was like oh this was a fucked up childhood for both of them in a really specific like relatable way
 
 [00:11:48] Adam: right
 
@@ -302,9 +302,9 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:12:43] Norm: yes
 
-[00:12:47] Adam: um that that yeah I mean
+[00:12:47] Adam: that that yeah I mean
 
-[00:12:49] Norm: I mean the the name of the I mean it's obviously inspired based on a Marvel comic but it's called Guardians of the Galaxy so I think a lot of the mainstream audience at least in the first film had an expectation of what does it mean that this is a quote unquote super team that Saves the galaxy, but that's not what it's all about at all. The saving of the galaxy is merely incidental. They don't intend. They don't set out to do that.
+[00:12:49] Norm: I mean the name of the I mean it's obviously inspired based on a Marvel comic but it's called Guardians of the Galaxy so I think a lot of the mainstream audience at least in the first film had an expectation of what does it mean that this is a quote unquote super team that Saves the galaxy, but that's not what it's all about at all. The saving of the galaxy is merely incidental. They don't intend. They don't set out to do that.
 
 [00:12:49] Adam: Right.
 
@@ -322,15 +322,15 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:13:21] Norm: Capital F family is a big theme.
 
-[00:13:32] Will: I mean, they're they're one Corona away from Fast Five, basically.
+[00:13:32] Will: I mean, they're one Corona away from Fast Five, basically.
 
 [00:13:35] Adam: So funny! It's a contractual requirement in Vin's contract.
 
-[00:13:38] Will: Yes. So the Drax, like they did a really good, like they did they did right by every character in the movie, including the new characters. Um, what's Mantis?
+[00:13:38] Will: Yes. So the Drax, like they did a really good, like they did right by every character in the movie, including the new characters. What's Mantis?
 
 [00:13:47] Norm: Mantis. Yeah.
 
-[00:13:47] Will: And um, and Kurt Russell.
+[00:13:47] Will: And Kurt Russell.
 
 [00:13:49] Adam: Yes. Kurt Russell.
 
@@ -350,9 +350,9 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:14:05] Adam: He's amazing.
 
-[00:14:07] Will: Yeah, he just comes in, he does the big smile, he does the aw shucks grin, and then he does some does some capital A acting and chews some scenery.
+[00:14:07] Will: Yeah, he just comes in, he does the big smile, he does the aw shucks grin, and then he does some capital A acting and chews some scenery.
 
-[00:14:14] Adam: What is the year the computer wore tennis shoes came out? Um,
+[00:14:14] Adam: What is the year the computer wore tennis shoes came out?
 
 [00:14:17] Will: like 1983 or something, right?
 
@@ -360,7 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:14:19] Adam: No, no, no. It's early '70s.
 
-[00:14:21] Will: Hold on, is that is that the one? I thought that was the computer wore tennis shoes. Is the one with the growing pains kid?
+[00:14:21] Will: Hold on, is that the one? I thought that was the computer wore tennis shoes. Is the one with the growing pains kid?
 
 [00:14:26] Adam: Um, no, I am thinking of an early, early Disney film that I. Yeah, yeah, you won't believe this. Is it 1969? Oh, so that's what Kurt Russell looks like.
 
@@ -368,7 +368,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:14:26] Adam: Right, so I've been watching him in movies forever, and he looks so good, and he is so. Just he's the best. He's the embodiment of wonderful charisma, which is perfect casting to play ego.
 
-[00:14:54] Norm: And they open, and they open it with Marvel is just bold. Or every year, every movie in with the de aging process.
+[00:14:54] Norm: And they open it with Marvel is just bold. Or every year, every movie in with the de aging process.
 
 [00:14:54] Adam: Oh right!
 
@@ -380,7 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:15:10] Adam: Oh, dude.
 
-[00:15:10] Norm: Yeah, wow. He's the guy in Um, the, Uh twenty second Jump Street, the football player.
+[00:15:10] Norm: Yeah, wow. He's the guy in the twenty second Jump Street, the football player.
 
 [00:15:10] Adam: Oh,
 
@@ -388,11 +388,11 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:15:16] Will: Oh, yeah. He does look just like him.
 
-[00:15:17] Norm: But, Uh, but I was talking to Frank, and I didn't know whether that was all digital or all. And it is, I think, an effects company that specializes in deaging.
+[00:15:17] Norm: But I was talking to Frank, and I didn't know whether that was all digital or all. And it is, I think, an effects company that specializes in deaging.
 
 [00:15:27] Adam: It's the one that did. I'm going to guess it's the one that did Benjamin Buttons.
 
-[00:15:32] Norm: Um, I don't even know if it's that one,
+[00:15:32] Norm: I don't even know if it's that one,
 
 [00:15:34] Adam: but it's that technology.
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:15:59] Unknown speaker: Star Lord,
 
-[00:15:59] Adam: Peter Quill, Star Lord, in a car with Star Lord's mom, and so it's clearly it's the '70s, and they're They're doing the so it's Kurt Russell in his 20s,
+[00:15:59] Adam: Peter Quill, Star Lord, in a car with Star Lord's mom, and so it's clearly it's the '70s, and they're doing the so it's Kurt Russell in his 20s,
 
 [00:16:09] Will: and they're listening to Brandy.
 
@@ -422,7 +422,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:16:33] Adam: But the sun coming across his face, bringing out details that made I think that shot more difficult. And I literally I watch that stuff with a very very jaundiced careful eye, and I'm like, wow, I'm not spotting the uncanny valley tells at all.
 
-[00:16:49] Will: I assume it was makeup, like like I that's that was my that was my take when I saw it.
+[00:16:49] Will: I assume it was makeup, like I that's that was my take when I saw it.
 
 [00:16:54] Adam: So so, bookmark Brandy. I'm working at Industrial Light and Magic. It's 2002, probably 2001. And this new model maker we've hired, who's kind of a weird guy, he comes up to me randomly in the middle of a day, and he goes, " Adam, do you know the song 'Brandy'?" And I went, " The song 'Brandy,' you're a fine girl. What a good wife you'd be. That one from the '70s." I was like, " Yeah." Do you know what it's about? And I was like, " I think it's about a sailor who likes this girl in the seaside town, but he can't be with her because the sea is his lady." And he goes, " Yeah, I just never listened to it before." Maybe one of the most random conversations I have ever had. I was expecting a like, " Oh, you're so vain. It's about Mick Jagger. No, it's about Warren Beatty. No, no, no. He was just literally listening to the lyrics for the first time.
 
@@ -442,49 +442,49 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:18:18] Adam: especially Tom Waits,
 
-[00:18:19] Will: Dave, uh, Dave Bautista,
+[00:18:19] Will: Dave Dave Bautista,
 
 [00:18:21] Adam: Dave Bautista, holy shitballs,
 
 [00:18:23] Will: Drax.
 
-[00:18:23] Norm: So, I didn't have an issue with I love Drax, and I think turning Drax into this comedic character, which they did, they really leaned into the things I think a lot of people loved about Drax in the first film. Uh, but Drax in the first film served as a, Um, as a way. It was a very big surprise, right? He, Uh, he was away to dispel misconceptions because the first half of the film he's a tough guy, he's cut your throat,
+[00:18:23] Norm: So, I didn't have an issue with I love Drax, and I think turning Drax into this comedic character, which they did, they really leaned into the things I think a lot of people loved about Drax in the first film. But Drax in the first film served as a way. It was a very big surprise, right? He was away to dispel misconceptions because the first half of the film he's a tough guy, he's cut your throat,
 
 [00:18:23] Adam: Yeah.
 
-[00:18:23] Norm: and then there's a turn that oh, he takes everything literally, and he's really funny. And in this film, he didn't have that. He just started off with being the the the comic relief almost.
+[00:18:23] Norm: and then there's a turn that oh, he takes everything literally, and he's really funny. And in this film, he didn't have that. He just started off with being the comic relief almost.
 
 [00:18:23] Adam: Mm-hmm.
 
-[00:18:23] Norm: Um, so I was hoping that other characters or new characters would have to fill those spots, and I'm not sure what you guys thought if they succeeded because everyone played the role that they did at the end of the the last film pretty well.
+[00:18:23] Norm: So I was hoping that other characters or new characters would have to fill those spots, and I'm not sure what you guys thought if they succeeded because everyone played the role that they did at the end of the last film pretty well.
 
 [00:19:06] Adam: Yeah,
 
-[00:19:08] Will: I I felt like I felt like. Like part of what his role in the first movie was was to be our our kind of our our person in that world, right? I'm not sure.
+[00:19:08] Will: I felt like. Like part of what his role in the first movie was was to be our kind of our person in that world, right? I'm not sure.
 
 [00:19:16] Norm: I mean, I thought it was Peter Quill.
 
-[00:19:18] Will: I don't think so. I feel like Drax was the one that was that was his his role as the person who takes everything literally was to explain things that people in that world would understand that we would not because we do not live in that world.
+[00:19:18] Will: I don't think so. I feel like Drax was the one that was his his role as the person who takes everything literally was to explain things that people in that world would understand that we would not because we do not live in that world.
 
 [00:19:28] Adam: Also, Peter suffers from a lot of self delusion, which is what makes his character interesting, and Drax does not.
 
 [00:19:28] Norm: Hmm.
 
-[00:19:28] Adam: Um. I loved. Hold on.
+[00:19:28] Adam: I loved. Hold on.
 
 [00:19:28] Will: Gesundheit.
 
-[00:19:37] Adam: Excuse me. I loved the fact that Drax laughed so much. Uh, this is something I've talked about before. People don't laugh in movies or television or media. In fact, I submit, as I have before, Julia Louis-Dreyfus is one of the few actresses that openly, ha, ha, ha, ha, laughs in Seinfeld, at New Adventures of Old Christine. Veep. She laughs, and to see Bautista getting, I got to meet him last year and and and spend a day with him, and I found him to be one of the nicest, most. Gentle, intelligent, amazing actors I've spent time with, and then to watch this film and watch how much he got to play with and do in the film—absolutely delightful. I actually I didn't mind that there wasn't a super badass in the group because I was so emotionally invested in each of the characters.
+[00:19:37] Adam: Excuse me. I loved the fact that Drax laughed so much. This is something I've talked about before. People don't laugh in movies or television or media. In fact, I submit, as I have before, Julia Louis-Dreyfus is one of the few actresses that openly, ha, ha, ha, ha, laughs in Seinfeld, at New Adventures of Old Christine. Veep. She laughs, and to see Bautista getting, I got to meet him last year and spend a day with him, and I found him to be one of the nicest, most. Gentle, intelligent, amazing actors I've spent time with, and then to watch this film and watch how much he got to play with and do in the film—absolutely delightful. I actually I didn't mind that there wasn't a super badass in the group because I was so emotionally invested in each of the characters.
 
 [00:20:31] Will: Yeah, I mean that's the thing.
 
-[00:20:33] Norm: Well, I think the character that ended up being the surprise revelation was it was Yondu, like the one that had the the biggest turn
+[00:20:33] Norm: Well, I think the character that ended up being the surprise revelation was it was Yondu, like the one that had the biggest turn
 
 [00:20:33] Adam: right
 
 [00:20:33] Norm: by the end of the film.
 
-[00:20:41] Adam: And and how many different versions of why Yondu didn't turn Quill over to Ego
+[00:20:41] Adam: And how many different versions of why Yondu didn't turn Quill over to Ego
 
 [00:20:48] Will: or eat him?
 
@@ -494,7 +494,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:21:00] Adam: Right.
 
-[00:21:00] Will: Well, that that and then the the little snippets of the larger world that they showed, you know, Sly Stallone and Michelle Yeoh as Ravager captains.
+[00:21:00] Will: Well, that that and then the little snippets of the larger world that they showed Sly Stallone and Michelle Yeoh as Ravager captains.
 
 [00:21:08] Norm: Oh God, Sly Stallone.
 
@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:21:12] Will: Oh yeah.
 
-[00:21:12] Adam: It's like when when he's again another another, and for anyone who wants to denigrate Sly Stallone, I I I tell you to watch Cop Land.
+[00:21:12] Adam: It's like when he's again another another, and for anyone who wants to denigrate Sly Stallone, I I I tell you to watch Cop Land.
 
 [00:21:25] Will: Yeah, that's a good movie.
 
@@ -516,7 +516,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:21:41] Norm: yeah.
 
-[00:21:41] Will: Um, the rocket, the the whole like each character had a unique like the interesting thing. I bet if you, I want to kind of see the plot because they break, they split up for a while.
+[00:21:41] Will: The rocket, the whole like each character had a unique like the interesting thing. I bet if you, I want to kind of see the plot because they break, they split up for a while.
 
 [00:21:41] Norm: Yep.
 
@@ -524,7 +524,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:21:41] Adam: Mm-hmm.
 
-[00:21:41] Will: Um, It's unclear still, like why Rocket will literally do anything. Like at one point in the movie, he literally says, " Look, I'll do whatever it takes. Just don't hurt Groot, right?
+[00:21:41] Will: It's unclear still, like why Rocket will literally do anything. Like at one point in the movie, he literally says, " Look, I'll do whatever it takes. Just don't hurt Groot, right?
 
 [00:21:41] Adam: Right.
 
@@ -532,17 +532,17 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:22:11] Adam: Yeah." Do whatever you want to me.
 
-[00:22:12] Will: to do whatever you want to me, yeah. And and that like for a character that is in of every other way so incessantly self like this whole thing kicks off with him stealing something that he shouldn't have stolen. They were being hired to protect, and and that it's a it's an interesting arc for him through that through his meeting with Yondu through the through the time in the in the prison with Yondu and deciding that oh right okay it's okay it's okay to love
+[00:22:12] Will: to do whatever you want to me, yeah. And that like for a character that is in of every other way so incessantly self like this whole thing kicks off with him stealing something that he shouldn't have stolen. They were being hired to protect, and that it's a it's an interesting arc for him through that through his meeting with Yondu through the time in the prison with Yondu and deciding that oh right okay it's okay to love
 
 [00:22:37] Adam: yes
 
-[00:22:38] Will: they taught they taught the and the trash panda joke was also a real high point
+[00:22:38] Will: they taught the and the trash panda joke was also a real high point
 
 [00:22:41] Adam: trash panda joke was amazing.
 
 [00:22:42] Norm: Mary Poppins
 
-[00:22:44] Adam: I also loved it when he stole the the the batteries from the planet of golden Tilda Swintons
+[00:22:44] Adam: I also loved it when he stole the batteries from the planet of golden Tilda Swintons
 
 [00:22:44] Will: yes
 
@@ -556,15 +556,15 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:22:54] Norm: yeah
 
-[00:22:55] Will: I like the I loved the I loved the video game as Planet Defense thing that was pretty that was the right kind of dumb.
+[00:22:55] Will: I like the I loved the video game as Planet Defense thing that was pretty that was the right kind of dumb.
 
 [00:23:01] Adam: really well done
 
 [00:23:01] Will: yeah
 
-[00:23:01] Adam: really like again the other thing that I and look I I'm I'm an unqualified fan of this film you know I I think if I watched again I might spot some things that I thought were clunky but I just enjoyed sitting through it Uh, and Being a passenger along for the ride,
+[00:23:01] Adam: really like again the other thing that I and look I I'm I'm an unqualified fan of this film you know I I think if I watched again I might spot some things that I thought were clunky but I just enjoyed sitting through it and Being a passenger along for the ride,
 
-[00:23:17] Will: and and I mean,
+[00:23:17] Will: and I mean,
 
 [00:23:18] Norm: and it starts off with that amazing opening title sequence. They had the yeah, they had to one up the one from the last film.
 
@@ -574,25 +574,25 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:23:18] Will: It's terrible.
 
-[00:23:18] Norm: It's dancing baby Groot. It's where the the big action is all happening.
+[00:23:18] Norm: It's dancing baby Groot. It's where the big action is all happening.
 
 [00:23:18] Will: Yeah, yeah, yeah.
 
 [00:23:18] Norm: Where ILM tried to spend more money doing the background than the foreground, and it's all blurred out.
 
-[00:23:37] Will: The um, the the thing, like it. This is a joyful movie.
+[00:23:37] Will: The thing, like it. This is a joyful movie.
 
 [00:23:37] Adam: Yep.
 
-[00:23:37] Will: Right. And and I've been worried, even since like the second Captain America movie, with the Marvel formula. You know, there's the there's the cold open fight, and then there's the fight that they lose, and then they have some hardship, and then they have a little fight that they win, and then there's a great big fight that they win, and a lot of the Marvel second wave stuff follows that path almost exactly.
+[00:23:37] Will: Right. And I've been worried, even since like the second Captain America movie, with the Marvel formula. There's the cold open fight, and then there's the fight that they lose, and then they have some hardship, and then they have a little fight that they win, and then there's a great big fight that they win, and a lot of the Marvel second wave stuff follows that path almost exactly.
 
 [00:23:37] Adam: Yeah, totally. Sure.
 
-[00:23:37] Will: Um, this this this still follows the formula. Mostly,
+[00:23:37] Will: This still follows the formula. Mostly,
 
 [00:24:12] Adam: but character is much more front and center.
 
-[00:24:14] Will: That's it, and because because I care so much about those characters, like they made it's shocking to me that they made the movie with the talking raccoon and the tree that only says " I am Groot," and that's the franchise that I think I care more about than anything else in Marvel right now. Although that Thor trailer looked pretty good,
+[00:24:14] Will: That's it, and because I care so much about those characters, like they made it's shocking to me that they made the movie with the talking raccoon and the tree that only says " I am Groot," and that's the franchise that I think I care more about than anything else in Marvel right now. Although that Thor trailer looked pretty good,
 
 [00:24:28] Adam: the Thor trailer looked great. I loved after the first Guardians movie was such a success. Joss Whedon's quote that, " Well, now that now that Hollywood's realized an animated raccoon can anchor a movie, maybe they'll let a woman do it." And and by the way, I am really excited that the advance word on Wonder Woman is that it's fantastic.
 
@@ -614,7 +614,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:24:59] Norm: Yeah, I am. I am. I am not here at all. I am on my honeymoon.
 
-[00:25:03] Will: Um, go to the Arctic again?
+[00:25:03] Will: Go to the Arctic again?
 
 [00:25:05] Norm: Yes. Okay. Exactly. Yeah, so that's Guardians of the Galaxy too. I mean, people, most people should have seen it by now. It was a massive success.
 
@@ -640,11 +640,11 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:25:50] Norm: It didn't be about this big,
 
-[00:25:52] Adam: even in the even in the multiple, Uh, Uh
+[00:25:52] Adam: even in the multiple
 
 [00:25:54] Norm: stingers,
 
-[00:25:55] Adam: post credits, post credits, it, it, pre, what do you call during credit?
+[00:25:55] Adam: post credits, it, pre, what do you call during credit?
 
 [00:25:59] Unknown speaker: Yeah, yeah.
 
@@ -656,9 +656,9 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:26:10] Adam: Right. I can't. I can't.
 
-[00:26:11] Will: And and he said, well, this one time I was like, he referenced the other. The other cameos—it was so dumb.
+[00:26:11] Will: And he said, well, this one time I was like, he referenced the other. The other cameos—it was so dumb.
 
-[00:26:16] Adam: Yeah, no, I know, I know. We had Michael Rooker on MythBusters many years ago for the zombie episode, and he like—I'm so happy for his for his. Oh God,
+[00:26:16] Adam: Yeah, no, I know. We had Michael Rooker on MythBusters many years ago for the zombie episode, and he like—I'm so happy for his. Oh God,
 
 [00:26:27] Will: rebirth, success! He's from Walking Dead.
 
@@ -706,7 +706,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:27:10] Norm: You got to watch the whole season.
 
-[00:27:11] Adam: I know, I know, I know, I know.
+[00:27:11] Adam: I know.
 
 [00:27:12] Norm: The first, even the first episode, which Aziz Ansari directs,
 
@@ -720,29 +720,29 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:27:18] Adam: really like. I love how much room they're giving writer, director, actors like Aziz to work with the team and build these incredible shows that are just like you're willing. I think they could go into a science fiction realm, and you'd be like, " Oh yeah, I guess this is where they're going."
 
-[00:27:37] Will: I watched, Um. Nobody needs me to tell you that Archer is good after they've done like seven seasons, but I finally picked up the last season.
+[00:27:37] Will: I watched. Nobody needs me to tell you that Archer is good after they've done like seven seasons, but I finally picked up the last season.
 
 [00:27:37] Adam: Yeah,
 
-[00:27:37] Will: and it's it is it is astounding.
+[00:27:37] Will: and it's it is astounding.
 
 [00:27:37] Adam: Oh, okay.
 
-[00:27:37] Will: it's another theme season. They go into a. They take the they take the team and they go do something that's spy adjacent, and and hijinks ensue. It's really good.
+[00:27:37] Will: it's another theme season. They go into a. They take the team and they go do something that's spy adjacent, and hijinks ensue. It's really good.
 
 [00:27:37] Adam: Excellent.
 
-[00:27:58] Norm: Awesome. Um, I don't know if you guys should record a. I'm I'm not here.
+[00:27:58] Norm: Awesome. I don't know if you guys should record a. I'm not here.
 
 [00:28:03] Adam: You're not here next week.
 
-[00:28:03] Norm: for for next week. I am I am in Europe.
+[00:28:03] Norm: for next week. I am in Europe.
 
 [00:28:06] Adam: We will record a podcast. We'll find a guest, and we will actually actually. I have a couple of ideas already.
 
 [00:28:06] Unknown speaker: Okay.
 
-[00:28:13] Norm: All right, all right. Well then, Adam and Will will see you guys next week.
+[00:28:13] Norm: All right. Well then, Adam and Will will see you guys next week.
 
 [00:28:13] Adam: Okay.
 

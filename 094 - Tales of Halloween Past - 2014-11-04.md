@@ -24,7 +24,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:00:30] Norm: We’re catching up to the future.
 
-[00:00:31] Adam: I'm actually I'm actually staring at poor Ackbar there, who looks like a a detainee with a bubble wrap around his. Looks like an extra from 24.
+[00:00:31] Adam: I'm actually staring at poor Ackbar there, who looks like a detainee with a bubble wrap around his. Looks like an extra from 24.
 
 [00:00:31] Will: Yeah,
 
@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:00:55] Will: Mannequins suck.
 
-[00:00:56] Adam: All mannequins suck. I need to I need to work with Frank to engineer a mannequin.
+[00:00:56] Adam: All mannequins suck. I need to work with Frank to engineer a mannequin.
 
 [00:01:00] Norm: He's the right person.
 
@@ -82,7 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:01:54] Will: But so this is one of those situations where. Are they they're $1,000 because there's mechanical there's a lot of mechanical work that goes in them or they're $1,000 because they don't sell very many and they need to make enough money to stay in business?
 
-[00:02:04] Adam: That's a good question. I'm not positive. Okay. But from an engineering standpoint, you want the you want the flesh as it were to be somewhat pliable so it can move. You want it to be poseable so you can get it. Now, when you talk about poseable and you're holding up an arm, if it has anything in it, even if it weighs two pounds, there's tremendous amount of stress right here on the shoulder, and that means that you've got to have some mechanical arrangement that's both movable and rigid. That's expensive. Yeah. It's just it's hard to do. Yes, you could do it with eye bolts and lock nuts and some heavy stuff, but to a degree that's fully 360 degree articulatable, maybe. Then that's not even the toughest problem. The toughest problem is you can't really support it through the feet like in the stores because they can just take an old pair of shoes and drill holes through them. When you're doing costume stuff, I don't want to drill holes in my costume shoes, which means I've got to support from really the center of the back. And again, in any kind of pose, there is a huge amount of stress on the mechanical linkage right there. Now, again, I can make it out of welded steel, and I can have it sock into a port that's on a piece of quarter-inch plate. But frankly, I've been thinking about this for days. It's been driving me crazy.
+[00:02:04] Adam: That's a good question. I'm not positive. Okay. But from an engineering standpoint, you want the flesh as it were to be somewhat pliable so it can move. You want it to be poseable so you can get it. Now, when you talk about poseable and you're holding up an arm, if it has anything in it, even if it weighs two pounds, there's tremendous amount of stress right here on the shoulder, and that means that you've got to have some mechanical arrangement that's both movable and rigid. That's expensive. Yeah. It's just it's hard to do. Yes, you could do it with eye bolts and lock nuts and some heavy stuff, but to a degree that's fully 360 degree articulatable, maybe. Then that's not even the toughest problem. The toughest problem is you can't really support it through the feet like in the stores because they can just take an old pair of shoes and drill holes through them. When you're doing costume stuff, I don't want to drill holes in my costume shoes, which means I've got to support from really the center of the back. And again, in any kind of pose, there is a huge amount of stress on the mechanical linkage right there. Now, again, I can make it out of welded steel, and I can have it sock into a port that's on a piece of quarter-inch plate. But frankly, I've been thinking about this for days. It's been driving me crazy.
 
 [00:03:19] Will: So, I think the easy solution next time we need a bunch of costumes on mannequins is just hire people to stand there in the costumes.
 
@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:03:41] Adam: yeah. Also, they can't change diapers. Can you imagine when a robot makes a mistake changing a diaper?
 
-[00:03:45] Will: It's bad enough when a human makes a mistake changing a diaper. You know, you know the diaper changing robot. If you'd asked me two years ago if I would have paid for that, I would have been the first person in line prior to the birth of the child. But now it's
+[00:03:45] Will: It's bad enough when a human makes a mistake changing a diaper. The diaper changing robot. If you'd asked me two years ago if I would have paid for that, I would have been the first person in line prior to the birth of the child. But now it's
 
 [00:03:58] Norm: soft robotics. It's all about the soft hands.
 
@@ -110,15 +110,15 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:04:03] Adam: It's not that difficult.
 
-[00:04:03] Will: Like you, you can do it asleep. You can do it standing.
+[00:04:03] Will: Like you can do it asleep. You can do it standing.
 
 [00:04:07] Adam: And you have
 
-[00:04:07] Will: a few thousand practices. It's a piece of cake. Like there's when when Gina and I are are like doing the negotiation over which, well, I'll change the diaper if you do the do the dishes. I'll do the diaper every day. Yeah,
+[00:04:07] Will: a few thousand practices. It's a piece of cake. Like there's when Gina and I are like doing the negotiation over which, well, I'll change the diaper if you do the dishes. I'll do the diaper every day. Yeah,
 
 [00:04:21] Norm: you're well on your way to 10,000 hours.
 
-[00:04:23] Adam: There's also this thing, well, the the way that comes in is that you realize instantly something important about your parents, which is once you've wiped somebody's ass several thousand times, you can never fully take them seriously. There's always going to be part of you that's like you're a helpless vegetable bean.
+[00:04:23] Adam: There's also this thing, well, the way that comes in is that you realize instantly something important about your parents, which is once you've wiped somebody's ass several thousand times, you can never fully take them seriously. There's always going to be part of you that's like you're a helpless vegetable bean.
 
 [00:04:42] Norm: You pooped up your back once, twice,
 
@@ -130,19 +130,19 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:04:50] Will: yes, watching it.
 
-[00:04:51] Adam: Oh, it's you know they continue, they continue. Damian Kulash was on one of the morning shows with his drummer, and and they they continue to be crazy, charming, and sweet. But to surprise, and what he says is, they they got an, a request from Honda to work with these things and go to Japan, and he said they showed up with an idea, and then they work with these collaborators
+[00:04:51] Adam: Oh, it's you know they continue. Damian Kulash was on one of the morning shows with his drummer, and they continue to be crazy, charming, and sweet. But to surprise, and what he says is, they got an, a request from Honda to work with these things and go to Japan, and he said they showed up with an idea, and then they work with these collaborators
 
 [00:05:17] Norm: with the director, the famous Japanese director,
 
-[00:05:20] Adam: and then they they spent a month choreographing that. And frankly, at the end, I actually got I got a little weepy because it was so beautiful. Now, Julia says, really on the spectrum of important things, things that you get weepy at is pretty much in the middle,
+[00:05:20] Adam: and then they spent a month choreographing that. And frankly, at the end, I actually got I got a little weepy because it was so beautiful. Now, Julia says, really on the spectrum of important things, things that you get weepy at is pretty much in the middle,
 
 [00:05:34] Norm: right in the middle.
 
 [00:05:34] Adam: I mean, it’s like drop a hat.
 
-[00:05:38] Norm: There's a there's a great exhibit right now at the EMP at the Experience Music Project that's just about music videos, history of music videos, and there is a section on OK Go, which for better or worse, they're known for music videos. They are known for the the feats they do.
+[00:05:38] Norm: There's a great exhibit right now at the EMP at the Experience Music Project that's just about music videos, history of music videos, and there is a section on OK Go, which for better or worse, they're known for music videos. They are known for the feats they do.
 
-[00:05:53] Will: Yeah, I mean, it started with the treadmill, the treadmill, and then the the um the dominoes.
+[00:05:53] Will: Yeah, I mean, it started with the treadmill, and then the dominoes.
 
 [00:05:53] Norm: Yes,
 
@@ -156,7 +156,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:06:22] Will: Do you think they ever just like sit down and they're talking about a song, and they're like, maybe we should just shoot this one, just lit heads on a black background, just singing?
 
-[00:06:32] Adam: You know, use a mirror. I bet they will.
+[00:06:32] Adam: Use a mirror. I bet they will.
 
 [00:06:33] Norm: And then transition into a piano.
 
@@ -164,13 +164,13 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:06:45] Will: Yeah, I've heard of the video toaster.
 
-[00:06:46] Adam: The video toaster was the proto like I can do anything in the world. And the video that exemplified it was a was a Cars video.
+[00:06:46] Adam: The video toaster was the proto like I can do anything in the world. And the video that exemplified it was a Cars video.
 
-[00:06:57] Will: It’s the one with the wavy the wavy lines and the kind of noise. over, right?
+[00:06:57] Will: It’s the one with the wavy lines and the kind of noise. over, right?
 
 [00:07:00] Adam: Heads turn into fish and all sorts. It's like clip art music video. And Yes did like 17 music videos. That was just the total of them. I don't know, five or six or seven standing there. While like video editors like flip them upside down and squish them and stretch them and
 
-[00:07:17] Will: oh boy oh boy and just think if you wanted to do something amazing today you could recreate that using iMovie on your laptop
+[00:07:17] Will: oh boy and just think if you wanted to do something amazing today you could recreate that using iMovie on your laptop
 
 [00:07:17] Adam: on your phone
 
@@ -194,9 +194,9 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:07:48] Adam: how we all get fat and stupid.
 
-[00:07:49] Norm: this is exactly this is the the hover chair it's gonna be blue next year like it's the laziest thing ever
+[00:07:49] Norm: this is exactly this is the hover chair it's gonna be blue next year like it's the laziest thing ever
 
-[00:07:56] Adam: it it well that's the thing about you know I own a Segway and as you ride it you can feel your ass getting
+[00:07:56] Adam: it well that's the thing about you know I own a Segway and as you ride it you can feel your ass getting
 
 [00:08:01] Norm: and then you're standing with that one yeah the Honda one you're
 
@@ -238,7 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:08:47] Adam: Yes.
 
-[00:08:47] Will: And then there's incognito Adam Savage. I'm not going to give any details on that. But but were you incognito Adam Savage or were you?
+[00:08:47] Will: And then there's incognito Adam Savage. I'm not going to give any details on that. But were you incognito Adam Savage or were you?
 
 [00:09:07] Adam: I think I was incognito.
 
@@ -252,7 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:09:22] Norm: Exactly.
 
-[00:09:24] Adam: Well, so it ends up being you know, Dean Kamen has a thing he says to his engineers all the time, which is, " Are we making a south facing compass?" Now, this is based on a piece of Chinese hardware that the Chinese use, and it was a gear train on a cart that they used, and it's a beautiful little intricate gear train. And what it did was, if you started that cart while the arrow on top of it was pointing north, no matter which way you turned the cart, that arrow always points in the same direction, and so it always gave you a bearing when you were traveling as to where you'd come from.
+[00:09:24] Adam: Well, so it ends up being Dean Kamen has a thing he says to his engineers all the time, which is, " Are we making a south facing compass?" Now, this is based on a piece of Chinese hardware that the Chinese use, and it was a gear train on a cart that they used, and it's a beautiful little intricate gear train. And what it did was, if you started that cart while the arrow on top of it was pointing north, no matter which way you turned the cart, that arrow always points in the same direction, and so it always gave you a bearing when you were traveling as to where you'd come from.
 
 [00:10:00] Will: Okay.
 
@@ -264,13 +264,13 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:10:08] Will: Yeah.
 
-[00:10:08] Adam: Right. The compass renders it obsolete, and then it becomes a ludicrously Ornate execution of something that can be done really simply, and the Segway. While I don't think it's a south facing compass, it is a the number of engineering successes within a Segway are jaw dropping. The the battery life, the motor power, the balancing, the torque, the feedback loops,
+[00:10:08] Adam: Right. The compass renders it obsolete, and then it becomes a ludicrously Ornate execution of something that can be done really simply, and the Segway. While I don't think it's a south facing compass, it is a the number of engineering successes within a Segway are jaw dropping. The battery life, the motor power, the balancing, the torque, the feedback loops,
 
 [00:10:32] Will: recharging, all that,
 
 [00:10:33] Adam: all of that is really really impressive, really like to be you know astonished by. But it solves a problem that wasn't really a problem.
 
-[00:10:43] Will: Well, but it is. I mean, so the problem the problem that it tries to solve, which is the it's hard to get from your house to public transit, right?
+[00:10:43] Will: Well, but it is. I mean, so the problem that it tries to solve, which is the it's hard to get from your house to public transit, right?
 
 [00:10:43] Adam: Yeah,
 
@@ -290,7 +290,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:11:24] Norm: Lean into and actually
 
-[00:11:31] Adam: a little like kayaking, you know?
+[00:11:31] Adam: a little like kayaking?
 
 [00:11:31] Norm: Yeah, kind of.
 
@@ -304,7 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:11:48] Adam: Yes, I figured that out by myself.
 
-[00:11:48] Norm: Really, and then yeah, and they they rehearsed it. Guess how many times they had the rehearsal?
+[00:11:48] Norm: Really, and then yeah, and they rehearsed it. Guess how many times they had the rehearsal?
 
 [00:11:54] Adam: I'm going to guess 100 times.
 
@@ -326,7 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:12:16] Adam: Spelled both ways.
 
-[00:12:17] Will: I, I understand.
+[00:12:17] Will: I understand.
 
 [00:12:18] Norm: rent it at amusement parks, and we were talking before the podcast. I am probably going to Disneyland in a little bit,
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:12:55] Adam: Oh, you just shit on his childhood.
 
-[00:12:59] Norm: I I also had fond memories that ride was a kid.
+[00:12:59] Norm: I also had fond memories that ride was a kid.
 
 [00:13:02] Will: We’re saying don't get on Mister Toad when you get back.
 
@@ -374,13 +374,13 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:13:20] Adam: Right, right, right.
 
-[00:13:20] Will: And we would go and kind of do Disney World stuff all day. But the thing that we learned the first day we were at Disney, this is in Orlando, not in in Southern California, is that as soon as the fireworks starts, the lines for all the rides just evaporated.
+[00:13:20] Will: And we would go and kind of do Disney World stuff all day. But the thing that we learned the first day we were at Disney, this is in Orlando, not in Southern California, is that as soon as the fireworks starts, the lines for all the rides just evaporated.
 
 [00:13:20] Adam: Oh.
 
 [00:13:20] Will: So like at parade time and at fireworks time, you go get and pretty much walk right onto stuff, which made the lines a lot better. And also now they have all these like line amortization issues where you like scan something and then it says come back in 25 minutes. You'll just walk right on.
 
-[00:13:58] Adam: Yeah, yeah, yeah. That's that's that's good. I just doesn't
+[00:13:58] Adam: Yeah, yeah, yeah. That's good. I just doesn't
 
 [00:14:02] Norm: the infrastructure fascinates me.
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:14:21] Will: That's amazing.
 
-[00:14:22] Adam: With with continental seating, no aisles. People just moved in through doors on one side. They sit, watch for 10 minutes. They're out, and while they're out, another group comes.
+[00:14:22] Adam: With continental seating, no aisles. People just moved in through doors on one side. They sit, watch for 10 minutes. They're out, and while they're out, another group comes.
 
 [00:14:32] Will: Well, that's the thing. Like when I went to Disney World as an adult, I had a friend who got married in Disney World when I was 24, 25.
 
@@ -422,7 +422,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:14:58] Adam: Wow, that's far out.
 
-[00:15:00] Will: Not really a kitty, you know.
+[00:15:00] Will: Not really a kitty.
 
 [00:15:01] Adam: No, I just I I'm wow I'm just that's far out. I've just started letting that wash over me.
 
@@ -436,7 +436,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:15:12] Adam: Okay.
 
-[00:15:12] Will: Um. And uh. I was walking around. It's like it's like movie bars. So you're walking around in this place, and everywhere you go in, it's like a different theme. It's like that episode of The Simpsons. You go in, and there's like a bar where it's New Year's Eve every hour, or you go into a bar where it's like old Western bar, like the most amazing movie-looking sports bar you've ever seen.
+[00:15:12] Will: And. I was walking around. It's like movie bars. So you're walking around in this place, and everywhere you go in, it's like a different theme. It's like that episode of The Simpsons. You go in, and there's like a bar where it's New Year's Eve every hour, or you go into a bar where it's like old Western bar, like the most amazing movie-looking sports bar you've ever seen.
 
 [00:15:12] Adam: Right.
 
@@ -448,11 +448,11 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:15:12] Adam: Wow.
 
-[00:15:12] Will: Yeah, it's but it it kind of makes you—
+[00:15:12] Will: Yeah, it's but it kind of makes you—
 
 [00:16:17] Adam: Both comforting, and yet it ruins the illusion.
 
-[00:16:19] Will: It's it's it's like I said, I like going to Disney World because it's a design. It's an amazing design place.
+[00:16:19] Will: It's like I said, I like going to Disney World because it's a design. It's an amazing design place.
 
 [00:16:19] Norm: Yeah. So would you never want to be an Imagineer?
 
@@ -468,11 +468,11 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:16:51] Norm: Right, talk about makers at at the most elite level.
 
-[00:16:54] Adam: And you're right, actually, the engineering challenges that Disney World and Disneyland achieve and succeed at is astonishing in terms of movement of people, but also providing of an experience. I love I love Boing Boing's regular fascination and obsession with the haunted house.
+[00:16:54] Adam: And you're right, actually, the engineering challenges that Disney World and Disneyland achieve and succeed at is astonishing in terms of movement of people, but also providing of an experience. I love Boing Boing's regular fascination and obsession with the haunted house.
 
 [00:17:13] Norm: Oh, Cory Doctorow,
 
-[00:17:14] Will: yeah, Cory’s been in. Well, you know, he wrote a book.
+[00:17:14] Will: yeah, Cory’s been in. Well he wrote a book.
 
 [00:17:16] Adam: Yes.
 
@@ -484,7 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:17:19] Norm: yeah, the haunted mansion
 
-[00:17:20] Will: about the haunted mansion. Yeah, it's it's uh, it's funny because the haunted mansion is one of those things that I didn't appreciate as a kid at all. Like we went through the haunted mansion, despite my parents' misgivings that it was going to give everybody involved nightmares. And when I went back and saw that as like a 24, 25 year old, I was like, " This is an incredible thing, considering that was built in like 1962."
+[00:17:20] Will: about the haunted mansion. Yeah, it's funny because the haunted mansion is one of those things that I didn't appreciate as a kid at all. Like we went through the haunted mansion, despite my parents' misgivings that it was going to give everybody involved nightmares. And when I went back and saw that as like a 24, 25 year old, I was like, " This is an incredible thing, considering that was built in like 1962."
 
 [00:17:20] Adam: Yeah,
 
@@ -492,11 +492,11 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:17:47] Adam: Literally, smoke and mirrors.
 
-[00:17:47] Will: It's it it exactly. It's and it's amazing.
+[00:17:47] Will: It's it exactly. It's and it's amazing.
 
 [00:17:50] Adam: Yeah, absolutely.
 
-[00:17:51] Will: Um, anyway, that and that is another segue.
+[00:17:51] Will: Anyway, that and that is another segue.
 
 [00:17:53] Norm: and that is a hugely popular attraction this time of year.
 
@@ -516,15 +516,15 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:18:20] Will: You should. You should just dress up as a Segway for Halloween and then ride the Segway around.
 
-[00:18:25] Adam: You know, I actually have a Roman chariot. Front for it that I built for one of our episodes.
+[00:18:25] Adam: I actually have a Roman chariot. Front for it that I built for one of our episodes.
 
 [00:18:25] Will: Oh my god! That’s amazing.
 
-[00:18:25] Adam: And it's got a bas-relief in gold foam core of me shooting Jamie with arrows. Oh dear! You know, Halloween is one of those. It is. I love Halloween. I and I grew up loving Halloween. Like, I very specifically remember the early '70s when the most popular I can't think of anything Halloween costume was a hobo.
+[00:18:25] Adam: And it's got a bas-relief in gold foam core of me shooting Jamie with arrows. Oh dear! Halloween is one of those. It is. I love Halloween. I and I grew up loving Halloween. Like, I very specifically remember the early '70s when the most popular I can't think of anything Halloween costume was a hobo.
 
 [00:18:59] Norm: Oh wow! Yeah, yeah. Or stick a little,
 
-[00:19:03] Adam: little, little ash black on your on your cheek with a bandana on the end of a stick, and like just took some old jeans.
+[00:19:03] Adam: little, little ash black on your cheek with a bandana on the end of a stick, and like just took some old jeans.
 
 [00:19:10] Will: red up your nose a little bit if you want to be a wino.
 
@@ -588,7 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:20:49] Will: Let us know what mistakes we made. Yeah.
 
-[00:20:51] Adam: So I mean, you know, Onion couldn't have come up with a joke as good as " Sexy Ebola Costume." Like they must be like, " Gah! Damn reality."
+[00:20:51] Adam: So I mean Onion couldn't have come up with a joke as good as " Sexy Ebola Costume." Like they must be like, " Gah! Damn reality."
 
 [00:21:00] Will: Yeah. Well, that that. But you knew that was going to happen. You knew it was only a matter of time.
 
@@ -600,11 +600,11 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:21:06] Will: Candy corn.
 
-[00:21:06] Adam: I I I do remember though specifically the first time I wanted a costume and actually got it because we were poor too growing up and, you know, I didn't get a lot of things that I asked for because my parents couldn't really afford. There you go.
+[00:21:06] Adam: I do remember though specifically the first time I wanted a costume and actually got it because we were poor too growing up and I didn't get a lot of things that I asked for because my parents couldn't really afford. There you go.
 
 [00:21:21] Norm: Oh my goodness.
 
-[00:21:22] Adam: Um, but in 1976, Jaws came out. Hmm. And there was a Jaws costume.
+[00:21:22] Adam: But in 1976, Jaws came out. Hmm. And there was a Jaws costume.
 
 [00:21:31] Will: Oh boy!
 
@@ -626,7 +626,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:21:49] Adam: That was the default for all costumes.
 
-[00:21:51] Will: Yeah, like if you got a Spider-Man, it was a mask, a vacuum-formed mask with maybe maybe it had like something that looked like a Spider-Man costume, but usually it was just like the Spider-Man logo and like copyright Marvel.
+[00:21:51] Will: Yeah, like if you got a Spider-Man, it was a mask, a vacuum-formed mask with maybe maybe it had like something that looked like a Spider-Man costume, but usually it was just like the Spider-Man logo and copyright Marvel.
 
 [00:22:03] Adam: All costumes when we were kids, Norm.
 
@@ -662,7 +662,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:23:29] Adam: Sorry, okay.
 
-[00:23:31] Will: He was he was a realtor and rolled straight into auctioneering when the real estate market crashed. It's a thing that people do.
+[00:23:31] Will: He was a realtor and rolled straight into auctioneering when the real estate market crashed. It's a thing that people do.
 
 [00:23:36] Adam: I'm going to auction off the properties I can't sell.
 
@@ -670,7 +670,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:23:38] Adam: Okay.
 
-[00:23:38] Will: Um, and then he bought a Model A reproduction in 1990, 1981, when they started when Ford released those on the 875th anniversary or something of the car, and that was like the motto for the auction company because if you're an auctioneer, you have to have a gimmick, and he had the Model A, and he would dress the kids up in clown costumes and we would ride around in the Model A in the back and throw candy at people at parades and stuff like that.
+[00:23:38] Will: And then he bought a Model A reproduction in 1990, 1981, when they started when Ford released those on the 875th anniversary or something of the car, and that was like the motto for the auction company because if you're an auctioneer, you have to have a gimmick, and he had the Model A, and he would dress the kids up in clown costumes and we would ride around in the Model A in the back and throw candy at people at parades and stuff like that.
 
 [00:23:38] Adam: Wow!
 
@@ -678,11 +678,11 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:23:38] Adam: Really?
 
-[00:23:38] Will: He was a little bit of a little little bit of a a
+[00:23:38] Will: He was a little bit of a little little bit of a
 
 [00:24:10] Adam: little bit of a con man.
 
-[00:24:11] Will: Little bit, not a con man, but he always he was a on the on the genius scale where Fred Flintstone is at one end with crazy ideas and Sergey Brin is at the other. He was more on the Fred Flintstone side, I would say.
+[00:24:11] Will: Little bit, not a con man, but he always he was a on the genius scale where Fred Flintstone is at one end with crazy ideas and Sergey Brin is at the other. He was more on the Fred Flintstone side, I would say.
 
 [00:24:22] Adam: Well, that’s not a shyster. I mean, shyster is like he's going to cheat somebody.
 
@@ -702,11 +702,11 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:24:47] Will: Let's just roll back.
 
-[00:24:50] Adam: What was what was what was what was Astro Teller's brilliant idea? Oh, right, a pillow that combs your hair while you sleep. I love that idea.
+[00:24:50] Adam: What was Astro Teller's brilliant idea? Oh, right, a pillow that combs your hair while you sleep. I love that idea.
 
 [00:25:00] Norm: Caressing pillow.
 
-[00:25:01] Adam: It turns out that it's it's actually purchased by lonely people. Strokes your head. It's okay. It's like one of those body pillows.
+[00:25:01] Adam: It turns out that it's actually purchased by lonely people. Strokes your head. It's okay. It's like one of those body pillows.
 
 [00:25:08] Will: I like
 
@@ -728,7 +728,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:25:24] Adam: Capes are always cool.
 
-[00:25:24] Will: Um, and then my mom also dressed me up. Like I, I, I really liked Alice in Wonderland when I was a little kid, and she dressed me up as the Cheshire Cat. But it's hard to do a Cheshire Cat costume, so I was actually the tree that the Cheshire Cat was in, and she painted the Cheshire Cat with fabric paint on the torso in a in a hole. That was
+[00:25:24] Will: And then my mom also dressed me up. Like I, I, I really liked Alice in Wonderland when I was a little kid, and she dressed me up as the Cheshire Cat. But it's hard to do a Cheshire Cat costume, so I was actually the tree that the Cheshire Cat was in, and she painted the Cheshire Cat with fabric paint on the torso in a hole. That was
 
 [00:25:55] Norm: on your belly.
 
@@ -742,7 +742,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:26:13] Norm: Woo! There's there's a lot of peer pressure in elementary school.
 
-[00:26:17] Will: Did you did you hold on? Did you go to? Is this an is this a slur or not? Dot com?
+[00:26:17] Will: Did you hold on? Did you go to? Is this an is this a slur or not? Dot com?
 
 [00:26:21] Adam: I just looked up its etymology. And the wiki page says that there is a lot of disagreement about the etymology, and it's often suggested that it has anti-Semitic origin, but there is no proof of that.
 
@@ -754,7 +754,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:26:40] Adam: At any rate,
 
-[00:26:41] Norm: yeah. So, so I think I at least remember all the costumes had in elementary school because, like, if you didn't have a costume, that's it.
+[00:26:41] Norm: yeah. So, so I think I at least remember all the costumes had in elementary school because if you didn't have a costume, that's it.
 
 [00:26:41] Adam: Oh, really?
 
@@ -766,7 +766,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:26:52] Will: Well, because you did Halloween at school.
 
-[00:26:53] Norm: Halloween at school. See, they would take all the kids out and do a parade, which is like everyone walks in one line around the courtyard, you know.
+[00:26:53] Norm: Halloween at school. See, they would take all the kids out and do a parade, which is like everyone walks in one line around the courtyard.
 
 [00:27:02] Adam: but if you didn't have a costume, what were you? You just were on the sidelines, or you had to walk as I am Joe Smith.
 
@@ -782,7 +782,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:27:21] Will: Blending in.
 
-[00:27:22] Adam: I tried to. I so I made the the the two costumes I can distinctly remember for Halloween. Oh, I'm sorry. At least several years in a row, we would go to Baskin Robbins where the ice cream came in those giant tubs.
+[00:27:22] Adam: I tried to. I so I made the two costumes I can distinctly remember for Halloween. Oh, I'm sorry. At least several years in a row, we would go to Baskin Robbins where the ice cream came in those giant tubs.
 
 [00:27:22] Will: Yeah.
 
@@ -826,13 +826,13 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:28:46] Will: get the can opener, nurse Gladys.
 
-[00:28:47] Adam: Yeah. Wow. And and frankly, it was those, it was those days of wearing costumes that started my lifelong fascination with them.
+[00:28:47] Adam: Yeah. Wow. And frankly, it was those days of wearing costumes that started my lifelong fascination with them.
 
 [00:28:59] Will: Yeah.
 
-[00:29:00] Adam: I I was a lonely kid. I didn't get along with. I didn't feel like I had a place. I think I got along with people okay, but I didn't feel like I had a place. And the costumes were definitely this. Like I remember in another. Maybe it was senior year. I had one piece left from this costume, which was this armband. And Road Warrior had come out, and I had come out, and I dressed up this armband to be kind of Road Warriory, and I had a gauntlet, and that was my costume. I'm like kind of the Road Warrior, and like I remember this one of my one of my fellow students like making fun of me, like, " Look at Adams, all confident and shit," because now he's got like metal on him, and he was like totally right. I did feel confident with the metal on me. I felt like totally, you know, like a different person.
+[00:29:00] Adam: I was a lonely kid. I didn't get along with. I didn't feel like I had a place. I think I got along with people okay, but I didn't feel like I had a place. And the costumes were definitely this. Like I remember in another. Maybe it was senior year. I had one piece left from this costume, which was this armband. And Road Warrior had come out, and I had come out, and I dressed up this armband to be kind of Road Warriory, and I had a gauntlet, and that was my costume. I'm like kind of the Road Warrior, and I remember this one of my fellow students like making fun of me, like, " Look at Adams, all confident and shit," because now he's got like metal on him, and he was like totally right. I did feel confident with the metal on me. I felt like totally like a different person.
 
-[00:29:42] Norm: And and that hence cosplaying.
+[00:29:42] Norm: And that hence cosplaying.
 
 [00:29:44] Adam: Yes, totally.
 
@@ -858,7 +858,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:30:25] Will: make you're a man now, son.
 
-[00:30:26] Adam: My my son is taking my Ghostbusters costume to school on Friday.
+[00:30:26] Adam: My son is taking my Ghostbusters costume to school on Friday.
 
 [00:30:26] Will: Ooh, yeah. We're dressing up my daughter as a panda from her favorite book Chu's Day.
 
@@ -876,19 +876,19 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:30:54] Norm: Oh my God.
 
-[00:30:55] Adam: I think he's just not interested. I, you know, he his brother is very interested, and again, they're twins, so differentiation means that they're often going to gravitate towards opposite things.
+[00:30:55] Adam: I think he's just not interested. I he his brother is very interested, and again, they're twins, so differentiation means that they're often going to gravitate towards opposite things.
 
 [00:31:04] Will: That makes sense. True,
 
 [00:31:06] Norm: my brother loves Halloween.
 
-[00:31:07] Will: Your brother, your brother seems like a Halloween guy.
+[00:31:07] Will: Your brother seems like a Halloween guy.
 
 [00:31:10] Norm: Oh yeah, he's a Halloween guy.
 
 [00:31:11] Adam: The one I met at Comic Con.
 
-[00:31:12] Norm: Oh yeah, he. Okay, the I'll tell you this, and we'll finish with this. I saw on Instagram what he's going for his Halloween. You saw my brother. He he loves Batman, and he loves to show off his muscles. So he's doing a Spartan Batman armor, where he has a Spartan shield with a Batman logo on it, and then he gets to yeah.
+[00:31:12] Norm: Oh yeah, he. Okay, the I'll tell you this, and we'll finish with this. I saw on Instagram what he's going for his Halloween. You saw my brother. He loves Batman, and he loves to show off his muscles. So he's doing a Spartan Batman armor, where he has a Spartan shield with a Batman logo on it, and then he gets to yeah.
 
 [00:31:30] Adam: I think it's a great costume.
 
@@ -912,23 +912,23 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:31:53] Adam: Yes, please, with pictures.
 
-[00:31:54] Will: We have a bunch of new podcasts on the site by the time you hear this. Creature Geek, which is Frank Peralta and Len. Sorry, sorry, Frank Ippolito and Len. Well, they got married. Frank Ippolito and Len Peralta. Len's wife would have been really upset about that. They talk about special effects, makeup, and creature design and stuff like that. Frank, of course, is an expert at that stuff. Len is a super fan, and the conversations thus far have been very good. There should be, I think, two episodes up now. And they talk about last week's episode of Still Untitled on the most recent episode. Oh, and they they had a Halloween episode of Creature Geek as well.
+[00:31:54] Will: We have a bunch of new podcasts on the site by the time you hear this. Creature Geek, which is Frank Peralta and Len. Sorry, sorry, Frank Ippolito and Len. Well, they got married. Frank Ippolito and Len Peralta. Len's wife would have been really upset about that. They talk about special effects, makeup, and creature design and stuff like that. Frank, of course, is an expert at that stuff. Len is a super fan, and the conversations thus far have been very good. There should be, I think, two episodes up now. And they talk about last week's episode of Still Untitled on the most recent episode. Oh, and they had a Halloween episode of Creature Geek as well.
 
 [00:31:54] Adam: Awesome.
 
-[00:31:54] Will: Um. We have Mister and Misses Smith, which is where my wife and I sit down and talk about all sorts of stuff, board games, and what it's like for her to live with a horrible nerd like me
+[00:31:54] Will: We have Mister and Misses Smith, which is where my wife and I sit down and talk about all sorts of stuff, board games, and what it's like for her to live with a horrible nerd like me
 
 [00:32:38] Adam: and to be an assassin.
 
-[00:32:39] Will: Yeah, and and also we kill people.
+[00:32:39] Will: Yeah, and also we kill people.
 
 [00:32:39] Adam: Excellent.
 
-[00:32:39] Will: Um. And then a bunch of dads, which is the long running, uh, dad cast with uh four or five dads depending on the week. Uh, that they all have their own feeds now. They're all on tested dot com slash podcast. You can find them by pulling down the menu and subscribe from there, or find them on iTunes. And ratings are always welcome for that kind of stuff too. So that'll do it for us this week.
+[00:32:39] Will: And then a bunch of dads, which is the long running dad cast with four or five dads depending on the week. That they all have their own feeds now. They're all on tested dot com slash podcast. You can find them by pulling down the menu and subscribe from there, or find them on iTunes. And ratings are always welcome for that kind of stuff too. So that'll do it for us this week.
 
 [00:33:00] Adam: Fabulous.
 
-[00:33:01] Will: Uh, thank you, Mister Savage, Mister Chan.
+[00:33:01] Will: Thank you, Mister Savage, Mister Chan.
 
 [00:33:03] Adam: Thank you, gentlemen.
 

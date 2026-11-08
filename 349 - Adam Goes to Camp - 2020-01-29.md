@@ -14,11 +14,11 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:00:04] Will: Hello, wonderful people.
 
-[00:00:06] Norm: I feel I feel left out of the club. You both are wearing the same hoodies.
+[00:00:06] Norm: I feel left out of the club. You both are wearing the same hoodies.
 
 [00:00:10] Will: It's so soft inside still because the chemical they use to make the inside soft hasn't been washed off yet. Because I haven't washed it yet.
 
-[00:00:16] Adam: You know, I love how much like all the Tested folks have been coming to me in the last couple of weeks and going, " This is like a blanket.
+[00:00:16] Adam: I love how much like all the Tested folks have been coming to me in the last couple of weeks and going, " This is like a blanket.
 
 [00:00:24] Norm: Yeah,
 
@@ -28,9 +28,9 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:00:27] Adam: Oh, I have.
 
-[00:00:27] Will: and it's the it's the people gave me so much grief.
+[00:00:27] Will: and it's the people gave me so much grief.
 
-[00:00:31] Adam: So, just to be clear, we're wearing American Giant hoodies that were a lovely Christmas gift from the amazing folks at American Giant to the Tested crew, and we put up a picture on social media last week, and they sewed our Savage Meatball patches onto the shoulder, and everyone on Tested is just really enjoying the warmth of these of these hoodies.
+[00:00:31] Adam: So, just to be clear, we're wearing American Giant hoodies that were a lovely Christmas gift from the amazing folks at American Giant to the Tested crew, and we put up a picture on social media last week, and they sewed our Savage Meatball patches onto the shoulder, and everyone on Tested is just really enjoying the warmth of these hoodies.
 
 [00:00:53] Norm: Which is needed this week.
 
@@ -50,9 +50,9 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:01:16] Will: Yes,
 
-[00:01:17] Adam: it's exactly that. So, Will and I just got back from ORD Camp in Chicago. Do you want to? You you can give the elevator pitch for ORD Camp.
+[00:01:17] Adam: it's exactly that. So, Will and I just got back from ORD Camp in Chicago. Do you want to? You can give the elevator pitch for ORD Camp.
 
-[00:01:25] Will: We have talked about it in the past, but it is an unconference, which means that the the curators the the hosts pick an interesting group of people. Uh, some people have been there many times, like me. I'm hashtag blessed. Um, some people who are brand new, like you, and they put you together and they explain the ground rules of the event. And then at the end of that opening session, they give everybody these big, like three by five Post-it cards and some Sharpies, and you write something that either you'd like to teach, that you'd like to talk about, or that you think you would like to learn. And you smack them up on this big board that has a list of all the. It has a grid of all the rooms and all the times, and Then it kind of kind of organizes itself from there. Like you put dots on, but the dots are really just to help get the big talks in the big rooms and the small talks in the small rooms.
+[00:01:25] Will: We have talked about it in the past, but it is an unconference, which means that the curators the hosts pick an interesting group of people. Some people have been there many times, like me. I'm hashtag blessed. Some people who are brand new, like you, and they put you together and they explain the ground rules of the event. And then at the end of that opening session, they give everybody these big, like three by five Post-it cards and some Sharpies, and you write something that either you'd like to teach, that you'd like to talk about, or that you think you would like to learn. And you smack them up on this big board that has a list of all the. It has a grid of all the rooms and all the times, and Then it kind of organizes itself from there. Like you put dots on, but the dots are really just to help get the big talks in the big rooms and the small talks in the small rooms.
 
 [00:02:10] Adam: So that's part of it. But the other part of it is that you show up on Friday at like two p.m. to hear the opening plenary session, and then start to think about what you'd like to talk about and what you'd like to hear other people talk about, and then you go that night until like two or three in the morning,
 
@@ -70,7 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:02:46] Adam: There was 50 left at seven a.m. on Sunday morning.
 
-[00:02:49] Will: Yeah, that was those were the those were the last people standing.
+[00:02:49] Will: Yeah, that was those were the last people standing.
 
 [00:02:51] Norm: A photo that you guys took.
 
@@ -92,13 +92,13 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:03:05] Will: So it's all introverts. It's almost all introverts.
 
-[00:03:07] Adam: So the thing is, is that the introverts deal with this because there there are entire swaths of the building that are for quiet. So you can literally go somewhere where being in that space means leave me alone.
+[00:03:07] Adam: So the thing is, is that the introverts deal with this because there are entire swaths of the building that are for quiet. So you can literally go somewhere where being in that space means leave me alone.
 
 [00:03:19] Will: No silence. No, no talking.
 
 [00:03:20] Adam: There are bean bags. There are pianos. There are quiet corners everywhere, and I said to several people in different conversations, " Yeah, I'm introvert extrovert, right? Like, I love being out and talking to people, but I also need a lot of quiet time to recoup. " And that is, you're right. It's a conference full of introvert extroverts.
 
-[00:03:39] Will: So, so yeah, I mean, the the tracks are the main thing. The whole idea of the unconference is to recreate the interesting hallway conversations that you have at a good conference with like interesting people,
+[00:03:39] Will: So, so yeah, I mean, the tracks are the main thing. The whole idea of the unconference is to recreate the interesting hallway conversations that you have at a good conference with like interesting people,
 
 [00:03:48] Adam: which are the only truly interesting parts of most conferences. Is the hallway conversations? Yeah,
 
@@ -106,13 +106,13 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:03:56] Adam: Oh, really?
 
-[00:03:56] Norm: In a public space where it's it's to have happy accidents as people bump into each other going to the bathrooms.
+[00:03:56] Norm: In a public space where it's to have happy accidents as people bump into each other going to the bathrooms.
 
 [00:04:00] Will: Oh, interesting.
 
 [00:04:01] Norm: Or exiting.
 
-[00:04:02] Will: Well, so so you go, you go, you pick some sessions you want to go talk. See, usually I recommend that people find a mix of things that they're really, really interested in, and then like a couple of things that you would never think you'd be you'd be into, and you always will learn something interesting. But also, like everybody's so Fitz, who's a friend of the site and used to work at Google, now runs this site thing called Tock, has always introduced the idea of the Pac-Man rule when you're having a conversation.
+[00:04:02] Will: Well, so so you go, you pick some sessions you want to go talk. See, usually I recommend that people find a mix of things that they're really, really interested in, and then like a couple of things that you would never think you'd be into, and you always will learn something interesting. But also, like everybody's so Fitz, who's a friend of the site and used to work at Google, now runs this site thing called Tock, has always introduced the idea of the Pac-Man rule when you're having a conversation.
 
 [00:04:30] Adam: Pac-Man rule for conversation is so freaking awesome. I mean, I didn't
 
@@ -126,13 +126,13 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:04:49] Will: Physical. space.
 
-[00:04:50] Adam: Yeah. So basically, it's like you can see people moving towards you. You, as that happens, you open, you open the circle, and you let them come in.
+[00:04:50] Adam: Yeah. So basically, it's like you can see people moving towards you. You, as that happens, you open the circle, and you let them come in.
 
-[00:04:59] Will: And it's a it's a wonderful practice that benefits in. Daily walks of life, all the time.
+[00:04:59] Will: And it's a wonderful practice that benefits in. Daily walks of life, all the time.
 
 [00:05:05] Adam: Truly,
 
-[00:05:05] Will: the other things that they've talked about that over the last couple of years have been become very important. We've had a extended conversation about mansplaining. That we've that Dan Shapiro gave a really good talk last year in the opening plenary. It's like, hey, look around. If everybody in this room looks like you, then you know, look look at the number of people, and then roll a D20. If there's 20 people in the room and you don't roll a natural 20, probably wait your turn to talk. Right, let everybody else talk.
+[00:05:05] Will: the other things that they've talked about that over the last couple of years have been become very important. We've had a extended conversation about mansplaining. That we've that Dan Shapiro gave a really good talk last year in the opening plenary. It's like, hey, look around. If everybody in this room looks like you, then look look at the number of people, and then roll a D20. If there's 20 people in the room and you don't roll a natural 20, probably wait your turn to talk. Right, let everybody else talk.
 
 [00:05:31] Adam: And his talk was a little controversial with some attendees.
 
@@ -154,9 +154,9 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:06:33] Adam: and she says my specialty is in human sexuality and disability and I'm like, fucking awesome.
 
-[00:06:40] Will: I'm gonna I'm gonna talk to you for five minutes. I'm gonna learn like 18 things.
+[00:06:40] Will: I'm gonna talk to you for five minutes. I'm gonna learn like 18 things.
 
-[00:06:43] Adam: Um, about two weeks before the conference, there were three astronauts present: Kjell Lindgren, Cady Coleman, and Don Pettit. Luckily, all three close friends.
+[00:06:43] Adam: About two weeks before the conference, there were three astronauts present: Kjell Lindgren, Cady Coleman, and Don Pettit. Luckily, all three close friends.
 
 [00:06:54] Will: Yeah, yeah, yeah.
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:07:39] Adam: So there was this one point at which someone I I I love exactly this specific intersection of that kind of crowd who doesn't know the Playtex ILC Dover soft versus hard one size fits all versus custom bespoke story of the NASA. Spacesuit, and I love telling that story to a crowd that doesn't know it because it's a lot of oohs and ahs, right? And I am halfway through the story, and I am like, " Tell me if I am getting anything wrong." And Don Pettit goes, " No, it's good."
 
-[00:08:08] Will: Well, and but the funny thing that came out of that was the women in the audience. You, you guys, I wasn't in the session; I was someplace else doing something else. But you apparently started talking about how, like, the spacesuits on the station are one size fits all, and Cady Coleman is a small person. Kjell Lindgren is pretty big guy.
+[00:08:08] Will: Well, and but the funny thing that came out of that was the women in the audience. You guys, I wasn't in the session; I was someplace else doing something else. But you apparently started talking about how the spacesuits on the station are one size fits all, and Cady Coleman is a small person. Kjell Lindgren is pretty big guy.
 
 [00:08:26] Adam: Yeah, Mike Massimino is a giant,
 
@@ -212,27 +212,27 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:09:52] Adam: It takes a huge amount of consciousness and institutional knowledge to do it right. I think.
 
-[00:09:57] Will: However, if you want to do something like this in your community, they started ORD Camp 12 years ago. I think I think Fitz said 75 people attended the first one. So you know you get to get 75 people, you get 10 friends and tell them to invite two people, three people each, and then you add some more people and and like starting with 50 or 75 people is eminently doable. For I bet a lot of people who listen to us, it is a profoundly profoundly recharging and moving experience for me. That's why I keep I keep going back every year because I learn new things and it fills my brain and my heart up almost to bursting. I mean over a 48 hour period.
+[00:09:57] Will: However, if you want to do something like this in your community, they started ORD Camp 12 years ago. I think Fitz said 75 people attended the first one. So you know you get to get 75 people, you get 10 friends and tell them to invite two people, three people each, and then you add some more people and like starting with 50 or 75 people is eminently doable. For I bet a lot of people who listen to us, it is a profoundly profoundly recharging and moving experience for me. That's why I keep going back every year because I learn new things and it fills my brain and my heart up almost to bursting. I mean over a 48 hour period.
 
-[00:10:33] Adam: You know, on the first day, I started watching people juggle, and that's when I met Taylor, whose YouTube channel
+[00:10:33] Adam: On the first day, I started watching people juggle, and that's when I met Taylor, whose YouTube channel
 
 [00:10:39] Will: Taylor Tries.
 
 [00:10:41] Adam: She's a world class master juggler who every one of her videos ends with a drop.
 
-[00:10:46] Will: It's she is she is I I went I was on her channel last night. Yeah, I was like she did four clubs on stage
+[00:10:46] Will: It's she is I I went I was on her channel last night. Yeah, I was like she did four clubs on stage
 
 [00:10:53] Adam: right
 
 [00:10:53] Will: from a toss, and I was just like,
 
-[00:10:56] Adam: and and
+[00:10:56] Adam: and
 
 [00:10:57] Will: and got on the first try.
 
-[00:10:57] Adam: And we're and we're she had a lot of patience with me. I was passing clubs with her after about 10 minutes, and I like there's um I haven't talked about passing clubs on the podcast before. Okay, when you when you first get obsessed with juggling, you juggle three balls, and then you matriculate to clubs. You know, like learning anything, there's diminishing returns to the to the skill acquisition, right? The better you get, the slower your progress gets because
+[00:10:57] Adam: And we're she had a lot of patience with me. I was passing clubs with her after about 10 minutes, and I like there's I haven't talked about passing clubs on the podcast before. Okay, when you first get obsessed with juggling, you juggle three balls, and then you matriculate to clubs. Like learning anything, there's diminishing returns to the skill acquisition, right? The better you get, the slower your progress gets because
 
-[00:11:25] Will: there's kind of plateaus, right? You you get to mastery, and then you learn the new thing,
+[00:11:25] Will: there's kind of plateaus, right? You get to mastery, and then you learn the new thing,
 
 [00:11:28] Adam: but then you bring in clubs, and it feels like this big leap ahead because your body takes it in, and you feel it, right? And then someone introduces you to passing, and the first time you pass a club, which is you throw it out of your formation away from you towards someone else, and you put your hand up, and a club lands in that hand. There's this way in which it feels you've already spent like years. Getting your body to understand these objects that are flying and kind of that presence of mind, and to have you break your formation and find a piece from outside your formation into it, it's like it's intoxicating. And it was beautiful. We sat there juggling in a crowded hallway for hours.
 
@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:12:34] Will: Yeah.
 
-[00:12:34] Adam: Um. Will I have a pair of clubs upstairs? I will loan them to you.
+[00:12:34] Adam: Will I have a pair of clubs upstairs? I will loan them to you.
 
 [00:12:38] Will: Oh, I would. That would be wonderful. I was gonna. I was gonna go order some cheap Chinese ones.
 
@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:12:45] Adam: totally fine.
 
-[00:12:45] Will: Um. That my goal for 2021 is learn to do clubs so I can learn to pass.
+[00:12:45] Will: That my goal for 2021 is learn to do clubs so I can learn to pass.
 
 [00:12:49] Adam: I want to do five balls. I keep. I've saved that every few years. I can do four.
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:12:55] Will: two hands.
 
-[00:12:55] Adam: Yeah. Apparently the way that I can do four, which is, two balls in each hand, but in a in a circle going inwards.
+[00:12:55] Adam: Yeah. Apparently the way that I can do four, which is, two balls in each hand, but in a circle going inwards.
 
 [00:13:05] Will: Yeah.
 
@@ -292,7 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:13:40] Adam: I tell you, few things tasted as good as those scrambled eggs at eight in the morning on Sunday after being up all night.
 
-[00:13:46] Will: Yeah, I had I had piece of bacon, some English muffin.
+[00:13:46] Will: Yeah, I had piece of bacon, some English muffin.
 
 [00:13:49] Norm: Is all in hotel in Chicago?
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:13:52] Adam: It's Google's headquarters in Chicago, and you're staying at the hotel across the street.
 
-[00:13:55] Norm: Got it, got it. Um, are there any other sessions, panels that you went to?
+[00:13:55] Norm: Got it. Are there any other sessions, panels that you went to?
 
 [00:13:58] Adam: Yes, I took a taxidermy class and made a little nightmare fuel mouse.
 
@@ -332,25 +332,25 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:14:44] Norm: exactly,
 
-[00:14:45] Adam: but you also need them thawed enough to be able to peel the viscera off the. Yeah, so it's okay. It's totally, and my lab partner was a. Was a neuroscientist who cut apart mice every day, so I had a total ringer as my lab partner, which is why this is so good. We we did this together. It was um that was awesome.
+[00:14:45] Adam: but you also need them thawed enough to be able to peel the viscera off the. Yeah, so it's okay. It's totally, and my lab partner was a. Was a neuroscientist who cut apart mice every day, so I had a total ringer as my lab partner, which is why this is so good. We did this together. It was that was awesome.
 
 [00:15:06] Norm: That and then you are preserving and stuffing.
 
-[00:15:08] Adam: Yep. Um. I went to uh. I went to all the space themed ones this year. So Cady Coleman, who's one of my heroes of the world, she and Mary Robinette what's that?
+[00:15:08] Adam: Yep. I went to. I went to all the space themed ones this year. So Cady Coleman, who's one of my heroes of the world, she and Mary Robinette what's that?
 
 [00:15:21] Norm: Kowal.
 
-[00:15:21] Adam: Kowal talked about space and space for women, and that's where she talked extensively about, you know, in the NBL when women are in the suit, they literally have to have pillows padding around them, otherwise they'll fall inside the suit
+[00:15:21] Adam: Kowal talked about space and space for women, and that's where she talked extensively about in the NBL when women are in the suit, they literally have to have pillows padding around them, otherwise they'll fall inside the suit
 
 [00:15:37] Norm: because there is so much empty,
 
-[00:15:38] Adam: so much empty space because of who it's built for, right? And and how hard it is to accommodate the different body types.
+[00:15:38] Adam: so much empty space because of who it's built for, right? And how hard it is to accommodate the different body types.
 
 [00:15:44] Will: It's one of the big challenges in the new suit design. It's the thing I learned last year from that session. Let's see. I learned how to make Spam musubi.
 
 [00:15:52] Norm: I saw something you posted. Yeah, a mold you put in
 
-[00:15:55] Will: mold to put the sushi rice in, and you jam it down there. But the trick I learned is that you use if you use the bacon Spam instead of the Spam Spam, and you cut 12 slices per can. That gives you the right ratio of rice to Spam to nori, and then you can put whatever kind of sauces you want in between. Glaze the Spam if you want to put some pineapple or something on. That was I. I didn't know I liked Spam musubi until earlier this year. Um, uh, I helped a guy. I help I helped the archaeologist put on the full set of steel armor. It's fascinating how different that is than putting on your costume armor.
+[00:15:55] Will: mold to put the sushi rice in, and you jam it down there. But the trick I learned is that you use if you use the bacon Spam instead of the Spam Spam, and you cut 12 slices per can. That gives you the right ratio of rice to Spam to nori, and then you can put whatever kind of sauces you want in between. Glaze the Spam if you want to put some pineapple or something on. That was I. I didn't know I liked Spam musubi until earlier this year. I helped a guy. I help I helped the archaeologist put on the full set of steel armor. It's fascinating how different that is than putting on your costume armor.
 
 [00:16:28] Adam: Yeah,
 
@@ -370,7 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:16:47] Adam: yeah.
 
-[00:16:48] Will: Um, he was wearing a quilted shirt underneath the chainmail to prevent that from rubbing and and chafing and pinching. Um, but also it's. It's filthy, like because it's steel.
+[00:16:48] Will: He was wearing a quilted shirt underneath the chainmail to prevent that from rubbing and chafing and pinching. But also it's. It's filthy, like because it's steel.
 
 [00:16:58] Adam: Yeah,
 
@@ -382,17 +382,17 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:17:04] Will: Oh, okay.
 
-[00:17:04] Adam: Because the different types, different types of undergarments for different types of armor for different types of fighting.
+[00:17:04] Adam: Because the different types of undergarments for different types of armor for different types of fighting.
 
 [00:17:11] Norm: Right.
 
-[00:17:11] Will: But but he wore it for hours. He was like, it's perfectly comfortable. Once I get it on, it's perfectly comfortable. But said, Don helped a little bit with the with the donning of the armor as well, which was fun.
+[00:17:11] Will: But he wore it for hours. He was like, it's perfectly comfortable. Once I get it on, it's perfectly comfortable. But said, Don helped a little bit with the donning of the armor as well, which was fun.
 
-[00:17:20] Adam: And you know, Don Don Pettit, who's like, you know, if Jamie Hyneman went to NASA, right, the polymath, who's really good at kind of everything, trying interested in everything,
+[00:17:20] Adam: And Don Don Pettit, who's like, you know, if Jamie Hyneman went to NASA, right, the polymath, who's really good at kind of everything, trying interested in everything,
 
 [00:17:33] Norm: amazing photographer.
 
-[00:17:34] Adam: And and and by the way, do you know how he got some of those night shots? He modified a drill to spin at the same speed that Earth moves past the space station, so that he could do long exposures.
+[00:17:34] Adam: And by the way, do you know how he got some of those night shots? He modified a drill to spin at the same speed that Earth moves past the space station, so that he could do long exposures.
 
 [00:17:47] Norm: So he had like motion control with a drill.
 
@@ -400,25 +400,25 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:17:51] Will: What a wonderful nerd,
 
-[00:17:52] Adam: right? So Don is talking about how they're talking about bringing a medical kit up to the space station, but no one knows what will happen if you accidentally, um, if you accidentally expose pills which have a lot of voids in them to a perfect vacuum. But luckily, Don has a vacuum pump in his shop in in Texas that can pull to um 10 to the minus eight torr.
+[00:17:52] Adam: right? So Don is talking about how they're talking about bringing a medical kit up to the space station, but no one knows what will happen if you accidentally expose pills which have a lot of voids in them to a perfect vacuum. But luckily, Don has a vacuum pump in his shop in Texas that can pull to 10 to the minus eight torr.
 
 [00:18:16] Will: Good God! What is he doing with that in his garage?
 
-[00:18:18] Adam: So he was able to double check that and actually publish a paper on the effect of a near, uh, and that's within the range of the moon's. The by the way, the the the vacuum on the surface of the moon is different depending on where you are and what time of day it is
+[00:18:18] Adam: So he was able to double check that and actually publish a paper on the effect of a near and that's within the range of the moon's. The by the way, the vacuum on the surface of the moon is different depending on where you are and what time of day it is
 
 [00:18:34] Will: because of the
 
 [00:18:35] Adam: because of solar radiation and particles, right? So sometimes it's like Don was saying it's a bandwidth, not a yeah. These are the kind of things that we were going over.
 
-[00:18:44] Will: I got to um, I had a lovely conversation about grief and pets and mindfulness with a couple of old friends that was just because everybody's kind of under the FrieNDA, you know, don't don't share the things we're. Breaking, I mean, don't yell at us, Fitz. You you tend to share things you maybe wouldn't in a more normal circumstance, and it ends up being a place that, like, as one person said to me, like, this is this is the place that, like, I have the most meaningful conversations with other men throughout the entire year, and I need to figure out how to make that happen in the rest of my real life.
+[00:18:44] Will: I got to I had a lovely conversation about grief and pets and mindfulness with a couple of old friends that was just because everybody's kind of under the FrieNDA don't don't share the things we're. Breaking, I mean, don't yell at us, Fitz. You tend to share things you maybe wouldn't in a more normal circumstance, and it ends up being a place that as one person said to me this is the place that I have the most meaningful conversations with other men throughout the entire year, and I need to figure out how to make that happen in the rest of my real life.
 
-[00:19:16] Adam: It feels it's very safe place, and that is, that is hard to overstate how safe it feels. You are as approachable as you want to be, and
+[00:19:16] Adam: It feels it's very safe place, and that is hard to overstate how safe it feels. You are as approachable as you want to be, and
 
-[00:19:32] Will: you you you can feel like a normal person. Like
+[00:19:32] Will: you can feel like a normal person. Like
 
 [00:19:35] Adam: indeed,
 
-[00:19:35] Will: and and it's amazing. Like it is one. I know we're getting long.
+[00:19:35] Will: and it's amazing. Like it is one. I know we're getting long.
 
 [00:19:42] Norm: No, no, we're good.
 
@@ -428,31 +428,31 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:19:46] Norm: I was going to say. You guys came back, and Adam, you are talking about werewolf.
 
-[00:19:50] Adam: We were playing. So it's it's so funny. I think that ultimately, I am not an excellent werewolf player, but I am a.
+[00:19:50] Adam: We were playing. So it's so funny. I think that ultimately, I am not an excellent werewolf player, but I am a.
 
 [00:19:59] Will: That's real werewolf talk, right there.
 
-[00:20:00] Adam: I'm a I'm a producer, so if I see a lag, I'm going to push the game away from the lag, which means I'm very aggressive, and I'm always pointing out any little tells I can see, and I'm usually wrong about what I'm surmising from those tells. But I also like I don't mind being the villain Gotham needs. So I had so much fun playing like four straight hours.
+[00:20:00] Adam: I'm a producer, so if I see a lag, I'm going to push the game away from the lag, which means I'm very aggressive, and I'm always pointing out any little tells I can see, and I'm usually wrong about what I'm surmising from those tells. But I also like I don't mind being the villain Gotham needs. So I had so much fun playing like four straight hours.
 
 [00:20:23] Will: Were you the werewolf? Straight
 
 [00:20:24] Adam: werewolf. I was never the werewolf. I've only ever been the werewolf once in my life.
 
-[00:20:27] Will: So it's it's straight werewolf.
+[00:20:27] Will: So it's straight werewolf.
 
-[00:20:29] Norm: Which for people who don't know, game like Mafia, Game of Deception, A Ring of People, Cycles, Day and Night, and and it's a select number of villains try to assassinate the populace.
+[00:20:29] Norm: Which for people who don't know, game like Mafia, Game of Deception, A Ring of People, Cycles, Day and Night, and it's a select number of villains try to assassinate the populace.
 
-[00:20:40] Will: The more modern revisions of this are games like Resistance or or Secret Hitler or Avalon Mafia, Avalon stuff like that.
+[00:20:40] Will: The more modern revisions of this are games like Resistance or Secret Hitler or Avalon Mafia, Avalon stuff like that.
 
 [00:20:49] Adam: Oh right, Mafia's the old stuff.
 
 [00:20:50] Will: Mafia's the old Mafia and werewolf kind of. It's unclear which one evolved first.
 
-[00:20:54] Norm: That would be a good talk about the where where it came from and yeah
+[00:20:54] Norm: That would be a good talk about the where it came from and yeah
 
 [00:20:57] Adam: yeah totally.
 
-[00:20:57] Will: I feel like I feel like Jane McGonigal probably did that years ago, but I'm not sure.
+[00:20:57] Will: I feel like Jane McGonigal probably did that years ago, but I'm not sure.
 
 [00:21:03] Adam: There were there there were also talks about things like, " Hey, I'd like to talk about imposter complex. I'd like to talk about feeling overwhelmed about politics. Hey, what if we lose 2020? Yeah,
 
@@ -464,11 +464,11 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:21:26] Adam: oh, I'll bet
 
-[00:21:26] Will: we it it was a completely different tenor, right?
+[00:21:26] Will: we it was a completely different tenor, right?
 
 [00:21:29] Adam: I imagine
 
-[00:21:29] Will: it was it was. People went the year that the Muslim ban landed. All of the attorneys and people to support them went to O'Hare. Like, just we're like, guys, we got to go. We're going to go to O'Hare, and they were part of the people that set up the the defense fund. In like, they bought one way tickets, went into the terminal, and sat with people who were stuck behind to help them get out.
+[00:21:29] Will: it was. People went the year that the Muslim ban landed. All of the attorneys and people to support them went to O'Hare. Like, just we're like, guys, we got to go. We're going to go to O'Hare, and they were part of the people that set up the defense fund. In like, they bought one way tickets, went into the terminal, and sat with people who were stuck behind to help them get out.
 
 [00:21:52] Adam: I know that you're not supposed to name names, but I will name this one, which is that Fitz took me on a tour of his collection of storage media. It's
 
@@ -484,7 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:22:13] Adam: smallest cassette is this big, and the largest looks like a normal tape cassette, except it's this big and it's real.
 
-[00:22:18] Will: It's yeah, it works. Did you see that? Did he show you the vinyl tape? The the the the German
+[00:22:18] Will: It's yeah, it works. Did you see that? Did he show you the vinyl tape? The German
 
 [00:22:25] Adam: the grooved tape.
 
@@ -494,7 +494,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:22:32] Will: I wanted. I just want to take it apart.
 
-[00:22:33] Adam: It's literally like an eight track tape, but when you look at the tape, it's it's dimensional and it's
+[00:22:33] Adam: It's literally like an eight track tape, but when you look at the tape, it's dimensional and it's
 
 [00:22:37] Will: it's
 
@@ -504,7 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:22:43] Adam: Yeah. Yeah.
 
-[00:22:43] Will: Um. The they have a he has a spare magnet from the Tevatron.
+[00:22:43] Will: The they have a he has a spare magnet from the Tevatron.
 
 [00:22:47] Adam: Right. Which
 
@@ -570,7 +570,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:25:13] Norm: Okay. more towards Star Wars.
 
-[00:25:16] Will: If I if I pick dog fighting,
+[00:25:16] Will: If I pick dog fighting,
 
 [00:25:19] Norm: oh,
 
@@ -592,7 +592,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:25:55] Norm: Well, the same way that Codenames works.
 
-[00:25:57] Will: It's very like Monikers actually. Is or it's kind of Codenames-y, kind of Monikers-y. Um, I think it's from the people who made Monikers. Actually, sometimes, sometimes people start talking like, " Oh, well, I made a horrible miscalculation on what people were going to think I meant by this." Um, Dan Shapiro won't mind me telling this, but he he had soft and hard, and he touched his nose, starting at the tip, and ran up to the bridge where the bone is, and said, " This part of your nose, right here." And he was trying to be clever and give us a range, set his range for this conversation as nose nose on the on the scope of your nose.
+[00:25:57] Will: It's very like Monikers actually. Is or it's kind of Codenames-y, kind of Monikers-y. I think it's from the people who made Monikers. Actually, sometimes, sometimes people start talking like, " Oh, well, I made a horrible miscalculation on what people were going to think I meant by this." Dan Shapiro won't mind me telling this, but he had soft and hard, and he touched his nose, starting at the tip, and ran up to the bridge where the bone is, and said, " This part of your nose, right here." And he was trying to be clever and give us a range, set his range for this conversation as nose nose on the scope of your nose.
 
 [00:26:30] Adam: Right.
 
@@ -604,15 +604,15 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:26:37] Adam: Cartilage?
 
-[00:26:37] Will: like like no, like aerogel versus the surface of a neutron star. And I was like, well, on that one, it's like definitely on the soft side, and we were off by 95% or something. But anyway, I posted it on Twitter. If you want to find a link, there's like two or three different games called Wavelength on Amazon, so be careful if you buy it. Um, but I'll I'll
+[00:26:37] Will: No, like aerogel versus the surface of a neutron star. And I was like, well, on that one, it's like definitely on the soft side, and we were off by 95% or something. But anyway, I posted it on Twitter. If you want to find a link, there's like two or three different games called Wavelength on Amazon, so be careful if you buy it. But I'll I'll
 
 [00:26:56] Adam: We'll post the correct link.
 
 [00:26:56] Will: Yeah, I'll repost it instead of
 
-[00:26:58] Adam: um that the um. You know, one of the lovely things about it feeling like such a safe space is that when you are playing games, there is a way in which that allows you to be both more and less competitive in a way that is super enjoyable. It's like you can be hyper competitive and even be like activated in playing. Well, I was experiencing playing Werewolf, but the but the stakes are still really low.
+[00:26:58] Adam: That the. One of the lovely things about it feeling like such a safe space is that when you are playing games, there is a way in which that allows you to be both more and less competitive in a way that is super enjoyable. It's like you can be hyper competitive and even be like activated in playing. Well, I was experiencing playing Werewolf, but the stakes are still really low.
 
-[00:27:26] Will: It's it's
+[00:27:26] Will: It's
 
 [00:27:26] Adam: But no one's taking it personal.
 
@@ -624,7 +624,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:27:31] Adam: Yeah, you are not. Yeah,
 
-[00:27:33] Will: we we stopped playing Wavelength because you can play it with teams. About an hour and a half in, we stopped and just started playing it as a way, like with a group of people all trying to just get the answer.
+[00:27:33] Will: we stopped playing Wavelength because you can play it with teams. About an hour and a half in, we stopped and just started playing it as a way, like with a group of people all trying to just get the answer.
 
 [00:27:41] Adam: Oh, nice!
 
@@ -632,13 +632,13 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:27:45] Adam: yeah,
 
-[00:27:45] Will: on on the world, right? So, um,
+[00:27:45] Will: on the world, right? So
 
-[00:27:48] Adam: it was, it was, uh, so they've been inviting me for a long time, and this is the first time in forever that I haven't had a significant conflict with being able to go, and I am, I am so glad. I am so ecstatic that I went.
+[00:27:48] Adam: it was so they've been inviting me for a long time, and this is the first time in forever that I haven't had a significant conflict with being able to go, and I am so glad. I am so ecstatic that I went.
 
 [00:28:03] Will: I'm so glad you were able to make it.
 
-[00:28:05] Adam: Oh my god, it was just stunning. And you know, I walked in and right away there was like 20 people I know, and probably 50 people that I knew well at this place. Right, this is a lot of old friends.
+[00:28:05] Adam: Oh my god, it was just stunning. And I walked in and right away there was like 20 people I know, and probably 50 people that I knew well at this place. Right, this is a lot of old friends.
 
 [00:28:14] Will: Well, but even if you, one a large part of what they do at ORD Camp and specifically, because I've been to some other unconferences that were also very good, they do a really good job of making sure that the people who've been there before help onboard the people who haven't.
 
@@ -648,13 +648,13 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:28:40] Adam: right?
 
-[00:28:40] Will: I happened to be one of the people milling around the entrance that had been there before to like kind of give people the the lay of the land and then get them in the photo line. And we had a lovely chat. And by the end of like walking through the line, I'd introduced her to a couple people, and then she was good. She was like off on her off running and had a delightful time.
+[00:28:40] Will: I happened to be one of the people milling around the entrance that had been there before to like kind of give people the lay of the land and then get them in the photo line. And we had a lovely chat. And by the end of like walking through the line, I'd introduced her to a couple people, and then she was good. She was like off on her off running and had a delightful time.
 
 [00:28:58] Adam: Yeah.
 
 [00:28:58] Will: So
 
-[00:28:59] Norm: where where do people find more information about conferences like this?
+[00:28:59] Norm: where do people find more information about conferences like this?
 
 [00:29:01] Will: So if you Google unconferences, there are several guides. I don't know if the one that That the ORD Camp folks have have used is public, but I'll find out, and if it is, I'll give you a sharing link. There's Foo Camp is the first one of these that I was aware of, and it's a Bay Area kind of Silicon Valley thing. It's a little different tenor. I've never actually been, but people who I know have been to both. It's like it's a little more Valley and a little bit less general nerd interest.
 
@@ -664,7 +664,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:29:52] Adam: Yeah,
 
-[00:29:52] Will: and and like that's how I ended up. The Bobak was at the Spam Musubi thing.
+[00:29:52] Will: and like that's how I ended up. The Bobak was at the Spam Musubi thing.
 
 [00:29:56] Adam: Yeah,
 
@@ -674,7 +674,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:30:08] Will: That's the best.
 
-[00:30:09] Adam: and I was really come over here, come over here. Okay, you go and like I did that a couple times, and later on, like two folks I introduced were talking on a couch for two hours,
+[00:30:09] Adam: and I was really come over here. Okay, you go and like I did that a couple times, and later on, like two folks I introduced were talking on a couch for two hours,
 
 [00:30:18] Will: Yep.
 
@@ -692,7 +692,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:30:34] Will: But yeah, XOXO is a more accessible way to this. Also, there are a lot of there are a lot of unconferences around. There is people starting new ones every day. I talked to three people who are bringing unconferences to their local localities.
 
-[00:30:47] Adam: We we could really use one here in the Bay Area.
+[00:30:47] Adam: We could really use one here in the Bay Area.
 
 [00:30:49] Will: Hello,
 
@@ -702,7 +702,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:30:53] Norm: Just someone give us a space.
 
-[00:30:54] Will: But hmm, interesting. You say that we, sorry, people are starting them all the time. They always need volunteers. So ORD Camp has a volunteer page. If you if you are worried that you can't get in, don't know anybody who can nominate you or whatever. Like they love volunteers,
+[00:30:54] Will: But hmm, interesting. You say that we, sorry, people are starting them all the time. They always need volunteers. So ORD Camp has a volunteer page. If you are worried that you can't get in, don't know anybody who can nominate you or whatever. Like they love volunteers,
 
 [00:31:14] Adam: yeah.
 
@@ -712,13 +712,13 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:31:15] Will: it's always always needed.
 
-[00:31:17] Adam: I did that in my in my in my late teens to a couple of things that I couldn't afford to go to. I was a volunteer and an organizer. Worked in the kitchen for one conference and it was fantastic.
+[00:31:17] Adam: I did that in my late teens to a couple of things that I couldn't afford to go to. I was a volunteer and an organizer. Worked in the kitchen for one conference and it was fantastic.
 
 [00:31:27] Norm: Same for comic cons.
 
 [00:31:28] Adam: Yeah,
 
-[00:31:29] Will: the other thing that's great about this is it it once the initial time starts, like it used to be that the folks who organize it got there early and put up all the posters and did all the signage and all that stuff for the for the conference. I think now they just show up at two and put the posters out and tell people to go put them up, and it just takes care of itself,
+[00:31:29] Will: the other thing that's great about this is it once the initial time starts, like it used to be that the folks who organize it got there early and put up all the posters and did all the signage and all that stuff for the conference. I think now they just show up at two and put the posters out and tell people to go put them up, and it just takes care of itself,
 
 [00:31:47] Adam: right?
 
@@ -758,7 +758,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:33:16] Adam: Yeah. By all means, it's just very excited. I'm very excited at the response to it.
 
-[00:33:20] Norm: And um, yeah, we'll we'll dive into that. Um, other stuff going up this week. Uh, we had a friend, a new friend in the effects business, Ben Eadie, uh, came by and he makes um chainmail out of foam.
+[00:33:20] Norm: And um, yeah, we'll we'll dive into that. Other stuff going up this week. We had a friend, a new friend in the effects business, Ben Eadie came by and he makes chainmail out of foam.
 
 [00:33:33] Adam: Yeah, he's got a beautiful, beautiful, simple chainmail hack.
 

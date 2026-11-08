@@ -14,11 +14,11 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:00:13] Norm: I know,
 
-[00:00:14] Will: I'm I'm Adam. Where am I,
+[00:00:14] Will: I'm Adam. Where am I,
 
 [00:00:18] Adam: Madam? I'm Adam.
 
-[00:00:19] Will: You know, I think after all that stuff, the only thing that we broke was the the GoPro, the GoPro tripod.
+[00:00:19] Will: I think after all that stuff, the only thing that we broke was the GoPro tripod.
 
 [00:00:26] Adam: Oh, those always break.
 
@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:00:28] Adam: We’ve we've broken a few that way.
 
-[00:00:35] Will: Um, yeah, it's uh, it was a good it was a good Comic Con. We talked about that already, though.
+[00:00:35] Will: Um, yeah, it's it was a good Comic Con. We talked about that already, though.
 
 [00:00:35] Adam: We did.
 
@@ -56,9 +56,9 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:01:27] Adam: Apparently, they they do this a fair bit. They they showed up on Reddit from a con from a few years ago.
 
-[00:01:32] Will: I I wasn't. I looked at the Sam Jackson. Was like, man, that looks a lot like Sam Jackson. Maybe I am just a little racist.
+[00:01:32] Will: I wasn't. I looked at the Sam Jackson. Was like, man, that looks a lot like Sam Jackson. Maybe I am just a little racist.
 
-[00:01:39] Norm: You know, we talk about cosplay. We talked a little about this when we did the Comic Con podcast. But at our party, I was talking to some of the RPF guys, and they were like having real conversations about who they could be. You know, when the thought process of picking their next cosplay,
+[00:01:39] Norm: We talk about cosplay. We talked a little about this when we did the Comic Con podcast. But at our party, I was talking to some of the RPF guys, and they were like having real conversations about who they could be. You know, when the thought process of picking their next cosplay,
 
 [00:01:39] Adam: right?
 
@@ -70,7 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:02:27] Will: You got to have well, you know, if only we knew some Hollywood makeup people that could chin you up.
 
-[00:02:32] Adam: I'm not I'm not willing to have a bunch of prosthetics done over the beard. That's just it's going to look all weird. It's not it's not the it's not the Batman that I was looking for.
+[00:02:32] Adam: I'm not willing to have a bunch of prosthetics done over the beard. That's just it's going to look all weird. It's not the Batman that I was looking for.
 
 [00:02:41] Norm: You can add beard, but you can't.
 
@@ -92,11 +92,11 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:02:51] Norm: And Alfred— oh, he’s Alfred all along. Interesting. Just like Cesar Romero. Oh my god. Joker with the mustache.
 
-[00:03:15] Will: Joker with the mustache works though. Okay, so we posted the the video of you walking the floor at Comic Con.
+[00:03:15] Will: Joker with the mustache works though. Okay, so we posted the video of you walking the floor at Comic Con.
 
 [00:03:15] Adam: Yes.
 
-[00:03:15] Will: And we get a lot of feedback on videos, but usually it's all over the place. You know, there's there's people that are angry with us for something. There's people that like it. On that alien, the alien suit cosplay walk, which was interesting, because the other walk you did, which will be up soon on the site,
+[00:03:15] Will: And we get a lot of feedback on videos, but usually it's all over the place. There's there's people that are angry with us for something. There's people that like it. On that alien, the alien suit cosplay walk, which was interesting, because the other walk you did, which will be up soon on the site,
 
 [00:03:15] Adam: yes,
 
@@ -160,7 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:06:44] Norm: the one thing we didn't talk about was on the video, at least, was ventilation, the circulation not functioning for the purpose of that walk.
 
-[00:06:53] Adam: Well, and that was just that was the the aliens I built. I I finished two alien suits and they both shorted out in the same exact way, which was I had there there are two switches on the side of the backpack that that are in the original prop, big Lucas electric toggle switches.
+[00:06:53] Adam: Well, and that was just that was the aliens I built. I finished two alien suits and they both shorted out in the same exact way, which was I had there are two switches on the side of the backpack that that are in the original prop, big Lucas electric toggle switches.
 
 [00:07:11] Will: They're red red with the flippy top. Or
 
@@ -172,15 +172,15 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:07:39] Will: Okay,
 
-[00:07:39] Adam: with the fog that with the degree to which it was foggy, that would have that would have helped significantly.
+[00:07:39] Adam: with the fog that with the degree to which it was foggy, that would have helped significantly.
 
-[00:07:48] Will: When you took that helmet off and I stuck my hand up inside it to hold it, it felt like a swamp.
+[00:07:48] Will: When you took that helmet off and I stuck my hand up inside it to hold it felt like a swamp.
 
 [00:07:48] Adam: Oh, it was crazy.
 
 [00:07:54] Will: Yeah.
 
-[00:07:55] Adam: Also, I will say that one of the difficulties with helmets fans on that degree is they're noisy, and when you are hot and it's hard to see, and all of a sudden noise comes in, it it actually really increases the feeling of claustrophobia. I don't get claustrophobic, but it can be quite unpleasant to be in a big crowd and not feel like you can see anyone or hear them or talk to them
+[00:07:55] Adam: Also, I will say that one of the difficulties with helmets fans on that degree is they're noisy, and when you are hot and it's hard to see, and all of a sudden noise comes in, it actually really increases the feeling of claustrophobia. I don't get claustrophobic, but it can be quite unpleasant to be in a big crowd and not feel like you can see anyone or hear them or talk to them
 
 [00:08:24] Norm: because you are 20 minutes away from being back in the room.
 
@@ -188,17 +188,17 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:08:28] Norm: so you need to exactly save energy for the walk out and the walk back.
 
-[00:08:31] Adam: So that was that was another thing. I think this is a long way of saying I have seriously considered that a project I'd like to tackle this year is a wearable refrigeration unit.
+[00:08:31] Adam: So that was another thing. I think this is a long way of saying I have seriously considered that a project I'd like to tackle this year is a wearable refrigeration unit.
 
 [00:08:43] Will: I have some ideas.
 
 [00:08:44] Adam: I thought you might.
 
-[00:08:46] Will: Well, it's a cool. It's similar to the problem of cooling a PC. Like even the amount of heat generated is like a big gaming PC takes 1,400 watts of power in, sends a lot of that out as waste heat, and and the neat thing about The stuff that's come out of gaming PCs is it's very compact because it has to fit inside in a lot of cases, like a little shoebox-sized computer case.
+[00:08:46] Will: Well, it's a cool. It's similar to the problem of cooling a PC. Like even the amount of heat generated is like a big gaming PC takes 1,400 watts of power in, sends a lot of that out as waste heat, and the neat thing about The stuff that's come out of gaming PCs is it's very compact because it has to fit inside in a lot of cases, like a little shoebox-sized computer case.
 
-[00:09:05] Adam: Well, so let me just state that there were a bunch of suggestions that were excellent suggestions. I mean, pretty much almost every single suggestion in the in the comments were things that I've thought about or tried or thrown out. Now, one of the things people said was, " Well, you had a backpack; you could have fit a nice cooling unit in there." That is a nice idea until you've already wired all the lights and you've got other stuff coming in, and the space inside the backpack isn't as big as you think. So it's not like you could take a store bought unit and shove it in there. Further, when you think about a coolant recirculating system, which is what I am talking about, using the cool shirt design and actually circulating cool liquid through and using a heat dump to cool that liquid as it's circulating. Now, that is a watertight system, which means that you need to put on the cool shirt, feed the tubing out through the outside of the costume, and then connect it up to the backpack. Which, frankly, when you are talking about doing Comic Con, it's That amount of systemic things working through other things and having to be put on in order—it's just a layer of complication that I tend to avoid because it's a failure point.
+[00:09:05] Adam: Well, so let me just state that there were a bunch of suggestions that were excellent suggestions. I mean, pretty much almost every single suggestion in the comments were things that I've thought about or tried or thrown out. Now, one of the things people said was, " Well, you had a backpack; you could have fit a nice cooling unit in there." That is a nice idea until you've already wired all the lights and you've got other stuff coming in, and the space inside the backpack isn't as big as you think. So it's not like you could take a store bought unit and shove it in there. Further, when you think about a coolant recirculating system, which is what I am talking about, using the cool shirt design and actually circulating cool liquid through and using a heat dump to cool that liquid as it's circulating. Now, that is a watertight system, which means that you need to put on the cool shirt, feed the tubing out through the outside of the costume, and then connect it up to the backpack. Which, frankly, when you are talking about doing Comic Con, it's That amount of systemic things working through other things and having to be put on in order—it's just a layer of complication that I tend to avoid because it's a failure point.
 
-[00:10:14] Will: It's—it's like like you said when you flip the lights on on the on the on the headlamp on the fan, all the lights turned off.
+[00:10:14] Will: It's like you said when you flip the lights on the headlamp on the fan, all the lights turned off.
 
 [00:10:21] Adam: Complexity, yeah.
 
@@ -206,13 +206,13 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:10:22] Adam: It’s true.
 
-[00:10:22] Will: It's. I think we can build a like waist-mounted belt-sized thing that we can then use modularly using like because the the other thing is we don't want to use you don't want to use like a like dry ice or some sort of something that's super cold that you can't control the temperature of
+[00:10:22] Will: It's. I think we can build a like waist-mounted belt-sized thing that we can then use modularly using like because the other thing is we don't want to use you don't want to use like a like dry ice or some sort of something that's super cold that you can't control the temperature of
 
 [00:10:22] Adam: right
 
 [00:10:22] Will: because then you can actually give yourself hypothermia which would be much worse than overheating.
 
-[00:10:52] Adam: And frankly, and frankly, when I've used dry ice to cool down tubing systems, we couldn't run water in there; it freezes it too quickly. You'd actually probably use alcohol and then. That actually has its own concerns. Of a leaky alcohol system could cause vapors, stuff like that. Frank believes that we could do an alcohol refrigeration unit where you pressurize and do the pressure drop to get extra cooling out of the alcohol.
+[00:10:52] Adam: And frankly, when I've used dry ice to cool down tubing systems, we couldn't run water in there; it freezes it too quickly. You'd actually probably use alcohol and then. That actually has its own concerns. Of a leaky alcohol system could cause vapors, stuff like that. Frank believes that we could do an alcohol refrigeration unit where you pressurize and do the pressure drop to get extra cooling out of the alcohol.
 
 [00:11:17] Will: So I think that's a lot harder.
 
@@ -222,7 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:11:17] Adam: You're thinking a Peltier.
 
-[00:11:23] Will: Yeah, I think a Peltier with just normal like like like like that small gauge refrigerator tubing,
+[00:11:23] Will: Yeah, I think a Peltier with just normal like that small gauge refrigerator tubing,
 
 [00:11:23] Adam: yeah,
 
@@ -234,17 +234,17 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:11:23] Adam: And where does it dump its heat?
 
-[00:11:44] Will: The Peltier goes out the back, so you put a radiator on the on the hot. You know, Peltier is hot end cold. Right. It's two different materials. The cold end will get really really cool if you apply enough power to it. The hot, all the heat goes out that hot end.
+[00:11:44] Will: The Peltier goes out the back, so you put a radiator on the hot. Peltier is hot end cold. Right. It's two different materials. The cold end will get really really cool if you apply enough power to it. The hot, all the heat goes out that hot end.
 
 [00:11:44] Adam: Okay.
 
-[00:11:44] Will: And you just smack a radiator and a and a and like a five volt PC fan on that.
+[00:11:44] Will: And you just smack a radiator and a and like a five volt PC fan on that.
 
 [00:12:00] Adam: I will say I got some advice from Nathan Fillion of all people.
 
 [00:12:04] Will: Okay.
 
-[00:12:04] Adam: When we we did, Jamie and I appeared as mystery guests on the Nerd HQ mystery panel at Petco Park, and that was really fun.
+[00:12:04] Adam: When we did, Jamie and I appeared as mystery guests on the Nerd HQ mystery panel at Petco Park, and that was really fun.
 
 [00:12:13] Will: Hold on, can you explain how that worked?
 
@@ -258,13 +258,13 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:12:15] Will: Dark Comic Con.
 
-[00:12:23] Adam: They set up at Petco Park, and Zach Levi just brought in a string of panels over there for a small audience, all to raise money for his charity, the Smile Foundation. And you know, Zach knows everybody, and it was a fantastic, fantastic experience, simply because it's like you're there with a bunch of really, really good, really good chops comedians, improvisers like Nathan, Breckin Meyer, Colin Ferguson from Eureka, Taran from SNL, Sloppy Swish guy, and It just like was nonstop hilarity. So waiting outside, that I was talking to Nathan, and he said that he uses ice packs right at the base of his back and keeps him cool in the suits when he's like running around on the hot sets.
+[00:12:23] Adam: They set up at Petco Park, and Zach Levi just brought in a string of panels over there for a small audience, all to raise money for his charity, the Smile Foundation. And Zach knows everybody, and it was a fantastic, fantastic experience, simply because it's like you're there with a bunch of really, really good, really good chops comedians, improvisers like Nathan, Breckin Meyer, Colin Ferguson from Eureka, Taran from SNL, Sloppy Swish guy, and It just like was nonstop hilarity. So waiting outside, that I was talking to Nathan, and he said that he uses ice packs right at the base of his back and keeps him cool in the suits when he's like running around on the hot sets.
 
 [00:13:24] Will: Well, so
 
 [00:13:24] Norm: just a duct tape and ice pack.
 
-[00:13:25] Adam: Yeah, and then you know, right there at the base of your spine. Look, I think anything would have helped me in that. In that suit.
+[00:13:25] Adam: Yeah, and then right there at the base of your spine. Look, I think anything would have helped me in that. In that suit.
 
 [00:13:31] Will: Yeah, I mean, one of the other things that people mentioned that's come up a lot is the army did a ton of research when we were fighting two wars in deserts where it's 120 degrees about the fastest way to dump heat from a body and palm of your hand has a ton of blood flow and they were putting coolers chill chillers on the palms of your hand.
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:13:31] Will: Sorry, go ahead.
 
-[00:13:53] Norm: No, no, like the feet, hands. You know, you know. [unclear: Yeah, go camping]. You know, yeah, top of the head.
+[00:13:53] Norm: No, no, like the feet, hands. [unclear: Yeah, go camping] Yeah, top of the head.
 
 [00:13:56] Adam: Oh yeah, and back when I lived on a fifth floor walkup in Brooklyn on hot New York summer nights where it's like 95 and 90 percent humidity. A few times, one of the tricks for falling asleep was put a little rubbing alcohol in the palms of your hand and the soles of your feet, and lie down. And the heat that pulled from your body is long enough for you to collapse and fall asleep.
 
@@ -286,7 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:15:05] Will: Constrict,
 
-[00:15:06] Adam: yeah. So apparently, the the the method that works, if I remember correctly, is the hands under the slightest vacuum, a slight amount of negative pressure, really, with cool water running through them, and it's like it has real implications for hypothermia patients and for people who are overheating. That you can adjust the body temperature very rapidly using this method
+[00:15:06] Adam: yeah. So apparently, the method that works, if I remember correctly, is the hands under the slightest vacuum, a slight amount of negative pressure, really, with cool water running through them, and it's like it has real implications for hypothermia patients and for people who are overheating. That you can adjust the body temperature very rapidly using this method
 
 [00:15:06] Will: And in a controlled manner. Maybe we need to put the thermocouple on you, not in the water loop.
 
@@ -294,15 +294,15 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:15:31] Will: We can try. I mean, the neat thing is if we do it over the course of the year, I'm sure you'll have another space suit to wear at some point in the future.
 
-[00:15:47] Norm: You want something that's interchangeable with, you know, Chewie and
+[00:15:47] Norm: You want something that's interchangeable with Chewie and
 
-[00:15:50] Adam: yeah, yeah, yeah, yeah, absolutely. And and and and now I got to start figuring out what to wear for next year's Comic Con.
+[00:15:50] Adam: yeah, yeah, yeah, yeah, absolutely. And now I got to start figuring out what to wear for next year's Comic Con.
 
 [00:15:50] Will: Oh, any hints?
 
-[00:16:02] Adam: I really, I have, I there's a couple things I've got on the burner. Whether they work for next year's Comic Con or not, I'm not positive. But let's see. There's two things right on the burner up front, but there's also there's also a couple of longer dormant projects that have been sitting off to the side that I haven't gotten to. But then there's also like, what's the overall theme? You know, what do I want to do? I I feel like this year's Comic Con was so successful. It's not like I want to top it, but I want to try something different. You know, I want to point out there's a comment that I that came across Twitter a few days ago, and it's it bears just repeating. I mentioned in one of the interviews that Comic Con is is such a great space for cosplay in a safe environment. Now, somebody pointed out that I said that as a man,
+[00:16:02] Adam: I really, I have, I there's a couple things I've got on the burner. Whether they work for next year's Comic Con or not, I'm not positive. But let's see. There's two things right on the burner up front, but there's also a couple of longer dormant projects that have been sitting off to the side that I haven't gotten to. But then there's also like, what's the overall theme? You know, what do I want to do? I feel like this year's Comic Con was so successful. It's not like I want to top it, but I want to try something different. I want to point out there's a comment that I that came across Twitter a few days ago, and it's it bears just repeating. I mentioned in one of the interviews that Comic Con is is such a great space for cosplay in a safe environment. Now, somebody pointed out that I said that as a man,
 
-[00:16:56] Will: yeah, as a as a middle aged white male,
+[00:16:56] Will: yeah, as a middle aged white male,
 
 [00:16:56] Adam: as a middle aged white male. So I have the privilege of feeling safe all over the place. And it's not so cut and dry for the women who dress up and go to places like Comic Con.
 
@@ -312,13 +312,13 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:17:11] Will: yeah.
 
-[00:17:11] Adam: And you know, there was the there was the hashtag campaign. Cosplay does not equal consent, because women put on costumes that are that they look attractive in, and people feel like somehow because it's Comic Con, I don't know that they can go and harass them.
+[00:17:11] Adam: And there was the hashtag campaign. Cosplay does not equal consent, because women put on costumes that are that they look attractive in, and people feel like somehow because it's Comic Con, I don't know that they can go and harass them.
 
 [00:17:11] Will: Right.
 
-[00:17:11] Adam: And that is, it's absolutely something that I agree with. Yes, that is a total problem, and it's it's it's I'm not sure how to address that from a my going cosplaying, but I'd like to figure out a way to draw attention to that because it should feel safe for everybody, for Christ's sake.
+[00:17:11] Adam: And that is, it's absolutely something that I agree with. Yes, that is a total problem, and it's I'm not sure how to address that from a my going cosplaying, but I'd like to figure out a way to draw attention to that because it should feel safe for everybody, for Christ's sake.
 
-[00:17:11] Will: So yeah. So and and I mean the cosplay does not equal consent thing. This is something I didn't. It's on the outside. You I didn't understand. Like, but when Norm started taking pictures for the cosplay galleries at Comic Con, I walked around with him the first time. I was like, Hey, why are you asking everybody to take a picture? And he said. Look, a it's polite. B they're going to give you a much better pose if you ask for a picture. And C just because you're in a costume doesn't mean if you're eating a hot dog on the side of the thing you want to have your picture taken at that moment.
+[00:17:11] Will: So yeah. So and I mean the cosplay does not equal consent thing. This is something I didn't. It's on the outside. You I didn't understand. Like, but when Norm started taking pictures for the cosplay galleries at Comic Con, I walked around with him the first time. I was like, Hey, why are you asking everybody to take a picture? And he said. Look, a it's polite. B they're going to give you a much better pose if you ask for a picture. And C just because you're in a costume doesn't mean if you're eating a hot dog on the side of the thing you want to have your picture taken at that moment.
 
 [00:18:19] Adam: And it doesn't help. I love Jimmy Kimmel, but it doesn't help when Kimmel sends a producer down there to ask all these women, " Have you had sex in your costume?"
 
@@ -328,13 +328,13 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:18:28] Adam: Yeah, I know. And it's like, oh man, you were so not helping the situation.
 
-[00:18:34] Will: Yeah, it's it's um. I mean, one of the things. So my wife used to do events for for a long time, and and one of the things that they were always aware of is that just the the incidents of violent crime against women at big gatherings, whether it's Comic Con cons, pharmaceutical trade shows, any place where a bunch of people come to get get together and like the societal norms shift even the slightest bit. You know, if it's if it's yeah, I'm at the the sales meeting and everybody goes out and gets loaded as soon as the thing closes, like that. That is a real thing that happens in almost universally, and it's something that that has to be addressed.
+[00:18:34] Will: Yeah, it's. I mean, one of the things. So my wife used to do events for a long time, and one of the things that they were always aware of is that just the incidents of violent crime against women at big gatherings, whether it's Comic Con cons, pharmaceutical trade shows, any place where a bunch of people come to get get together and like the societal norms shift even the slightest bit. You know, if it's yeah, I'm at the sales meeting and everybody goes out and gets loaded as soon as the thing closes, like that. That is a real thing that happens in almost universally, and it's something that that has to be addressed.
 
 [00:18:34] Adam: Yeah.
 
-[00:18:34] Will: So when when people talk about things like harassment policies at Comic Con and Dragon Con and PAX and those types of cons, it's not about it's about serious stuff.
+[00:18:34] Will: So when people talk about things like harassment policies at Comic Con and Dragon Con and PAX and those types of cons, it's not about it's about serious stuff.
 
-[00:19:23] Adam: It is about absolutely serious stuff, and there is, you know, this isn't anecdotal, right? So it's like people will put up comments, and it's not like I've seen them on Tested, but you see them around, around, around online of like, well, I've never seen it happen. It's like that's that's
+[00:19:23] Adam: It is about absolutely serious stuff, and there is, you know, this isn't anecdotal, right? So it's like people will put up comments, and it's not like I've seen them on Tested, but you see them around, around, around online of like, well, I've never seen it happen. It's like that's
 
 [00:19:23] Will: 120,000 people.
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:19:49] Norm: Oh, what's happened?
 
-[00:19:50] Adam: The point is that if people are putting on costumes, which is, which is a great thing, and they're feeling good about themselves and they're going out to a place where they want to have a good time and they're made to feel threatened or unsafe, that is fucked up and it's not okay.
+[00:19:50] Adam: The point is that if people are putting on costumes, which is a great thing, and they're feeling good about themselves and they're going out to a place where they want to have a good time and they're made to feel threatened or unsafe, that is fucked up and it's not okay.
 
 [00:20:03] Will: If you look at it,
 
@@ -354,7 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:20:08] Adam: I'm just thinking that the costume part makes you extra vulnerable. Yeah. Frankly,
 
-[00:20:12] Norm: I think it happens at Comic Con. You know, for just normal people.
+[00:20:12] Norm: I think it happens at Comic Con. For just normal people.
 
 [00:20:16] Adam: I mean, when I say safe, I mean like when I think about going to you know going to grade school in costume on Halloween. There's no one walking around Comic Con going, " You look like an idiot."
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:20:31] Will: Yeah, the violent stuff is worse than the being called an idiot. It turns out.
 
-[00:20:35] Adam: Yeah. Anyway, I just wanted to say I agreed with that with that Twitter comment, and it is an issue that absolutely should be addressed and should be more forefronted.
+[00:20:35] Adam: Yeah. Anyway, I just wanted to say I agreed with that Twitter comment, and it is an issue that absolutely should be addressed and should be more forefronted.
 
 [00:20:35] Will: Okay.
 
@@ -380,15 +380,15 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:20:53] Will: It's good wrap around. Any final Comic Con thoughts before we close this? The last time we'll talk about Comic Con for at least another like 10 months.
 
-[00:21:01] Adam: 10 months. I will say that the. I love the culture of Comic Con. I learn, I get, I get credit in the press for being sort of like. There's a lot of articles that are like, Adam Savage is the ultimate Comic Con cosplayer. It's so not the case. I am still a dilettante when it comes to a lot of this stuff.
+[00:21:01] Adam: 10 months. I will say that the. I love the culture of Comic Con. I learn, I get credit in the press for being sort of like. There's a lot of articles that are like, Adam Savage is the ultimate Comic Con cosplayer. It's so not the case. I am still a dilettante when it comes to a lot of this stuff.
 
 [00:21:22] Will: There are people, just to be clear, who go out in costume and go to the con. Yeah, you hit the floor for half an hour.
 
-[00:21:22] Adam: For half an hour, these guys do it. These guys and girls do it for hours every day. It is a deep commitment, and they spend like you know. I'm lucky that I can afford to do some of these really cool things. Some of these people spend absolutely hard-earned cash and hundreds of thousands of hours to do this, and I learn more about that culture every time I go. And that's my goal: is to feel, is to connect with the culture, not impose my marketing on it or try to, you know, figure it out. It is to be a part of it. And this year, more than any other. I felt a deepening of my connection, of our connection with that culture at the at the incognito party. What people kept saying when they came up was, they love the builds on Tested. They love the stuff that we're doing that we're talking about, both from a construction and practical standpoint, but also a cultural and personal inspiration standpoint.
+[00:21:22] Adam: For half an hour, these guys do it. These guys and girls do it for hours every day. It is a deep commitment, and they spend like you know. I'm lucky that I can afford to do some of these really cool things. Some of these people spend absolutely hard-earned cash and hundreds of thousands of hours to do this, and I learn more about that culture every time I go. And that's my goal: is to feel, is to connect with the culture, not impose my marketing on it or try to, you know, figure it out. It is to be a part of it. And this year, more than any other. I felt a deepening of my connection, of our connection with that culture at the incognito party. What people kept saying when they came up was, they love the builds on Tested. They love the stuff that we're doing that we're talking about, both from a construction and practical standpoint, but also a cultural and personal inspiration standpoint.
 
 [00:22:24] Will: Even like motivation and stuff like that.
 
-[00:22:25] Adam: Motivation and stuff like that. You know, one of the things I love love love about Comic Con is also I hate to say this hate to say it this way, but it makes sense. The terrible costumes. Like there are some people walking around wearing just like normal clothes and board shorts and just a Iron Man mask.
+[00:22:25] Adam: Motivation and stuff like that. One of the things I love love love about Comic Con is also I hate to say this hate to say it this way, but it makes sense. The terrible costumes. Like there are some people walking around wearing just like normal clothes and board shorts and just a Iron Man mask.
 
 [00:22:46] Norm: And they can.
 
@@ -412,27 +412,27 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:23:12] Adam: No.
 
-[00:23:12] Will: You you go spend as little money and time as you feel is right.
+[00:23:12] Will: You go spend as little money and time as you feel is right.
 
 [00:23:12] Adam: Yeah.
 
-[00:23:12] Will: And then then go walk see if it sticks. And maybe you get out there, you don't like it at all.
+[00:23:12] Will: And then go walk see if it sticks. And maybe you get out there, you don't like it at all.
 
-[00:23:12] Adam: And out there on on eBay and on Etsy and a lot of other places, there are great costumes you can get made. You can take stuff that that's cheaply made, buy some slightly better fabric, and pay your pay a seamstress to make it. It's not that expensive. My V shirt, my V for Vendetta costume, right? Everyone has a very difficult time with that costume finding the fabric. I found a fabric that was very close. It was expensive. The fabric was expensive, like something like $75 a yard.
+[00:23:12] Adam: And out there on eBay and on Etsy and a lot of other places, there are great costumes you can get made. You can take stuff that that's cheaply made, buy some slightly better fabric, and pay your pay a seamstress to make it. It's not that expensive. My V shirt, my V for Vendetta costume, right? Everyone has a very difficult time with that costume finding the fabric. I found a fabric that was very close. It was expensive. The fabric was expensive, like something like $75 a yard.
 
 [00:23:12] Will: Wow.
 
-[00:23:12] Adam: But I bought a doublet for a V costume online for like $30 that fit me really nicely, especially when I pinned it to fit me exactly. I took that to the person that does my my alterations, and they rebuilt the doublet I had with the fabric I had for like $100.
+[00:23:12] Adam: But I bought a doublet for a V costume online for like $30 that fit me really nicely, especially when I pinned it to fit me exactly. I took that to the person that does my alterations, and they rebuilt the doublet I had with the fabric I had for like $100.
 
 [00:24:18] Will: Right. I mean, that's amazing.
 
 [00:24:18] Adam: It was beautiful. So the threshold for getting quality stuff is not that high, and there is a way in which I felt connected, like I said, to that culture on a deeper level this year that made it twice as pleasant.
 
-[00:24:35] Will: Stuff like your no face costume. I mean, your no face costume, the the vacuum former is probably a, I mean, but it's even a fairly good vacuum former. If you have an old vacuum cleaner that doesn't work anymore, is a Saturday afternoon and $100 all in probably to get something that size.
+[00:24:35] Will: Stuff like your no face costume. I mean, your no face costume, the vacuum former is probably a, I mean, but it's even a fairly good vacuum former. If you have an old vacuum cleaner that doesn't work anymore, is a Saturday afternoon and $100 all in probably to get something that size.
 
-[00:24:35] Adam: Well, I mean, you can do that face under a bunch of different circumstances. There was a beautiful papier mache no face walking around Comic Con this year. That was that was almost as tall, and I just I love I love seeing the no faces.
+[00:24:35] Adam: Well, I mean, you can do that face under a bunch of different circumstances. There was a beautiful papier mache no face walking around Comic Con this year. That was almost as tall, and I just I love seeing the no faces.
 
-[00:25:01] Will: It's a it's a good
+[00:25:01] Will: It's a good
 
 [00:25:02] Norm: never take the coins.
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:25:03] Norm: Give it back. Give it back.
 
-[00:25:06] Adam: Um. So that's my that's my last thoughts on Comic Con. Just the that the culture. I tell you, two years ago, maybe even three, but definitely two years ago, the culture at Comic Con clearly felt over marketed to, and there's been a pullback from the studios of that fervent, feverish hyper marketing that was going on.
+[00:25:06] Adam: So that's my last thoughts on Comic Con. Just the that the culture. I tell you, two years ago, maybe even three, but definitely two years ago, the culture at Comic Con clearly felt over marketed to, and there's been a pullback from the studios of that fervent, feverish hyper marketing that was going on.
 
 [00:25:06] Will: Hashtag this hashtag that.
 
@@ -462,7 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:25:44] Adam: amazing! The amount of reference material there for cosplayers with all the bat suits and all the beautiful custom done art bat suits and the Joker masks was that was insane. I took a couple hundred photos of all that stuff.
 
-[00:25:44] Will: Well, Marvel had good. I mean, they had stuff from Guardians of the Galaxy, but they had, they had other good stuff as well. I mean, it was it was a good oh walk around and look at stuff on the floor here.
+[00:25:44] Will: Well, Marvel had good. I mean, they had stuff from Guardians of the Galaxy, but they had other good stuff as well. I mean, it was a good oh walk around and look at stuff on the floor here.
 
 [00:25:44] Adam: We haven't revealed my final cosplay.
 
@@ -486,11 +486,11 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:26:49] Adam: It was a buyer. It was a maker on Etsy who makes them out of South America, and it was very an incredibly comfortable mask, and it allowed me to walk in normal clothes, unmolested and unnoticed for a good several hours.
 
-[00:27:17] Norm: Helmets like like Rocketeer,
+[00:27:17] Norm: Helmets like Rocketeer,
 
 [00:27:18] Adam: Rocketeer, casual Rocketeer was my helmet a couple years ago.
 
-[00:27:18] Norm: Add casual, it's you know, casual Stormtrooper, casual Boba Fett. No, it leads to swinger Boba Fett, but you don't want.
+[00:27:18] Norm: Add casual, it's casual Stormtrooper, casual Boba Fett. No, it leads to swinger Boba Fett, but you don't want.
 
 [00:27:29] Will: Well,
 
@@ -512,7 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:27:46] Adam: very funny.
 
-[00:27:47] Will: Very funny. Yeah, it's like the the walk around costume is good. I always assume anybody that's in a walk around looking costume with just like normal normalish clothes and a mask, but a pretty good mask. Moderately good, maybe not too good. I always assume that's Robert Downey Jr. or Kevin Smith. If they're if they're my size or bigger,
+[00:27:47] Will: Very funny. Yeah, it's like the walk around costume is good. I always assume anybody that's in a walk around looking costume with just like normal normalish clothes and a mask, but a pretty good mask. Moderately good, maybe not too good. I always assume that's Robert Downey Jr. or Kevin Smith. If they're my size or bigger,
 
 [00:27:47] Adam: I have heard Hayden Christensen also did it that way.
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:28:37] Will: I'm just I was asking what it is. I don't know.
 
-[00:28:37] Adam: Oh, it's the it's a it's a silicone Bryan Cranston mask that is hyper realistic. They—
+[00:28:37] Adam: Oh, it's the it's a silicone Bryan Cranston mask that is hyper realistic. They—
 
 [00:28:37] Will: cast—
 
@@ -562,7 +562,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:29:02] Will: Yeah, after talking about last thoughts, it’s probably best. People don’t mind.
 
-[00:29:05] Adam: Um, I call out the um the badass chick stormtrooper troop that was walking the con.
+[00:29:05] Adam: I call out the badass chick stormtrooper troop that was walking the con.
 
 [00:29:11] Will: Oh, I didn't see them.
 
@@ -570,7 +570,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:29:15] Will: they were in your gallery, right?
 
-[00:29:16] Adam: Yeah, yeah, and it was just like we're badass. That was that seemed to be the the main theme. Am I right? Yeah,
+[00:29:16] Adam: Yeah, yeah, and it was just like we're badass. That was that seemed to be the main theme. Am I right? Yeah,
 
 [00:29:16] Norm: yeah,
 
@@ -578,7 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:29:28] Will: Click, Click, click, click, click, click, click, click, click, click, click. There's a thumbnail view in the top left.
 
-[00:29:32] Adam: The the the freaking um dwarf on barrels.
+[00:29:32] Adam: The freaking dwarf on barrels.
 
 [00:29:32] Will: Oh, it was so good.
 
@@ -588,7 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:29:40] Norm: I think Lord of the Rings.
 
-[00:29:41] Will: Okay, or or the Hobbit rather.
+[00:29:41] Will: Okay, or the Hobbit rather.
 
 [00:29:43] Norm: Hobbit, yeah.
 
@@ -596,7 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:29:44] Adam: what’s the Hobbit?
 
-[00:29:46] Will: You know, it's it's like that fourth Indiana Jones movie.
+[00:29:46] Will: It's like that fourth Indiana Jones movie.
 
 [00:29:46] Adam: I don’t know what you think about. What there's more than two Indian. There's more than one Indiana Jones film.
 
@@ -614,7 +614,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:30:17] Norm: Oh my goodness!
 
-[00:30:17] Will: This this so
+[00:30:17] Will: This so
 
 [00:30:19] Norm: don't reveal too much.
 

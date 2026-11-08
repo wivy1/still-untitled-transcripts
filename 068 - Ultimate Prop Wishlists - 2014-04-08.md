@@ -54,15 +54,15 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:00:28] Adam: I have not seen Cosmos,
 
-[00:00:28] Will: the one with with Carl Sagan. Yeah, it was great.
+[00:00:28] Will: the one with Carl Sagan. Yeah, it was great.
 
 [00:00:41] Norm: It's on Netflix.
 
 [00:00:41] Will: 30 years ago,
 
-[00:00:42] Adam: you know, I actually sat my kids down the other night and played for them Carl Sagan's Pale Pale Blue Dot. Every sinner, every hopeful child, it's just magnificent. I, I never don't get chills.
+[00:00:42] Adam: I actually sat my kids down the other night and played for them Carl Sagan's Pale Pale Blue Dot. Every sinner, every hopeful child, it's just magnificent. I never don't get chills.
 
-[00:00:54] Norm: So, a couple, and that's a great and a great speech and a great video. The pale blue dot. If you look on YouTube, a lot of people have put video behind it and great montages. I one of the famous speeches. Cosmos is very interesting. I'm really curious. The new the new Cosmos that Neil deGrasse Tyson.
+[00:00:54] Norm: So, a couple, and that's a great and a great speech and a great video. The pale blue dot. If you look on YouTube, a lot of people have put video behind it and great montages. I one of the famous speeches. Cosmos is very interesting. I'm really curious. The new Cosmos that Neil deGrasse Tyson.
 
 [00:00:54] Adam: Yeah.
 
@@ -88,7 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:01:24] Norm: Yes.
 
-[00:01:24] Will: Of yeah, and and the we've seen your boobs song at the Oscars last year.
+[00:01:24] Will: Of yeah, and the we've seen your boobs song at the Oscars last year.
 
 [00:01:24] Norm: Yes, and also one of the lead writers and directors is Brannon Braga, producer of Star Trek.
 
@@ -100,11 +100,11 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:01:59] Norm: Controversial, regardless.
 
-[00:01:59] Will: Is is so they get Neil deGrasse Tyson because everybody loves him. To kind of counteract the Seth MacFarlane and Brent and Brent Ruggles,
+[00:01:59] Will: Is is so they get Neil deGrasse Tyson because everybody loves him. To kind of counteract the Seth MacFarlane and Brent Ruggles,
 
 [00:01:59] Norm: no, he's a recognizable face in in science and astrophysics. And and did you read the story?
 
-[00:01:59] Adam: But also science communication. Neil deGrasse Tyson is. We we we have a plethora of great science communicators right now, but he is absolutely at the pinnacle.
+[00:01:59] Adam: But also science communication. Neil deGrasse Tyson is. We have a plethora of great science communicators right now, but he is absolutely at the pinnacle.
 
 [00:02:24] Will: And he
 
@@ -114,15 +114,15 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:02:27] Norm: black astrophysicist.
 
-[00:02:28] Adam: He actually was telling me he got some crap at one conference he had he was leading because they had no women, and he was like, you know, I can't even remember the number, but he told me exactly how many black astrophysicists there were, and it is a very small two-digit number. And he goes, " So please don't give me shit about diversity here."
+[00:02:28] Adam: He actually was telling me he got some crap at one conference he had he was leading because they had no women, and he was like I can't even remember the number, but he told me exactly how many black astrophysicists there were, and it is a very small two-digit number. And he goes, " So please don't give me shit about diversity here."
 
 [00:02:47] Will: Yeah.
 
-[00:02:49] Norm: Oh my god! But the show is really interesting from a production standpoint. Um, I've seen the first three episodes. Yeah. Uh, they're out right now. The more might be out by the time this podcast podcast comes out. But it's very dramatic. Just a lot of special effects.
+[00:02:49] Norm: Oh my god! But the show is really interesting from a production standpoint. I've seen the first three episodes. Yeah. They're out right now. The more might be out by the time this podcast podcast comes out. But it's very dramatic. Just a lot of special effects.
 
 [00:02:49] Adam: Oh really?
 
-[00:02:49] Norm: Um, well, I'll describe one one or two scenes. There's one scene in in the first episode where he stands in front of the Big Bang. Neil deGrasse Tyson puts on sunglasses and watches the Big Bang happen in front of him.
+[00:02:49] Norm: Um, well, I'll describe one one or two scenes. There's one scene in the first episode where he stands in front of the Big Bang. Neil deGrasse Tyson puts on sunglasses and watches the Big Bang happen in front of him.
 
 [00:03:17] Will: The the pictures I saw of the set reminded me of the the cigarette smoking guy from the Mass Effect games.
 
@@ -142,9 +142,9 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:04:07] Will: you think they tarted it up too much?
 
-[00:04:09] Norm: Is it you could see the creationist version of this, like if there was a creationist version of Cosmos, yeah, and and all the criticism I would have of that of just saying things as if they were fact. Yeah, I understand because of the time constraints. Cosmos suffers from the same thing. He just says things.
+[00:04:09] Norm: Is it you could see the creationist version of this, like if there was a creationist version of Cosmos, yeah, and all the criticism I would have of that of just saying things as if they were fact. Yeah, I understand because of the time constraints. Cosmos suffers from the same thing. He just says things.
 
-[00:04:25] Will: Well, but I mean, that's what that's what the original Cosmos did. I mean, in a lot of ways, the idea is is hey, we live in an amazing universe. Most people don't appreciate that because we're too busy worrying about paying our taxes and like getting to the kids to school and stuff.
+[00:04:25] Will: Well, but I mean, that's what the original Cosmos did. I mean, in a lot of ways, the idea is is hey, we live in an amazing universe. Most people don't appreciate that because we're too busy worrying about paying our taxes and like getting to the kids to school and stuff.
 
 [00:04:25] Norm: Right.
 
@@ -152,21 +152,21 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:04:45] Norm: and very much as a layman's intro.
 
-[00:04:47] Adam: And I, I, I know my right. That's fascinating. Um, I, do you feel like it's also? I'll, I have to watch it so that the next time we do this podcast, I I can talk about it. But do you feel like the tarting up of it makes it feel like? Science isn't interesting enough in and of itself, and therefore we're trying to trying to make it more exciting.
+[00:04:47] Adam: And I, I, I know my right. That's fascinating. I, do you feel like it's also? I'll, I have to watch it so that the next time we do this podcast, I I can talk about it. But do you feel like the tarting up of it makes it feel like? Science isn't interesting enough in and of itself, and therefore we're trying to make it more exciting.
 
-[00:05:10] Norm: And and therefore you have to put the dramatic music in, all the special effects in.
+[00:05:10] Norm: And therefore you have to put the dramatic music in, all the special effects in.
 
 [00:05:14] Adam: I wonder if I'll feel like that when I watch that because that that tends to. We've gotten crap before. We have a piece that was in our show for a long time called the warning science content, and we'd say warning science content, and we'd sit down and do what we'd called a fireside chat where Jamie and I were sitting. Oh, did you know that actually there was a molasses flood in Boston in the late 19th century, something like that? And we got crap for it. It was like, why are you saying warning science content? That makes people afraid of science. And we were like, no, that's the whole joke. The whole joke.
 
 [00:05:42] Will: Yeah, but people don't get those jokes.
 
-[00:05:44] Adam: No, I know, I know, but you know, I also take the, you know, let the material speak for itself is obviously the ideal.
+[00:05:44] Adam: No, I know, but I also take the let the material speak for itself is obviously the ideal.
 
 [00:05:44] Will: Yeah.
 
 [00:05:44] Adam: But again, without watching it, I can't really comment on the process.
 
-[00:05:44] Norm: Yeah, it really feels like they're they're afraid people are going to get bored and turn it off. It also feels like the type of thing that it's ripe for. Putting on DVD and putting in classrooms
+[00:05:44] Norm: Yeah, it really feels like they're afraid people are going to get bored and turn it off. It also feels like the type of thing that it's ripe for. Putting on DVD and putting in classrooms
 
 [00:05:44] Adam: Right.
 
@@ -180,17 +180,17 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:06:07] Adam: He's not a
 
-[00:06:07] Norm: writer. He's not a writer. One of the original writers of the writers of the original Cosmos. She's a writer,
+[00:06:07] Norm: writer. He's not a writer. One of the original writers of the original Cosmos. She's a writer,
 
 [00:06:16] Adam: but I'm just wondering how much he participated creatively in it because creatively he's an incredible mind,
 
-[00:06:23] Will: and I mean he is, especially like his his ability to distill super complex, scary astrophysics and and like real confusing, complex, ambiguous stuff,
+[00:06:23] Will: and I mean he is, especially like his his ability to distill super complex, scary astrophysics and like real confusing, complex, ambiguous stuff,
 
 [00:06:23] Adam: yeah,
 
 [00:06:23] Will: and make it clear and understandable is is is what he's phenomenal at,
 
-[00:06:38] Adam: and also to bring humor and yeah, clarity and his wonderful avuncular attitude to it and make you comfortable. I mean, I just I can't get enough of facts are true whether you believe them or not. You know, there's so he has so many of those.
+[00:06:38] Adam: and also to bring humor and yeah, clarity and his wonderful avuncular attitude to it and make you comfortable. I mean, I just I can't get enough of facts are true whether you believe them or not. There's so he has so many of those.
 
 [00:06:53] Will: Okay, so our homework, you and me,
 
@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:06:56] Will: is to go watch Cosmos.
 
-[00:06:57] Adam: I, uh, I, uh. What did we do? We haven't watched any television lately. We haven't watched any. I've been doing a lot of writing because We have a bunch of stuff to work on, Um, and we've been meaning to get to True Detectives, but we haven't.
+[00:06:57] Adam: I. What did we do? We haven't watched any television lately. We haven't watched any. I've been doing a lot of writing because We have a bunch of stuff to work on and we've been meaning to get to True Detectives, but we haven't.
 
 [00:06:57] Will: You haven't watched it yet.
 
@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:06:57] Norm: we can't talk about it.
 
-[00:06:57] Adam: I'll tell you what happened. Is my my son Thing One decided to get into Lost, and the last two months he's watched the entire series of Lost, and we sat down and watched the finale. We he said, " Will you watch an episode with me?" And I said, " Where are you?" He said, " I'm in the middle of season two." And I said, " I will watch the season three opener with you, because that is awesome."
+[00:06:57] Adam: I'll tell you what happened. Is my son Thing One decided to get into Lost, and the last two months he's watched the entire series of Lost, and we sat down and watched the finale. We he said, " Will you watch an episode with me?" And I said, " Where are you?" He said, " I'm in the middle of season two." And I said, " I will watch the season three opener with you, because that is awesome."
 
 [00:07:32] Will: Yeah.
 
@@ -220,7 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:07:34] Will: I watched the first half season.
 
-[00:07:34] Adam: Yes, this is when you first meet Juliet. Yes. And then we watched the finale together, which, you know, it's funny, watching the finale again. What
+[00:07:34] Adam: Yes, this is when you first meet Juliet. Yes. And then we watched the finale together, which it's funny, watching the finale again. What
 
 [00:07:34] Norm: I like it. I like it now.
 
@@ -232,13 +232,13 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:07:48] Will: yep.
 
-[00:07:48] Adam: And as someone, you know, we were watching this for the first time in years, and each character and they touch the other characters and they see the visions, and they were watching the two time streams come together. And again, there's so much is unexplained, but what what is clear is that the show is incredibly cast. Really, the cast is astonishing, and the work that all those actors did is really impressive. The breadth of what they all went through narrative on their, in the arcs of their characters, and they all brought incredible stuff to the show. Evangeline Lilly is an amazing actress. By the end, not to say she wasn't great at the beginning, but I also know that it was like her second acting job.
+[00:07:48] Adam: And as someone we were watching this for the first time in years, and each character and they touch the other characters and they see the visions, and they were watching the two time streams come together. And again, there's so much is unexplained, but what is clear is that the show is incredibly cast. Really, the cast is astonishing, and the work that all those actors did is really impressive. The breadth of what they all went through narrative on their, in the arcs of their characters, and they all brought incredible stuff to the show. Evangeline Lilly is an amazing actress. By the end, not to say she wasn't great at the beginning, but I also know that it was like her second acting job.
 
 [00:08:52] Will: Yeah.
 
 [00:08:56] Adam: And it also gave you a bit of the scope of how far the show had traveled. It's easy to forget in the second to last season how far it took us to get to there. How alien the others seemed in the first two seasons, that kind of stuff. So I found the ending just as satisfying as I did the first time, and I really enjoyed it.
 
-[00:09:17] Norm: There's a wonderful DVD extra after the the finale where they kind of poke fun at the unanswered questions.
+[00:09:17] Norm: There's a wonderful DVD extra after the finale where they kind of poke fun at the unanswered questions.
 
 [00:09:17] Adam: Oh, really?
 
@@ -246,13 +246,13 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:09:17] Adam: And the the one thing I've been meaning to do is my my cameraman Saza told me that there's some video online of Hurley and Ben running the island.
 
-[00:09:17] Norm: Well, that's that's that's the that's the bonus,
+[00:09:17] Norm: Well, that's the bonus,
 
 [00:09:17] Adam: and I'm dying to see that stuff that happens. What?
 
 [00:09:17] Will: I didn't know that.
 
-[00:09:40] Adam: It's like when you found out that that in only in the extra materials on the website did you find out that one of those Battlestar Galactica characters was gay. Oh. He was the the head of the bridge at the beginning.
+[00:09:40] Adam: It's like when you found out that that in only in the extra materials on the website did you find out that one of those Battlestar Galactica characters was gay. Oh. He was the head of the bridge at the beginning.
 
 [00:09:40] Will: Oh, Gaeta.
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:09:40] Adam: No, I was getting to say something. I was just, but go ahead. You had a genuine segue.
 
-[00:09:40] Will: I was just going to say this is this is like our friend friends telling me the other day that Aladdin is actually set in a post-apocalypse. The Disney movie Aladdin,
+[00:09:40] Will: I was just going to say this is like our friend friends telling me the other day that Aladdin is actually set in a post-apocalypse. The Disney movie Aladdin,
 
 [00:10:11] Norm: and that's why,
 
@@ -302,13 +302,13 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:10:41] Adam: I love the idea of a secret Fight Club hidden inside of Ferris Bueller's Day Off.
 
-[00:10:41] Will: Yeah. The end of Ferris Bueller. He has he has the gun in his mouth, and
+[00:10:41] Will: Yeah. The end of Ferris Bueller. He has the gun in his mouth, and
 
 [00:10:41] Adam: yes,
 
 [00:10:41] Will: so good.
 
-[00:11:00] Adam: Um. I'm so sad about Jennifer Grey's nose. Can I just say that? I, I really am. I have a thing. I really like big noses.
+[00:11:00] Adam: I'm so sad about Jennifer Grey's nose. Can I just say that? I really am. I have a thing. I really like big noses.
 
 [00:11:00] Will: Yeah,
 
@@ -342,11 +342,11 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:11:42] Adam: You are on fire today, Will.
 
-[00:11:45] Will: It's because I haven't eaten. It Makes you strong. We're going to talk. We have we have a topic today.
+[00:11:45] Will: It's because I haven't eaten. It Makes you strong. We're going to talk. We have a topic today.
 
 [00:11:45] Adam: Yes. What is it?
 
-[00:11:45] Will: We have a a, uh, the topic is. The wish list, the prop list, the ultimate dream list of props that you because this was inspired last week,
+[00:11:45] Will: We have a the topic is. The wish list, the prop list, the ultimate dream list of props that you because this was inspired last week,
 
 [00:11:45] Adam: right?
 
@@ -358,7 +358,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:11:45] Adam: Yes,
 
-[00:11:45] Will: and if if if it was socially acceptable and didn't block the microphone, he'd probably have it in his lap right now.
+[00:11:45] Will: and if it was socially acceptable and didn't block the microphone, he'd probably have it in his lap right now.
 
 [00:11:45] Adam: All right, there we go.
 
@@ -372,7 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:12:22] Will: Yeah.
 
-[00:12:22] Adam: It even has a label from the U.S. government, 1942 serial number, combat shield vibranium, which I know is controversial that it's not vibranium and adamantium. Um, I'm gonna have to get that later. And then it's manufactured Stark Industries.
+[00:12:22] Adam: It even has a label from the U.S. government, 1942 serial number, combat shield vibranium, which I know is controversial that it's not vibranium and adamantium. I'm gonna have to get that later. And then it's manufactured Stark Industries.
 
 [00:12:22] Will: Mm-hmm.
 
@@ -398,7 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:12:58] Will: We'll do a. We should do it. At some point, we should do a video with like that and a couple of other small like things that maybe don't have a lot of depth.
 
-[00:12:58] Norm: But but the idea was that yeah, as as I was holding it, we were talking about, uh, what are the things, um, that are on your all time wish list for, uh, props from movies or TV shows to own, um.
+[00:12:58] Norm: But the idea was that yeah, as I was holding it, we were talking about what are the things that are on your all time wish list for props from movies or TV shows to own.
 
 [00:12:58] Will: Because this was immediately added to your list when you do exist,
 
@@ -406,11 +406,11 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:13:23] Unknown speaker: It's important.
 
-[00:13:23] Norm: Sure. There’s a long list. It’s like asking you know what your favorite movies of all time, and the way I was thinking about it, uh, I had to split, uh, the dream list into three categories.
+[00:13:23] Norm: Sure. There’s a long list. It’s like asking you know what your favorite movies of all time, and the way I was thinking about it I had to split the dream list into three categories.
 
 [00:13:23] Adam: Oh, interesting.
 
-[00:13:23] Norm: I had to split it into, uh, hand props.
+[00:13:23] Norm: I had to split it into hand props.
 
 [00:13:23] Adam: Yes.
 
@@ -420,11 +420,11 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:13:23] Will: Lightsabers.
 
-[00:13:23] Norm: Lightsabers, you know, things to put on a desk. Costumes was the second category.
+[00:13:23] Norm: Lightsabers things to put on a desk. Costumes was the second category.
 
 [00:13:23] Adam: Yep.
 
-[00:13:23] Norm: Yeah. Wearables and a third was, uh, Sets or miniatures,
+[00:13:23] Norm: Yeah. Wearables and a third was Sets or miniatures,
 
 [00:13:23] Will: Interesting.
 
@@ -434,11 +434,11 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:14:01] Will: We're surrounded by all of these things, right?
 
-[00:14:01] Norm: Right, exactly. And you have you have many,
+[00:14:01] Norm: Right, exactly. And you have many,
 
 [00:14:01] Adam: and you're right because those are three very good categories.
 
-[00:14:01] Norm: Um, so I have my my my things on the list.
+[00:14:01] Norm: So I have my things on the list.
 
 [00:14:01] Will: Well, it's good that somebody's prepared. I don't. I so I have unsuccessfully tried to become a minimalist over the last few years. So I I have been actively trying to not acquire new things.
 
@@ -452,7 +452,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:14:24] Adam: Right.
 
-[00:14:24] Will: I think it would be cool to have a lightsaber, but not enough to go out and spend the you know $100, $200, whatever it is to to buy one or take the time to machine one.
+[00:14:24] Will: I think it would be cool to have a lightsaber, but not enough to go out and spend the you know $100, $200, whatever it is to buy one or take the time to machine one.
 
 [00:14:24] Adam: Mm-hmm.
 
@@ -484,21 +484,21 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:15:23] Will: With the medical one with the pop out thing,
 
-[00:15:23] Norm: not the medical one. Okay, just the re- just the normal one, Uh, because the top also has lights. The medical one with the the thing that pops out.
+[00:15:23] Norm: not the medical one. Okay, just the re- just the normal one because the top also has lights. The medical one with the thing that pops out.
 
 [00:15:23] Adam: Yep.
 
-[00:15:23] Norm: Um, but I've seen those props in person.
+[00:15:23] Norm: But I've seen those props in person.
 
 [00:15:23] Adam: Yeah, they're amazing.
 
 [00:15:23] Norm: And they're gorgeous.
 
-[00:15:23] Adam: The LEDs are gorgeous. You know, for less than the price of that, you can buy the Playmates one with an upgrade kit.
+[00:15:23] Adam: The LEDs are gorgeous. For less than the price of that, you can buy the Playmates one with an upgrade kit.
 
 [00:15:42] Norm: Oh, the upgrade kit. I have the Playmates one.
 
-[00:15:44] Adam: Uh, You know, it's funny, Norm. I'll take a look after this podcast. I might have two upgrade kits.
+[00:15:44] Adam: It's funny, Norm. I'll take a look after this podcast. I might have two upgrade kits.
 
 [00:15:44] Norm: Wow.
 
@@ -508,7 +508,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:15:55] Adam: They're functionally they look great and they make great sounds, but the lights are shit.
 
-[00:15:59] Will: And the but the the mold of the case and everything is good.
+[00:15:59] Will: And the but the mold of the case and everything is good.
 
 [00:15:59] Adam: It's pretty good.
 
@@ -516,7 +516,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:15:59] Adam: Yeah.
 
-[00:15:59] Norm: of it, which which looks fantastic. That's my hand prop.
+[00:15:59] Norm: of it, which looks fantastic. That's my hand prop.
 
 [00:16:11] Adam: Okay.
 
@@ -530,7 +530,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:16:19] Adam: that's absolutely at the top of a lot of people's list.
 
-[00:16:21] Will: That would that would be yeah, that's a near the top of the.
+[00:16:21] Will: That would be yeah, that's a near the top of the.
 
 [00:16:21] Norm: It was tough to come up with this list because I we've been influenced clearly by being in this in your presence. I would say I couldn't say like oh of course it's a Blade Runner blaster or things that like Adam has made, but like
 
@@ -538,11 +538,11 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:16:37] Adam: Right.
 
-[00:16:37] Will: Well, but but I mean, part of that part of the the being in your shop a lot is that it amplifies like seeing things. Amplifies the appeal of those things because I never would have said, " Oh, the Blade Runner gun," because it's in the movie for three minutes, right? It's not, it's not a, it's not something that I was even aware of really until I saw your video years ago.
+[00:16:37] Will: Well, but I mean, part of that part of the being in your shop a lot is that it amplifies like seeing things. Amplifies the appeal of those things because I never would have said, " Oh, the Blade Runner gun," because it's in the movie for three minutes, right? It's not a, it's not something that I was even aware of really until I saw your video years ago.
 
 [00:16:37] Adam: Yeah,
 
-[00:16:37] Will: and you know, then, then I see it, I'm like, wow, that is that is pretty fucking amazing.
+[00:16:37] Will: and then I see it, I'm like, wow, that is pretty fucking amazing.
 
 [00:17:10] Adam: Yeah.
 
@@ -556,7 +556,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:17:20] Norm: I've seen that,
 
-[00:17:24] Adam: Um, and that's not a very expensive kit. Next time I see it in the junkyard, I'll let you know.
+[00:17:24] Adam: And that's not a very expensive kit. Next time I see it in the junkyard, I'll let you know.
 
 [00:17:28] Norm: Let me know. But I think that I mean it kind of doubles as a hand prop because it was that great promo still where Tony Stark, Robert Downey Jr. , is holding it,
 
@@ -568,13 +568,13 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:17:36] Adam: Yeah.
 
-[00:17:36] Norm: Um, But I love the idea of the the fake electronics on the inside of helmets and masks.
+[00:17:36] Norm: But I love the idea of the fake electronics on the inside of helmets and masks.
 
 [00:17:36] Adam: Yeah. The Darth Vader did a beautiful job in that in episodes two and three.
 
 [00:17:36] Norm: I saw that in person this past weekend.
 
-[00:17:52] Adam: Oh! Oh, really? Oh, at the at the
+[00:17:52] Adam: Oh! Oh, really? Oh, at the
 
 [00:17:54] Norm: there's an
 
@@ -588,7 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:18:00] Adam: Right.
 
-[00:18:00] Norm: And it was originated at the Museum of Science in Boston, and it was props from all the all the Star Wars movies, including full size ships, full size Millennium Falcons, costumes, props. You had Lobot's headgear. Yeah.
+[00:18:00] Norm: And it was originated at the Museum of Science in Boston, and it was props from all the Star Wars movies, including full size ships, full size Millennium Falcons, costumes, props. You had Lobot's headgear. Yeah.
 
 [00:18:27] Will: Is this the stuff that this is originally started? This was in this tour originally originated before the original series.
 
@@ -604,7 +604,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:18:27] Adam: Right, right, right.
 
-[00:18:27] Norm: or how is science taking inspiration from Star Wars? And this one was done in 2006, and it's been traveling for. Almost, you know, eight years now,
+[00:18:27] Norm: or how is science taking inspiration from Star Wars? And this one was done in 2006, and it's been traveling for. Almost eight years now,
 
 [00:18:54] Adam: and it originated at the Boston Museum of Science in Boston, which means it's probably really well written. That's a phenomenal museum,
 
@@ -654,7 +654,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:20:16] Adam: Wow.
 
-[00:20:17] Norm: Um, it was gorgeous.
+[00:20:17] Norm: It was gorgeous.
 
 [00:20:19] Adam: Wow, I have to say, from a model standpoint, it's an easy call: three-foot Millennium Falcon. That is the studio scale main shooting model.
 
@@ -664,9 +664,9 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:20:27] Norm: Yeah.
 
-[00:20:27] Adam: Um, so that wasn't the most common one they used. To the and I actually have some shells of a Falcon that I bought from Tim, from the molds from a wonderful guy named Tim Ketzer who I know. Uh, and it's a long-term plan to put that together. Millennium Falcon, three footer with lights and everything, home run. That's absolutely.
+[00:20:27] Adam: So that wasn't the most common one they used. To the and I actually have some shells of a Falcon that I bought from Tim, from the molds from a wonderful guy named Tim Ketzer who I know. And it's a long-term plan to put that together. Millennium Falcon, three footer with lights and everything, home run. That's absolutely.
 
-[00:20:27] Will: That’s okay. Yeah, that that’s that’s
+[00:20:27] Will: That’s okay. Yeah, that that’s
 
 [00:20:27] Adam: hard to beat.
 
@@ -680,7 +680,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:21:01] Norm: so you could, you, it’s always in front of you.
 
-[00:21:01] Adam: You can buy a three-foot Millennium Falcon. Master replicas made one, and they're really expensive now. Like they become. I, I bought one and I traded it for my Stormtrooper costume years ago. So the problem with the three-foot Millennium Falcon that Master Replicas made was that it was made in like plaster, so it weighed a freaking ton.
+[00:21:01] Adam: You can buy a three-foot Millennium Falcon. Master replicas made one, and they're really expensive now. Like they become. I bought one and I traded it for my Stormtrooper costume years ago. So the problem with the three-foot Millennium Falcon that Master Replicas made was that it was made in like plaster, so it weighed a freaking ton.
 
 [00:21:01] Norm: Oh, that had to be 50 or 60 pounds.
 
@@ -696,7 +696,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:21:41] Will: Yeah.
 
-[00:21:41] Adam: and the Enterprise D is that is that they droop, and you can’t to build tooling to mold a three foot Millennium Falcon is hundreds of thousands of dollars, It's really crazy expensive.
+[00:21:41] Adam: and the Enterprise D is that they droop, and you can’t to build tooling to mold a three foot Millennium Falcon is hundreds of thousands of dollars, It's really crazy expensive.
 
 [00:22:05] Will: And They'll sell what 5,000 of them at most.
 
@@ -718,7 +718,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:23:03] Norm: Wow,
 
-[00:23:03] Adam: that has been figured out. Every nut, every bolt, every wheel rim, every everything. And if you purchased all of the 130 some odd kits that it came from, you'd spend something like $7,000 or $8,000. It's ridiculous. And some people have made castings of stuff, and on the RPF parts lots show up from time to time. Like you know, I managed to get the Porsche transmission that is on both the right and left side of the loading mandibles for the Falcon and stuff like that. But I am not going for a perfect fidelity to the three-foot shooting model, because the three-foot shooting model does not have a perfect fidelity to the six-foot shooting model. Does not have a perfect fidelity to the two-foot, one-foot. At ILM, when you had to do this, you'd get the major details right, and you'd fill the other stuff in because nobody's really paying that close attention.
+[00:23:03] Adam: that has been figured out. Every nut, every bolt, every wheel rim, every everything. And if you purchased all of the 130 some odd kits that it came from, you'd spend something like $7,000 or $8,000. It's ridiculous. And some people have made castings of stuff, and on the RPF parts lots show up from time to time. Like I managed to get the Porsche transmission that is on both the right and left side of the loading mandibles for the Falcon and stuff like that. But I am not going for a perfect fidelity to the three-foot shooting model, because the three-foot shooting model does not have a perfect fidelity to the six-foot shooting model. Does not have a perfect fidelity to the two-foot, one-foot. At ILM, when you had to do this, you'd get the major details right, and you'd fill the other stuff in because nobody's really paying that close attention.
 
 [00:23:03] Norm: Well,
 
@@ -750,7 +750,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:24:38] Norm: And are there things that you feel like you're going to replace because it's not good enough?
 
-[00:24:38] Adam: Ah, you know, I have a really well. There's always stuff that I'm going to replace because it's not good enough, but it's that list gets smaller and smaller. I have a fourth category, which is things from the world that I've always wanted. Like last year, I picked up a Curta hand computer. Did we do a piece on the Curta computer?
+[00:24:38] Adam: Ah I have a really well. There's always stuff that I'm going to replace because it's not good enough, but it's that list gets smaller and smaller. I have a fourth category, which is things from the world that I've always wanted. Like last year, I picked up a Curta hand computer. Did we do a piece on the Curta computer?
 
 [00:25:04] Unknown speaker: No.
 
@@ -760,9 +760,9 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:24:38] Unknown speaker: We did the IBM tubes. We should definitely do the Curta.
 
-[00:25:10] Adam: It’s an amazing little machine. Um, an Enigma, cryptography machine, German Enigma.
+[00:25:10] Adam: It’s an amazing little machine. An Enigma, cryptography machine, German Enigma.
 
-[00:25:10] Will: Did you know about the the Enigma emulator on Kickstarter right now?
+[00:25:10] Will: Did you know about the Enigma emulator on Kickstarter right now?
 
 [00:25:10] Adam: Not only did I know about it, I immediately put in my. I want to be one of the highest level funders. I want the complete finished box.
 
@@ -780,7 +780,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:25:46] Will: I mean, I assume
 
-[00:25:46] Adam: there are there are enough about where, but 10 years ago you could have picked up an Enigma for about $20,000.
+[00:25:46] Adam: there are enough about where, but 10 years ago you could have picked up an Enigma for about $20,000.
 
 [00:25:46] Will: That that actually seems like a it’s expensive
 
@@ -792,7 +792,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:25:46] Will: Oh yeah,
 
-[00:25:46] Adam: and then just more interest in that kind of old stuff. They’re they’re more now. I’d say more in the $25,000 to $35,000 range now. You know, never say never. I might pick find one in a thrift store in Vale someday. Who knows? So that’s objects, right? Like old cray.
+[00:25:46] Adam: and then just more interest in that kind of old stuff. They’re more now. I’d say more in the $25,000 to $35,000 range now. Never say never. I might pick find one in a thrift store in Vale someday. Who knows? So that’s objects, right? Like old cray.
 
 [00:25:46] Norm: And old—
 
@@ -802,13 +802,13 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:26:23] Norm: And to be clear, we don't need the original. We're not about talking about owning the original prop or the original object, but a replica of something emblematic of that.
 
-[00:26:23] Adam: This is true. Well, when it comes to costume, it's always it's always this. there's stuff in progress that I still want to put on, like. Uh, alien spacesuit still not quite finished. Close, still not quite finished. Iron Man Mark Three armor still not quite finished.
+[00:26:23] Adam: This is true. Well, when it comes to costume, it's always this. there's stuff in progress that I still want to put on, like. Alien spacesuit still not quite finished. Close, still not quite finished. Iron Man Mark Three armor still not quite finished.
 
-[00:26:48] Norm: When you say putting on, putting on is the final step.
+[00:26:48] Norm: When you say putting on is the final step.
 
 [00:26:51] Adam: I mean, putting on and wearing somewhere,
 
-[00:26:52] Norm: and and that that then achieves the
+[00:26:52] Norm: and that that then achieves the
 
 [00:26:52] Adam: Absolutely.
 
@@ -822,9 +822,9 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:27:11] Will: I don't think I'd ever. I think I'd be too afraid to ride it. I would just like to have it. Oh yeah, if you need me, I'll be in the garage working on my jetpack.
 
-[00:27:17] Adam: You know, as far as hand props go, I'm trying to think about a hand prop that. I mean, really, I'm working on most of my favorite ones, but I'm trying to think if there's one I don't have any of that I really would love, and I'm just going to have to think about that because I'm not sure one immediately springs to mind.
+[00:27:17] Adam: As far as hand props go, I'm trying to think about a hand prop that. I mean, really, I'm working on most of my favorite ones, but I'm trying to think if there's one I don't have any of that I really would love, and I'm just going to have to think about that because I'm not sure one immediately springs to mind.
 
-[00:27:17] Will: I mean, you, you like if you look at the things that we know are your favorite movies. You have Pulp Fiction. You you have the the a good collection of the key items. Maybe maybe not the perfect Jules gun. Maybe not you know the the perfect pack of cigarettes. Actually the cigarettes are
+[00:27:17] Will: I mean, you like if you look at the things that we know are your favorite movies. You have Pulp Fiction. You have the a good collection of the key items. Maybe maybe not the perfect Jules gun. Maybe not you know the perfect pack of cigarettes. Actually the cigarettes are
 
 [00:27:17] Adam: Red apple cigarettes. actually
 
@@ -846,13 +846,13 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:28:00] Norm: Things that you can Put on your desk.
 
-[00:28:44] Adam: I mean, that's the problem for me. Why I've never made an Ark of the Covenant because it's giant and it's just it's way. There's literally nowhere I could put it in here. You know, I achieved the Terminator last year. I definitely want a. Well, there’s also furniture, right? I mean, I’m. I’m. We’re going to do a build on this.
+[00:28:44] Adam: I mean, that's the problem for me. Why I've never made an Ark of the Covenant because it's giant and it's just it's way. There's literally nowhere I could put it in here. I achieved the Terminator last year. I definitely want a. Well, there’s also furniture, right? I mean, I’m. I’m. We’re going to do a build on this.
 
 [00:28:52] Will: Yeah,
 
 [00:28:52] Adam: I’m going to make the captain’s chair from Star Trek.
 
-[00:28:52] Will: Yeah, we we wanted we want to. Oh yeah, we’ll make videos of that.
+[00:28:52] Will: Yeah, we wanted we want to. Oh yeah, we’ll make videos of that.
 
 [00:28:52] Adam: That’s going to happen, and that’s going to happen on.
 
@@ -880,7 +880,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:29:53] Will: So, Aragorn sword. Okay, go to the rings.
 
-[00:29:53] Adam: Another costume. Another costume. Excalibur armor. Aluminum Excalibur armor, which was made by Terry English, who also made the armor from Aliens, the the the the like the samurai helmet armor and the shoulder armor for the Marines and Aliens. He is actually now the royal armorer to the Queen of England.
+[00:29:53] Adam: Another costume. Another costume. Excalibur armor. Aluminum Excalibur armor, which was made by Terry English, who also made the armor from Aliens, the like the samurai helmet armor and the shoulder armor for the Marines and Aliens. He is actually now the royal armorer to the Queen of England.
 
 [00:29:53] Will: Wow.
 
@@ -890,7 +890,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:29:53] Adam: With aluminum sheet, and it’s so beautiful. Nobody’s ever made medieval armor more beautiful, and it has. It’s not very historically accurate. It’s just gorgeous.
 
-[00:30:41] Will: You know, you could probably get the shards of Narsil. That’s the name of the sword.
+[00:30:41] Will: You could probably get the shards of Narsil. That’s the name of the sword.
 
 [00:30:41] Adam: Hmm.
 
@@ -902,7 +902,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:30:41] Norm: I’m not going to touch that.
 
-[00:30:48] Will: Anyway, I bet you could get the broken pieces for less than, uh
+[00:30:48] Will: Anyway, I bet you could get the broken pieces for less than
 
 [00:30:52] Norm: slightly used.
 
@@ -920,9 +920,9 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:31:16] Will: or Mercury gloves for that matter.
 
-[00:31:17] Adam: Right, Mercury era, uh, or even more modern. You know, the fiberglass shell, the stuff that the that the shuttle, the EMUs, the shuttle astronauts wear.
+[00:31:17] Adam: Right, Mercury era or even more modern. You know, the fiberglass shell, the stuff that the shuttle, the EMUs, the shuttle astronauts wear.
 
-[00:31:26] Will: Right, Uh, I, I love those orange, the orange jumpsuit, the pressure suits that they use during launch and take and landing.
+[00:31:26] Will: Right I, I love those orange, the orange jumpsuit, the pressure suits that they use during launch and take and landing.
 
 [00:31:30] Unknown speaker: The emergency pressure suits for, yeah.
 
@@ -938,21 +938,21 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:31:36] Adam: yeah, you are probably,
 
-[00:31:36] Will: you know, at some point go out into the world.
+[00:31:36] Will: At some point go out into the world.
 
-[00:31:52] Adam: Um, I recently met a wonderful photographer, uh, Dan Winters, who is also a space nut like me. We've been trading back and forth space pictures. He's actually gotten to photograph some pretty amazing pieces.
+[00:31:52] Adam: I recently met a wonderful photographer Dan Winters, who is also a space nut like me. We've been trading back and forth space pictures. He's actually gotten to photograph some pretty amazing pieces.
 
 [00:32:04] Unknown speaker: Wow.
 
-[00:32:04] Will: But it's I, yeah, I can't even imagine if you go, if you go into those archives, yeah,
+[00:32:04] Will: But it's I, yeah, I can't even imagine if you go into those archives, yeah,
 
 [00:32:08] Adam: oh yeah, it's great.
 
 [00:32:09] Will: NASA archives.
 
-[00:32:09] Adam: We gotta get, we gotta get you guys into one of those archives.
+[00:32:09] Adam: We gotta get you guys into one of those archives.
 
-[00:32:11] Will: Yeah. You know, we talked, we talked to um, when we were at Houston last year. We talked to one of the guys who run, who ran the equipment
+[00:32:11] Will: Yeah. We talked to when we were at Houston last year. We talked to one of the guys who run, who ran the equipment
 
 [00:32:11] Adam: Yeah.
 
@@ -960,7 +960,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:32:11] Adam: Yeah.
 
-[00:32:11] Will: that they do all the training in. And he, one of the things we’ve talked to him about is like the the archival stuff of the gloves and all that. Like a lot of that stuff just breaks down, and they just don’t know what to do with it.
+[00:32:11] Will: that they do all the training in. And he, one of the things we’ve talked to him about is like the archival stuff of the gloves and all that. Like a lot of that stuff just breaks down, and they just don’t know what to do with it.
 
 [00:32:29] Adam: And we talked about this,
 
@@ -984,21 +984,21 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:32:29] Adam: archive what these original constructions were like.
 
-[00:33:10] Will: Because I mean, one of the things NASA is really good about, you know, they they took a lot of film on the on the moon and on the early early NASA missions, and they still haven't developed some of it. Some of it's still sitting undeveloped because they're like, oh, we'll be better at this 20 years from now. Who knows?
+[00:33:10] Will: Because I mean, one of the things NASA is really good about they took a lot of film on the moon and on the early early NASA missions, and they still haven't developed some of it. Some of it's still sitting undeveloped because they're like, oh, we'll be better at this 20 years from now. Who knows?
 
 [00:33:23] Adam: Exactly. Exactly.
 
-[00:33:24] Will: Um, The, uh, I have to assume that that preservation goes the same way.
+[00:33:24] Will: The I have to assume that that preservation goes the same way.
 
 [00:33:24] Adam: Yeah.
 
-[00:33:24] Will: And I got I I bet a lot of the replica the people who build replicas of of props have the kind of obsessive attention to detail
+[00:33:24] Will: And I got I I bet a lot of the replica the people who build replicas of props have the kind of obsessive attention to detail
 
 [00:33:24] Adam: Oh, yeah, yeah, yeah.
 
 [00:33:24] Will: that you need to go through and recreate this stuff.
 
-[00:33:24] Adam: But There’s a wonderful guy named Tom Spina who has done incredible restorations of some of the original American Werewolf in London props for Bob Burns. Uh, And yeah, there’s wonderful restoration projects that happen on the RPF all the time, and that’s exactly the kind of ethos that I’d love to tap into for NASA.
+[00:33:24] Adam: But There’s a wonderful guy named Tom Spina who has done incredible restorations of some of the original American Werewolf in London props for Bob Burns. And yeah, there’s wonderful restoration projects that happen on the RPF all the time, and that’s exactly the kind of ethos that I’d love to tap into for NASA.
 
 [00:33:54] Will: And even if you don't make something that would that could fly in space, which you don't need, it would be wonderful to have replicas that are high quality that can go in museums and things like that, so that people can actually see what a Mercury suit looked like
 
@@ -1016,7 +1016,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:34:15] Adam: Yes, yeah, that’s fantastic. High fives all around.
 
-[00:34:15] Will: If you want to know about premium memberships on Tested, we have a lot of great behind the scenes information. Tested. Com/slash premium. You should check it out. That’s the list of all the videos we have, Uh, and then also, uh, um, if you would rate us on iTunes, leave a comment.
+[00:34:15] Will: If you want to know about premium memberships on Tested, we have a lot of great behind the scenes information. Tested. Com/slash premium. You should check it out. That’s the list of all the videos we have and then also if you would rate us on iTunes, leave a comment.
 
 [00:34:15] Adam: Please rate us on iTunes.
 
@@ -1024,7 +1024,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:34:15] Adam: Wait, people dislike things on YouTube?
 
-[00:34:15] Will: People, there’s a thumbs down on YouTube. No. Who knew? Um, That'll do it for us this week. Thanks for listening,
+[00:34:15] Will: People, there’s a thumbs down on YouTube. No. Who knew? That'll do it for us this week. Thanks for listening,
 
 [00:34:15] Unknown speaker: Thank you for coming.
 

@@ -34,7 +34,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:01:34] Adam: I totally agree with you.
 
-[00:01:34] Simone: I think you're expecting too much of of their brain capacity.
+[00:01:34] Simone: I think you're expecting too much of their brain capacity.
 
 [00:01:38] Norm: It sounds like that's a philosophy that you could apply not only to internet commenting but to conversation in general.
 
@@ -64,7 +64,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:02:18] Simone: ish. Yeah,
 
-[00:02:19] Adam: you you spent time living there.
+[00:02:19] Adam: you spent time living there.
 
 [00:02:21] Simone: I yeah, I've lived in China for one and a half years. I speak Mandarin Chinese, but in Shenzhen they speak Cantonese. But some people, yeah, most most people can get around on Mandarin as well. But I visited the electronics market there, and a lot of like different hardware startups in Shenzhen. There is a lot of fun stuff going on there, but the electronics market was just like I don't know. It was there was so much stuff.
 
@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:03:15] Norm: Bins full of buttons,
 
-[00:03:17] Simone: bins full of buttons, switches, and then like bigger stuff. I mean, like have like drones and and these like not called hoverboards. Somebody corrected me on it. It's actually called.
+[00:03:17] Simone: bins full of buttons, switches, and then bigger stuff. I mean, like have like drones and these like not called hoverboards. Somebody corrected me on it. It's actually called.
 
 [00:03:28] Norm: Oh no, there is no name for it. Oh, I know you're talking about the two-wheel stabilizing things.
 
@@ -84,19 +84,19 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:03:33] Norm: Yeah, yes.
 
-[00:03:34] Simone: So there's just everything on on all different scales.
+[00:03:34] Simone: So there's just everything on all different scales.
 
 [00:03:38] Adam: Was there something that totally like you were like I didn't know this existed or I didn't know you could buy these? This is awesome.
 
-[00:03:44] Simone: I think there were all there were a lot of stuff that was like that or just like what is the market for these for these products?
+[00:03:44] Simone: I think there were all there were a lot of stuff that was like that or just like what is the market for these products?
 
 [00:03:52] Adam: Oh, cool. Like what?
 
-[00:03:52] Simone: But um, just a lot of different lamps and lights and in all different sizes and colors, and I just don't understand how it is a viable. Business model to have a stand there in one of the markets.
+[00:03:52] Simone: But just a lot of different lamps and lights and in all different sizes and colors, and I just don't understand how it is a viable. Business model to have a stand there in one of the markets.
 
 [00:04:06] Norm: Can you buy individual things, or do you have to buy in bulk?
 
-[00:04:09] Simone: You can buy both, so that's like one of the main benefits. I think it's. I mean, it's individual for [unclear: meat stand / me to stand], but I think that's the one of the biggest differences from Shenzhen from from different or from other electronics places is that you can buy everything from just one piece to like 500,000 pieces. So a lot of hardware startups go there to source parts, and also a lot of makers go there just to check out random cool shit that they can build with.
+[00:04:09] Simone: You can buy both, so that's like one of the main benefits. I think it's. I mean, it's individual for [unclear: meat stand / me to stand] but I think that's the one of the biggest differences from Shenzhen from different or from other electronics places is that you can buy everything from just one piece to like 500,000 pieces. So a lot of hardware startups go there to source parts, and also a lot of makers go there just to check out random cool shit that they can build with.
 
 [00:04:30] Norm: I bet there's got to be a business of people who who just play the middleman who have their database of what's there.
 
@@ -104,7 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:04:36] Norm: You order online, and they go and fill the basket, mail it out,
 
-[00:04:40] Simone: and and also like people just being guides there because it is a very. I mean, if you have like a set list,
+[00:04:40] Simone: and also like people just being guides there because it is a very. I mean, if you have like a set list,
 
 [00:04:45] [unclear speaker]: You need a guide.
 
@@ -112,7 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:04:54] Norm: It's like a Walmart greeter.
 
-[00:04:55] Adam: But I mean, there's also like when you get into when you get into the woods with a place that has that much stuff. Just buying a switch can be a nightmare. You're buying a single like you could even spec. I want a three position toggle. Two position double throw, and that's not nearly enough information.
+[00:04:55] Adam: But I mean, there's also like when you get into the woods with a place that has that much stuff. Just buying a switch can be a nightmare. You're buying a single like you could even spec. I want a three position toggle. Two position double throw, and that's not nearly enough information.
 
 [00:05:12] Simone: Yeah.
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:07:06] Simone: There you go, Rhett Butler. You're missing out on a very hot old guy.
 
-[00:07:11] Adam: I know. I know. So I'm never going to shame anybody for not having seen something. What you need to know about Blade Runner is it's just so radically important to me as a as a as a as a cultural marker. But it doesn't have to be for anybody.
+[00:07:11] Adam: I know. I know. So I'm never going to shame anybody for not having seen something. What you need to know about Blade Runner is it's just so radically important to me as a cultural marker. But it doesn't have to be for anybody.
 
 [00:07:27] Norm: We were not mocking. I think we were very excited at the prospect of being able to
 
@@ -192,7 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:08:24] Simone: Yeah, and I think that I mean in like face-to-face interactions, but also like that's something I see a lot in my like in the comment sections on my YouTube channel or on my Facebook channel. Like, whenever somebody asks something, and they're like, " How did you wire this thing?" Then there's going to be a ton of people coming, like, " How can you not know? I was playing with this when I was seven years old. This is a disgrace to the education system." And I'm like, " That is not the way to go on about it." If people ask questions, and you think it's a stupid question, explain it to them, or like teach them how it's done, and don't mock them for not knowing.
 
-[00:08:58] Adam: And all the smartest people that I've ever met, the most common phrase that comes out of their mouth is, " I don't know." Right, like, oh, I've never heard of that guy you are mentioning. Tell me about him because I'd like to know. I mean, you know, that's like the MIT, the JPL scientists, the NASA scientists. You know, [unclear: science is a method / Scienceism / the scientists] specifically within the scientific community. I don't know is one of the most important places to park your brain.
+[00:08:58] Adam: And all the smartest people that I've ever met, the most common phrase that comes out of their mouth is, " I don't know." Right oh, I've never heard of that guy you are mentioning. Tell me about him because I'd like to know. I mean, you know, that's like the MIT, the JPL scientists, the NASA scientists. [unclear: science is a method / Scienceism / the scientists] specifically within the scientific community. I don't know is one of the most important places to park your brain.
 
 [00:09:24] Simone: Yeah, yeah. So good philosophy here.
 
@@ -208,19 +208,19 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:09:35] Simone: You know what? I only managed to buy two JST connectors.
 
-[00:09:41] Adam: What what pray tell is a JC connector?
+[00:09:41] Adam: What pray tell is a JC connector?
 
 [00:09:44] Simone: JST. So
 
 [00:09:44] Adam: JST.
 
-[00:09:45] Simone: Yeah, so it's just it was for the the pump that I have for the suction cup on one of my robot arms that I use that had broken, and I was like, " Well, this is the right size. I'll just buy it." And it was like, I don't know, a couple of cents, and that was everything I managed to buy. But that's the thing; I just I just get overwhelmed, and I don't like buying stuff. I am just always like. I could kind of. I don't need it. Yeah, I'm. Oh, yeah, I'm the.
+[00:09:45] Simone: Yeah, so it's just it was for the pump that I have for the suction cup on one of my robot arms that I use that had broken, and I was like, " Well, this is the right size. I'll just buy it." And it was like, I don't know, a couple of cents, and that was everything I managed to buy. But that's the thing; I just get overwhelmed, and I don't like buying stuff. I am just always like. I could kind of. I don't need it. Yeah, I'm. Oh, yeah, I'm the.
 
 [00:10:08] Adam: I love buying stuff. I'm. Yeah, you're. I get an endorphin rush. I try and keep it to about two to three packages a day.
 
 [00:10:14] Simone: How much of a hoarder are you?
 
-[00:10:16] Adam: Um, I am not. I'm not a hoarder in the traditional sense. That I'm afraid to get rid of stuff. I am happy to get rid of stuff. In fact, um, people, friends of mine who visit this shop will attest that I love giving stuff away. I'll be like, " Oh, you're interested in that? I've got one upstairs," and I'll, I like hand it over. Like I don't mind getting rid and dumping whole amounts of stuff in my old in my storage space over and elsewhere in the mission. I got rid of five truckloads of stuff just three months ago.
+[00:10:16] Adam: I am not. I'm not a hoarder in the traditional sense. That I'm afraid to get rid of stuff. I am happy to get rid of stuff. In fact people, friends of mine who visit this shop will attest that I love giving stuff away. I'll be like, " Oh, you're interested in that? I've got one upstairs," and I'll, I like hand it over. Like I don't mind getting rid and dumping whole amounts of stuff in my old in my storage space over and elsewhere in the mission. I got rid of five truckloads of stuff just three months ago.
 
 [00:10:42] Simone: Oh wow!
 
@@ -228,7 +228,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:11:08] Norm: Collect your badges from conferences.
 
-[00:11:09] Adam: I have my my lanyard of holding of every badge I've ever gotten from every conference I've ever been to, going back to working as a PA at the Emmys, that the Grammys in 1986.
+[00:11:09] Adam: I have my lanyard of holding of every badge I've ever gotten from every conference I've ever been to, going back to working as a PA at the Emmys, that the Grammys in 1986.
 
 [00:11:19] Simone: Oh, wow!
 
@@ -258,15 +258,15 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:11:38] [unclear speaker]: no,
 
-[00:11:38] Adam: no. What? Well, one of so what? One of the ways I'm dealing with my collecting is right now I'm archiving my costume collection, in which every piece is being photographed, serial numbered, put into an Evernote document that I can annotate, so I know where everything is. I know what I have, and I have a comprehensive list of it. And we're going to then do it with all the props in these. Cabinets, and this is partially for posterity. It's a fairly there's a large collection here. It is also for being able to disperse other stuff that I have. Like when I'm building a costume, like Clint Eastwood's Man with No Name costume, I ended up with like four different engineer shirts to find the one that made the most sense for me for that costume. That means there's three I don't need. Um,
+[00:11:38] Adam: no. What? Well, one of so what? One of the ways I'm dealing with my collecting is right now I'm archiving my costume collection, in which every piece is being photographed, serial numbered, put into an Evernote document that I can annotate, so I know where everything is. I know what I have, and I have a comprehensive list of it. And we're going to then do it with all the props in these. Cabinets, and this is partially for posterity. It's a fairly there's a large collection here. It is also for being able to disperse other stuff that I have. Like when I'm building a costume, like Clint Eastwood's Man with No Name costume, I ended up with like four different engineer shirts to find the one that made the most sense for me for that costume. That means there's three I don't need.
 
-[00:12:26] Norm: they they make up the story of that costume build,
+[00:12:26] Norm: they make up the story of that costume build,
 
-[00:12:28] Adam: right? But I don't know. I I don't need to keep those parts, and I don't want to throw them away because I'm not wasteful. But I I think I am going to either start an Etsy store or an eBay account in which I let go of this stuff.
+[00:12:28] Adam: right? But I don't know. I don't need to keep those parts, and I don't want to throw them away because I'm not wasteful. But I I think I am going to either start an Etsy store or an eBay account in which I let go of this stuff.
 
 [00:12:43] Simone: As Adam Savage, are you going to have?
 
-[00:12:45] Adam: That's a that's a good question because I I think so because I think what I'd really like to do is I don't need to sell the stuff like I'm I'm doing okay.
+[00:12:45] Adam: That's a good question because I I think so because I think what I'd really like to do is I don't need to sell the stuff like I'm I'm doing okay.
 
 [00:12:54] Norm: You can trade.
 
@@ -278,7 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:13:16] Simone: Yeah, I think that's one of the nice things. I mean, you were showing me around your workshop a little bit earlier today. It's like every piece is. I mean, it comes with a story.
 
-[00:13:24] Adam: Yeah, and when I have I hold fundraisers in this space occasionally, and one of the things I do in that fundraiser is just spend two hours answering questions about anything anyone's pointing at, and that's the thing is, as as filled as this space is, I have a story about every object in here. It's why I have trouble remembering shit. So, so Shenzhen, is there something about it you anticipated that didn't come to fruition, or some aspect of it that really surprised you?
+[00:13:24] Adam: Yeah, and when I have I hold fundraisers in this space occasionally, and one of the things I do in that fundraiser is just spend two hours answering questions about anything anyone's pointing at, and that's the thing is, as filled as this space is, I have a story about every object in here. It's why I have trouble remembering shit. So, so Shenzhen, is there something about it you anticipated that didn't come to fruition, or some aspect of it that really surprised you?
 
 [00:13:57] Simone: I think overall, I mean, as I said before, I I kind of expected there to be a little bit more of a structure to it. That it's like, okay, this is the area where you can buy this type of stuff, and and there is like a little bit of it, but it's also just very. I mean, I don't. I'm not sure about this, but I don't think that there's an overall organization that like organizes the market that there is. It's just individual shops and people renting. It's very organic, and so there's not really an overall structure to it, and I think that really surprised me. Hmm. But but yeah,
 
@@ -292,7 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:14:37] Adam: yeah, it's hard to remember your beginner's mind.
 
-[00:14:39] Simone: Yeah, and that's always. I mean, I I tend to actually write down whenever I meet a new person, uh, or go to a new space or start a new job. I tend to write down my expectations before I actually meet the person or go to the place. That's a new friend. But it's this really fun thing to go back to and be like. Oh right, I imagine it as being this because as soon, I mean, just like coming to your shop, I mean, you've had like some sort of mental image of what it looks like, and now it's completely gone. It's just replaced with like, okay, this is what it actually looks like.
+[00:14:39] Simone: Yeah, and that's always. I mean, I I tend to actually write down whenever I meet a new person or go to a new space or start a new job. I tend to write down my expectations before I actually meet the person or go to the place. That's a new friend. But it's this really fun thing to go back to and be like. Oh right, I imagine it as being this because as soon, I mean, just like coming to your shop, I mean, you've had like some sort of mental image of what it looks like, and now it's completely gone. It's just replaced with like, okay, this is what it actually looks like.
 
 [00:15:05] Adam: This is something I told one of my sons. I said, " Okay, here's a mental exercise. You've been in your school now for five years. Think about when you first entered your school. Okay, he was doing that. Okay, now think about what your expectations were about how school would go. And he said, 'Okay.' And I said, 'Now, how close were you?'" And he was like, " Way off." And I was like, " Right, that process will continue for the rest of your life."
 
@@ -304,7 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:15:39] Norm: They. They. Yeah.
 
-[00:15:40] Simone: I mean, I I feel that that just would like um I mean I I've done I haven't done electronics or hardware for that long, but I still I really forgotten what it was like in the beginning, and I found some some of my notes from the projects that I did in the start and some of the questions I had, and it just I'm like. Oh my god, I was so clueless, and it's such a great feeling because you feel that you've done some sort of progress. Because I feel in some part of me feels I haven't learned anything, and then when you're looking back, you're like, " Wow."
+[00:15:40] Simone: I mean, I I feel that that just would like I mean I I've done I haven't done electronics or hardware for that long, but I still I really forgotten what it was like in the beginning, and I found some some of my notes from the projects that I did in the start and some of the questions I had, and it just I'm like. Oh my god, I was so clueless, and it's such a great feeling because you feel that you've done some sort of progress. Because I feel in some part of me feels I haven't learned anything, and then when you're looking back, you're like, " Wow."
 
 [00:16:05] Adam: Well, and it's I think this comes down to one of these things I think about a lot, which is expertise isn't about knowledge; it's knowledge of what are the proper questions to ask,
 
@@ -320,21 +320,21 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:17:09] Adam: So just knowing what, so now you know what questions to go and Google.
 
-[00:17:12] Simone: Yeah, what questions to ask? And I remember that when I started teaching myself, it was really like I did not know what to Google, or I didn't know how to break down a problem into problems I could actually solve. And it's just like googling, like it doesn't work, is not going to generate any good replies. And I think just being able to post the right questions is, I mean, that's that's the thing you're going to do. I mean, especially when it's a field that's evolving so fast, you're not going to know the answers. You just need to know how to post the questions.
+[00:17:12] Simone: Yeah, what questions to ask? And I remember that when I started teaching myself, it was really like I did not know what to Google, or I didn't know how to break down a problem into problems I could actually solve. And it's just like googling, like it doesn't work, is not going to generate any good replies. And I think just being able to post the right questions is, I mean, that's the thing you're going to do. I mean, especially when it's a field that's evolving so fast, you're not going to know the answers. You just need to know how to post the questions.
 
 [00:17:38] Adam: I do think it's funny that when I'm having a problem, occasionally I'll be like, " Ah, why isn't this working?" So I'll go to Google and I'll just say something like, " Why does," and it will auto finish. iTunes suck. And I'm like, well, that. Darn it! Everyone else is asking that question. That means it doesn't have an answer.
 
-[00:17:55] Norm: You know, and I think also if you use Chrome, the autofill is contextual based on the page you're currently on. So it really is like finding a map.
+[00:17:55] Norm: And I think also if you use Chrome, the autofill is contextual based on the page you're currently on. So it really is like finding a map.
 
 [00:18:04] Adam: Oh, really?
 
-[00:18:04] Norm: If you are searching from, if you're on a forum, and and then you start typing in the search box,
+[00:18:04] Norm: If you are searching from, if you're on a forum, and then you start typing in the search box,
 
 [00:18:10] Adam: yeah, yeah,
 
 [00:18:10] Norm: the autocomplete or what people who are on that page have searched.
 
-[00:18:14] Adam: Yeah, I I am in Chrome. That's that's exactly. I noticed that it's sort of very prescient. Yeah.
+[00:18:14] Adam: Yeah, I I am in Chrome. That's exactly. I noticed that it's sort of very prescient. Yeah.
 
 [00:18:20] Simone: Do you Google yourselves a lot?
 
@@ -346,7 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:18:23] Simone: I'm wondering what the auto completes for that would be.
 
-[00:18:26] Adam: Um, in the I I do know because people told me that in the first few years of MythBusters, the most frequent autocomplete for searches of my and Jamie's name is, " Are they married?".
+[00:18:26] Adam: In the I I do know because people told me that in the first few years of MythBusters, the most frequent autocomplete for searches of my and Jamie's name is, " Are they married?"
 
 [00:18:36] Simone: Oh, what?
 
@@ -354,7 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:18:37] Simone: Really.
 
-[00:18:37] Adam: Um, in the very beginning days of MythBusters, Jamie and I were. A lot of people wondered if we were gay, and thought we were a couple. Yeah, I actually somebody sent me a discussion on a bear website. Um, a bear is a specific subset of the homosexual community. They Large men with big beards. They're that's. I don't know how they self-identify, but bears are awesome. They're generally, you know, they're not scary. They they sometimes have a scary look about them because they're big guys with beards. But there's a bear forum that a friend of mine sent me a discussion about Jamie, and they were.
+[00:18:37] Adam: In the very beginning days of MythBusters, Jamie and I were. A lot of people wondered if we were gay, and thought we were a couple. Yeah, I actually somebody sent me a discussion on a bear website. A bear is a specific subset of the homosexual community. They Large men with big beards. They're that's. I don't know how they self-identify, but bears are awesome. They're generally they're not scary. They sometimes have a scary look about them because they're big guys with beards. But there's a bear forum that a friend of mine sent me a discussion about Jamie, and they were.
 
 [00:19:14] Norm: Turns out, Adam, you're the cub. You didn't know.
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:19:21] Adam: Yeah. Also, the reason not to Google yourself is that there's a bunch of Adam and Jamie slash fic out there.
 
-[00:19:26] Simone: What is, what is that?
+[00:19:26] Simone: What is that?
 
 [00:19:27] Adam: Slash? That's fan fiction in which Jamie sexual fan fiction.
 
@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:19:41] Simone: All right.
 
-[00:19:42] Adam: So you know whether it's whether it's Frozen or Colonel Sanders or MythBusters, there you're going to find some fan fiction pornography of that thing. Of that subset,
+[00:19:42] Adam: So you know whether it's Frozen or Colonel Sanders or MythBusters, there you're going to find some fan fiction pornography of that thing. Of that subset,
 
 [00:19:55] Simone: people are weird.
 
@@ -394,7 +394,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:20:08] Simone: You know what? I think that is a very good thing that you're not interested in seeing that.
 
-[00:20:13] Adam: Chris Hardwick also describes doing Google searches for yourself or reading comments of your articles about you as cutting. Like you know, cutting.
+[00:20:13] Adam: Chris Hardwick also describes doing Google searches for yourself or reading comments of your articles about you as cutting. Like cutting.
 
 [00:20:21] Simone: Oh, really? Like self harm?
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:21:37] Adam: the facts.
 
-[00:21:38] Norm: Um. Oh. We haven't talked about this since recorded last, but before recording, we're talking about books. Like you read The Martian, Simone.
+[00:21:38] Norm: Oh. We haven't talked about this since recorded last, but before recording, we're talking about books. Like you read The Martian, Simone.
 
 [00:21:47] Simone: Yeah.
 
@@ -456,7 +456,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:21:52] Norm: I hope you enjoyed both.
 
-[00:21:54] Simone: I I really did. I think it was the book was. I mean, I think just the story behind the book of it just being a guy writing it as a hobby who's not a professional writer, and he just really got into all the different problems that staying and surviving on Mars would pose.
+[00:21:54] Simone: I really did. I think it was the book was. I mean, I think just the story behind the book of it just being a guy writing it as a hobby who's not a professional writer, and he just really got into all the different problems that staying and surviving on Mars would pose.
 
 [00:22:07] Adam: Yeah,
 
@@ -478,13 +478,13 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:23:16] Norm: And in the movie, I think you get a little bit of that because and Matt Damon delivers it perfectly because he talks about being the first person to do this, the first person to do that, and he ends with " I'm the first person to ever be alone on a planet." And when he says that, it's you feel it.
 
-[00:23:29] Adam: And and actually, in the book, I think it gets much deeper into that where he's cursing all the time and complaining and. But friends of mine who are astronauts have said there is no book that exemplifies the astronauts' way of the ideal astronauts' way of thinking than that book.
+[00:23:29] Adam: And actually, in the book, I think it gets much deeper into that where he's cursing all the time and complaining and. But friends of mine who are astronauts have said there is no book that exemplifies the astronauts' way of the ideal astronauts' way of thinking than that book.
 
 [00:23:45] Simone: Oh, really? Because it is very like okay, all everything is fucked up, but I'm just going to focus on the problem at hand.
 
 [00:23:51] Adam: Exactly, precisely,
 
-[00:23:53] Norm: and we were big fans of The Martian, both the book and the movie, last year. You know, um. Adam interviewed Andy Weir, and we did a bunch of events around it. And another book that we were also equally obsessed with is Seveneves
+[00:23:53] Norm: and we were big fans of The Martian, both the book and the movie, last year. Adam interviewed Andy Weir, and we did a bunch of events around it. And another book that we were also equally obsessed with is Seveneves
 
 [00:24:05] Adam: Yes.
 
@@ -516,7 +516,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:24:53] Simone: so they don't follow a character.
 
-[00:24:55] Norm: They they do they do, and we don't want to spoil too much about it, but The thing that you talk about about wanting to have some of that psychological trauma and implications of this.
+[00:24:55] Norm: They do, and we don't want to spoil too much about it, but The thing that you talk about about wanting to have some of that psychological trauma and implications of this.
 
 [00:25:05] Simone: I want the psychological trauma.
 
@@ -528,7 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:25:15] Adam: it's written by Neal Stephenson, who's famous for, along with William Gibson, establishing cyberpunk as a literary genre with Snow Crash, The Diamond Age, Cryptonomicon. He's one of my favorite writers. Neal's also a good friend. I actually saw him last week up in Seattle, and we were talking about the the Seveneves back then before it was announced. It was very exciting. It's a great team to put that movie to take that book and put it on screen. I I still wonder how they're going to do.
 
-[00:25:46] Norm: I know in two hours. That's that's you got to break it up. I feel like it's got to be a trilogy.
+[00:25:46] Norm: I know in two hours. That's you got to break it up. I feel like it's got to be a trilogy.
 
 [00:25:51] Adam: I don't know. I have no idea. I this is not something that I know. It's a lot of material to cover. And the book has three distinct parts to it.
 
@@ -576,11 +576,11 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:28:17] [unclear speaker: Norm / Simone]: Okay.
 
-[00:28:17] Adam: Oh my God, the Prime Suspect shows are amazing, and there's like five of five different series, and they're long. Each one is five or six hours long or more, and they're about an aging female detective in the British in the British police department, the English police department, dealing with being being female, dealing with male dominated industry, dealing with growing older, and it's it's wonderful. And again, you do get a character that can contradict themselves over the course of the thing.
+[00:28:17] Adam: Oh my God, the Prime Suspect shows are amazing, and there's like five of five different series, and they're long. Each one is five or six hours long or more, and they're about an aging female detective in the British police department, the English police department, dealing with being being female, dealing with male dominated industry, dealing with growing older, and it's wonderful. And again, you do get a character that can contradict themselves over the course of the thing.
 
 [00:28:51] Norm: I feel like we all need those Captain America notebooks. Writing down the pop culture references, you see the Winter Soldier, and then listing out all the things, the holes that we each need to fill for ourselves.
 
-[00:29:01] Adam: Did you see Captain America, the the first one?
+[00:29:01] Adam: Did you see Captain America, the first one?
 
 [00:29:04] Simone: No.
 
@@ -600,11 +600,11 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:29:49] Adam: [unclear: thing / yeah / I think we can help you]
 
-[00:29:51] Simone: because moving here from Sweden, it's a lot. Because I mean, also it's I have a fairly American accent, and sometimes people mistake me for being American. And then I just lack some like very obvious piece of knowledge. I mean, just somebody being like, " Oh, I'm from Oregon," and I'm like, " Yeah, really? Where's that?" And they're like, " Who is this girl?" Or like beginning like when I moved to San Francisco the first time, and I was paying for something in a store, and she was like, " Yeah, it's $1.50 or whatever," and I was just like going through the coins, and I was like, " What's this little guy?"
+[00:29:51] Simone: because moving here from Sweden, it's a lot. Because I mean, also it's I have a fairly American accent, and sometimes people mistake me for being American. And then I just lack some like very obvious piece of knowledge. I mean, just somebody being like, " Oh, I'm from Oregon," and I'm like, " Yeah, really? Where's that?" And they're like, " Who is this girl?" Or beginning like when I moved to San Francisco the first time, and I was paying for something in a store, and she was like, " Yeah, it's $1.50 or whatever," and I was just like going through the coins, and I was like, " What's this little guy?"
 
 [00:30:21] [unclear speaker]: Okay, yeah, so that's it.
 
-[00:30:24] Simone: How many cents are there in a in a in a dime? No dimes, and I I still don't know actually.
+[00:30:24] Simone: How many cents are there in a dime? No dimes, and I I still don't know actually.
 
 [00:30:28] Adam: Ten.
 
@@ -644,17 +644,17 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:31:07] Adam: I think that's a great place to stop.
 
-[00:31:07] Norm: I think so as well. We're going to start building that notebook. Um, and thank you guys for watching.
+[00:31:07] Norm: I think so as well. We're going to start building that notebook. And thank you guys for watching.
 
 [00:31:13] Adam: Hey, put your suggestions for bits of American culture that Simone should know about down below and keep it clean, people.
 
 [00:31:20] Simone: Yes, greatly appreciated.
 
-[00:31:21] Norm: Yes, and stuff for us as well. We always love taking recommendations. Photos of workshops. Uh, we we want to share those as well.
+[00:31:21] Norm: Yes, and stuff for us as well. We always love taking recommendations. Photos of workshops. We want to share those as well.
 
-[00:31:29] Adam: Now this podcast is airing. Um, we have gone to Australia. I'm actually still traveling while this podcast airs. But is there anything that folks should know about what's going up on Tested this week?
+[00:31:29] Adam: Now this podcast is airing. We have gone to Australia. I'm actually still traveling while this podcast airs. But is there anything that folks should know about what's going up on Tested this week?
 
-[00:31:39] Norm: Yeah, we have another project with our friend Frank Ippolito. Um, he teaches rotocasting, so we'll have that video on the site.
+[00:31:39] Norm: Yeah, we have another project with our friend Frank Ippolito. He teaches rotocasting, so we'll have that video on the site.
 
 [00:31:46] Adam: That's fabulous.
 

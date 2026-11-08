@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:02:45] Will: Norm doesn't know what we're talking about here.
 
-[00:02:45] Norm: I also had National Geographic. I recognize. I respect the yellow magazine. Build doll houses or small like. You know, miniature houses or miniature furniture around, and kids would love that. It's perfect for imagination.
+[00:02:45] Norm: I also had National Geographic. I recognize. I respect the yellow magazine. Build doll houses or small like. Miniature houses or miniature furniture around, and kids would love that. It's perfect for imagination.
 
 [00:03:02] Adam: It is a long, unfinished project. I have around here somewhere a set of 1/24 scale blueprints of the house that I grew up in. That I I would like to build a half. So dollhouse is one twelfth scale.
 
@@ -86,7 +86,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:03:34] Will: Right. Otherwise, it would fill a room.
 
-[00:03:36] Adam: Right. Right. Right. So I mean, you know, for instance, a standard like 20 by 40 foot lot would, in dollhouse scale, would be you know almost four feet long,
+[00:03:36] Adam: Right. Right. Right. So I mean for instance, a standard like 20 by 40 foot lot would, in dollhouse scale, would be you know almost four feet long,
 
 [00:03:44] Unknown speaker: Mm-hmm.
 
@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:03:45] Will: Well, one one foot equals one inch.
 
-[00:03:47] Adam: Yeah, it's really straightforward. Yeah. So I would go half scale to that 1/24 scale, where a human would be three inches tall, and the house I grew up in would be. A really substantial model, but it's it's something I want to do. My mom sold the house I grew up in a few years ago because it's just too big to maintain.
+[00:03:47] Adam: Yeah, it's really straightforward. Yeah. So I would go half scale to that 1/24 scale, where a human would be three inches tall, and the house I grew up in would be. A really substantial model, but it's something I want to do. My mom sold the house I grew up in a few years ago because it's just too big to maintain.
 
 [00:04:04] Norm: Do Kenner figure scale.
 
@@ -136,7 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:04:35] Unknown speaker: We have Comic-Con.
 
-[00:04:35] Norm: Yeah, but and and you wrote a review for the site when the movie first came out. But yeah, we've had time to digest it. You've seen it twice now.
+[00:04:35] Norm: Yeah, but and you wrote a review for the site when the movie first came out. But yeah, we've had time to digest it. You've seen it twice now.
 
 [00:04:45] Adam: I've seen it actually three times.
 
@@ -154,7 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:05:14] Adam: Mm-hmm.
 
-[00:05:14] Will: But they did a really, they did a much better job of it than I've ever seen with the post enhanced 3D before. So they didn't shoot it in 3D. It was, it was done, done in post. I saw it in IMAX. It was awesome.
+[00:05:14] Will: But they did a really, they did a much better job of it than I've ever seen with the post enhanced 3D before. So they didn't shoot it in 3D. It was done, done in post. I saw it in IMAX. It was awesome.
 
 [00:05:24] Adam: It is really, really beautiful, isn't it? And the 3D isn't overbearing. Sorry, that's the electrician.
 
@@ -168,7 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:05:47] Will: I haven't seen a movie this widely reviewed in a while.
 
-[00:05:49] Adam: Yeah, you know, there are some people like, ah, what a ridiculous, stupid movie. But for the most part, it seems to me. I mean, and
+[00:05:49] Adam: Yeah there are some people like, ah, what a ridiculous, stupid movie. But for the most part, it seems to me. I mean, and
 
 [00:05:57] Will: just to be clear, I came out and said, " What a ridiculous, stupid movie!"
 
@@ -196,13 +196,13 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:06:32] Adam: Oh, really?
 
-[00:06:32] Norm: The The prop company who made the money for that, because the explosion scene, the money goes everywhere. People picked up that money and used it in casinos, and they got banned for making fake money. Like they can't do it anymore.
+[00:06:32] Norm: The prop company who made the money for that, because the explosion scene, the money goes everywhere. People picked up that money and used it in casinos, and they got banned for making fake money. Like they can't do it anymore.
 
 [00:06:44] Adam: There is a. We should do an article about this because there are some fairly. Impressive restrictions on makers of money in films, and you will notice. Well, there is one design that's been used for the last few dozen years.
 
 [00:06:59] Will: Its like official funny money,
 
-[00:07:00] Adam: and and it's accurate enough that it has been successfully passed many many times. And the Secret Service does not like that. So their their their film money is undergoes a lot of restrictions, and
+[00:07:00] Adam: and it's accurate enough that it has been successfully passed many many times. And the Secret Service does not like that. So their film money is undergoes a lot of restrictions, and
 
 [00:07:12] Norm: this is related. But it's a teaser for a video that we have coming up on Tested in a couple of weeks. But we visited a prop place on our way down to Comic Con,
 
@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:07:21] Adam: right? Right.
 
-[00:07:21] Norm: And they had a room that had a vault behind like bars of just stacks of it must have been several hundred million dollars in fake money wrapped in perfect. And it was it was just like
+[00:07:21] Norm: And they had a room that had a vault behind like bars of just stacks of it must have been several hundred million dollars in fake money wrapped in perfect. And it was just like
 
 [00:07:32] Unknown speaker: the Dark Knight Rises.
 
@@ -220,7 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:07:42] Will: we're in a segue for yeah
 
-[00:07:44] Adam: we're in a segue to a segue to a segue
+[00:07:44] Adam: we're in a segue to a segue
 
 [00:07:46] Will: yeah
 
@@ -228,15 +228,15 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:08:03] Will: Yeah,
 
-[00:08:03] Adam: because I got precisely what I paid my $10 for. Con Air was exactly as advertised, and Pacific Rim is exactly as advertised. It is a genre film. The plot is an arrow. It is, and it is a just a beautiful ride. I I've loved it each time that I've seen it. You know, I love that Guillermo writes strong female characters. Mako is a terrific character
+[00:08:03] Adam: because I got precisely what I paid my $10 for. Con Air was exactly as advertised, and Pacific Rim is exactly as advertised. It is a genre film. The plot is an arrow. It is, and it is a just a beautiful ride. I I've loved it each time that I've seen it. I love that Guillermo writes strong female characters. Mako is a terrific character
 
 [00:08:31] Norm: and great casting.
 
-[00:08:32] Will: It's but but it's if you if it's not like the trailers for this movie depicted a touching love story and a tale of personal growth and development over a tragic setting of a war against some sort of undisclosed monsters. This is this is a movie about giant robots beating the shit out of giant monsters.
+[00:08:32] Will: It's but it's if you if it's not like the trailers for this movie depicted a touching love story and a tale of personal growth and development over a tragic setting of a war against some sort of undisclosed monsters. This is a movie about giant robots beating the shit out of giant monsters.
 
 [00:08:49] Norm: Yes, yes. In interesting ways,
 
-[00:08:51] Adam: Yeah, totally interesting ways. The boat, the boat is such a great bit
+[00:08:51] Adam: Yeah, totally interesting ways. The boat is such a great bit
 
 [00:08:54] Will: when he picks up the yeah,
 
@@ -246,15 +246,15 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:08:59] Adam: Physics be damned.
 
-[00:09:01] Norm: It's the reason you love movies like Independence Day and and Starship Troopers and stuff like that. And you know, Starship Troopers is more akin to this movie in terms of it being it's going to be a cult hit.
+[00:09:01] Norm: It's the reason you love movies like Independence Day and Starship Troopers and stuff like that. And Starship Troopers is more akin to this movie in terms of it being it's going to be a cult hit.
 
-[00:09:10] Adam: Right, right. I I also point out that um, wait, I lost the thread.
+[00:09:10] Adam: Right, right. I also point out that wait, I lost the thread.
 
 [00:09:15] Will: Cult hit
 
 [00:09:16] Norm: the boat the way interesting ways.
 
-[00:09:18] Adam: Oh, right. Sorry. Is that unlike um, let's say a Michael Bay film? Uh, Guillermo doesn't abandon you during the action sequences, and I mean this. Michael Bay's films, and it's terrifically used in a movie like The Rock, where in the action sequence things are cutting so fast and furious that you kind of lose track of where you are. Now, I would defend The Rock as just one of the best.
+[00:09:18] Adam: Oh, right. Sorry. Is that unlike let's say a Michael Bay film? Guillermo doesn't abandon you during the action sequences, and I mean this. Michael Bay's films, and it's terrifically used in a movie like The Rock, where in the action sequence things are cutting so fast and furious that you kind of lose track of where you are. Now, I would defend The Rock as just one of the best.
 
 [00:09:46] Will: I think The Rock is the perfect action. movie.
 
@@ -282,7 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:10:12] Norm: which is so surprising because in Transformers Two, which is the worst culprit of that, they had all they had was time to write the fight scenes because it was during the writer strike, and they couldn't write the script, and so all they could do was choreograph fight scenes.
 
-[00:10:25] Will: But but I think is that part of that is because as older viewers, like I, if I was 12 years old, if I was 10 years old when Transformers came out, I would have watched that movie two dozen times on DVD, and I would be intimately familiar with those characters, and I would be able to look at the robots and I'd see an elbow joint and know, oh, that's got to be Ironhide. Um, and I think I think that like that's a thing that as people who I hope you only watch Transformers maybe twice at most. Like we're not we're outside the audience for that. I think we I think we lose that.
+[00:10:25] Will: But I think is that part of that is because as older viewers, like I, if I was 12 years old, if I was 10 years old when Transformers came out, I would have watched that movie two dozen times on DVD, and I would be intimately familiar with those characters, and I would be able to look at the robots and I'd see an elbow joint and know, oh, that's got to be Ironhide. And I think that like that's a thing that as people who I hope you only watch Transformers maybe twice at most. Like we're not we're outside the audience for that. I think we lose that.
 
 [00:10:57] Adam: It could be
 
@@ -294,15 +294,15 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:11:24] Adam: Sunset behind it, and the the stream running through. Yeah, I really I enjoyed the spit out of it. I love the monsters. I love their their the glowing roar, the advance of their weaponry.
 
-[00:11:39] Will: Well, the bioluminescence stuff, like very clearly, these are monsters that came from the bottom of the ocean. Even if they came from some parallel dimension or through some sort of horrible wormhole or something like that, like these are deep sea monsters. It had You know, it's funny because it made me think of the sequence in Episode One when they go through the center of Naboo,
+[00:11:39] Will: Well, the bioluminescence stuff, like very clearly, these are monsters that came from the bottom of the ocean. Even if they came from some parallel dimension or through some sort of horrible wormhole or something like that, like these are deep sea monsters. It had it's funny because it made me think of the sequence in Episode One when they go through the center of Naboo,
 
 [00:11:55] Adam: right?
 
 [00:11:56] Will: And it's like to me that was my least favorite part of that movie, which I know is you know I don't mean to dig up old stuff.
 
-[00:12:02] Adam: That's a, that's a, that's a high bar, by the way.
+[00:12:02] Adam: That's a high bar, by the way.
 
-[00:12:03] Will: Least favorite part of Episode One, but but those monsters didn't feel real. It felt like oh, we need to have the joke about there's always a bigger fish,
+[00:12:03] Will: Least favorite part of Episode One, but those monsters didn't feel real. It felt like oh, we need to have the joke about there's always a bigger fish,
 
 [00:12:11] Adam: right?
 
@@ -324,9 +324,9 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:12:25] Will: I'll put it in the title again.
 
-[00:12:26] Adam: Yeah, you know, and you're totally right. I will say in IMAX, one of the things that you get to see really clearly, and I think the guys from ILM are all quite proud of this, and they should be, is the water pouring off the bots when it when the hands come together like that. and you watch the rain splatter off in scale. It is. Stunning, in IMAX.
+[00:12:26] Adam: Yeah and you're totally right. I will say in IMAX, one of the things that you get to see really clearly, and I think the guys from ILM are all quite proud of this, and they should be, is the water pouring off the bots when it when the hands come together like that. and you watch the rain splatter off in scale. It is. Stunning, in IMAX.
 
-[00:12:47] Norm: Oh, yeah, and you mentioned that the when he does that like that move, that is a perfect example of something that's impractical. A giant robot should never do that. But the fact you know, there's this awesome you know fist bumping yourself kind of thing.
+[00:12:47] Norm: Oh, yeah, and you mentioned that the when he does that like that move, that is a perfect example of something that's impractical. A giant robot should never do that. But the fact there's this awesome you know fist bumping yourself kind of thing.
 
 [00:12:59] Will: Why should the giant robot never do that?
 
@@ -334,11 +334,11 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:13:08] Unknown speaker: Of course,
 
-[00:13:09] Norm: right? Yeah. One of our friends said, you know, it was a missed opportunity. The robot should have high-fived or fist bumped after beating after beating up a monster together. That would have been a big
+[00:13:09] Norm: right? Yeah. One of our friends said, you know, it was a missed opportunity. The robot should have high-fived or fist bumped after beating up a monster together. That would have been a big
 
 [00:13:18] Adam: That's hilarious.
 
-[00:13:18] Norm: Ooh-rah moment. Um,
+[00:13:18] Norm: Ooh-rah moment.
 
 [00:13:21] Adam: I also really sorry. Go ahead.
 
@@ -356,13 +356,13 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:13:43] Will: That's awesome.
 
-[00:13:43] Norm: And so there is, I presume, in the art book, dozens more creations and. And eventually, they got to the ones that were representative of the characterizations they wanted. But as a creature designer, I'm sure the people working on it, it must have been one of the best jobs in the world.
+[00:13:43] Norm: And so there is, I presume, in the art book, dozens more creations and. And eventually, they got to the ones that were representative of the characterizations they wanted. But as a creature designer, I'm sure the people working on it must have been one of the best jobs in the world.
 
 [00:13:59] Will: So, did ILM do both the robot robots and the creatures, or just the creatures?
 
 [00:14:04] Adam: That is not a question. I know the answer to.
 
-[00:14:05] Will: Okay, because I know that I know that
+[00:14:05] Will: Okay, because I know that
 
 [00:14:07] Adam: they did the robots.
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:15:30] Adam: right? But I mean, they put them on on gantries that are similar to what they transport the space shuttle on and the the Jupiter rockets on.
 
-[00:15:39] Norm: Yeah, people are like looking at the helicopters that would drop them. Oh, the load capacity of that helicopter is 100 tons. Yeah, exactly. You need X number to actually carry that. You know, they did some math.
+[00:15:39] Norm: Yeah, people are like looking at the helicopters that would drop them. Oh, the load capacity of that helicopter is 100 tons. Yeah, exactly. You need X number to actually carry that. They did some math.
 
 [00:15:50] Adam: If you're doing math, I'd say you know you're thinking, look. It's just, it is an absolutely stunning ride. It's my favorite movie of the summer.
 
@@ -416,7 +416,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:16:00] Adam: yeah,
 
-[00:16:00] Will: there was a lot of nitpicking. Like it was, it was a film that critics came out and were like, " Well, you know, blah blah blah," didn't have character development. Why were they building the wall? Blah blah. You know, there was a lot of stuff as with any giant action movie that hundreds of people touch. There is some stuff that doesn't make sense.
+[00:16:00] Will: there was a lot of nitpicking. Like it was a film that critics came out and were like, " Well, you know, blah blah blah," didn't have character development. Why were they building the wall? Blah blah. There was a lot of stuff as with any giant action movie that hundreds of people touch. There is some stuff that doesn't make sense.
 
 [00:16:16] Adam: Yeah,
 
@@ -426,11 +426,11 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:16:22] Will: I see.
 
-[00:16:23] Norm: And you know, it's kind of a little bit of a satire. The bureaucracy. I love that when the the program gets shut down, the Canadian guy is the last word. He's like, " No, you will. We will build our wall."
+[00:16:23] Norm: And it's kind of a little bit of a satire. The bureaucracy. I love that when the program gets shut down, the Canadian guy is the last word. He's like, " No, you will. We will build our wall."
 
-[00:16:33] Adam: Well, and also, Guillermo was very specific about not wanting it to be a military film. So the the guy in charge, Idris Elba's character, isn't a general; he's a marshal that he really sought to stay away from the militarization of the of the defenses. Um.
+[00:16:33] Adam: Well, and also, Guillermo was very specific about not wanting it to be a military film. So the guy in charge, Idris Elba's character, isn't a general; he's a marshal that he really sought to stay away from the militarization of the defenses.
 
-[00:16:50] Norm: I love that each of the. I mean, I wish that the the Russian robot and the the Asian one, the Chinese one, had had more got more screen time and and we're just
+[00:16:50] Norm: I love that each of the. I mean, I wish that the Russian robot and the Asian one, the Chinese one, had had more got more screen time and we're just
 
 [00:16:59] Adam: and I love the design of those. I love the idea that triplets could control three arms. Right.
 
@@ -438,7 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:17:09] Adam: Yeah.
 
-[00:17:09] Norm: And they're just creative, like emblematic emblematic of their the cultures they came from. Um, they had the U.S. one in the montage in the beginning was like a boxer.
+[00:17:09] Norm: And they're just creative, like emblematic emblematic of their the cultures they came from. They had the U.S. one in the montage in the beginning was like a boxer.
 
 [00:17:17] Will: Yeah. So when so was Gipsy Danger the Canadian one or was it another American one?
 
@@ -446,11 +446,11 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:17:22] Will: Okay. It was an earlier model of the American one, right?
 
-[00:17:25] Adam: So yeah, when I was when I visited Guillermo on the set in January of 2012, um, I got a tour of the armor trailer by Shane Mahan from Legacy Effects, and I got to see all of the different suit designs way up close, and the level of detail that the guys from Legacy put into this thing. And just for point of reference, these are the guys that built the Iron Man suits.
+[00:17:25] Adam: So yeah, when I was when I visited Guillermo on the set in January of 2012 I got a tour of the armor trailer by Shane Mahan from Legacy Effects, and I got to see all of the different suit designs way up close, and the level of detail that the guys from Legacy put into this thing. And just for point of reference, these are the guys that built the Iron Man suits.
 
 [00:17:49] Will: Yeah.
 
-[00:17:49] Adam: Right. So they have um a Tremendous amount of intellectual understanding of how to clothe people in armor in ways where the actors don't like start to freak out after a couple of hours, and keep them light, keep them easy to make. The Russian suits—I don't know if you remember in the film, this thing comes down, so the actors. There were two helmets, one that that active actively moved on, and then as soon as that shot was done, they gave the actors actual video goggles so they could see what was going on. At Comic Con, I ran into the guy that played Charlie's brother in the opening scene, the one who gets plucked out, and he was telling me that those that gimbal rig that they were riding on,
+[00:17:49] Adam: Right. So they have a Tremendous amount of intellectual understanding of how to clothe people in armor in ways where the actors don't like start to freak out after a couple of hours, and keep them light, keep them easy to make. The Russian suits—I don't know if you remember in the film, this thing comes down, so the actors. There were two helmets, one that that active actively moved on, and then as soon as that shot was done, they gave the actors actual video goggles so they could see what was going on. At Comic Con, I ran into the guy that played Charlie's brother in the opening scene, the one who gets plucked out, and he was telling me that those that gimbal rig that they were riding on,
 
 [00:18:35] Will: and all of the all of that
 
@@ -458,13 +458,13 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:18:37] Will: yeah that was yeah but we the video was on the site.
 
-[00:18:40] Adam: Excuse me, excuse me.
+[00:18:40] Adam: Excuse me.
 
 [00:18:41] Will: They did.
 
 [00:18:42] Adam: He told me that that that that gimbal that they were riding on was an absolutely terrifying ride and super fun for an actor.
 
-[00:18:49] Will: I have to imagine you were in there just flailing around like like. Well, like a
+[00:18:49] Will: I have to imagine you were in there just flailing around like. Well, like a
 
 [00:18:53] Adam: well, your feet are bolted into this elliptical machine,
 
@@ -484,19 +484,19 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:19:47] Unknown speaker: [unclear: Oh, I could have done that today.]
 
-[00:19:47] Adam: That's that's what I am doing right now.
+[00:19:47] Adam: That's what I am doing right now.
 
 [00:19:48] Will: Make time for IMAX later
 
-[00:19:50] Norm: with with the credit sequence. Theres like one theme that's every time they get into a good fight,
+[00:19:50] Norm: with the credit sequence. Theres like one theme that's every time they get into a good fight,
 
 [00:19:54] Adam: Right.
 
-[00:19:54] Norm: but when they transition to the Russians, it changed like a more Russian anthem theme. So like they they really personalized that.
+[00:19:54] Norm: but when they transition to the Russians, it changed like a more Russian anthem theme. So like they really personalized that.
 
-[00:20:02] Adam: I also loved the fact that most of the master shots felt. You know how when you look at Star Wars and then you go look at the Ralph McQuarrie drawings, you can see where they started and where they ended, right? And actually, I think that the advent of CG, one of the things that has we have benefited from, and if you look at the difference between Episode One Star Wars and Episode Two, Episode Two is not much better, but visually it's stunning. I defend that Episode Two is gorgeous if you watch it with the sound off, and it's stunning because the master shots all really do look like production paintings, where it's not too much going on in each frame. You really your eye is going where it needs to go, but there's a huge amount of detail. And Pacific Rim and Every master shot feels like a beautiful production painting. Tokyo in the distance, the monsters, the water, the rain. ,
+[00:20:02] Adam: I also loved the fact that most of the master shots felt. You know how when you look at Star Wars and then you go look at the Ralph McQuarrie drawings, you can see where they started and where they ended, right? And actually, I think that the advent of CG, one of the things that has we have benefited from, and if you look at the difference between Episode One Star Wars and Episode Two is not much better, but visually it's stunning. I defend that Episode Two is gorgeous if you watch it with the sound off, and it's stunning because the master shots all really do look like production paintings, where it's not too much going on in each frame. You really your eye is going where it needs to go, but there's a huge amount of detail. And Pacific Rim and Every master shot feels like a beautiful production painting. Tokyo in the distance, the monsters, the water, the rain. ,
 
-[00:20:55] Will: Oh even even the sets. The sets are decorated so nicely. You like you can tell. The one of the things I love about a movie like that is that, and this was something that was lacking in Prometheus, is when you're in a different person's cabin, you know whose cabin you're in based on the effects in the room, and it's something I didn't really appreciate until we started talking to you about movies, and and it's kind of shifted the way I watch movies. Like I was watching Pacific Rim during the flashback scene where where Mako meets Idris Elba. I'm looking at the coat on those close ups, and there's just this gorgeous cross stitch on the edge of the blue coat. I was like, this is this is very very clearly a young girl's coat in Japan.
+[00:20:55] Will: Oh even even the sets. The sets are decorated so nicely. You like you can tell. The one of the things I love about a movie like that is that, and this was something that was lacking in Prometheus, is when you're in a different person's cabin, you know whose cabin you're in based on the effects in the room, and it's something I didn't really appreciate until we started talking to you about movies, and it's kind of shifted the way I watch movies. Like I was watching Pacific Rim during the flashback scene where Mako meets Idris Elba. I'm looking at the coat on those close ups, and there's just this gorgeous cross stitch on the edge of the blue coat. I was like, this is very very clearly a young girl's coat in Japan.
 
 [00:21:32] Adam: and that girl,
 
@@ -518,7 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:22:16] Norm: that hero scene. Yeah.
 
-[00:22:17] Adam: We were watching it. My wife was sitting next to me, and as as the girl like holds up her hand, my wife just like she knew she was going to punch me in the arm. She's like, " I know it's coming. This is great. Love it."
+[00:22:17] Adam: We were watching it. My wife was sitting next to me, and as the girl like holds up her hand, my wife just like she knew she was going to punch me in the arm. She's like, " I know it's coming. This is great. Love it."
 
 [00:22:28] Norm: What was your favorite robot?
 
@@ -526,15 +526,15 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:22:31] Norm: Design wise.
 
-[00:22:32] Adam: See, design wise, design wise, I really liked the Japanese robot. I love the three arms. I love the Chinese robot.
+[00:22:32] Adam: See, design wise, I really liked the Japanese robot. I love the three arms. I love the Chinese robot.
 
 [00:22:40] Norm: Oh, the Chinese one.
 
-[00:22:41] Adam: Chinese, sorry. Um,
+[00:22:41] Adam: Chinese, sorry.
 
 [00:22:42] Will: geez, Adam.
 
-[00:22:43] Adam: Sorry. Uh. The exo—I have to say, my favorite exo suits though are the white ones.
+[00:22:43] Adam: Sorry. The exo—I have to say, my favorite exo suits though are the white ones.
 
 [00:22:48] Will: The white ones are gorgeous.
 
@@ -546,11 +546,11 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:23:00] Adam: I have no idea.
 
-[00:23:00] Will: Yeah. I saw. I got to see the black armor on the floor at Comic Con. It was in the corner of the Legacy booth, and and I mean, it's just up close. Like a lot of times, you see the actual props and they don't hold up, and that stuff is so gorgeous.
+[00:23:00] Will: Yeah. I saw. I got to see the black armor on the floor at Comic Con. It was in the corner of the Legacy booth, and I mean, it's just up close. Like a lot of times, you see the actual props and they don't hold up, and that stuff is so gorgeous.
 
-[00:23:14] Adam: No, no, no. Those guys, yeah. Again, we spent some time with the guys from Legacy at at Comic Con Yeah. because they built that robot for Wired. The detail work that they do, that they put in, like you—you can't even see, but it really lends out of the corner of your eye just all this perfect industrial veracity to it.
+[00:23:14] Adam: No, no, no. Those guys, yeah. Again, we spent some time with the guys from Legacy at at Comic Con Yeah. because they built that robot for Wired. The detail work that they do, that they put in, like you can't even see, but it really lends out of the corner of your eye just all this perfect industrial veracity to it.
 
-[00:23:32] Will: Well, and and yeah, the thing that the thing that they said in the video with the robot will be up probably later this week. I would think maybe next week. I can't remember when we have it on the schedule, but like. Their goal is to make it look, make it real, make something that would work if it were real, even if it's a a giant robot with a dude inside. So, yeah, it was it's pretty amazing. the The movie, like, you should go see the movie. Don't go in. Don't expect you're not going to see. It's not the Citizen Kane.
+[00:23:32] Will: Well, and yeah, the thing that they said in the video with the robot will be up probably later this week. I would think maybe next week. I can't remember when we have it on the schedule, but like. Their goal is to make it look, make it real, make something that would work if it were real, even if it's a giant robot with a dude inside. So, yeah, it was it's pretty amazing. the movie you should go see the movie. Don't go in. Don't expect you're not going to see. It's not the Citizen Kane.
 
 [00:24:01] Adam: It's not War and Peace.
 
@@ -558,7 +558,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:24:03] Adam: It's a genre movie, and it is. It's exactly what I said in that review. It is. It is. What it is the ultimate rendition of what 12 year old you wanted during Monster Week.
 
-[00:24:13] Will: Well, and the thing that the thing that I came out of thinking was, oh, this is this is the the crouching tiger of monster movies, right?
+[00:24:13] Will: Well, and the thing that I came out of thinking was, oh, this is the crouching tiger of monster movies, right?
 
 [00:24:20] Adam: Right, right.
 
@@ -594,7 +594,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:25:18] Norm: and a lot like you know you can't do a city destruction movie without evoking 9/11, but the reaction here is very different than you know I wonder if in Japan the Godzilla movies were received in the same way, like you know these people shouldn't be making these movies because it it's too much like it brings back too many bad memories about you know the Holocaust.
 
-[00:25:36] Will: Pacific Rim, most of the most of the destruction. This is if if I had one complaint about the fights in Pacific Rim, it's that most of them happen at dark in in dark in like Bays in the rain.
+[00:25:36] Will: Pacific Rim, most of the destruction. This is if I had one complaint about the fights in Pacific Rim, it's that most of them happen at dark in like Bays in the rain.
 
 [00:25:47] Adam: Yeah,
 
@@ -602,7 +602,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:25:50] Adam: I have no idea. Yeah, that's a good question.
 
-[00:25:52] Will: Yeah, but but there's not a whole lot of actual city destruction. It's usual. It's kind of like a side thing.
+[00:25:52] Will: Yeah, but there's not a whole lot of actual city destruction. It's usual. It's kind of like a side thing.
 
 [00:25:59] Adam: And you got the there's a line. Evacuate the city.
 
@@ -610,13 +610,13 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:26:03] Adam: So you're Reasonably assured that the city is relatively empty, except for well, when Charlie's running from the
 
-[00:26:08] Norm: and it's like this idea of like you know here's our safe zones and just like the wall, it's a false sense of security. Uh huh. But it's it's done in a very secure satirical way.
+[00:26:08] Norm: and it's like this idea of like you know here's our safe zones and just like the wall, it's a false sense of security. Uh huh. But it's done in a very secure satirical way.
 
 [00:26:16] Unknown speaker: Well, it's a metaphor for terrorism.
 
 [00:26:16] Adam: Yeah.
 
-[00:26:17] Will: Right. Yeah. The the the evacuate the city. Just to be clear, completely impossible.
+[00:26:17] Will: Right. Yeah. The evacuate the city. Just to be clear, completely impossible.
 
 [00:26:22] Adam: Of course.
 
@@ -638,11 +638,11 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:26:50] Norm: No, that's not how it would work.
 
-[00:26:52] Will: Yeah, I think all four lanes, baby. Right. Um, Charlie Day. I know you didn't like the scientist too much, Norm. I, I, I loved the comic. Usually, the comic relief falls flat. I loved the scientist, the Torchwood guy. I can't remember what his name is.
+[00:26:52] Will: Yeah, I think all four lanes, baby. Right. Charlie Day. I know you didn't like the scientist too much, Norm. I loved the comic. Usually, the comic relief falls flat. I loved the scientist, the Torchwood guy. I can't remember what his name is.
 
-[00:27:08] Adam: Right, right, right. The the British guy.
+[00:27:08] Adam: Right, right, right. The British guy.
 
-[00:27:09] Will: Um, and then what's his name? Hellboy. Um,
+[00:27:09] Will: And then what's his name? Hellboy.
 
 [00:27:11] Adam: Ron Perlman.
 
@@ -654,11 +654,11 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:27:17] Adam: At the Premiere. He got a very grateful round of applause. Everyone was like, " Oh, Ron's here. It's awesome."
 
-[00:27:22] Will: Oh, and and well, yeah, and then the post credit thing was where's my other shoe? It's so good. So good. So dumb. Um,
+[00:27:22] Will: Oh, and well, yeah, and then the post credit thing was where's my other shoe? It's so good. So good. So dumb.
 
 [00:27:29] Norm: and what I hope is that people, if they watch Pacific Rim and like it, they go back and watch Hellboy again and Hellboy one and two.
 
-[00:27:36] Adam: You know, it's funny because film critics, when they start talking about it, they always bring up Pan's Labyrinth. They say Guillermo del Toro directed Pan's Labyrinth, and then they say. And the Hellboy movies, and then I've heard at least three different critics go, which are really much better than you think they are. If you should go back and take a look at them, which is, I mean, I love that was, I love Hellboy, I love the Hellboy movies, absolute unadulterated affection for those movies.
+[00:27:36] Adam: It's funny because film critics, when they start talking about it, they always bring up Pan's Labyrinth. They say Guillermo del Toro directed Pan's Labyrinth, and then they say. And the Hellboy movies, and then I've heard at least three different critics go, which are really much better than you think they are. If you should go back and take a look at them, which is, I mean, I love that was, I love Hellboy, I love the Hellboy movies, absolute unadulterated affection for those movies.
 
 [00:28:03] Will: I guess that's it.
 
@@ -680,7 +680,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:28:26] Will: There's a subwoofer in the seats, and they're all on little actuators, and they kind of
 
-[00:28:31] Norm: and and it's programmed. So someone watches the movie, and so for a movie like Fast Furious or Fast Five, it's moving as
+[00:28:31] Norm: and it's programmed. So someone watches the movie, and so for a movie like Fast Furious or Fast Five, it's moving as
 
 [00:28:38] Unknown speaker: the car...
 
@@ -700,7 +700,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:28:58] Adam: Oh, it is okay. Good.
 
-[00:28:59] Will: I think we should. I think we should just go to the D box theater at like eight o'clock in the morning and you know, record from the D box theater.
+[00:28:59] Will: I think we should. I think we should just go to the D box theater at like eight o'clock in the morning and record from the D box theater.
 
 [00:29:07] Adam: Amazing. Yes, that's great.
 

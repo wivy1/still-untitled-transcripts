@@ -16,9 +16,9 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:00:11] Will: The hand was just moving ever so slowly.
 
-[00:00:13] Adam: The the the the um the sort of deep ways you guys control each other is is uh is funny.
+[00:00:13] Adam: The sort of deep ways you guys control each other is funny.
 
-[00:00:20] Will: Look, we've known each other for long enough that as you as you have said in the past, we installed each other's switches.
+[00:00:20] Will: Look, we've known each other for long enough that as you have said in the past, we installed each other's switches.
 
 [00:00:20] Adam: Yeah, absolutely.
 
@@ -28,25 +28,25 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:00:28] Will: Yeah. Hey, welcome back.
 
-[00:00:28] Adam: Thank you. Thank you. I've been I've been home for an inordinately long amount of time, like without big trips for like two months. No, no, not even
+[00:00:28] Adam: Thank you. Thank you. I've been home for an inordinately long amount of time, like without big trips for like two months. No, no, not even
 
 [00:00:40] Norm: not not even. But it feels like because it feels like we've seen you a lot when we come to the shop.
 
-[00:00:45] Will: Yeah, I just had a regular like Monday morning date to come over here and and chat for the last few months, which is nice. It's a it's nice to have a schedule.
+[00:00:45] Will: Yeah, I just had a regular like Monday morning date to come over here and chat for the last few months, which is nice. It's a it's nice to have a schedule.
 
-[00:00:51] Adam: It is really nice. Um, but I was just traveling this week with Joey Fameli, we were down in Palm Springs at Jeff Bezos Mars Conference.
+[00:00:51] Adam: It is really nice. But I was just traveling this week with Joey Fameli, we were down in Palm Springs at Jeff Bezos Mars Conference.
 
 [00:01:02] Norm: Now Mars does not mean Mars the planet.
 
 [00:01:04] Adam: No, it stands for machine learning, artificial intelligence, automation, robotics, and space exploration.
 
-[00:01:14] Will: Oh yeah, the four, the four, the most four most important nouns.
+[00:01:14] Will: Oh yeah, the four, the most four most important nouns.
 
-[00:01:18] Adam: Of course, it was about 200 attendees, 200 of the just some of the best people in the world in each of those fields, and it was really wonderful. You know, I guess if you looked at it from outside, it looks a little like TED, right? Because there's talks. You several people make presentations on a couple of the mornings, but the the comparison ends there because this is a much more highly curated in every aspect kind of event where dinners each night you're at a table for six people and you're like. Your place has been.
+[00:01:18] Adam: Of course, it was about 200 attendees, 200 of the just some of the best people in the world in each of those fields, and it was really wonderful. I guess if you looked at it from outside, it looks a little like TED, right? Because there's talks. You several people make presentations on a couple of the mornings, but the comparison ends there because this is a much more highly curated in every aspect kind of event where dinners each night you're at a table for six people and you're like. Your place has been.
 
 [00:01:55] Will: You have assigned seating.
 
-[00:01:56] Adam: You have assigned seating. So you always sit with, in my experience with Amazon events like this, and this is not the first one I've been to. Um, you're always at your table. There's always someone you know, and there's always someone you don't know.
+[00:01:56] Adam: You have assigned seating. So you always sit with, in my experience with Amazon events like this, and this is not the first one I've been to. You're always at your table. There's always someone and there's always someone you don't know.
 
 [00:02:09] Will: So it's like doing a wedding table chart or something, yeah.
 
@@ -72,19 +72,19 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:02:46] Will: That's so cute and menacing.
 
-[00:02:47] Adam: It's really cool. So you got to see how Spot Mini looks at a room. And then estimates the best and and compiles the best way to move through that.
+[00:02:47] Adam: It's really cool. So you got to see how Spot Mini looks at a room. And then estimates the best and compiles the best way to move through that.
 
 [00:02:56] Norm: And does it have a lidar spinner on top of its head?
 
 [00:02:59] Adam: It doesn't have a lidar spinner on top of its head. Some of their bots do. Spot Mini is using a different kind of machine vision, and I don't actually know its specifics. I just know that there wasn't a big spinning thing on its head.
 
-[00:03:10] Norm: Okay. But the the visualization of what it sees in terms of on the stage, because that's a clip I think I saw on Twitter.
+[00:03:10] Norm: Okay. But the visualization of what it sees in terms of on the stage, because that's a clip I think I saw on Twitter.
 
 [00:03:10] Adam: Yeah.
 
 [00:03:10] Norm: Someone posting, it was pretty detailed, and it was more more importantly the decision making it was making in terms of how to navigate the environment. Not just the mapping.
 
-[00:03:24] Adam: And it's it's cool the way it breaks it down. So it looks if there's like posts and stuff like this, it first makes a path for its torso, and then it looks at the ground and separates the ground into steppable space, which is green, and unsteppable space, which is red. So if it's like stones, it's looking for the ones in which they the you know it's flat,
+[00:03:24] Adam: And it's cool the way it breaks it down. So it looks if there's like posts and stuff like this, it first makes a path for its torso, and then it looks at the ground and separates the ground into steppable space, which is green, and unsteppable space, which is red. So if it's like stones, it's looking for the ones in which they the you know it's flat,
 
 [00:03:42] Will: looking at flat, and whether it's like an uneven surface like gravel or roots or something like that.
 
@@ -94,25 +94,25 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:03:48] Adam: And if that cadence doesn't work, it tries a slower one or a faster one until it gets one that seems to work. And it's constantly adjusting this view.
 
-[00:04:07] Norm: So it's it's not standing still, deciding, and then walking. It's doing this while
+[00:04:07] Norm: So it's not standing still, deciding, and then walking. It's doing this while
 
 [00:04:11] Adam: while it's going.
 
-[00:04:12] Will: Wow. When when Norm and I went to that DARPA thing, the robotics challenge, a few years ago, and we were talking to people, one of the things I didn't realize is that most of the robots like always stay over the center of gravity, which is not at all the way normal.
+[00:04:12] Will: Wow. When Norm and I went to that DARPA thing, the robotics challenge, a few years ago, and we were talking to people, one of the things I didn't realize is that most of the robots like always stay over the center of gravity, which is not at all the way normal.
 
 [00:04:12] Adam: Yeah, people don't walk like that.
 
 [00:04:25] Will: We're constantly in a state of falling and just putting the foot out to catch us.
 
-[00:04:29] Adam: And there's this whole thing I can't remember the specifics of it that came out of Cal a long time ago about how all bipedal beings walk in this sort of reverse pendulum mode where you're falling and then you're it's that it's that balance between potential and kinetic energy as you move.
+[00:04:29] Adam: And there's this whole thing I can't remember the specifics of it that came out of Cal a long time ago about how all bipedal beings walk in this sort of reverse pendulum mode where you're falling and then you're it's that balance between potential and kinetic energy as you move.
 
-[00:04:44] Will: Yeah, there's there's a it's all it's all in the hips.
+[00:04:44] Will: Yeah, there's there's a it's all in the hips.
 
 [00:04:47] Adam: It turns out it's all in the hips.
 
 [00:04:48] Norm: It's a fine line between looking like you're drunk and looking like You're walking with intention,
 
-[00:04:52] Adam: or, or in the case of Asimo, looking like you just shit yourself.
+[00:04:52] Adam: or in the case of Asimo, looking like you just shit yourself.
 
 [00:04:56] Norm: Squat.
 
@@ -150,15 +150,15 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:05:37] Norm: and how it's grabbing
 
-[00:05:47] Will: and like. How rigid the the thing is like this versus an aluminum can. The aluminum can it's going to grab it and it'll crush it.
+[00:05:47] Will: and like. How rigid the thing is like this versus an aluminum can. The aluminum can it's going to grab it and it'll crush it.
 
-[00:05:52] Adam: Well, and this that's part of the estimation process. And then talked he talked he showed some of the items that just can't be picked up, like a washer.
+[00:05:52] Adam: Well, and this that's part of the estimation process. And then talked he showed some of the items that just can't be picked up, like a washer.
 
 [00:06:01] Will: Oh, yeah, I can see that
 
 [00:06:02] Norm: because there's two so flat.
 
-[00:06:03] Adam: It's it's so flat. You so there's two ways they can pick it up with a grasp or they can pick it up with a suction cup.
+[00:06:03] Adam: It's so flat. You so there's two ways they can pick it up with a grasp or they can pick it up with a suction cup.
 
 [00:06:03] Will: Yeah,
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:06:15] Will: Oh, interesting.
 
-[00:06:15] Adam: Um, and a bottle of Hershey's chocolate syrup.
+[00:06:15] Adam: And a bottle of Hershey's chocolate syrup.
 
 [00:06:24] Will: There's the can,
 
@@ -196,7 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:07:19] Adam: there was also a couple of amazing talks about gravitational wave detection, both from both using LIGO and also using pulsars,
 
-[00:07:27] Will: the newest form of of astronomy.
+[00:07:27] Will: the newest form of astronomy.
 
 [00:07:30] Adam: Yeah.
 
@@ -222,11 +222,11 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:09:13] Will: Yeah.
 
-[00:09:13] Adam: And he was like, " Whoa, that's my overview moment. That's the moment at which I realized we weren't, you know, alone. That there was this bigger universe." And he wanted to give that to people. Um, it's going to come out of the atmosphere in a literally like within the next few days. But we got up at 5:31 morning and we actually watched it, and we got to watch it sparkle three times as it went across the sky, and we got a bonus shooting star.
+[00:09:13] Adam: And he was like, " Whoa, that's my overview moment. That's the moment at which I realized we weren't, you know, alone. That there was this bigger universe." And he wanted to give that to people. It's going to come out of the atmosphere in a literally like within the next few days. But we got up at 5:31 morning and we actually watched it, and we got to watch it sparkle three times as it went across the sky, and we got a bonus shooting star.
 
 [00:09:47] Will: Was it super bright?
 
-[00:09:48] Adam: Um, it it was brighter than I thought it would be. So it's just spinning, right? So like a disco ball, every now and then that flash comes by you, and sure enough, three times across its arc, low on the northern sky, we were watching, we got to see it flash, and it was actually pretty noticeable.
+[00:09:48] Adam: It was brighter than I thought it would be. So it's just spinning, right? So like a disco ball, every now and then that flash comes by you, and sure enough, three times across its arc, low on the northern sky, we were watching, we got to see it flash, and it was actually pretty noticeable.
 
 [00:10:03] Norm: How did he prototype that?
 
@@ -236,13 +236,13 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:10:07] Adam: We had one there, it's just like a polished geodesic hollow aluminum sphere.
 
-[00:10:11] Will: I was going to ask how electric rockets work. Is it is it just like I'm familiar with like peroxide and
+[00:10:11] Will: I was going to ask how electric rockets work. Is it just like I'm familiar with like peroxide and
 
 [00:10:17] Adam: no? So it's an electric pump that pumps liquid oxygen into the combustion chamber.
 
 [00:10:17] Will: Okay.
 
-[00:10:17] Adam: So they they actually eject their batteries. I'm not going to get the technical technical stuff right, but it's battery powered pumps that he 3D prints.
+[00:10:17] Adam: So they actually eject their batteries. I'm not going to get the technical technical stuff right, but it's battery powered pumps that he 3D prints.
 
 [00:10:17] Norm: Wow.
 
@@ -250,7 +250,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:10:37] Will: and he can get small things to orbit. That's bonkers.
 
-[00:10:40] Adam: Yeah. Yeah. No, it's totally amazing. And you know, again, like this was the kind of conversations you were having every every 30 minutes.
+[00:10:40] Adam: Yeah. Yeah. No, it's totally amazing. And again, like this was the kind of conversations you were having every every 30 minutes.
 
 [00:10:48] Norm: That's invigorating.
 
@@ -258,7 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:10:49] Norm: and also incredibly daunting. Well, it's the smartest people in the world.
 
-[00:10:53] Adam: On the last night, Tuesday night, I'm like sitting there talking about what what perfect happiness really is, and I look down at one of the people I'm talking to, and it's Stephen Wolfram. You know, again.
+[00:10:53] Adam: On the last night, Tuesday night, I'm like sitting there talking about what perfect happiness really is, and I look down at one of the people I'm talking to, and it's Stephen Wolfram. Again.
 
 [00:11:04] Norm: Now, if I search " Wolfram Alpha," what is perfect happiness?
 
@@ -266,17 +266,17 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:11:10] Will: Well, he quantified everything
 
-[00:11:10] Adam: exactly. It was it was stunning. Joey and I were down there doing a project, which we'll be talking about later.
+[00:11:10] Adam: exactly. It was stunning. Joey and I were down there doing a project, which we'll be talking about later.
 
 [00:11:19] Norm: And I think you were able to film some pieces for Tested.
 
-[00:11:19] Adam: We we were.
+[00:11:19] Adam: We were.
 
 [00:11:19] Norm: You guys out there will be able to see some some of the event. You also did a talk. I saw in the New York Times. You had some spacesuits down there.
 
-[00:11:29] Adam: I did. I brought down I brought down a sextet of costumes along a similar theme: a 2001 spacesuit, alien spacesuit, Mercury spacesuit, Apollo spacesuit, King Arthur's armor, and my fireman's turnout gear with the helmet and oxygen mask.
+[00:11:29] Adam: I did. I brought down a sextet of costumes along a similar theme: a 2001 spacesuit, alien spacesuit, Mercury spacesuit, Apollo spacesuit, King Arthur's armor, and my fireman's turnout gear with the helmet and oxygen mask.
 
-[00:11:47] Will: All right. Is the fireman's turnout gear? It's it's real and everything else is…
+[00:11:47] Will: All right. Is the fireman's turnout gear? It's real and everything else is…
 
 [00:11:50] Adam: It's real. It's the one I wore on MythBusters for 14 years.
 
@@ -288,17 +288,17 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:12:37] Adam: Which is exactly what this felt like.
 
-[00:12:38] Will: Oh, that's that's super cool.
+[00:12:38] Will: Oh, that's super cool.
 
 [00:12:38] Adam: Yeah,
 
 [00:12:38] Will: it sounds really fun.
 
-[00:12:40] Adam: It was it was intimate. It was super egalitarian.
+[00:12:40] Adam: It was intimate. It was super egalitarian.
 
 [00:12:47] Will: So anybody could just go buy tickets and show up.
 
-[00:12:49] Adam: No, not in that regard. I guess what I mean is there was no at some of these events there can be some toxic strutting from some of the like hyper high level people there. And people who've been to these conferences know what I'm talking about. It it it happens.
+[00:12:49] Adam: No, not in that regard. I guess what I mean is there was no at some of these events there can be some toxic strutting from some of the like hyper high level people there. And people who've been to these conferences know what I'm talking about. It happens.
 
 [00:13:08] Norm: The hierarchy.
 
@@ -310,13 +310,13 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:13:33] Will: Well, I mean, it's one of the things that Norm and I have talked about over the years. Is like the mere act of being able to talk to somebody, a layperson, about what you do, makes you better at understand. Like reshaping the language that you use to discuss something makes you better at understanding the thing yourself.
 
-[00:13:46] Adam: And frankly, I think that's one of the points. I don't. I didn't hear that directly from anybody, but I think that's one of the points of of an event like this is to cross pollinate, is to get collisions, is to engender col unexpected collisions of enthusiasm, of brains, of brain power, of research in order to foment new discoveries.
+[00:13:46] Adam: And frankly, I think that's one of the points. I don't. I didn't hear that directly from anybody, but I think that's one of the points of an event like this is to cross pollinate, is to get collisions, is to engender col unexpected collisions of enthusiasm, of brains, of brain power, of research in order to foment new discoveries.
 
-[00:14:06] Will: I mean, you look at what's come out of Out of commercial space exploration exploitation, I guess, because a couple of billionaires, a few billionaires, decided that they wanted to start building rockets.
+[00:14:06] Will: I mean, you look at what's come out of commercial space exploration exploitation, I guess, because a couple of billionaires, a few billionaires, decided that they wanted to start building rockets.
 
 [00:14:06] Adam: Yeah,
 
-[00:14:06] Will: and and I mean the same thing happened with VR. The same thing happened with drones. Like, there is all these all these places that having people come from outside the core areas has done interesting things.
+[00:14:06] Will: and I mean the same thing happened with VR. The same thing happened with drones. Like, there is all these places that having people come from outside the core areas has done interesting things.
 
 [00:14:26] Adam: It was totally inspiring. I came out
 
@@ -324,19 +324,19 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:14:26] Adam: Came out super inspired. It was fabulous.
 
-[00:14:31] Norm: You know, speaking of astrophysicists, we would be remiss if we did not acknowledge the passing of Stephen Hawking. I don't think we talked about on
+[00:14:31] Norm: Speaking of astrophysicists, we would be remiss if we did not acknowledge the passing of Stephen Hawking. I don't think we talked about on
 
-[00:14:40] Adam: such a great, such a not just a great mind in the field of astrophysics and his incredible Nobel Prize winning work, but also in the way he was with the world. You know the way he the way he impacted the world, the way he purposefully impacted the world.
+[00:14:40] Adam: such a great, such a not just a great mind in the field of astrophysics and his incredible Nobel Prize winning work, but also in the way he was with the world. You know the way he impacted the world, the way he purposefully impacted the world.
 
-[00:14:57] Will: There were two books that I read when I was in middle school that made a massive impact and shaped shaped the person I became. One of them was Hitchhiker's Guide to the Galaxy, which we've talked about here in the past. The other was A Brief History of Time, and the fact that Stephen Hawking, who was the the great mind of our time. Took time to write a book for normals to understand to explain the basics of his work,
-
-[00:14:57] Adam: yeah.
-
-[00:14:57] Will: So that so that like, I had a better understanding of the universe because I took the time to read that book,
+[00:14:57] Will: There were two books that I read when I was in middle school that made a massive impact and shaped shaped the person I became. One of them was Hitchhiker's Guide to the Galaxy, which we've talked about here in the past. The other was A Brief History of Time, and the fact that Stephen Hawking, who was the great mind of our time. Took time to write a book for normals to understand to explain the basics of his work,
 
 [00:14:57] Adam: yeah.
 
-[00:14:57] Will: And and I mean, yeah, we've we've lost one of the great ones.
+[00:14:57] Will: So that like, I had a better understanding of the universe because I took the time to read that book,
+
+[00:14:57] Adam: yeah.
+
+[00:14:57] Will: And I mean, yeah, we've we've lost one of the great ones.
 
 [00:15:29] Adam: And if you want, yeah, seriously, if you haven't read A Brief History of Time, it's totally ready for you.
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:15:36] Norm: universe in a nutshell.
 
-[00:15:37] Will: Thanks, Norm. Yeah, are are eminently worth your time if you're curious.
+[00:15:37] Will: Thanks, Norm. Yeah, are eminently worth your time if you're curious.
 
 [00:15:41] Adam: That's the one I grew up with. young brain.
 
@@ -362,7 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:15:49] Norm: Yes,
 
-[00:15:49] Adam: okay. So then, I also want to point out, I am wearing a March for Our Lives t shirt because I'm going to the march here in San Francisco tomorrow. I will see you there. There's marches happening all over the country. This is engendered by the amazing young citizens from Stoneman Douglas High School. I, I, I'm so inspired by these kids. They make me feel weepy all the time with their. Incredible energy to effect change.
+[00:15:49] Adam: okay. So then, I also want to point out, I am wearing a March for Our Lives t shirt because I'm going to the march here in San Francisco tomorrow. I will see you there. There's marches happening all over the country. This is engendered by the amazing young citizens from Stoneman Douglas High School. I, I'm so inspired by these kids. They make me feel weepy all the time with their. Incredible energy to effect change.
 
 [00:16:19] Will: I mean, it's it is. They have done something that I would have said three weeks ago was impossible. I guess six weeks ago now was impossible. In that we're actually having conversations about gun control.
 
@@ -372,15 +372,15 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:16:32] Adam: Yeah, and they're not just you want to take all my guns. No, I don't.
 
-[00:16:35] Will: Yeah, I mean, it's well, it's I mean, the work that they're that they're doing is empowering other people that have been doing this for a longer time too. Like if you look at the number of people showing up to Moms Demand Chapter meetings around the country, like there there's there's something happening
+[00:16:35] Will: Yeah, I mean, it's well, it's I mean, the work that they're doing is empowering other people that have been doing this for a longer time too. Like if you look at the number of people showing up to Moms Demand Chapter meetings around the country, like there there's there's something happening
 
 [00:16:35] Adam: exactly.
 
-[00:16:35] Will: Um, and we're even starting to see legislative small at this point legislative victories, but there are legislative victories happening, which is exciting. So
+[00:16:35] Will: And we're even starting to see legislative small at this point legislative victories, but there are legislative victories happening, which is exciting. So
 
-[00:16:56] Adam: totally, yeah, totally. Um, so I just wanted to get that out there.
+[00:16:56] Adam: totally, yeah, totally. So I just wanted to get that out there.
 
-[00:16:59] Norm: Oh, absolutely. Um, one thing that also happened since we recorded last episode was the release of a film that premiered at South by Southwest, I believe, last year. Muppet Guys. Talking.
+[00:16:59] Norm: Oh, absolutely. One thing that also happened since we recorded last episode was the release of a film that premiered at South by Southwest, I believe, last year. Muppet Guys. Talking.
 
 [00:16:59] Adam: Yes.
 
@@ -394,21 +394,21 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:17:29] Norm: Yeah.
 
-[00:17:29] Adam: Um, and I showed up, and uh, Rian Johnson showed up. I was leaving as Alan Tudyk showed up. I don't know who came after me. Um, but you know, Frank Oz is a friend of mine, and Dave Goelz is a really good friend, and they're two of the nicest humans alive. And the film is amazing. Listening to these Muppeteers talk about, you guys haven't seen it yet.
+[00:17:29] Adam: And I showed up, and Rian Johnson showed up. I was leaving as Alan Tudyk showed up. I don't know who came after me. But Frank Oz is a friend of mine, and Dave Goelz is a really good friend, and they're two of the nicest humans alive. And the film is amazing. Listening to these Muppeteers talk about, you guys haven't seen it yet.
 
 [00:17:59] Norm: I saw it with you.
 
 [00:17:59] Adam: Yes.
 
-[00:17:59] Norm: Yes, and uh, I don't know them personally, but watching it made them feel like real. And gave me such a better sense of who they were as people.
+[00:17:59] Norm: Yes, and I don't know them personally, but watching it made them feel like real. And gave me such a better sense of who they were as people.
 
 [00:18:11] Adam: Totally.
 
-[00:18:11] Will: The the the best thing that has come out of every learning I've had about the Muppets and the people who worked on all the Henson projects is that none of them were dicks to each other. Because, like, you like,
+[00:18:11] Will: The best thing that has come out of every learning I've had about the Muppets and the people who worked on all the Henson projects is that none of them were dicks to each other. Because you like,
 
-[00:18:22] Adam: well, they're they're constantly dicks to each other in this low but in a loving, sweet way.
+[00:18:22] Adam: well, they're constantly dicks to each other in this low but in a loving, sweet way.
 
-[00:18:25] Will: Yeah, totally. Yeah, but but I mean, it's it's like you you tell you can tell like we've all worked in places where the environment's a little bit toxic and like people are kind of low key shitty to each other all the time, and this is the exact opposite of that.
+[00:18:25] Will: Yeah, totally. Yeah, but I mean, it's like you tell you can tell like we've all worked in places where the environment's a little bit toxic and like people are kind of low key shitty to each other all the time, and this is the exact opposite of that.
 
 [00:18:38] Adam: Completely true.
 
@@ -416,9 +416,9 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:18:38] Adam: yeah, absolutely. You are totally right.
 
-[00:18:41] Norm: And part of the documentary is a history of how some of the characters were created and some of the weird ways in which, like, the origins of the characters were just from their back and forth.
+[00:18:41] Norm: And part of the documentary is a history of how some of the characters were created and some of the weird ways in which the origins of the characters were just from their back and forth.
 
-[00:18:51] Adam: I loved hearing I loved hearing Frank talk about the the the the the variegated history of Miss Piggy, how two different puppeteers voiced her until she found her voice. That Grover just came out fully formed, and how Frank Oz said he's like, I don't know where Grover came from. He goes, but I do. I can't tell you how I get into Grover, and it's a sound. He goes, " Hmm." He's like, and then Frank did the set, and he did. I'm doing it not well.
+[00:18:51] Adam: I loved hearing Frank talk about the variegated history of Miss Piggy, how two different puppeteers voiced her until she found her voice. That Grover just came out fully formed, and how Frank Oz said he's like, I don't know where Grover came from. He goes, but I do. I can't tell you how I get into Grover, and it's a sound. He goes, " Hmm." He's like, and then Frank did the set, and he did. I'm doing it not well.
 
 [00:19:18] Will: It's more of a Yoda when you do it, but it's close.
 
@@ -428,31 +428,31 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:19:19] Adam: Like that is clearly a key part of the job. Like, oh, you're going to be buried under Johnny Carson's couch for an hour and a half, and you got to do this. So as they were telling these stories, and they would talk about their constriction, the filmmakers would then put graphics would draw right over them, so you got to see where the puppet would be and where they would be in space.
 
-[00:19:54] Norm: So the the format of the film is a conversation on literally on couches, the five of them, I believe, just talking for hour and a half and reminiscing. And talking, remember that time when we were filming the movie and we were on that campfire and how did that fire work—well, we were buried underneath the campfire.
+[00:19:54] Norm: So the format of the film is a conversation on literally on couches, the five of them, I believe, just talking for hour and a half and reminiscing. And talking, remember that time when we were filming the movie and we were on that campfire and how did that fire work—well, we were buried underneath the campfire.
 
 [00:20:10] Adam: Well, and how about oh my god,
 
 [00:20:12] Norm: you're talking about the Muppet movie campfire?
 
-[00:20:14] Adam: No, and and Kermit playing the guitar on the thing.
+[00:20:14] Adam: No, and Kermit playing the guitar on the thing.
 
 [00:20:14] Norm: It's a banjo, sir.
 
 [00:20:18] Adam: Jim Henson. When Kermit's playing on the log in the lake, Jim Henson is sealed into a barrel with a snorkel that is underwater. So when he came out, it took like 30 minutes for his legs to be able to hold up his weight because they've been under him for so long.
 
-[00:20:35] Will: I like see this is the stuff like the like the the the the bicycle scene in both Muppet movie and then they did a bigger version in the Great Muppet Caper, I think. Both are are like those have been dissected. We know how they worked, right? It was amazing. It was technological marvels, all that stuff. But the fact that Jim Henson contorted himself into a 50-gallon oil drum and was buried in a swamp, like a, is incredibly dangerous, but also amazing that like they would go to that level to get the shots that they wanted.
+[00:20:35] Will: I like see this is the stuff like the bicycle scene in both Muppet movie and then they did a bigger version in the Great Muppet Caper, I think. Both are like those have been dissected. We know how they worked, right? It was amazing. It was technological marvels, all that stuff. But the fact that Jim Henson contorted himself into a 50-gallon oil drum and was buried in a swamp, like a, is incredibly dangerous, but also amazing that like they would go to that level to get the shots that they wanted.
 
-[00:21:02] Adam: And that was a the repeated refrain of this film was what a magical. Human Henson was how well he engendered love, ingenuity, improvisation, and deep a deep commitment to great storytelling with his crew, and really let them build these characters and find them. I mean, everyone was clearly so, still so inspired by the by the collaboration with Henson.
+[00:21:02] Adam: And that was a the repeated refrain of this film was what a magical. Human Henson was how well he engendered love, ingenuity, improvisation, and deep a deep commitment to great storytelling with his crew, and really let them build these characters and find them. I mean, everyone was clearly so, still so inspired by the collaboration with Henson.
 
-[00:21:28] Will: And and the other thing, like I, I really encourage everybody who thinks, oh, you need a lot of money to go do something or go build something, to watch that first season of the Muppet Show. You can get the DVD for like $7 on Amazon, and the production, like the show, is there, right? The show is as you as you remember it from your childhood, but the production value on that first season could have been done in most midwestern basements. With
+[00:21:28] Will: And the other thing, like I, I really encourage everybody who thinks, oh, you need a lot of money to go do something or go build something, to watch that first season of the Muppet Show. You can get the DVD for like $7 on Amazon, and the production, like the show, is there, right? The show is as you remember it from your childhood, but the production value on that first season could have been done in most midwestern basements. With
 
 [00:21:53] Adam: except, I will tell you, it was still a super expensive show even in that first season.
 
-[00:21:57] Will: I I know it was especially for the time.
+[00:21:57] Will: I know it was especially for the time.
 
 [00:21:57] Adam: Yeah,
 
-[00:21:57] Will: but if you look at what like the technological advances that we have now versus we had then, like the TV, like the TV monitoring rigs that they used to do the puppeteering were phenomenally expensive back then. But like the sets were tiny, like they're small sets.
+[00:21:57] Will: but if you look at what like the technological advances that we have now versus we had then the TV monitoring rigs that they used to do the puppeteering were phenomenally expensive back then. But the sets were tiny, like they're small sets.
 
 [00:21:57] Adam: Really?
 
@@ -464,7 +464,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:22:29] Adam: I have no idea.
 
-[00:22:30] Will: Yeah, but but like it's it's very modest compared to what it became in the in you know seasons four five whatever the toward the end. Um, I love the Muppets.
+[00:22:30] Will: Yeah, but like it's very modest compared to what it became in the in you know seasons four five whatever the toward the end. I love the Muppets.
 
 [00:22:38] Adam: It's super inspiring. Go to Muppet Guys Talking. It's great. It's a really wonderful film. And I actually brought out a fan-made puppet of me, and he talked to the camera, and I talked to the camera for a little bit. And Frank goes, " Yeah, we'll call you.
 
@@ -504,7 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:23:30] Norm: Yes, which I got this past week.
 
-[00:23:31] Adam: a Twitter stream of of epic proportions of a million different versions of the same thing. I love and not not inspired by my build. Clearly, everyone's building this exactly.
+[00:23:31] Adam: a Twitter stream of epic proportions of a million different versions of the same thing. I love and not not inspired by my build. Clearly, everyone's building this exactly.
 
 [00:23:40] Norm: Everyone has the problem of in their workbench, in their own workspace, wherever it's at your in your shop or in your garage or at your desk, needing better lighting.
 
@@ -518,7 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:24:02] Will: Oh, you didn't? You showed me these last time. Yeah, yeah, yeah.
 
-[00:24:04] Adam: And honestly, they've changed my life. I I have been working on a Jason Eaton kit. That I got recently, which we will
+[00:24:04] Adam: And honestly, they've changed my life. I have been working on a Jason Eaton kit. That I got recently, which we will
 
 [00:24:13] Norm: at some point
 
@@ -548,7 +548,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:24:58] Norm: No, no, no. We're good. We're good.
 
-[00:24:59] Adam: Color temp too. But so I saw the I saw the comments after I just saw when there was about six or seven of them, and the. I love the fact that everyone's immediately trading different versions and different ways to do this because it's exactly like it's a problem we all have,
+[00:24:59] Adam: Color temp too. But so I saw the comments after I just saw when there was about six or seven of them, and the. I love the fact that everyone's immediately trading different versions and different ways to do this because it's exactly like it's a problem we all have,
 
 [00:24:59] Norm: Yep.
 
@@ -562,7 +562,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:25:24] Adam: I guarantee you, in every dumpster full of stuff out of an apartment that you've ever driven past, there is one of these arms.
 
-[00:25:30] Will: I mean, yeah, I was going to say you can get these lamps at at like before we bought the real ones for the we I had made one out of a a lamp like a lamp head that I got at Target or someplace for like $15
+[00:25:30] Will: I mean, yeah, I was going to say you can get these lamps at at like before we bought the real ones for the we I had made one out of a lamp like a lamp head that I got at Target or someplace for like $15
 
 [00:25:43] Adam: exactly.
 
@@ -574,7 +574,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:26:00] Adam: you can't even believe how good it looks. And then there is all these folks trying it in. Other materials like Sintra and Worbla and other things.
 
-[00:26:09] Norm: The patterns are free. There, you can find them on on our site or on Bill's video. But you can download them, and if you have a laser cutter or you have some any type of cutter, you can just.
+[00:26:09] Norm: The patterns are free. There, you can find them on our site or on Bill's video. But you can download them, and if you have a laser cutter or you have some any type of cutter, you can just.
 
 [00:26:16] Will: I mean, he cuts foam with an exact with a with like box cutters.
 
@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:27:04] Adam: I recently ran into someone who. Had never heard of this film, and I I realize a lot of people haven't. Norm is referring to Charles and Ray Eames' film made, I believe, in conjunction with IBM a long time ago. But that's not important. Charles and Ray Eames, two important mid-century designers, made this incredible film that zooms from the from an atom.
 
-[00:27:28] Norm: Well, it starts off with a picnic, I believe, in in Chicago.
+[00:27:28] Norm: Well, it starts off with a picnic, I believe, in Chicago.
 
 [00:27:28] Adam: Okay,
 
@@ -626,7 +626,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:27:48] Adam: Totally find it for powers of ten right now and go watch it. It's a really important film about about context.
 
-[00:27:55] Will: Like it's the San Francisco at the at the Cal Academy, California Academy of Sciences, the planetarium show there. The first one that they did when they re rolled the new planetarium out was a powers of ten based show, and you. It it it gives you a real sense of scale.
+[00:27:55] Will: Like it's the San Francisco at the Cal Academy, California Academy of Sciences, the planetarium show there. The first one that they did when they re rolled the new planetarium out was a powers of ten based show, and you. It gives you a real sense of scale.
 
 [00:28:11] Adam: Yeah, it's wonderful.
 
@@ -634,7 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:28:12] Norm: Awesome.
 
-[00:28:13] Will: So you can find that on Steam. Anyway, the the Nano Machines episode. Just search for the Foo Show. It's out.
+[00:28:13] Will: So you can find that on Steam. Anyway, the Nano Machines episode. Just search for the Foo Show. It's out.
 
 [00:28:18] Adam: The Foo Show.
 
@@ -642,7 +642,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:28:20] Adam: Do you have a theme?
 
-[00:28:20] Will: No, we we we're not. Look, we've sold literally hundreds of copies of the Foo Show. We're not in getting theme music made.
+[00:28:20] Will: No, we we're not. Look, we've sold literally hundreds of copies of the Foo Show. We're not in getting theme music made.
 
 [00:28:20] Adam: No, no,
 
@@ -656,7 +656,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:28:45] Adam: The march is going all over the country. March for Our Lives. It's tomorrow on Saturday. I will see you in San Francisco. There's also a march in Oakland. The big march is in D.C. And I will see you there.
 
-[00:28:59] Norm: Yeah, and I'll be down in L.A. for for WonderCon in Anaheim. So if
+[00:28:59] Norm: Yeah, and I'll be down in L.A. for WonderCon in Anaheim. So if
 
 [00:29:03] Adam: you're heading down there tonight,
 

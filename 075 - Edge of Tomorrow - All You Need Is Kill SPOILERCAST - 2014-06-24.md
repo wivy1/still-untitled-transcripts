@@ -4,7 +4,7 @@
 **Duration:** 30m 28s  
 Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
-[00:00:00] Will: But that's why we call you the the Velvet Frog. Welcome to Still Untitled: The Adam Savage Project. I'm Will.
+[00:00:00] Will: But that's why we call you the Velvet Frog. Welcome to Still Untitled: The Adam Savage Project. I'm Will.
 
 [00:00:08] Adam: I'm Adam,
 
@@ -12,13 +12,13 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:00:10] Adam: Sorry, we haven't been around a little while.
 
-[00:00:12] Will: Yeah, somebody's been busy. Some of us have been, you know, not cutting off their fingers in the shop.
+[00:00:12] Will: Yeah, somebody's been busy. Some of us have been not cutting off their fingers in the shop.
 
 [00:00:18] Norm: You get one guess as to who’s been busy. Who's the busiest?
 
 [00:00:21] Adam: Do you know? I so two things. One is I've decided to stop saying I'm busy. It's not that I'm not busy. It's just that who cares, right? It's like my friends know that I'm busy. Why do I need to bellyache about it all the time? It's like we should all have such problems. And I, I've chosen all the things around me, so it's it sounds like a complaint, and it's not. The trick is how to manage it. And if I can't manage it, then it's time to get less busy.
 
-[00:00:49] Will: There's a there's a whole there's a book about time management that's like you should never say you're busy.
+[00:00:49] Will: There's a whole there's a book about time management that's like you should never say you're busy.
 
 [00:00:54] Adam: Yeah,
 
@@ -38,27 +38,27 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:01:11] Will: Okay, we'll see you guys next week. This has been a great show.
 
-[00:01:15] Adam: No, uh, uh, uh, she she runs; she's part of the organization called I B Me Inward Bound, that is a youth mindfulness camp that one of my sons goes to, and it's a wonderful organization. And my son's gotten a lot out of it. And it's she. We were talking about it, and I said, 'Yeah, I've decided to stop saying that I'm busy.' And she said, 'Um, somebody recently said that busyness is the violence of our times.' And I thought that is a really important way to look at it. Whether or not it's true for you, it is certainly easy to watch busyness have a violent effect on your life.
+[00:01:15] Adam: No she runs; she's part of the organization called I B Me Inward Bound, that is a youth mindfulness camp that one of my sons goes to, and it's a wonderful organization. And my son's gotten a lot out of it. And it's she. We were talking about it, and I said, 'Yeah, I've decided to stop saying that I'm busy.' And she said, ' somebody recently said that busyness is the violence of our times.' And I thought that is a really important way to look at it. Whether or not it's true for you, it is certainly easy to watch busyness have a violent effect on your life.
 
 [00:01:53] Will: Well, it's about. It's an excuse to not make the time for the things that are actually really important, instead of the garbage that we fill our life with every day.
 
-[00:02:01] Adam: Yeah, and so my my my method for dealing with the amount of stuff that I have is that I've actually started making the time at home really sacrosanct. Like, I don't pull out the computer to do any work after after six, unless it's an absolute emergency, and that hasn't happened in weeks. I've been reading more novels. I've been taking more time, taking more baths, taking more quiet time, drive without the radio. It really is just like in every way trying to. We've talked about this.
+[00:02:01] Adam: Yeah, and so my method for dealing with the amount of stuff that I have is that I've actually started making the time at home really sacrosanct. Like, I don't pull out the computer to do any work after after six, unless it's an absolute emergency, and that hasn't happened in weeks. I've been reading more novels. I've been taking more time, taking more baths, taking more quiet time, drive without the radio. It really is just like in every way trying to. We've talked about this.
 
-[00:02:32] Will: Yeah, no, but but it's like that part of the problem with the smartphone connected world.
+[00:02:32] Will: Yeah, no, but it's like that part of the problem with the smartphone connected world.
 
 [00:02:32] Adam: Yes,
 
-[00:02:32] Will: is that nobody has nobody. You you don't have the zero time.
+[00:02:32] Will: is that nobody has nobody. You don't have the zero time.
 
 [00:02:32] Adam: Yeah,
 
 [00:02:32] Will: that whether it was when you used to mow the lawn, now I have a podcast on.
 
-[00:02:46] Adam: Well, can we can we link after this to that beautiful Louis C.K. bit he does about using the phone for buying a phone for his daughter?
+[00:02:46] Adam: Well, can we link after this to that beautiful Louis C.K. bit he does about using the phone for buying a phone for his daughter?
 
 [00:02:55] Will: No. Oh, yes, we can link to it. No, I’ve never heard of it.
 
-[00:02:57] Adam: You've got to hear this. It's amazing, and he just he talks about the fact that you know you're sitting there and thinking, oh, the loneliness is coming on. I better I better drown it out with my phone.
+[00:02:57] Adam: You've got to hear this. It's amazing, and he just he talks about the fact that you know you're sitting there and thinking, oh, the loneliness is coming on. I better drown it out with my phone.
 
 [00:03:07] Norm: Like being in the elevator, yeah, with other people.
 
@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:03:23] Will: That's when the lazy eye becomes a you know a pro instead of a con on the evolutionary hierarchy.
 
-[00:03:27] Adam: Yeah, my I can I can selectively make either of my eyes lazy, and it actually makes people stop talking to me, and they don't know why.
+[00:03:27] Adam: Yeah, my I can selectively make either of my eyes lazy, and it actually makes people stop talking to me, and they don't know why.
 
 [00:03:34] Will: That’s good. That’s a good trick.
 
@@ -100,7 +100,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:03:54] Will: Spoiler cast.
 
-[00:03:54] Adam: Spoiler cast. Yes, I saw Edge of Tomorrow the day it came out. I was in New York with my buddy David, and we had gone out to dinner for a lovely, a lovely meal in this Japanese restaurant in the basement of an office building.
+[00:03:54] Adam: Spoiler cast. Yes, I saw Edge of Tomorrow the day it came out. I was in New York with my buddy David, and we had gone out to dinner for a lovely meal in this Japanese restaurant in the basement of an office building.
 
 [00:03:54] Will: Oh,
 
@@ -156,7 +156,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:05:12] Will: Well, it’s all Tom Cruise movies.
 
-[00:05:13] Adam: But you know the fake actually, and Tom Cruise's Twitter profile, I love running in movies since 1981. Um, he does a lot of running in this movie, and the poster really looks like the end of the player when they come up with that fake movie with Bruce Willis and Julia Roberts.
+[00:05:13] Adam: But you know the fake actually, and Tom Cruise's Twitter profile, I love running in movies since 1981. He does a lot of running in this movie, and the poster really looks like the end of the player when they come up with that fake movie with Bruce Willis and Julia Roberts.
 
 [00:05:29] Norm: It is the most Generic two people posing in armor behind a dramatically lit backdrop.
 
@@ -166,7 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:05:39] Adam: we’re gonna spoil it.
 
-[00:05:39] Will: That’s fine. I I feel like I understand the high points of the plot.
+[00:05:39] Will: That’s fine. I feel like I understand the high points of the plot.
 
 [00:05:43] Norm: Neither of us have read the book,
 
@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:05:58] Adam: Interesting,
 
-[00:05:58] Norm: as rated by all the the readers.
+[00:05:58] Norm: as rated by all the readers.
 
 [00:06:01] Adam: The screenplay has a lot going for it. There's some great characterizations. Bill Paxton is absolutely a scene stealer.
 
@@ -196,7 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:06:08] Will: Who has survived more campaigns than anyone else except for—
 
-[00:06:17] Adam: oh no, well he's he's the one that he he's the one that first meets Tom Cruise when he wakes up in the morning and he's like you know I'm going to send you to the squad.
+[00:06:17] Adam: oh no, well he's the one that he he's the one that first meets Tom Cruise when he wakes up in the morning and he's like you know I'm going to send you to the squad.
 
 [00:06:17] Will: Yeah.
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:07:19] Norm: Popcorn flick.
 
-[00:07:20] Adam: No, this this is particularly egregious because it falls apart in the first moment that the movie's plot is kicked into action.
+[00:07:20] Adam: No, this is particularly egregious because it falls apart in the first moment that the movie's plot is kicked into action.
 
 [00:07:29] Norm: Wait, wait, wait, hold on, because I can sci-fi apologetics this. Explain to me your nitpicking, and I will explain it away within the logic of the movie.
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:07:53] Will: Not—
 
-[00:07:58] Adam: oh, okay. So in the movie, it just wakes up and it's Groundhog Day every day. So Tom Cruise gets this ability when he kills a a slightly higher up alien, and it bleeds on him as he dies. The
+[00:07:58] Adam: oh, okay. So in the movie, it just wakes up and it's Groundhog Day every day. So Tom Cruise gets this ability when he kills a slightly higher up alien, and it bleeds on him as he dies. The
 
 [00:08:09] Will: bleeding didn't happen, but everything else. And the
 
@@ -286,7 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:08:55] Norm: Okay, all right.
 
-[00:08:56] Will: Once the once the blood hits of the alien hits him, he's locked in until the criteria that he has to fulfill to get out of the loop, and he's in the loop.
+[00:08:56] Will: Once the blood hits of the alien hits him, he's locked in until the criteria that he has to fulfill to get out of the loop, and he's in the loop.
 
 [00:09:06] Norm: There are two lines of dialogue that solve this, where he says he doesn’t want the power. Why can’t he just blood transfuse it back to her?
 
@@ -304,7 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:09:27] Adam: tried everything except that. So you think that that you think the loop is specific to one entity per battle?
 
-[00:09:33] Will: It's back to the future, right? So once he goes back in time, then that loop branches off, and it's a different loop, and he he he keeps using the same loop until they close the close the loop.
+[00:09:33] Will: It's back to the future, right? So once he goes back in time, then that loop branches off, and it's a different loop, and he keeps using the same loop until they close the loop.
 
 [00:09:44] Norm: Yeah, so he can’t.
 
@@ -360,7 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:11:18] Adam: Because?
 
-[00:11:18] Norm: Because because she was committed to that Gulliver’s tale,
+[00:11:18] Norm: Because she was committed to that Gulliver’s tale,
 
 [00:11:26] Adam: The one with Jack Black?
 
@@ -404,7 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:12:58] Adam: She's not a damsel at all, but.
 
-[00:13:01] Will: So in the book, the the battle bits go back and forth between them constantly. Like they're both back to back against hordes of the mimics, right? Are they called mimics in the movie?
+[00:13:01] Will: So in the book, the battle bits go back and forth between them constantly. Like they're both back to back against hordes of the mimics, right? Are they called mimics in the movie?
 
 [00:13:09] Adam: Yes, it's mostly him doing the problem solving.
 
@@ -416,11 +416,11 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:13:25] Adam: Wow.
 
-[00:13:25] Norm: And so adding on a production, they built that whole beachfront. Oh man. They released it on the anniversary of D-Day, first of all, and had it, you know—
+[00:13:25] Norm: And so adding on a production, they built that whole beachfront. Oh man. They released it on the anniversary of D-Day, first of all, and had it—
 
 [00:13:25] Will: Classy.
 
-[00:13:25] Norm: And and and there was a storming the beaches of Normandy in the movie. But there was a anecdote where he was just yelling at her, and she couldn’t handle it because I mean, he was yelling at everyone.
+[00:13:25] Norm: And there was a storming the beaches of Normandy in the movie. But there was a anecdote where he was just yelling at her, and she couldn’t handle it because I mean, he was yelling at everyone.
 
 [00:13:48] Will: Nobody likes getting yelled at.
 
@@ -446,9 +446,9 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:14:33] Adam: Yeah.
 
-[00:14:33] Norm: Um. To your point that she doesn’t get to show off those abilities, I think there are some montage scenes. I don’t think she needs to be rescued so much, so much as without that power, she’s just a normal grunt.
+[00:14:33] Norm: To your point that she doesn’t get to show off those abilities, I think there are some montage scenes. I don’t think she needs to be rescued so much as without that power, she’s just a normal grunt.
 
-[00:14:45] Adam: Well, but right, but but but that's problematic, right? It is slightly problematic. I I just. I I I recognize you can talk. One can talk their way out of that, but I also you know it it is it is a classic Hollywood thing
+[00:14:45] Adam: Well, but right, but that's problematic, right? It is slightly problematic. I just. I recognize you can talk. One can talk their way out of that, but I also you know it it is a classic Hollywood thing
 
 [00:15:00] Norm: to not make them equal.
 
@@ -456,7 +456,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:15:01] Adam: Exactly.
 
-[00:15:01] Will: I mean, the the book is really explicit. Like, there’s no special powers. You don’t. You go back in time, but the power all comes from dying and living and dying and living.
+[00:15:01] Will: I mean, the book is really explicit. Like, there’s no special powers. You don’t. You go back in time, but the power all comes from dying and living and dying and living.
 
 [00:15:01] Adam: Right.
 
@@ -466,7 +466,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:15:01] Will: Something like that.
 
-[00:15:20] Adam: Did you did you ever see that thing that Harold Ramis said about how many times Bill Murray repeated?
+[00:15:20] Adam: Did you ever see that thing that Harold Ramis said about how many times Bill Murray repeated?
 
 [00:15:24] Will: At least 10 years.
 
@@ -484,7 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:15:36] Adam: Yes.
 
-[00:15:36] Norm: Um, and do a good job not saying, “Oh, how many, how many, how long we’ve been stuck in this loop?” And no dramatic, “I’ve been stuck here for.”
+[00:15:36] Norm: And do a good job not saying, “Oh, how many, how many, how long we’ve been stuck in this loop?” And no dramatic, “I’ve been stuck here for.”
 
 [00:15:46] Will: Does he not write the number on his hand?
 
@@ -492,7 +492,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:15:46] Will: Oh, in the book, he has the he writes the number. First thing he does in the morning every time, write the number on his hand.
 
-[00:15:52] Adam: Oh, nice. Yeah, I will tell you that I think Tom Cruise was making an in joke about Tom Cruise when he is when he is doing the push-ups and rolls out of the way to get behind the truck and gets run over that first time. You hear him go, " Son of a bitch," which is like Tom Cruise says that in so many movies, and with that high-pitched bitch at the end. I can't do it quite that high-pitched. I believe I appreciate in his in his older years that Tom Cruise could still open a movie and yet make fun of the arc of his career.
+[00:15:52] Adam: Oh, nice. Yeah, I will tell you that I think Tom Cruise was making an in joke about Tom Cruise when he is doing the push-ups and rolls out of the way to get behind the truck and gets run over that first time. You hear him go, " Son of a bitch," which is like Tom Cruise says that in so many movies, and with that high-pitched bitch at the end. I can't do it quite that high-pitched. I believe I appreciate in his older years that Tom Cruise could still open a movie and yet make fun of the arc of his career.
 
 [00:16:24] Will: He has to be like movies have become self-aware in the time that he's been making movies. Yeah, like thanks, Joss.
 
@@ -502,13 +502,13 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:16:46] Adam: They do. They do a very— good job at letting you know you're seeing the same day again, without ever letting you be bored at seeing the same scene again.
 
-[00:16:59] Will: Like the the book was like one of the things I love. So I love kind of like I I don't know enough about where this book falls in Japanese fiction, but I kind of assume it's in the same place as like the battle royale novel, which if you've never read, you've only seen the movie is is a fascinating exercise in how do you make a kind of shitty movie off of a an amazing book, Um,
+[00:16:59] Will: Like the book was like one of the things I love. So I love kind of like I I don't know enough about where this book falls in Japanese fiction, but I kind of assume it's in the same place as like the battle royale novel, which if you've never read, you've only seen the movie is is a fascinating exercise in how do you make a kind of shitty movie off of a an amazing book
 
 [00:16:59] Adam: Right. interesting.
 
-[00:17:22] Will: And and it's it's kind of like you know, kind of pop fiction is what I assume. Is it's not something that's it's not like Murakami where you know you're reading this and you're feeling enlightened. This is just a trashy action novel.
+[00:17:22] Will: And it's kind of like kind of pop fiction is what I assume. Is it's not something that's it's not like Murakami where you know you're reading this and you're feeling enlightened. This is just a trashy action novel.
 
-[00:17:34] Adam: Well, I think that I I also think the film does well with the with the twist
+[00:17:34] Adam: Well, I think that I I also think the film does well with the twist
 
 [00:17:40] Norm: at the end.
 
@@ -558,9 +558,9 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:18:27] Norm: I get the feeling, and this hasn’t been confirmed, that they changed the ending.
 
-[00:18:33] Will: They absolutely. Oh, in the in the movie.
+[00:18:33] Will: They absolutely. Oh, in the movie.
 
-[00:18:34] Norm: In in the movie,
+[00:18:34] Norm: In the movie,
 
 [00:18:35] Adam: What was the ending in the book?
 
@@ -568,11 +568,11 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:18:36] Adam: Yeah.
 
-[00:18:36] Will: And um. And she realizes when she finds out that he has the he's stuck in the time loop because she's also of the time traveling kind of person.
+[00:18:36] Will: And. And she realizes when she finds out that he has the he's stuck in the time loop because she's also of the time traveling kind of person.
 
 [00:18:36] Adam: Yeah.
 
-[00:18:36] Will: All the antennas, all like she discovers the order of operations for getting outside of the loop, and it involves doing this and then killing all these antenna monsters mimics. They all look exactly the same in the book because it's a book. And then you have to kill the main mimic, and then you have to kill all the rest of them because any one of them can carry it on. So they go through this whole process where they do it all in the right order. They kill all the mimics, and then he goes, he dies, wakes up, goes to sleep, whatever. The day ends with no explanation, and then he wakes up and does it again. Sonny and Cher playing the next morning. So when she he comes and tells her this this the next day, she realizes even though it's her first pass through the loop again, and she's like, so they go have a nice day, they go on a date, whatever, you know, sexy bits happen.
+[00:18:36] Will: All the antennas, all like she discovers the order of operations for getting outside of the loop, and it involves doing this and then killing all these antenna monsters mimics. They all look exactly the same in the book because it's a book. And then you have to kill the main mimic, and then you have to kill all the rest of them because any one of them can carry it on. So they go through this whole process where they do it all in the right order. They kill all the mimics, and then he goes, he dies, wakes up, goes to sleep, whatever. The day ends with no explanation, and then he wakes up and does it again. Sonny and Cher playing the next morning. So when she he comes and tells her this the next day, she realizes even though it's her first pass through the loop again, and she's like, so they go have a nice day, they go on a date, whatever sexy bits happen.
 
 [00:18:36] Adam: Yeah.
 
@@ -588,7 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:20:28] Adam: So my guess was that that was the ending, and then they're like, " Yeah, let's have him meet the girl."
 
-[00:20:32] Norm: Or my guess, right? Or or my guess is that you know she dies, some sacrifice is made, right? And she has to die,
+[00:20:32] Norm: Or my guess, right? Or my guess is that you know she dies, some sacrifice is made, right? And she has to die,
 
 [00:20:39] Adam: right? Right?
 
@@ -638,9 +638,9 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:22:12] Adam: Right. And—
 
-[00:22:13] Norm: The exo suit stuff was great. I love the the movie was surprisingly funny.
+[00:22:13] Norm: The exo suit stuff was great. I love the movie was surprisingly funny.
 
-[00:22:17] Adam: There was a lot that's very funny humor as they keep on dying as they're trying to pick their way through the thing. It's very entertaining how many times they get flummoxed just by missing one little thing. Like and and are they? They're literally like dodging as like bullets fly by their heads and ducking as like things swoop over them. It's very funny.
+[00:22:17] Adam: There was a lot that's very funny humor as they keep on dying as they're trying to pick their way through the thing. It's very entertaining how many times they get flummoxed just by missing one little thing. Like and are they? They're literally like dodging as like bullets fly by their heads and ducking as like things swoop over them. It's very funny.
 
 [00:22:35] Will: Well, so in the book, he makes the protagonist is is basically in this one, as I understand it, he's a Like general or something, major that gets sent back to the lines.
 
@@ -656,7 +656,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:22:49] Will: No, no, I was just gonna say in the book he starts out as like new recruit night before his first battle, and he and he's like, this is like a video game. I just keep going on dying over and over again. I get better every day.
 
-[00:22:58] Adam: Well, so yeah, I'll tell you something: is the opening of the movie, the first 10 minutes, is the worst part of the movie. I I turned to my friend David and I was like, I don't know who I am supposed to give a shit about in this movie yet because nobody
+[00:22:58] Adam: Well, so yeah, I'll tell you something: is the opening of the movie, the first 10 minutes, is the worst part of the movie. I turned to my friend David and I was like, I don't know who I am supposed to give a shit about in this movie yet because nobody
 
 [00:23:12] Norm: Tom Cruise is unlikable. He’s a coward, but I think it’s a meta-awareness.
 
@@ -670,13 +670,13 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:23:51] Adam: Yes, and the cold open in this movie just doesn't capture you to want to know what is going to happen to these characters. I'm really excited,
 
-[00:23:59] Will: Adam. Don't worry; they focus tested it enough to know that that was the best possible. You know, they did one where they showed the end of the movie. They did one where they showed a battle sequence from the middle where something funny happens. Yeah, they did one where he kisses the girl. You know, that was the best one. You you saw it. Scientifically determined.
+[00:23:59] Will: Adam. Don't worry; they focus tested it enough to know that that was the best possible. They did one where they showed the end of the movie. They did one where they showed a battle sequence from the middle where something funny happens. Yeah, they did one where he kisses the girl. You know, that was the best one. You saw it. Scientifically determined.
 
 [00:24:15] Norm: I’m sure they did a voiceover.
 
-[00:24:17] Adam: You know, I really appreciate David Cronenberg said he loves audience testing, and the interview was like serious, and he was like, " Well, who the who the hell am I making movies for? I want to know what the audience wants out of a movie, and I appreciate that." Now, I mean, that being said, he still makes difficult movies that are intense, but he he likes the process of getting that feedback.
+[00:24:17] Adam: I really appreciate David Cronenberg said he loves audience testing, and the interview was like serious, and he was like, " Well, who the who the hell am I making movies for? I want to know what the audience wants out of a movie, and I appreciate that." Now, I mean, that being said, he still makes difficult movies that are intense, but he likes the process of getting that feedback.
 
-[00:24:36] Will: So, um, like this movie reviewed really well, and it has performed very poorly.
+[00:24:36] Will: So like this movie reviewed really well, and it has performed very poorly.
 
 [00:24:43] Norm: Very poorly.
 
@@ -790,7 +790,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:27:23] Adam: She is fantastic.
 
-[00:27:25] Norm: Well, fantastic. And I totally get what you mean with the the the mold. The
+[00:27:25] Norm: Well, fantastic. And I totally get what you mean with the mold. The
 
 [00:27:28] Adam: look. I mean, I'm quite sure that if you met any of these people in person, you'd be like, " Oh my god, I just can't even look at them. Like the light shining from their face is just blinding me. I mean, you know, these are these are not human people.
 
@@ -800,7 +800,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:27:38] Norm: You’re saying they’re attractive people?
 
-[00:27:41] Adam: Yeah, but I mean, like, I mean, if you've ever met like a movie star in real life, yeah, they're usually twice as attractive in person. I mean, it's like, look. I met Rick Santorum, and he's handsome.
+[00:27:41] Adam: Yeah, but I mean I mean, if you've ever met like a movie star in real life, yeah, they're usually twice as attractive in person. I mean, it's like, look. I met Rick Santorum, and he's handsome.
 
 [00:27:52] Norm: Look, I’ve met directors who are twice as attractive as you expect them to be, right?
 
@@ -838,7 +838,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:28:46] Adam: Hey, thanks for joining us, everybody.
 
-[00:28:48] Will: It was a good show this week. Um, so edge of tomorrow, like I just I'm just bummed. When a science fiction movie that reviews well seems like it's pretty pretty well thought out, maybe a couple of holes comes out and it doesn't do well in movie theaters. I get a little bummed out because we had a long stretch there where nobody made big budget science fiction movies because they bombed.
+[00:28:48] Will: It was a good show this week. So edge of tomorrow, like I just I'm just bummed. When a science fiction movie that reviews well seems like it's pretty pretty well thought out, maybe a couple of holes comes out and it doesn't do well in movie theaters. I get a little bummed out because we had a long stretch there where nobody made big budget science fiction movies because they bombed.
 
 [00:28:48] Adam: Yeah. And it— Would be a shame if this was part of the same trend.
 
@@ -862,7 +862,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:29:23] Will: That’s fantastic. Isn’t that great?
 
-[00:29:29] Adam: And writing it. And and again, Looper is another film that survives no scrutiny of its time travel whatsoever, but really enjoyable.
+[00:29:29] Adam: And writing it. And again, Looper is another film that survives no scrutiny of its time travel whatsoever, but really enjoyable.
 
 [00:29:35] Norm: He would defend that.
 

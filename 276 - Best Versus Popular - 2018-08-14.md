@@ -18,11 +18,11 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:00:22] Will: He's a delightful human being.
 
-[00:00:23] Adam: Also, you know, along with Stewart Brand, like one of the Forrest Gumps of the internet.
+[00:00:23] Adam: Also along with Stewart Brand, like one of the Forrest Gumps of the internet.
 
 [00:00:29] Will: You need to explain that. more.
 
-[00:00:31] Adam: I just feel like whenever you talk to Kevin, he was present at the beginning of so many important things. And even if he wasn't present, he was tangential and and part of the. You know, it's just like he shows up in all of these different. worlds.
+[00:00:31] Adam: I just feel like whenever you talk to Kevin, he was present at the beginning of so many important things. And even if he wasn't present, he was tangential and part of the. It's just like he shows up in all of these different. worlds.
 
 [00:00:45] Norm: He was in the room where it happened.
 
@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:01:07] Will: I've always been jealous of people.
 
-[00:01:08] Norm: I admire the people who want to work in, you know, there are people who want to write books, and books are great. But I love the periodical.
+[00:01:08] Norm: I admire the people who want to work in there are people who want to write books, and books are great. But I love the periodical.
 
 [00:01:14] Adam: So at one point, I said to Adam Rogers, " We're hanging out, and I was like, you know, I love Adam.
 
@@ -54,17 +54,17 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:01:49] Norm: Yeah, no, his job is curation.
 
-[00:02:00] Will: Yeah, it's it's funny because there was a there was a big conversation about fact checking a few weeks ago happening on the internet because of. I think stuff related to Elon Musk, but I can't remember. And one of the things that came out of that was Erin Biba was writing about was posted on Twitter about how you know if you work at if you see something in a magazine and it's a magazine that has an actual fact checking department because it's a month long process and because those fact or sometimes multi month process, you know if you've ever written anything for Wired, you know what it's like to get a call from their fact checking desk.
+[00:02:00] Will: Yeah, it's funny because there was a big conversation about fact checking a few weeks ago happening on the internet because of. I think stuff related to Elon Musk, but I can't remember. And one of the things that came out of that was Erin Biba was writing about was posted on Twitter about how you know if you work at if you see something in a magazine and it's a magazine that has an actual fact checking department because it's a month long process and because those fact or sometimes multi month process, you know if you've ever written anything for Wired, you know what it's like to get a call from their fact checking desk.
 
 [00:02:31] Adam: I've done it a bunch of times.
 
-[00:02:32] Will: Yeah, and they like I wrote a squirt gun review one time and I spent four hours on the phone, literally dismantling the squirt gun and taking pictures of the insides of it to to to validate that hey the way I said this thing works is the way it actually works and and as a result like the most aggressively fact checked content anywhere is going to be in a print public a print magazine right with a reputable
+[00:02:32] Will: Yeah, and they like I wrote a squirt gun review one time and I spent four hours on the phone, literally dismantling the squirt gun and taking pictures of the insides of it to validate that hey the way I said this thing works is the way it actually works and as a result like the most aggressively fact checked content anywhere is going to be in a print public a print magazine right with a reputable
 
 [00:02:32] Unknown speaker: yeah
 
 [00:02:32] Will: and it's a completely different thing.
 
-[00:02:57] Adam: I found the the types the specific the specificity of the questions they ask from the fact checking department at Wired to be thrilling
+[00:02:57] Adam: I found the types the specific the specificity of the questions they ask from the fact checking department at Wired to be thrilling
 
 [00:03:05] Will: and amazing.
 
@@ -78,9 +78,9 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:03:11] Adam: any any assertion gets gets combed over.
 
-[00:03:14] Will: Well, it's it's the thing that we lose going from a monthly publication, and Norman and I both started at monthly publications. Going from a monthly publication down to hey, how fast can we get this on the web and out there for the hot takes?
+[00:03:14] Will: Well, it's the thing that we lose going from a monthly publication, and Norman and I both started at monthly publications. Going from a monthly publication down to hey, how fast can we get this on the web and out there for the hot takes?
 
-[00:03:26] Adam: The number of the the number basically every article I read today is missing critical words in the middle of sentences because someone's dictation software. And by the way, I feel like almost everyone writing on the web is using dictation software at this point.
+[00:03:26] Adam: The number of the number basically every article I read today is missing critical words in the middle of sentences because someone's dictation software. And by the way, I feel like almost everyone writing on the web is using dictation software at this point.
 
 [00:03:39] Will: No, They're just using the predictive keyboards and they're bad.
 
@@ -98,7 +98,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:04:03] Adam: And he watches our videos and said, " What he would love us to do is to pull every time I have a little tip, like, 'Oh, hey, step drills are really neat for this.' He'd love us to come through a bunch of our old videos and put together a compendium of just little tips. And I think that's a great idea.
 
-[00:04:20] Will: It's one of those things we had talked about ages and ages and ages ago. I think maybe because Kevin brought it up five years ago, as hey, every time, yeah, like, like we need a bucket. You need a, but not we. You need a bucket of tips.
+[00:04:20] Will: It's one of those things we had talked about ages and ages ago. I think maybe because Kevin brought it up five years ago, as hey, every time, yeah we need a bucket. You need a, but not we. You need a bucket of tips.
 
 [00:04:20] Adam: Yeah, yeah.
 
@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:04:52] Adam: Actually, he was talking about that, and what he was saying was there are now translation services for video that are still really terrible, but they're good enough to go find the things you need to find in the video, and it'll timestamp it. And that's
 
-[00:05:04] Norm: one piece of it, totally. But you are also talking about like. Visual elements too. Like, what if I wanted to say, you know, I would love because video is it's a thousand words in every frame.
+[00:05:04] Norm: one piece of it, totally. But you are also talking about like. Visual elements too. Like, what if I wanted to say I would love because video is it's a thousand words in every frame.
 
 [00:05:04] Adam: Yeah.
 
@@ -120,13 +120,13 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:05:22] Norm: Yeah.
 
-[00:05:22] Will: Like, like look at look at what you can do with Google Photos or Apple Photos now, where they're doing machine learning on the images and doing image recognition, where I can type, you know, dog and dog catching frisbee, and it will give me every picture of my dog catching a frisbee that I've taken over the last 13 years.
+[00:05:22] Will: Like look at what you can do with Google Photos or Apple Photos now, where they're doing machine learning on the images and doing image recognition, where I can type dog and dog catching frisbee, and it will give me every picture of my dog catching a frisbee that I've taken over the last 13 years.
 
 [00:05:38] Adam: Amazing.
 
-[00:05:38] Norm: I mean, the the most magical thing is like books, right? The fact that I could search a phrase I distinctly remember in a book, but I don't remember the book title, and Google Books will have that, even if it's not 100% correct. I'm like, wow, it I I would never have been able to find this.
+[00:05:38] Norm: I mean, the most magical thing is like books, right? The fact that I could search a phrase I distinctly remember in a book, but I don't remember the book title, and Google Books will have that, even if it's not 100% correct. I'm like, wow, it I I would never have been able to find this.
 
-[00:05:56] Will: My favorite is is that I want that movie with that guy who drives a truck with a groundhog in it, and and you type that into Google, and it'll pop up, and it's like Bill Murray was in Groundhog Day in 1988.
+[00:05:56] Will: My favorite is is that I want that movie with that guy who drives a truck with a groundhog in it, and you type that into Google, and it'll pop up, and it's like Bill Murray was in Groundhog Day in 1988.
 
 [00:06:10] Adam: And that used to be what Ask MetaFilter was so good for.
 
@@ -138,11 +138,11 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:06:36] Adam: That's so. That's actually a. There's one of Jonathan Lethem's book, Chronic City, includes a character whose goal is to find YouTube searches for which there's only one. Sorry, not YouTube. Google. Google searches for which there's only one return.
 
-[00:06:52] Will: Yeah, like it for a while, probably prior to like 2003 or 2004, it was possible to find a two-word phrase that only had only had one page of results.
+[00:06:52] Will: Yeah, like it for a while, probably prior to like 2003 or 2004, it was possible to find a two-word phrase that only had one page of results.
 
 [00:06:52] Adam: Amazing.
 
-[00:07:05] Norm: I mean, it's Schrodinger's though. The moment you you type it in and you find it. You've you've limited the possibilities.
+[00:07:05] Norm: I mean, it's Schrodinger's though. The moment you type it in and you find it. You've you've limited the possibilities.
 
 [00:07:10] Will: You took the algorithm
 
@@ -158,19 +158,19 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:07:44] Adam: that's true.
 
-[00:07:44] Norm: He was big. He's a big Star Trek fan, and that's a convention I think he would he would have otherwise been at if not for Space Fest.
+[00:07:44] Norm: He was big. He's a big Star Trek fan, and that's a convention I think he would have otherwise been at if not for Space Fest.
 
 [00:07:58] Adam: Was anything important happen this weekend at Star Trek convention? Oh
 
 [00:08:00] Norm: yeah, of course.
 
-[00:08:01] Adam: [unclear: I don’t know / I know]. That was that was. Yes,
+[00:08:01] Adam: [unclear: I don’t know / I know] That was. Yes,
 
 [00:08:03] Norm: he knew. Yes.
 
 [00:08:04] Will: Oh, did something happen?
 
-[00:08:06] Norm: Are you are you being serious?
+[00:08:06] Norm: Are you being serious?
 
 [00:08:06] Will: What?
 
@@ -212,7 +212,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:08:46] Norm: No, Gary.
 
-[00:08:46] Will: Oh, Gary. Okay. Yeah, I, I, I was very excited. I'm, I'm, I. There's so many different ways you could go with that Patrick Stewart thing. Like it could be like an inner light kind of Patrick Stewart. It could be. I don't know.
+[00:08:46] Will: Oh, Gary. Okay. Yeah, I, I, I was very excited. I'm, I. There's so many different ways you could go with that Patrick Stewart thing. Like it could be like an inner light kind of Patrick Stewart. It could be. I don't know.
 
 [00:09:02] Norm: I don't think. I mean, and certainly many people listening to this podcast are of our generation who maybe watched Next Generation or Star Trek back in the early '90s. But a lot of millennials or younger folk don't realize how how big of a cultural phenomenon just watched Star Trek was.
 
@@ -228,7 +228,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:09:54] Norm: Exactly, you recorded it, so you'd in syndication 178 episodes. You watch, and if you missed a night, you have to wait till the next cycle of syndication to watch that episode.
 
-[00:10:03] Will: I just. I remember " Best of Both Worlds," the first part of the of the Locutus two parter, and like that aired in May, I think. And then we had to wait all summer.
+[00:10:03] Will: I just. I remember " Best of Both Worlds," the first part of the Locutus two parter, and like that aired in May, I think. And then we had to wait all summer.
 
 [00:10:12] Norm: Wow! Yeah,
 
@@ -248,15 +248,15 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:10:38] Adam: you couldn't do that.
 
-[00:10:39] Will: Like they would run like 10 episodes of the season, and then the new the new season would start. It was it was it was a dark time for TV watching.
+[00:10:39] Will: Like they would run like 10 episodes of the season, and then the new season would start. It was a dark time for TV watching.
 
-[00:10:45] Adam: I've been I've been going back and watching something which I I had watched part of the pilot and didn't think much of it, and then at a friend's vigorous recommendation, my wife and I have started watching The Americans.
+[00:10:45] Adam: I've been going back and watching something which I I had watched part of the pilot and didn't think much of it, and then at a friend's vigorous recommendation, my wife and I have started watching The Americans.
 
 [00:10:56] Will: Oh, that
 
 [00:10:57] Adam: I had never watched, and.
 
-[00:10:57] Norm: It's so great. Are you are you in the middle of the first season?
+[00:10:57] Norm: It's so great. Are you in the middle of the first season?
 
 [00:11:01] Adam: Yeah, I'm on episode five.
 
@@ -264,13 +264,13 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:11:03] Will: It's brutal at times.
 
-[00:11:11] Adam: It is very super uncomfortable to watch. Some really intense stuff. I find there’s a couple of episodes in which the writing is not great. Most of them, it's phenomenal. Tommy Schlamme, famously Aaron Sorkin's co producer on Sports Night and The West Wing, and an amazing Christine Lahti’s husband and an amazing television director and producer directed a few of the episodes. The quality of the acting that Jonathan [unclear: Rice / Rhais / Reyes] and and and and Keri Russell
+[00:11:11] Adam: It is very super uncomfortable to watch. Some really intense stuff. I find there’s a couple of episodes in which the writing is not great. Most of them, it's phenomenal. Tommy Schlamme, famously Aaron Sorkin's co producer on Sports Night and The West Wing, and an amazing Christine Lahti’s husband and an amazing television director and producer directed a few of the episodes. The quality of the acting that Jonathan [unclear: Rice / Rhais / Reyes] and Keri Russell
 
 [00:11:43] Will: yeah
 
 [00:11:44] Adam: just so incredible.
 
-[00:11:45] Will: Well, and and the FBI agent across the street Noah yeah is is
+[00:11:45] Will: Well, and the FBI agent across the street Noah yeah is is
 
 [00:11:45] Norm: yeah the sort of best friend from Truman Show
 
@@ -284,7 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:11:53] Will: I kept thinking he was Biff Tanner
 
-[00:11:54] Adam: that's it [unclear: that’s all my scatters / That’s all my scanners] like Biff Tanner no it's not Biff Tanner Biff Tanner no it's not I am like going to be Biff Tanner
+[00:11:54] Adam: that's it [unclear: that’s all my scatters / That’s all my scanners] like Biff Tanner no it's not Biff Tanner no it's not I am like going to be Biff Tanner
 
 [00:11:59] Norm: no he brings back Truman
 
@@ -292,9 +292,9 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:12:04] Will: yeah
 
-[00:12:04] Norm: the six pack that's right that's right he has a great speech
+[00:12:04] Norm: the six pack that's right he has a great speech
 
-[00:12:07] Will: um. Oh man, that show is very good. I I stopped watching after the first season just because it was the intensity level is too high for me.
+[00:12:07] Will: Oh man, that show is very good. I stopped watching after the first season just because it was the intensity level is too high for me.
 
 [00:12:14] Adam: I can't believe they can maintain it.
 
@@ -302,15 +302,15 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:12:14] Adam: I mean that's the thing. And John Tessier, showrunner on Mythbusters Junior, was telling me, " Oh no, you have a lot to look forward to. They really do maintain it." Because the first three episodes felt like I'd watched two whole movies.
 
-[00:12:27] Norm: Yeah, yes, and it's tense. It's in in the same way that Breaking Bad. It's tense throughout because it's a how how how is he going to get himself out of this mess? That show is very much a how are these this family? How is this couple going to get themselves out of this mess in this episode?
+[00:12:27] Norm: Yeah, yes, and it's tense. It's in the same way that Breaking Bad. It's tense throughout because it's a how how how is he going to get himself out of this mess? That show is very much a how are these this family? How is this couple going to get themselves out of this mess in this episode?
 
-[00:12:41] Adam: My wife has a theory about the about the deaths in the show. She said, " I think that." She said, " I think that I think they're going to follow this dictum that they're not going to kill anyone we know." Like that, the audience could change. I could change certainly, but up till now, everyone they've killed has been a one off. Like they've shown up to be killed, and then they've been killed, and then
+[00:12:41] Adam: My wife has a theory about the deaths in the show. She said, " I think that." She said, " I think that I think they're going to follow this dictum that they're not going to kill anyone we know." Like that, the audience could change. I could change certainly, but up till now, everyone they've killed has been a one off. Like they've shown up to be killed, and then they've been killed, and then
 
 [00:12:41] Will: spoiler alert:
 
 [00:12:41] Adam: people get killed.
 
-[00:13:06] Norm: Oh, in in all sorts of ways, in ways that you hear them, but you don't see it. Because it's made for cable television.
+[00:13:06] Norm: Oh, in all sorts of ways, in ways that you hear them, but you don't see it. Because it's made for cable television.
 
 [00:13:06] Will: Yeah.
 
@@ -332,7 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:13:32] Will: Awful. Yeah, like the level of think about the level of stress of like you having to do your tax return in the springtime, and then think about that level of stress constantly for your entire life. But also, if you mess it up, you'll get murdered.
 
-[00:13:47] Adam: Right, or or at the very least, you'll suffer extreme physical pain for weeks.
+[00:13:47] Adam: Right, or at the very least, you'll suffer extreme physical pain for weeks.
 
 [00:13:47] Will: Yeah,
 
@@ -348,7 +348,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:14:03] Norm: if you can find the time. Henry Cavill is in it. Tom Cruise does amazing stunts.
 
-[00:14:08] Adam: You know, there's sorry to interrupt, but there's a point in the trailer where Henry Cavill puts his dukes up.
+[00:14:08] Adam: There's sorry to interrupt, but there's a point in the trailer where Henry Cavill puts his dukes up.
 
 [00:14:08] Norm: Yeah, he reloads.
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:15:37] Will: Writer,
 
-[00:15:38] Norm: Usual Suspects. So he did from that collaboration with, you know, Bryan Singer, and then Bryan Singer did Valkyrie, and then he came onto his own. Empire Magazine. He talks about how they conceived of this film from the stunts. The two stunts you see in the the trailer, the helicopter chase scene where Tom Cruise is actually flying a helicopter,
+[00:15:38] Norm: Usual Suspects. So he did from that collaboration with Bryan Singer, and then Bryan Singer did Valkyrie, and then he came onto his own. Empire Magazine. He talks about how they conceived of this film from the stunts. The two stunts you see in the trailer, the helicopter chase scene where Tom Cruise is actually flying a helicopter,
 
 [00:15:38] Unknown speaker: yeah,
 
@@ -416,7 +416,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:16:03] Will: C 130 or something,
 
-[00:16:04] Norm: yeah, like a A forty four thousand or some some crazy jet, and that's all being filmed in real time. They had those stunts written on paper. They knew they were going to do that, and they wrote a movie around that, and You know, it's 98% on Rotten Tomatoes.
+[00:16:04] Norm: yeah, like a forty four thousand or some some crazy jet, and that's all being filmed in real time. They had those stunts written on paper. They knew they were going to do that, and they wrote a movie around that, and it's 98% on Rotten Tomatoes.
 
 [00:16:17] Will: So I,
 
@@ -430,7 +430,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:16:44] Unknown speaker: Yeah.
 
-[00:16:44] Norm: And then and and we still ran out of time.
+[00:16:44] Norm: And then and we still ran out of time.
 
 [00:16:44] Unknown speaker: Yeah.
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:17:00] Norm: next day.
 
-[00:17:01] Will: Oh my god. When I've done, like we did some commercial shoots and stuff like that last year, and it's not anywhere near like $300,000 a minute if you go over. But like, there's a when you have when you have union actors and you like you're you're.
+[00:17:01] Will: Oh my god. When I've done we did some commercial shoots and stuff like that last year, and it's not anywhere near like $300,000 a minute if you go over. But there's a when you have union actors and you like you're.
 
 [00:17:01] Norm: Your crew
 
@@ -466,11 +466,11 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:19:17] Will: comedy or musical. Yeah, get it right.
 
-[00:19:18] Norm: Why they feel like they need to do this? Because they currently they have one top film, and the public holds this institution in such high regard, and the ranking, right? The the fact that first it was what five films that got nominated, now 10 films, and of that one singular film. Now we all know here every top film list is made of five films and 10 films, or every top 10 list is made of 50 films.
+[00:19:18] Norm: Why they feel like they need to do this? Because they currently they have one top film, and the public holds this institution in such high regard, and the ranking, right? The fact that first it was what five films that got nominated, now 10 films, and of that one singular film. Now we all know here every top film list is made of five films and 10 films, or every top 10 list is made of 50 films.
 
 [00:19:18] Adam: Oh yeah.
 
-[00:19:18] Norm: So to have a singular, it's it's the one. It's a problem with the fact that you only have one winner, and then second, what does best film mean? And if you look at the Oscar, the best picture is you know outstanding achievement in film.
+[00:19:18] Norm: So to have a singular, it's the one. It's a problem with the fact that you only have one winner, and then second, what does best film mean? And if you look at the Oscar, the best picture is you know outstanding achievement in film.
 
 [00:19:18] Adam: Right, right, right.
 
@@ -506,11 +506,11 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:20:50] Norm: they said as much.
 
-[00:20:50] Adam: But the but the but the like they're announcing a category without announcing the metrics by which it gets decided.
+[00:20:50] Adam: But the like they're announcing a category without announcing the metrics by which it gets decided.
 
 [00:21:11] Norm: The metric, the problem is in the title of the category. Is the word popular? So you're already the subset of films that are qualified. You already already taking away the critical aspect, right? You're saying that the it's the only metric, the only thing that qualifies a film to be considered here is that it's successful in a non-critical arena.
 
-[00:21:31] Will: But but but if you look at like a film like The Big Sick that came out at the end of end of last year and had a fairly limited run for most of 2017 and then opened up wide in January, like does selling out 500 theaters a week is that popular?
+[00:21:31] Will: But if you look at like a film like The Big Sick that came out at the end of last year and had a fairly limited run for most of 2017 and then opened up wide in January, like does selling out 500 theaters a week is that popular?
 
 [00:21:47] Unknown speaker: [unclear: That’s I / That’s not popular].
 
@@ -528,7 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:21:56] Unknown speaker: It's a Simpsons joke.
 
-[00:21:59] Norm: Then you're saying well received film, right? Like what what is that?
+[00:21:59] Norm: Then you're saying well received film, right? Like what is that?
 
 [00:22:03] Will: Yeah, is it tomato meter? Do we mean it the tomato meter? I is like is the Last Jedi a popular film? It made $1 billion. Seems a little divisive.
 
@@ -562,11 +562,11 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:22:46] Adam: Except that I think that the one thing Oscars don't need more of is song and dance numbers.
 
-[00:22:53] Will: I don’t know. This is this is why you are not in charge of programming the Oscars, Adam.
+[00:22:53] Will: I don’t know. This is why you are not in charge of programming the Oscars, Adam.
 
 [00:22:57] Norm: It loves being in the '20s. I forever stuck in the '20s.
 
-[00:23:01] Will: So here is the thing: a lot of the criticism of a popular movie category is are the exact same things that we said 10 years ago when they rolled out the Best Animated Feature category, right? And and with a few exceptions, they've done a pretty good job with that.
+[00:23:01] Will: So here is the thing: a lot of the criticism of a popular movie category is are the exact same things that we said 10 years ago when they rolled out the Best Animated Feature category, right? And with a few exceptions, they've done a pretty good job with that.
 
 [00:23:01] Unknown speaker: Mm-hmm.
 
@@ -578,17 +578,17 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:23:38] Adam: I believe it usually is not.
 
-[00:23:40] Norm: Usually is not right. So and and
+[00:23:40] Norm: Usually is not right. So and
 
 [00:23:43] Adam: often, frankly, when it's been a popular movie like Dances with Wolves, it's not, and it doesn't end up being an important movie.
 
 [00:23:51] Will: Well, I mean, Titanic. Maybe you could argue as an important movie that won.
 
-[00:23:54] Adam: I I totally agree with that.
+[00:23:54] Adam: I totally agree with that.
 
 [00:23:56] Will: Return of the King, maybe. I don't know if Return of the King is actually an important movie, though. When I look back, on it.
 
-[00:24:00] Adam: what's funny is that I love Return of the King, but it's it's actually my least favorite of the three movies.
+[00:24:00] Adam: what's funny is that I love Return of the King, but it's actually my least favorite of the three movies.
 
 [00:24:03] Will: If you pick the important movie out of that trilogy, it's Two Towers.
 
@@ -600,7 +600,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:24:18] Will: They could still roll it back,
 
-[00:24:19] Norm: and and maybe they can. It's an evolving institution.
+[00:24:19] Norm: and maybe they can. It's an evolving institution.
 
 [00:24:22] Adam: They're not even planning to do it for this year, are they?
 
@@ -632,11 +632,11 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:24:44] Norm: The Oscar itself should be holding some popcorn.
 
-[00:24:48] Will: I think the Oscar should be like Spider-Man dangling from the ceiling, kissing somebody upside down. That's that's my nomination for the statuette.
+[00:24:48] Will: I think the Oscar should be like Spider-Man dangling from the ceiling, kissing somebody upside down. That's my nomination for the statuette.
 
 [00:24:53] Adam: So I always loved that scene, and then I read an interview with Tobey Maguire where he talked about hanging upside down for hours with water pouring in his nose.
 
-[00:25:02] Will: Yeah. And and it was like it was cold,
+[00:25:02] Will: Yeah. And it was like it was cold,
 
 [00:25:04] Adam: right?
 
@@ -648,11 +648,11 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:25:12] Adam: Yeah.
 
-[00:25:12] Will: But it's very clear that they were all shot on backlots in the same way that, like, the Tim Burton Batman movies were. Which I love and is neat, but they look really old as a result of that. Which
+[00:25:12] Will: But it's very clear that they were all shot on backlots in the same way that the Tim Burton Batman movies were. Which I love and is neat, but they look really old as a result of that. Which
 
 [00:25:24] Adam: is funny having been to the been to most of the like New York sets in L.A. It's hilarious how often I spot them in television commercials and everybody shows.
 
-[00:25:34] Will: Well, it's like it's like we've talked about this before, but in Batman Returns, Tim Burton shoots a lot of those fights like down with these Dutch angles,
+[00:25:34] Will: Well, it's like we've talked about this before, but in Batman Returns, Tim Burton shoots a lot of those fights like down with these Dutch angles,
 
 [00:25:34] Adam: right?
 
@@ -660,7 +660,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:25:47] Adam: me away about and I think I mentioned this when we were talking about it when it happened at the time, but the the season one of Jessica Jones, what blew me away was that they would be like, oh, I'm on the corner of 18th and 6th Avenue, and I, being a New Yorker, knew that they were actually on the corner of 18th and 6th. Every location they mention that they're in in that show seems to be the actual location. Do you think
 
-[00:26:08] Will: they shut it all down? You think they just cheated, like like went out with small handhelds?
+[00:26:08] Will: they shut it all down? You think they just cheated, like went out with small handhelds?
 
 [00:26:12] Adam: I think they. I don't know.
 
@@ -676,7 +676,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:26:16] Will: That's true.
 
-[00:26:16] Norm: I am the I am the hero of these eight blocks.
+[00:26:16] Norm: I am the hero of these eight blocks.
 
 [00:26:21] Will: Okay, so Norm.
 
@@ -718,7 +718,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:27:14] Will: The Wonder Woman is well. It hinges on a twist, and the twist is bad.
 
-[00:27:18] Adam: The and I didn't care about the twist, and I was surprised by it, and yet I didn't care about it. I thought that they elided my favorite villain, which was the the woman with the mask.
+[00:27:18] Adam: The and I didn't care about the twist, and I was surprised by it, and yet I didn't care about it. I thought that they elided my favorite villain, which was the woman with the mask.
 
 [00:27:28] Will: Yeah.
 
@@ -734,13 +734,13 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:27:42] Adam: It doesn't stick the landing. It's not terrible. It just doesn't stick the landing. So, so that's why I think Ragnarok, which is amazing.
 
-[00:27:48] Will: Ragnarok is perfect all the way through. I've watched Ragnarok probably 10 times now. Like Netflix has become the Thor Ragnarok channel in my house, and is it is it is
+[00:27:48] Will: Ragnarok is perfect all the way through. I've watched Ragnarok probably 10 times now. Like Netflix has become the Thor Ragnarok channel in my house, and is it is
 
 [00:27:57] Norm: And unquestionably a popular film and one that would not get recognized in a typical best picture.
 
 [00:28:04] Will: It's probably the lowest box office of all these movies, isn't it?
 
-[00:28:06] Norm: Uh, not number eight, but uh, it made more way more than Coco. Okay. Coco is number 13. Coco,
+[00:28:06] Norm: Uh, not number eight, but it made more way more than Coco. Okay. Coco is number 13. Coco,
 
 [00:28:06] Unknown speaker: Coco came out at the end of the year, though.
 
@@ -754,13 +754,13 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:28:19] Adam: Yeah.
 
-[00:28:19] Will: And and like Coco is a pretty near a perfect film.
+[00:28:19] Will: And like Coco is a pretty near a perfect film.
 
 [00:28:19] Adam: Yeah.
 
-[00:28:19] Will: Like it's it's a it's an astounding piece
+[00:28:19] Will: Like it's a it's an astounding piece
 
-[00:28:50] Adam: of work. I I was blown away by I'm always blown away by the by the tightness. I mean, they're so famous about their story attention, but I'm always blown away by Pixar's the tightness and it's almost like every one of their plots is a Swiss watch. The way Coco leads you to leads one to believe in the beginning, the first five minutes, you're like, oh, I kind of see what how this movie's going to go, and then. 30 minutes later, you're like, I have no idea what's going to happen.
+[00:28:50] Adam: of work. I was blown away by I'm always blown away by the tightness. I mean, they're so famous about their story attention, but I'm always blown away by Pixar's the tightness and it's almost like every one of their plots is a Swiss watch. The way Coco leads you to leads one to believe in the beginning, the first five minutes, you're like, oh, I kind of see what how this movie's going to go, and then. 30 minutes later, you're like, I have no idea what's going to happen.
 
 [00:29:16] Will: Yeah.
 
@@ -792,7 +792,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:29:48] Norm: Yes.
 
-[00:29:49] Will: Norm, you just you just weren't beating.
+[00:29:49] Will: Norm, you just weren't beating.
 
 [00:29:49] Norm: I'm sorry.
 
@@ -820,7 +820,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:30:20] Will: This is just sloppy. I apologize.
 
-[00:30:22] Norm: This is the Moonlight year. Okay, the year Moonlight won. Okay, of the the top grossing films, the five I am going to call out: Rogue One,
+[00:30:22] Norm: This is the Moonlight year. Okay, the year Moonlight won. Okay, of the top grossing films, the five I am going to call out: Rogue One,
 
 [00:30:22] Will: Okay.
 
@@ -844,7 +844,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:30:47] Adam: I'd say Rogue One followed by Zootopia, which I love Zootopia.
 
-[00:30:50] Will: I, I would, I would like. It's a toss up for me between Rogue One and Zootopia. I mean, I have bias as well. I
+[00:30:50] Will: I would like. It's a toss up for me between Rogue One and Zootopia. I mean, I have bias as well. I
 
 [00:30:55] Norm: think this is tough, right?
 
@@ -860,7 +860,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:31:06] Adam: So I think you'd probably be removing those. Yeah.
 
-[00:31:09] Norm: Yeah. I think Civil War has too much going on, so it's easy to like. It's it's just a it's.
+[00:31:09] Norm: Yeah. I think Civil War has too much going on, so it's easy to like. It's just a it's.
 
 [00:31:15] Adam: I love Civil War, but it's not. It's it's my third favorite Cap film, second favorite Cap film. I think Winter Soldier is the best.
 
@@ -884,15 +884,15 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:31:37] Norm: So maybe this is the Star Wars movie year. All right.
 
-[00:31:40] Will: I I real I I still I really think Zootopia is the is the best film that Disney Disney Animation Studios put out.
+[00:31:40] Will: I real I I still I really think Zootopia is the best film that Disney Disney Animation Studios put out.
 
-[00:31:46] Adam: I I met the directors of that film at one of Giacchino's recording sessions.
+[00:31:46] Adam: I met the directors of that film at one of Giacchino's recording sessions.
 
 [00:31:51] Unknown speaker: Yeah, yeah.
 
-[00:31:52] Adam: They were very they were they were awesome, and I was we talked a bit about how much you know about the story about how they changed the whole plot of that movie.
+[00:31:52] Adam: They were very they were awesome, and I was we talked a bit about how much you know about the story about how they changed the whole plot of that movie.
 
-[00:31:58] Will: It was originally about it was originally about Justin Bateman, right?
+[00:31:58] Will: It was originally about Justin Bateman, right?
 
 [00:31:58] Adam: Yeah,
 
@@ -944,7 +944,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:32:40] Adam: Wow.
 
-[00:32:40] Will: I think it's a better film than Finding Dory. I definitely a better film than Finding Dory. I think it's probably a better film than Moana. I look, look as as the parent of a five year old, I've watched each of these movies at least a thousand times.
+[00:32:40] Will: I think it's a better film than Finding Dory. I definitely a better film than Finding Dory. I think it's probably a better film than Moana. I look, look as the parent of a five year old, I've watched each of these movies at least a thousand times.
 
 [00:32:51] Adam: Okay. Okay. What's 2015?
 
@@ -970,7 +970,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:33:15] Adam: gonna go to the bathroom. Wow,
 
-[00:33:16] Norm: you guys completely bypass both Force Awakens and and Jurassic World.
+[00:33:16] Norm: you guys completely bypass both Force Awakens and Jurassic World.
 
 [00:33:22] Will: Force Awakens is fine, but it's not. It's not better. Jurassic World is not a great movie.
 
@@ -988,11 +988,11 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:33:40] Norm: Right? Is that if they're gonna pick if the if if the category is for popular film, then they have to pick the one within that criteria
 
-[00:33:55] Adam: that it was selected. Which is the which is the rating system that takes takes the fan ratings?
+[00:33:55] Adam: that it was selected. Which is the rating system that takes takes the fan ratings?
 
 [00:34:00] Norm: Both Metacritic and Rotten Tomatoes have a fan rating section.
 
-[00:34:04] Adam: Okay. Right. Because that might be one of their metrics. They might they might aggregate fan ratings. For films,
+[00:34:04] Adam: Okay. Right. Because that might be one of their metrics. They might aggregate fan ratings. For films,
 
 [00:34:11] Will: that's a terrible idea. Look, ask the
 
@@ -1010,7 +1010,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:34:51] Adam: I have not seen it.
 
-[00:34:52] Will: You you are missing out, sir.
+[00:34:52] Will: You are missing out, sir.
 
 [00:34:53] Adam: I have not seen any of the Fast and Furious films.
 
@@ -1026,7 +1026,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:35:14] Will: Yeah, you need a tank,
 
-[00:35:15] Adam: and you need to drop it from high enough to fire. I mean, it's like we we it came across on Mythbusters production team, and we were like, yeah, I don't think so.
+[00:35:15] Adam: and you need to drop it from high enough to fire. I mean, it's like we it came across on Mythbusters production team, and we were like, yeah, I don't think so.
 
 [00:35:23] Norm: Should you choose this mission?
 
@@ -1102,7 +1102,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:36:42] Adam: Already Four years ago,
 
-[00:36:43] Norm: yeah. And now this is the year where I think it's going to be easy for us to pick. You got Hunger Games, yeah. The the last one, Mockingjay. You got Guardians of the Galaxy,
+[00:36:43] Norm: yeah. And now this is the year where I think it's going to be easy for us to pick. You got Hunger Games, yeah. The last one, Mockingjay. You got Guardians of the Galaxy,
 
 [00:36:51] Adam: yeah.
 
@@ -1112,13 +1112,13 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:36:57] Will: that the one with the dinosaurs or the swords?
 
-[00:36:58] Norm: I I don't know.
+[00:36:58] Norm: I don't know.
 
 [00:37:01] Adam: It's actually that's the one with dinosaurs.
 
 [00:37:03] Will: Look, look, there's
 
-[00:37:04] Norm: the the last Hobbit movie, and there's Winter Soldier.
+[00:37:04] Norm: the last Hobbit movie, and there's Winter Soldier.
 
 [00:37:08] Will: Let me make a case for transform. No, I can't do it.
 
@@ -1138,13 +1138,13 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:37:21] Adam: That's the tough. Those are the tough pair.
 
-[00:37:24] Will: Winter Soldier wins that hands down. Winter Soldier is a perfect film. Guardians is good, but it's not perfect. Guardians is real plotty and and and like they go a lot of places that just set up stuff for future movies. Like they set up stuff that happened in Infinity War.
+[00:37:24] Will: Winter Soldier wins that hands down. Winter Soldier is a perfect film. Guardians is good, but it's not perfect. Guardians is real plotty and like they go a lot of places that just set up stuff for future movies. Like they set up stuff that happened in Infinity War.
 
 [00:37:37] Norm: Guardians made so much more money, almost 100 million more.
 
 [00:37:40] Will: Not who makes the most money. This isn’t the Grammys
 
-[00:37:42] Adam: going. I would agree with you on that. I would agree. I'm I'm I'm I'm Guardians Two is so fantastic. I am putting some of its quality in Guardians.
+[00:37:42] Adam: going. I would agree with you on that. I would agree. I'm Guardians Two is so fantastic. I am putting some of its quality in Guardians.
 
 [00:37:50] Will: Guardians One's way better than Guardians Two.
 
@@ -1154,7 +1154,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:37:56] Adam: Oh no, no.
 
-[00:37:56] Will: Remember when Cap when when he's in the elevator and he says, " We want to do this now."
+[00:37:56] Will: Remember when Cap when he's in the elevator and he says, " We want to do this now."
 
 [00:37:56] Adam: Yeah,
 
@@ -1222,17 +1222,17 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:40:02] Will: One of the critics I follow also pointed out that this airs on ABC, which is. Owned by the company that is most likely to benefit from this change,
 
-[00:40:10] Norm: which which has 40% of the domestic gross on films.
+[00:40:10] Norm: which has 40% of the domestic gross on films.
 
 [00:40:14] Will: Yeah, exactly.
 
 [00:40:15] Norm: Yes, Mouse.
 
-[00:40:16] Will: The the thing I will say is that I I don't know what the Academy ballots look like, but I I I vote on several game award things, and the the balloting for that stuff like is so incredibly specific about the constraints of the categories, and like depending on especially on the more on the technical stuff, but even on the broad stuff like best best VR game or whatever, you have such specific criteria that they're going to know whether the like what what's the judge of popular. You know, here's the list of movies that can be considered popular for this year, and it's not going to be. I I don't think it will be a hey you know I people really love The Rock versus Chris Pratt was super funny in that dance scene at the beginning of Guardians of the Galaxy.
+[00:40:16] Will: The thing I will say is that I I don't know what the Academy ballots look like, but I I I vote on several game award things, and the balloting for that stuff like is so incredibly specific about the constraints of the categories, and like depending on especially on the more on the technical stuff, but even on the broad stuff like best best VR game or whatever, you have such specific criteria that they're going to know whether the like what what's the judge of popular. Here's the list of movies that can be considered popular for this year, and it's not going to be. I don't think it will be a hey you know I people really love The Rock versus Chris Pratt was super funny in that dance scene at the beginning of Guardians of the Galaxy.
 
 [00:40:59] Norm: And fundamentally, I think the awards in general are too focused on the people who watch awards and care about awards are too focused on crowning a winner than celebrating the field. And I know the Oscars wants to celebrate the field. I think as people who enjoy movies enjoy, like thinking about movies and watching movies, we want to celebrate achievements in filmmaking, not necessarily crown a winner.
 
-[00:41:23] Will: But you know, as the great sage Ricky Bobby said, " If you're not first, you're last." Norm. So.
+[00:41:23] Will: But as the great sage Ricky Bobby said, " If you're not first, you're last." Norm. So.
 
 [00:41:29] Norm: There you go. That's a perfect.
 
@@ -1248,7 +1248,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:41:44] Will: You did that like six years ago. Now I was still here when you shot those videos. It seems like.
 
-[00:41:48] Norm: And this is going out. But the previous week, we also released Adam painting his contribution to the Magic Wheelchair Project for Comic Con this this year, which is this. He did a. You did an astromech.
+[00:41:48] Norm: And this is going out. But the previous week, we also released Adam painting his contribution to the Magic Wheelchair Project for Comic Con this year, which is this. He did a. You did an astromech.
 
 [00:42:00] Adam: Yes. R2
 

@@ -14,9 +14,9 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:00:07] Unknown speaker: welcome back!
 
-[00:00:07] Adam: Thank you. I, I, you've been gone longer than I have.
+[00:00:07] Adam: Thank you. I, you've been gone longer than I have.
 
-[00:00:11] Will: Oh, that's true. You guys, you guys, you guys,
+[00:00:11] Will: Oh, that's true. You guys,
 
 [00:00:13] Adam: We two-timed on you, Will.
 
@@ -66,23 +66,23 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:01:23] Adam: Yeah.
 
-[00:01:23] Norm: and and and you know TV show showrunners and you were invigorated.
+[00:01:23] Norm: and you know TV show showrunners and you were invigorated.
 
 [00:01:23] Adam: Yeah,
 
-[00:01:23] Norm: it feels like this is the perfect time to not let that energy wane to roll into. You know, another production.
+[00:01:23] Norm: it feels like this is the perfect time to not let that energy wane to roll into. Another production.
 
-[00:01:55] Adam: And you know, these aren't. It's not like this is seasonal. These are just new modes of of working. So for the longest time, we we did all the tested stuff while I was shooting full time.
+[00:01:55] Adam: And these aren't. It's not like this is seasonal. These are just new modes of working. So for the longest time, we did all the tested stuff while I was shooting full time.
 
 [00:01:55] Will: Yeah.
 
-[00:01:55] Adam: MythBusters Junior. I was on set for three days out of five every week, and those days changed. the The production wrapped. We only went, I think, three or four days over schedule, which is amazing because we really didn't have enough time to make that show. But John Tessier, the showrunner, made it work. And the wrapping was the wrapping it up was super bittersweet. I I'm going to miss these kids so much. I the kids I gave them all black EDC bags.
+[00:01:55] Adam: MythBusters Junior. I was on set for three days out of five every week, and those days changed. the production wrapped. We only went, I think, three or four days over schedule, which is amazing because we really didn't have enough time to make that show. But John Tessier, the showrunner, made it work. And the wrapping was the wrapping it up was super bittersweet. I I'm going to miss these kids so much. I the kids I gave them all black EDC bags.
 
 [00:01:55] Will: Oh, nice.
 
 [00:01:55] Adam: Yeah. The their faces were just beams of smile. It was really awesome. I gave the whole crew EDC bags.
 
-[00:02:46] Will: I assume I assume that now that the kids are property of Discovery Channel, they'll pop back up on other shows here and there, right? Like Shark Week.
+[00:02:46] Will: I assume that now that the kids are property of Discovery Channel, they'll pop back up on other shows here and there, right? Like Shark Week.
 
 [00:02:52] Adam: That's above my pay grade.
 
@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:03:24] Norm: well, yeah, I was about to say,
 
-[00:03:27] Adam: go for the go for the segue.
+[00:03:27] Adam: go for the segue.
 
 [00:03:29] Norm: You're returning here, but also
 
@@ -134,9 +134,9 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:04:14] Norm: no, Loki's been there for a while.
 
-[00:04:15] Adam: So yeah, and then there's got it. We got to sift through all this stuff. I saved some of my favorite objects from from the production. We made some really cool, weird things.
+[00:04:15] Adam: So yeah, and then there's got it. We got to sift through all this stuff. I saved some of my favorite objects from the production. We made some really cool, weird things.
 
-[00:04:25] Will: I'm really excited about the show. Like, like as the parent of a kid that is the right age to watch the show, finally.
+[00:04:25] Will: I'm really excited about the show. Like as the parent of a kid that is the right age to watch the show, finally.
 
 [00:04:25] Adam: Yeah,
 
@@ -166,13 +166,13 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:05:18] Adam: that used to be my first shop.
 
-[00:05:19] Norm: So I didn't know if for Junior, because very clearly for Junior, a lot of this production design, set design was informed by the stuff you had and stuff you wanted to infuse with, and also, of course, you know, being true to what you did when the other show. How was that different? Or like this? This felt like I remember when you were setting up. It was a truckload of stuff that it was
+[00:05:19] Norm: So I didn't know if for Junior, because very clearly for Junior, a lot of this production design, set design was informed by the stuff you had and stuff you wanted to infuse with, and also, of course being true to what you did when the other show. How was that different? Or like this? This felt like I remember when you were setting up. It was a truckload of stuff that it was
 
 [00:05:38] Adam: a truckload. It frankly, it was hard to get the density that I wanted because I want the I I always want the set to not feel like a set.
 
 [00:05:38] Norm: Yeah.
 
-[00:05:38] Adam: Um. But we built it on the soundstage, so there. It it feels somewhat like a set, although you know we worked really hard to use it. We had access to another shop, so some builds happened in other shops than the than the main one. But my goal was to keep on bringing stuff. So in addition to that first truckload that went, I kept on bringing stuff up every time I went.
+[00:05:38] Adam: But we built it on the soundstage, so there. It feels somewhat like a set, although you know we worked really hard to use it. We had access to another shop, so some builds happened in other shops than the main one. But my goal was to keep on bringing stuff. So in addition to that first truckload that went, I kept on bringing stuff up every time I went.
 
 [00:05:38] Norm: Yeah.
 
@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:06:44] Adam: Speaking of fans of tested, I am late, but I finally gave you some things to scan this week.
 
-[00:06:53] Norm: Yes. Yeah, I'm very excited. Yes, or if you're if you're one of our members, you will be very excited about what's coming in the near future.
+[00:06:53] Norm: Yes. Yeah, I'm very excited. Yes, or if you're one of our members, you will be very excited about what's coming in the near future.
 
 [00:06:59] Will: I have no idea what you're talking about.
 
@@ -212,9 +212,9 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:07:16] Norm: Yeah.
 
-[00:07:16] Adam: Yeah. So it's it's great that Wednesday was such a slow news day.
+[00:07:16] Adam: Yeah. So it's great that Wednesday was such a slow news day.
 
-[00:07:25] Will: Look, the thing I I want to say was Patton Oswalt, but it probably wasn't. Whoever came up with the remember when you woke up this morning that was three years ago thing. Right. Never been more true. Like the last 10 days have been bananas for news. Um,
+[00:07:25] Will: Look, the thing I I want to say was Patton Oswalt, but it probably wasn't. Whoever came up with the remember when you woke up this morning that was three years ago thing. Right. Never been more true. Like the last 10 days have been bananas for news.
 
 [00:07:38] Adam: my personal favorite. Hold on, I got to find this
 
@@ -228,7 +228,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:07:51] Will: Keep looking it up.
 
-[00:07:52] Adam: Find, how do I even, how do I even search for something?
+[00:07:52] Adam: Find, how do I even search for something?
 
 [00:07:54] Will: I just, I I just replied and asked if he maybe a witch hunt was in order.
 
@@ -248,11 +248,11 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:08:23] Adam: Early Steven Soderbergh, George Clooney, Jennifer Lopez, Don Cheadle, Steve Zahn.
 
-[00:08:42] Will: Was that was that the first movie he made after Sex Lies and Videotape? Was like the
+[00:08:42] Will: Was that the first movie he made after Sex Lies and Videotape? Was like the
 
 [00:08:45] Adam: No, the first movie he made after Sex Lies and Videotape was Schizopolis, a Franz Kafka film. Then after that, he made King of the Hill. A coming of age story, which nobody saw.
 
-[00:09:02] Will: Well, I’ve never seen, I’ve never seen either of those. Very weird.
+[00:09:02] Will: Well, I’ve never seen either of those. Very weird.
 
 [00:09:04] Adam: Movie. Schizopolis is a madhouse with Jeremy Irons, if I remember correctly.
 
@@ -268,7 +268,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:09:32] Adam: So out of sight is '98. Sex Sex Lies videotape is like nine ninety.
 
-[00:09:40] Will: I watched Sex Lies and Videotape. Like I don't know that I've ever actually seen Sex Lies and Videotape with dialogue, because I watched it on the on the satellite dish, and I think we. Like on the big satellite dish, you could get the picture at the time, but not the sound.
+[00:09:40] Will: I watched Sex Lies and Videotape. Like I don't know that I've ever actually seen Sex Lies and Videotape with dialogue, because I watched it on the satellite dish, and I think we. Like on the big satellite dish, you could get the picture at the time, but not the sound.
 
 [00:09:53] Norm: Sometimes all you need.
 
@@ -352,7 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:12:30] Will: And then from there, I didn't do that at all.
 
-[00:12:32] Adam: But as they're sitting having a drink, they're also having a seduction, and it's a very mutual seduction, and it's beautifully done because you keep while they're talking over a table, you're flashing forward to them in a hotel room, slowly moving towards each other, and it's this, it's this unsynced time shifting that makes it such a powerful.
+[00:12:32] Adam: But as they're sitting having a drink, they're also having a seduction, and it's a very mutual seduction, and it's beautifully done because you keep while they're talking over a table, you're flashing forward to them in a hotel room, slowly moving towards each other, and it's this unsynced time shifting that makes it such a powerful.
 
 [00:13:00] Will: That’s the power of cinema.
 
@@ -366,7 +366,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:13:09] Adam: What's that?
 
-[00:13:10] Will: Like lit, really, like sharp, sharp lighting with like with like.
+[00:13:10] Will: Lit, really, like sharp lighting with like.
 
 [00:13:14] Adam: You mean like that
 
@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:13:30] Adam: Clearly, that love scene from Out of Sight inspired him to see if he could structure a movie in a non-standard way, and The Limey is a total masterpiece in this regard. I love the Limey.
 
-[00:13:42] Norm: every heist film he's done since the the flash forward of is a that's a essential part of every heist film.
+[00:13:42] Norm: every heist film he's done since the flash forward of is a that's a essential part of every heist film.
 
 [00:13:42] Adam: Interesting.
 
@@ -396,13 +396,13 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:14:08] Adam: Oh, at the very end. Okay.
 
-[00:14:10] Will: They cleaned out the the sorry spoilers for a 20 year old movie. They cleaned out the casino
+[00:14:10] Will: They cleaned out the sorry spoilers for a 20 year old movie. They cleaned out the casino
 
 [00:14:15] Adam: yeah
 
 [00:14:15] Will: before days before the actual
 
-[00:14:18] Adam: not days before they were cleaning they were they were running different they were cleaning out a different vault than they thought they were cleaning out they weren't where they thought they were because they ran
+[00:14:18] Adam: not days before they were cleaning they were running different they were cleaning out a different vault than they thought they were cleaning out they weren't where they thought they were because they ran
 
 [00:14:27] Will: tape they made a fake vault
 
@@ -420,7 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:14:28] Adam: Ocean's Eight follows the exact same
 
-[00:14:40] Norm: yes it's wonderful the the the heist you didn't see
+[00:14:40] Norm: yes it's wonderful the heist you didn't see
 
 [00:14:43] Adam: yeah well so to be honest I look I want to talk about Ocean's Eight for a sec
 
@@ -438,7 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:15:08] Norm: Yeah,
 
-[00:15:08] Adam: just like you know, you want her, you want her hold, you want her riding shotgun, or you want to ride shotgun while she drives.
+[00:15:08] Adam: just like you want her hold, you want her riding shotgun, or you want to ride shotgun while she drives.
 
 [00:15:08] Norm: Yes,
 
@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:16:02] Adam: I really, really liked it. It is light.
 
-[00:16:06] Will: Yeah. Um, I, I, it was exactly like, I, you, heavy heist movies are too stressful.
+[00:16:06] Will: Yeah. I, it was exactly like, I, you, heavy heist movies are too stressful.
 
 [00:16:13] Adam: No, it's true, but there's a balance for me, and Ocean's Eleven strikes it perfectly. Whereas Ocean's Twelve and Thirteen, I find both of those, I don't like either of those movies nearly as much.
 
@@ -518,7 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:17:12] Adam: I was bored by all that.
 
-[00:17:12] Norm: And then the third one, it's supposed to be for them and and their friend.
+[00:17:12] Norm: And then the third one, it's supposed to be for them and their friend.
 
 [00:17:16] Will: Which one has the unforgivable meta thing where Julia Roberts plays somebody who looks like Julia Roberts?
 
@@ -540,7 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:17:58] Will: I never have not liked an Anne Hathaway movie.
 
-[00:18:01] Adam: Absolutely. So, like, I think she's an artist at the top of her form.
+[00:18:01] Adam: Absolutely. So I think she's an artist at the top of her form.
 
 [00:18:04] Will: I haven't watched. I've got a few years before * Princess Diaries* comes up in rotation with the kid, Norm.
 
@@ -550,9 +550,9 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:18:15] Adam: Sarah Polley,
 
-[00:18:23] Norm: Mindy Kaling, Mindy Kaling. Awkwafina,
+[00:18:23] Norm: Mindy Kaling. Awkwafina,
 
-[00:18:26] Will: and and and oh God, the I can't remember what's her name from all the Tim Burton movies.
+[00:18:26] Will: and oh God, the I can't remember what's her name from all the Tim Burton movies.
 
 [00:18:34] Norm: Helen Bonham Carter.
 
@@ -574,13 +574,13 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:19:27] Adam: no, no, no? Just look like a Polaroid in a snap frame.
 
-[00:19:30] Norm: What about alligator clips on the on the cables? And now I've tapped into your security feeds. Right,
+[00:19:30] Norm: What about alligator clips on the cables? And now I've tapped into your security feeds. Right,
 
 [00:19:34] Will: look, man, you break that encryption right away.
 
 [00:19:37] Adam: Ocean's Eleven is so good.
 
-[00:19:40] Norm: You know, I watched recently in terms of old movies. I watched rewatch all of Heat.
+[00:19:40] Norm: I watched recently in terms of old movies. I watched rewatch all of Heat.
 
 [00:21:09] Adam: Oh, So I was going to bring that up in terms of heist films with stakes because
 
@@ -590,17 +590,17 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:21:41] Norm: Well, and then that that whole scene that begins it right because they're so confident, they're smiling. Ray Winstone’s in the car. They're ready to drive off, and I mean it's completely unrealistic. And then Pacino, you know, the detective has an equivalent automatic weapon running down the street. Like it's one of the craziest firefights in a film ever.
 
-[00:22:01] Will: Well, that. And then the scene, the scene at the airport with Pacino and and and Robert De Niro when when you're like De Niro makes good on the have to be able to walk away at any moment you know monologue from earlier with the
+[00:22:01] Will: Well, that. And then the scene at the airport with Pacino and Robert De Niro when you're like De Niro makes good on the have to be able to walk away at any moment you know monologue from earlier with the
 
 [00:22:15] Norm: hotel yeah the hotel yeah yeah yeah
 
-[00:22:17] Will: and it's like that that is just like at that at that point like at that point De Niro and Pacino were at the the peaks of their
+[00:22:17] Will: and it's like that that is just like at that point De Niro and Pacino were at the peaks of their
 
 [00:22:17] Norm: so amazing
 
-[00:22:17] Will: you know of their trajectories
+[00:22:17] Will: Of their trajectories
 
-[00:22:27] Adam: Michael Mann Michael Mann is someone who you can crawl through their filmography and you will never be disappointed
+[00:22:27] Adam: Michael Mann is someone who you can crawl through their filmography and you will never be disappointed
 
 [00:22:33] Will: Have you seen Miami Vice Adam
 
@@ -612,7 +612,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:22:43] Norm: I counter with collateral
 
-[00:22:44] Will: It's not never never not disappointed It's hold on Yeah But it's it's it's fine
+[00:22:44] Will: It's not never never not disappointed It's hold on Yeah But it's fine
 
 [00:22:49] Adam: So one of the things I'll say about Man is he reminds me a little of Alan Parker sometimes Alan Parker did Angel Heart. So he also did Mississippi Burning. He did Bugsy Malone,
 
@@ -626,13 +626,13 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:23:15] Will: kind of like a Danny Boyle. Like he does a little something different every time.
 
-[00:23:19] Adam: Not really, because Parker was Parker and Mann are both incredible craftspeople. Like that the just in terms of setting a frame, setting a scene, setting a mise en scène, they're they're the best. But sometimes they're so good at it, I find personally the films leave me a little cold. Like there's a little warmth missing, and
+[00:23:19] Adam: Not really, because Parker was Parker and Mann are both incredible craftspeople. Like that the just in terms of setting a frame, setting a scene, setting a mise en scène, they're the best. But sometimes they're so good at it, I find personally the films leave me a little cold. Like there's a little warmth missing, and
 
 [00:23:38] Norm: and I think Heat avoids that because he had two characters that were inspired by real characters.
 
 [00:23:44] Adam: That's a good point.
 
-[00:23:45] Norm: That had that history with it. Yeah. The scene in Heat where they they get coffee.
+[00:23:45] Norm: That had that history with it. Yeah. The scene in Heat where they get coffee.
 
 [00:23:50] Will: Yeah.
 
@@ -640,7 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:23:56] Adam: Is it really
 
-[00:23:56] Norm: that the the cop that. Pacino's based on had and got
+[00:23:56] Norm: that the cop that. Pacino's based on had and got
 
 [00:24:00] Adam: No way.
 
@@ -648,7 +648,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:24:03] Adam: That's cool.
 
-[00:24:03] Norm: And was supposed to and and you know embellished a little bit, but they had that conversation about I'm going to chase you forever. I'm never going to stop doing what I'm doing.
+[00:24:03] Norm: And was supposed to and you know embellished a little bit, but they had that conversation about I'm going to chase you forever. I'm never going to stop doing what I'm doing.
 
 [00:24:10] Adam: Okay, so you just watched this movie recently?
 
@@ -664,7 +664,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:24:22] Will: How long have you known Norm, Adam?
 
-[00:24:24] Norm: That’s every, that’s every movie.
+[00:24:24] Norm: That’s every movie.
 
 [00:24:25] Adam: A little bit. So
 
@@ -694,7 +694,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:25:02] Will: season one.
 
-[00:25:03] Adam: I, you know, we have we can't quite binge it. We find in my house
+[00:25:03] Adam: I we have we can't quite binge it. We find in my house
 
 [00:25:03] Norm: it's brutal
 
@@ -702,7 +702,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:25:03] Norm: Yeah,
 
-[00:25:03] Adam: I gotta, I gotta like, I watch an episode and a half, and I'm like, I gotta, I gotta go to sleep.
+[00:25:03] Adam: I gotta like, I watch an episode and a half, and I'm like, I gotta go to sleep.
 
 [00:25:16] Norm: So I don't remember if this is in season one or two, but is there the suitcase scene?
 
@@ -714,7 +714,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:25:31] Adam: Oh yeah, how is that?
 
-[00:25:32] Will: Thing the first three to four episodes not great. After that, it gets really good. Like it's it's not.
+[00:25:32] Will: Thing the first three to four episodes not great. After that, it gets really good. Like it's not.
 
 [00:25:39] Adam: I appreciate you sticking with it because I usually give up after two episodes.
 
@@ -730,7 +730,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:26:16] Adam: You guys might not know this. I don't think I've mentioned on the podcast. I read. I've read all the Jack Reacher novels.
 
-[00:26:23] Will: You handed us each one as homework last time, and and I haven't started reading it.
+[00:26:23] Will: You handed us each one as homework last time, and I haven't started reading it.
 
 [00:26:27] Adam: Oh no, they're really enjoyable. They're worth reading. There's like 22 of them. And my production manager on Junior, Elizabeth Daly, also a fan of Jack Reacher, the first IRL person that I have met that I know that also reads them all, and introduced me to the Michael Collins Harry Bosch novels
 
@@ -748,7 +748,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:27:02] Adam: That is, I'm, I'm really impressed.
 
-[00:27:04] Norm: this is this is why I go on the wikis after watching everything.
+[00:27:04] Norm: this is why I go on the wikis after watching everything.
 
 [00:27:07] Will: Hold on, I thought you're you're not talking about the guy who played the the alien host in the first one.
 
@@ -760,7 +760,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:27:17] Will: Yeah, yeah, okay.
 
-[00:27:19] Norm: No, he's he's a
+[00:27:19] Norm: No, he's a
 
 [00:27:20] Adam: Titus Welliver.
 
@@ -774,13 +774,13 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:27:26] Adam: I want him to do a movie with Hannibal Buress.
 
-[00:27:30] Will: Yeah, I watched it. Yeah, and and Burgess Meredith if he was undead. Um, how how are the Bosch books?
+[00:27:30] Will: Yeah, I watched it. Yeah, and Burgess Meredith if he was undead. How how are the Bosch books?
 
-[00:27:36] Adam: They're very enjoyable. It's an LA police homicide detective. Um, lots of procedural stuff. Well written, clearly. Look, he's totally inspired by Chandler. He mentions him in all three books I've read thus far, and I'm getting the reference. Like it's not just referencing Chandler, but also referencing specific books and specific frameworks.
+[00:27:36] Adam: They're very enjoyable. It's an LA police homicide detective. Lots of procedural stuff. Well written, clearly. Look, he's totally inspired by Chandler. He mentions him in all three books I've read thus far, and I'm getting the reference. Like it's not just referencing Chandler, but also referencing specific books and specific frameworks.
 
 [00:27:58] Norm: So this is how I imagine a lot of these shows get made, right? Like people are obsessed about characters that they've Built in their heads from book series, right? Whether it's Jack Ryan, which is now a show or Bosch, or and the showrunners there with the creators are very passionate, but a lot of that can get either lost in translation on the screen, or it's just not the right medium.
 
-[00:28:19] Adam: Well, and you can't ever like casting one of those characters that someone spent hundreds of hours living inside of is always going to disappoint. And as reference, I'll point out, you know, nobody thinks Tom Cruise's Jack Reacher is correct casting, even though the first Jack Reacher movie is fantastic.
+[00:28:19] Adam: Well, and you can't ever like casting one of those characters that someone spent hundreds of hours living inside of is always going to disappoint. And as reference, I'll point out nobody thinks Tom Cruise's Jack Reacher is correct casting, even though the first Jack Reacher movie is fantastic.
 
 [00:28:19] Norm: Yeah,
 
@@ -788,7 +788,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:28:39] Norm: Chris McQuarrie talks about how the fan service he did in that movie goes completely unappreciated. Like, there's a scene where Tom Cruise has changed out of his clothes, and every scar is a from a scar from an old Jack Reacher book.
 
-[00:28:51] Adam: And by the way, I just read the Reacher book that the first Jack Reacher movie is from, and it is an incredibly faithful adaptation. Of that book, including dialogue and story beats, they compress a few characters for for for brevity's sake. That all makes it's actually a wonderful class in how to take a book and turn it into a movie, and the kind of efficiencies that you need to achieve.
+[00:28:51] Adam: And by the way, I just read the Reacher book that the first Jack Reacher movie is from, and it is an incredibly faithful adaptation. Of that book, including dialogue and story beats, they compress a few characters for brevity's sake. That all makes it's actually a wonderful class in how to take a book and turn it into a movie, and the kind of efficiencies that you need to achieve.
 
 [00:29:13] Norm: And all people focus on is Tom Cruise isn't you know six foot five or something.
 
@@ -846,7 +846,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:30:20] Will: he is the reverse engineer. His job is to buy consumer electronics devices, figure out how they work by taking them apart in a hotel room for an indeterminate period of time, and then people try to kill him. And John Woo directed it during his American period after Mission Impossible Two, right?
 
-[00:30:34] Norm: And it's based on a short story or a book by you know, [unclear: the runner / Big Runner] and
+[00:30:34] Norm: And it's based on a short story or a book by [unclear: the runner / Big Runner] and
 
 [00:30:39] Will: yeah, Philip K. Dick.
 
@@ -868,7 +868,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:31:17] Adam: Is it good?
 
-[00:31:17] Will: Who is the ultimate? No, it's not good, but Jim was pretty good. He's the the problem with Jack Ryan is that he's the ultimate Mary Sue. He's good at everything. He's an ex marine who was discharged because of a plane helicopter crash.
+[00:31:17] Will: Who is the ultimate? No, it's not good, but Jim was pretty good. He's the problem with Jack Ryan is that he's the ultimate Mary Sue. He's good at everything. He's an ex marine who was discharged because of a plane helicopter crash.
 
 [00:31:17] Adam: Right.
 
@@ -884,7 +884,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:31:49] Norm: Kenneth Branagh.
 
-[00:31:50] Will: I like, I like, I like Chris Pine a lot.
+[00:31:50] Will: I like Chris Pine a lot.
 
 [00:31:52] Adam: Here is why I like it: Keira Knightley, who I just think is
 
@@ -936,7 +936,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:32:51] Will: Her name's Kate something. I think I can't remember.
 
-[00:32:54] Norm: I I got. I don't got this.
+[00:32:54] Norm: I got. I don't got this.
 
 [00:32:55] Will: Maybe maybe your last name's Archer.
 
@@ -946,7 +946,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:32:58] Adam: Yes. Right. That's good. You're totally right. Anne Archer is also the wife in Presumed Innocent. If I'm not incorrect,
 
-[00:33:04] Norm: you know we need to do this more often.
+[00:33:04] Norm: We need to do this more often.
 
 [00:33:06] Adam: I've got that wrong. It's not Anne Archer.
 
@@ -972,7 +972,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:34:08] Adam: What? What?
 
-[00:34:09] Will: It's Wikipedia's list of list of lists page. So I'm not even joking. It's got thousands of entries.
+[00:34:09] Will: It's Wikipedia's list of lists page. So I'm not even joking. It's got thousands of entries.
 
 [00:34:09] Adam: Yeah.
 
@@ -988,7 +988,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:34:50] Adam: Oh my goodness.
 
-[00:34:51] Will: List of desert island discs episodes. And then yeah, it's very good. It's a list of lists of lists.
+[00:34:51] Will: List of desert island discs episodes. And then yeah, it's very good. It's a list of lists.
 
 [00:34:58] Adam: Did you see that wonderful film? Speaking of. Lists that wonderful short film that made the rounds last week of the film curator from the Museum of Modern Art in New York comparing kung fu films to Wuxia films.
 
@@ -1034,11 +1034,11 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:36:20] Adam: I've never, I haven't read Aurora.
 
-[00:36:22] Will: Okay, so Aurora is Aurora is notable because it's basically the Kim Stanley Robinson is a noted environmentalist. Writes a lot of science fiction based on hey, we need to take care of our stuff because we get one chance at this.
+[00:36:22] Will: Okay, so Aurora is notable because it's basically the Kim Stanley Robinson is a noted environmentalist. Writes a lot of science fiction based on hey, we need to take care of our stuff because we get one chance at this.
 
 [00:36:33] Adam: By the way,
 
-[00:36:33] Will: and Aurora basically looks at the idea of generation ships and how there's no our our even our envisioning of future technology isn't going to let us stay in a sealed ecosystem for 300 years to get to you know even the nearest star system.
+[00:36:33] Will: and Aurora basically looks at the idea of generation ships and how there's no our even our envisioning of future technology isn't going to let us stay in a sealed ecosystem for 300 years to get to you know even the nearest star system.
 
 [00:36:49] Adam: If you're in the middle,
 
@@ -1046,11 +1046,11 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:36:53] Adam: So Scalzi's Collapsing Empire is similar.
 
-[00:36:55] Will: Scalzi's book is a farther future, you know, hard science fiction. Look at that kind of stuff.
+[00:36:55] Will: Scalzi's book is a farther future hard science fiction. Look at that kind of stuff.
 
 [00:37:00] Adam: Love John,
 
-[00:37:01] Will: and it's got like empire building. It's it's very it's very like. You know, yeah, it's good. It's it's it's it's very good. It's very entertaining. It's something completely different than anything he's done before. And then I follow that up with Mary Robinette Kowal's books, " The Calculating Stars" and " The Fated Sky."
+[00:37:01] Will: and it's got like empire building. It's very like. Yeah, it's good. It's very good. It's very entertaining. It's something completely different than anything he's done before. And then I follow that up with Mary Robinette Kowal's books, " The Calculating Stars" and " The Fated Sky."
 
 [00:37:18] Adam: Oh, I don't know about these.
 
@@ -1058,7 +1058,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:37:18] Adam: Yeah.
 
-[00:37:18] Will: authors circle. And at the risk of being doing the reductive, awful thing, " The Fated Skies" and " Calculating Stars" start start with " Calculating Stars." It's kind of post apocalyptic historical fiction. So imagine imagine Seveneves and Hidden Figures, and like like '50s Earth, something goes really bad, and people realize that hey, we've got to we've got to really accelerate the space program.
+[00:37:18] Will: authors circle. And at the risk of being doing the reductive, awful thing, " The Fated Skies" and " Calculating Stars" start start with " Calculating Stars." It's kind of post apocalyptic historical fiction. So imagine imagine Seveneves and Hidden Figures, and like '50s Earth, something goes really bad, and people realize that hey, we've got to really accelerate the space program.
 
 [00:37:18] Adam: Oh, okay.
 
@@ -1094,7 +1094,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:39:11] Will: What's the setup?
 
-[00:39:13] Norm: He's missing daughter, so he's looking for his daughter, and it's it's emotional. You'll cry at it, but the format is all done through webcam, FaceTime calls, and its understanding of technology and how people, adults and kids, use technology today
+[00:39:13] Norm: He's missing daughter, so he's looking for his daughter, and it's emotional. You'll cry at it, but the format is all done through webcam, FaceTime calls, and its understanding of technology and how people, adults and kids, use technology today
 
 [00:39:13] Will: Yeah.
 

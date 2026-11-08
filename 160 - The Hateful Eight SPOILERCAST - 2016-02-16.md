@@ -18,11 +18,11 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:00:11] Will: That's a nice laser sword,
 
-[00:00:14] Adam: isn't it? Lovely. I’m really, I’m really pleased with it. I particularly like the fact that it gets thin here.
+[00:00:14] Adam: isn't it? Lovely. I’m really pleased with it. I particularly like the fact that it gets thin here.
 
 [00:00:20] Will: They totally Luke Return of the Jedi lightsabered it.
 
-[00:00:23] Adam: Yeah, but there's also some Obi Wan quotes. That's like the the thing at the bottom of Obi Saber,
+[00:00:23] Adam: Yeah, but there's also some Obi Wan quotes. That's like the thing at the bottom of Obi Saber,
 
 [00:00:28] Will: bottom stud.
 
@@ -52,7 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:01:34] Adam: Two, my children destroyed my television with one.
 
-[00:01:37] Norm: Oh, I remember. Yeah, [unclear: it’s on / I tell / it’s all] that story. Yep, and also the the actual lightsaber itself was massive because you had to put the C or D batteries. It was much fatter, and technology in 10 years has improved to. I mean, we have
+[00:01:37] Norm: Oh, I remember. Yeah, [unclear: it’s on / I tell / it’s all] that story. Yep, and also the actual lightsaber itself was massive because you had to put the C or D batteries. It was much fatter, and technology in 10 years has improved to. I mean, we have
 
 [00:01:50] Will: thanks lithium polymer.
 
@@ -88,13 +88,13 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:02:27] Adam: Yeah, man.
 
-[00:02:27] Will: Um, I'll get that in a pair of black pajamas and call it a Luke Skywalker costume.
+[00:02:27] Will: I'll get that in a pair of black pajamas and call it a Luke Skywalker costume.
 
 [00:02:33] Norm: I wonder how it'd look under a high speed camera at night in the park.
 
 [00:02:37] Will: Flickery.
 
-[00:02:38] Adam: You know, I was thinking about doing long exposures because it's so pretty, especially by with changing color.
+[00:02:38] Adam: I was thinking about doing long exposures because it's so pretty, especially by with changing color.
 
 [00:02:43] Norm: All you need is like a one one fifteenth of a second, and then you can get some real nice...
 
@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:02:54] Unknown speaker: [unclear: You couldn’t see anything. You couldn’t see anything].
 
-[00:02:56] Will: Really enjoying this this retirement.
+[00:02:56] Will: Really enjoying this retirement.
 
 [00:02:58] Norm: But then you've seen everything.
 
@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:03:25] Adam: Okay.
 
-[00:03:25] Will: Definitely worth watching. Um, but I saw the Drafthouse.
+[00:03:25] Will: Definitely worth watching. But I saw the Drafthouse.
 
 [00:03:25] Adam: Yeah.
 
@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:03:37] Norm: And they're notable for several reasons.
 
-[00:03:47] Will: Well, you, you sit down. There's a recliner. So the theater I was in was relatively small. There were maybe three rows with 12 seats per row. So it was pretty small. And there's a table, every other chair, basically. You sit down, and you can order stuff. Do I sound weird?
+[00:03:47] Will: Well, you sit down. There's a recliner. So the theater I was in was relatively small. There were maybe three rows with 12 seats per row. So it was pretty small. And there's a table, every other chair, basically. You sit down, and you can order stuff. Do I sound weird?
 
 [00:04:01] Adam: No, you sound totally fine.
 
@@ -166,11 +166,11 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:04:03] Adam: You look funny with those white headphones.
 
-[00:04:04] Will: I know they're they're they're my VR headphones.
+[00:04:04] Will: I know they're my VR headphones.
 
 [00:04:04] Adam: Ah.
 
-[00:04:04] Will: Um. So you you sit down in the in the in the in the recliner, and then when you want food or something, you write it down on a piece of paper, and you put it in a little thing, and they hold it up, and people bring you beverages and food during the film.
+[00:04:04] Will: So you sit down in the recliner, and then when you want food or something, you write it down on a piece of paper, and you put it in a little thing, and they hold it up, and people bring you beverages and food during the film.
 
 [00:04:04] Adam: Yeah.
 
@@ -178,11 +178,11 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:04:24] Adam: Hey, yeah, this is—
 
-[00:04:24] Will: They they say here are the things that are going to get you removed from the theater without getting your ticket refunded. Having your phone out.
+[00:04:24] Will: They say here are the things that are going to get you removed from the theater without getting your ticket refunded. Having your phone out.
 
 [00:04:24] Adam: Right.
 
-[00:04:24] Will: Um. Talking to people. That's pretty much it. It's those two things.
+[00:04:24] Will: Talking to people. That's pretty much it. It's those two things.
 
 [00:04:38] Norm: And they make custom trailers for these PSAs. If you search on YouTube, they actually have one of these PSAs released online where. They have actual audio recordings of the people who've complained, who've called them.
 
@@ -192,7 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:04:53] Adam: Oh, yeah. They, yeah.
 
-[00:04:54] Norm: Of like, you know, I was just making a phone call. I need to do this text.
+[00:04:54] Norm: Of like I was just making a phone call. I need to do this text.
 
 [00:04:57] Will: Well, what?
 
@@ -204,11 +204,11 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:05:10] Will: This is, it was a really important call.
 
-[00:05:12] Norm: Now, the the food service. Do
+[00:05:12] Norm: Now, the food service. Do
 
 [00:05:13] Will: you know who I am?
 
-[00:05:14] Norm: Oh no! Oh boy, the the food service at these type of theaters is a great part of the experience, and the the waitstaff is trained to. They come in at a specific time at the movie, so it's not to distract you. You know, they kind of ninja around.
+[00:05:14] Norm: Oh no! Oh boy, the food service at these type of theaters is a great part of the experience, and the waitstaff is trained to. They come in at a specific time at the movie, so it's not to distract you. They kind of ninja around.
 
 [00:05:28] Adam: They do it very well.
 
@@ -240,19 +240,19 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:06:11] Norm: I don't know if I want to watch that for a movie. I'm really, really invested and want to pay full attention to.
 
-[00:06:17] Will: I um. So I found in the small theater, and we had kind of the bad seats in the small. So we're in the first row up near the front for Anomalisa,
+[00:06:17] Will: I. So I found in the small theater, and we had kind of the bad seats in the small. So we're in the first row up near the front for Anomalisa,
 
 [00:06:17] Adam: right?
 
-[00:06:17] Will: And it's a super, super short film. It's like 78 minutes or something. Um, I didn't mind at all. Like I was so invested in in the thing, and the projection was really nice, and they did a good job with it.
+[00:06:17] Will: And it's a super, super short film. It's like 78 minutes or something. I didn't mind at all. Like I was so invested in the thing, and the projection was really nice, and they did a good job with it.
 
 [00:06:35] Adam: Ah, gotta go see that movie. I'm leaving town tonight, which is killing me because I want to go see it right away.
 
-[00:06:39] Will: It's three o'clock now. You can probably make it over there and back. Um. Yeah, it's it's like I'm. I am all in for things that don't require IMAX like spectacle.
+[00:06:39] Will: It's three o'clock now. You can probably make it over there and back. Um. Yeah, it's like I'm. I am all in for things that don't require IMAX like spectacle.
 
 [00:06:50] Adam: Yeah,
 
-[00:06:50] Will: right. Yeah, that's my that's my new go to.
+[00:06:50] Will: right. Yeah, that's my new go to.
 
 [00:06:53] Adam: And for just personally for me, they're like [unclear: five blocks from my house / five minutes, and I’m like oh my god, I’m gonna watch that movie, five blocks from my house],
 
@@ -274,13 +274,13 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:07:03] Adam: and they love film.
 
-[00:07:03] Will: Yeah, well, and so they also do old shows too. So after we went there, we grabbed the calendar, and they have like a they do a Saturday morning show of of of Miyazaki films sometimes. So they're doing like Spirited Away and Totoro, and stuff like that that you can bring your kids to.
+[00:07:03] Will: Yeah, well, and so they also do old shows too. So after we went there, we grabbed the calendar, and they have like a they do a Saturday morning show of Miyazaki films sometimes. So they're doing like Spirited Away and Totoro, and stuff like that that you can bring your kids to.
 
 [00:07:18] Norm: Yeah.
 
 [00:07:19] Will: So why would I not bring my kid to see Totoro?
 
-[00:07:21] Norm: Those movies are perfect for second run and and special events, you know, like you know, Zombie Night or.
+[00:07:21] Norm: Those movies are perfect for second run and special events like Zombie Night or.
 
 [00:07:27] Adam: I think we should host a tested event there. I
 
@@ -314,15 +314,15 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:07:50] Adam: It's bloody, and people are venal. Okay, moving on.
 
-[00:07:56] Will: That's pretty much it. Yeah. I, I thought, I. It was as Tarantino films have been recently. I found it really really uncomfortable and much much more compelling even than Django was.
+[00:07:56] Will: That's pretty much it. Yeah. I thought, I. It was as Tarantino films have been recently. I found it really really uncomfortable and much much more compelling even than Django was.
 
 [00:08:08] Adam: Oh, more compelling.
 
-[00:08:09] Will: I I absolutely. I walked out of the theater from seeing this and just wanted to talk to people about it. And I I was I was I would have turned around and gone back in and watched it again.
+[00:08:09] Will: I absolutely. I walked out of the theater from seeing this and just wanted to talk to people about it. And I I was I would have turned around and gone back in and watched it again.
 
-[00:08:18] Adam: What do you what do you what did you what was your takeaway about what was so compelling?
+[00:08:18] Adam: What do you what did you what was your takeaway about what was so compelling?
 
-[00:08:22] Will: So I saw the um I saw the I didn't see the roadshow version
+[00:08:22] Will: So I saw the I didn't see the roadshow version
 
 [00:08:22] Adam: right
 
@@ -330,15 +330,15 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:08:22] Unknown speaker: [unclear: I didn’t see the roadshow version. I didn’t see the roadshow—]
 
-[00:08:22] Will: by the time I got around to leaving the house. Um, and the thing that the thing that that struck me well, a there's amazing character performances right.
+[00:08:22] Will: by the time I got around to leaving the house. And the thing that struck me well, a there's amazing character performances right.
 
 [00:08:36] Adam: So everyone in it's wonderful.
 
 [00:08:37] Will: Everyone has really clearly defined at least to them in the beginning. Goals and there's, are we spoiling already? Are we going to have a no spoilers?
 
-[00:08:46] Adam: I know, I think that at this point we could start, you know, within a couple of minutes here.
+[00:08:46] Adam: I know, I think that at this point we could start within a couple of minutes here.
 
-[00:08:50] Will: And we talked about the Alamo first, so there's like there's 10 minutes of podcast for people who haven't seen the movie yet. I like so I thought that the the the turn you know at the at the moment in the in the in the roadhouse in the in the haberdashery where you realize oh none of the people that were in the haberdashery at the beginning are what they seemed
+[00:08:50] Will: And we talked about the Alamo first, so there's like there's 10 minutes of podcast for people who haven't seen the movie yet. I like so I thought that the turn you know at the moment in the roadhouse in the haberdashery where you realize oh none of the people that were in the haberdashery at the beginning are what they seemed
 
 [00:08:50] Adam: right.
 
@@ -352,7 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:09:14] Adam: The roadshow.
 
-[00:09:17] Will: So okay, that's that's
+[00:09:17] Will: So okay, that's
 
 [00:09:19] Norm: context for Well.
 
@@ -376,7 +376,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:09:40] Adam: Yeah,
 
-[00:09:40] Norm: and to a point where he pulls the gun and Sam Jackson shoots him, and that's that's a great build-up moment because he's obviously instigating. But then there's a great storytelling there, and then everyone's engrossed. There's an intermission, and when you come back from the intermission, that's when you get the narrator's voice that tells you something has changed or there's a thing amiss. Now, with the poison.
+[00:09:40] Norm: and to a point where he pulls the gun and Sam Jackson shoots him, and that's a great build-up moment because he's obviously instigating. But then there's a great storytelling there, and then everyone's engrossed. There's an intermission, and when you come back from the intermission, that's when you get the narrator's voice that tells you something has changed or there's a thing amiss. Now, with the poison.
 
 [00:10:06] Will: That's the poison. So you already know that that no one in the room is who they say they are.
 
@@ -390,19 +390,19 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:10:15] Norm: That's right, Walton Goggins.
 
-[00:10:16] Adam: But I want to just say this: the the Sam Jackson's provocation of the of the Confederate general, Bruce Dern. I was shocked. I actually found it very upsetting.
+[00:10:16] Adam: But I want to just say this: the Sam Jackson's provocation of the Confederate general, Bruce Dern. I was shocked. I actually found it very upsetting.
 
-[00:10:28] Will: I I would have liked to have had 10 minutes to go out and have a beer and like.
+[00:10:28] Will: I would have liked to have had 10 minutes to go out and have a beer and like.
 
 [00:10:33] Adam: It was on the order of the Gimp. Like,
 
 [00:10:36] Will: I think it was much worse than the Gimp.
 
-[00:10:37] Adam: I'm not so sure it was much worse. Here's the thing: is when I was watching Pulp Fiction for the first time in '94, and we, you know, Marsellus Wallace and Butch wake up in the basement of the with the ball gags in their mouth, and I'm thinking, oh, oh my God, how bad could this get? And it gets worse than I could possibly imagine.
+[00:10:37] Adam: I'm not so sure it was much worse. Here's the thing: is when I was watching Pulp Fiction for the first time in '94, and we Marsellus Wallace and Butch wake up in the basement of the with the ball gags in their mouth, and I'm thinking, oh, oh my God, how bad could this get? And it gets worse than I could possibly imagine.
 
 [00:10:58] Will: That's true.
 
-[00:10:58] Adam: That's where that's the same kind of place I was feeling about the about the the provocation.
+[00:10:58] Adam: That's where that's the same kind of place I was feeling about the provocation.
 
 [00:11:03] Will: It was unclear to me, like I assumed that story was untrue. Yes. Right.
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:11:51] Adam: unmitigatingly wicked person.
 
-[00:11:53] Will: Um, I saw the the and and it started in the beginning. She's you she's painted as a relatively for a few moments as a as a kind of sympathetic character,
+[00:11:53] Will: I saw the and it started in the beginning. She's you she's painted as a relatively for a few moments as a kind of sympathetic character,
 
 [00:11:53] Norm: right?
 
@@ -452,7 +452,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:11:53] Norm: Yeah,
 
-[00:11:53] Will: and then Kurt Russell just backhands the shit out of her, and about half the audience laughed, and the other half the audience gasped, and it was like almost cartoonish violence that then had a really very real and visceral depiction. It wasn't it wasn't your Jackie Brown cartoon violence.
+[00:11:53] Will: and then Kurt Russell just backhands the shit out of her, and about half the audience laughed, and the other half the audience gasped, and it was like almost cartoonish violence that then had a really very real and visceral depiction. It wasn't your Jackie Brown cartoon violence.
 
 [00:12:28] Adam: No, no,
 
@@ -472,9 +472,9 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:13:00] Adam: this was a big brouhaha a couple
 
-[00:13:01] Norm: years back. And then so what got the movie made, or what compelled Tarantino to make the movie, was then a live reading of the script. And there was a theater event where he and some of his regulars got together and they did a reading of it line by line. He narrated and did all the, and the reaction to that was so good that he felt like they then he should make this movie. And one of the reasons he got the movie made and they allowed him to make the movie, or he allowed the movie to be made, was that he got to also play with the Panavision 70 millimeter, which there's been a lot of discussion about his use of it. But I mean, I think just bring the format back and allowing to film and edit. In that format, I think is a is a great moment for modern film.
+[00:13:01] Norm: years back. And then so what got the movie made, or what compelled Tarantino to make the movie, was then a live reading of the script. And there was a theater event where he and some of his regulars got together and they did a reading of it line by line. He narrated and did all the, and the reaction to that was so good that he felt like they then he should make this movie. And one of the reasons he got the movie made and they allowed him to make the movie, or he allowed the movie to be made, was that he got to also play with the Panavision 70 millimeter, which there's been a lot of discussion about his use of it. But I mean, I think just bring the format back and allowing to film and edit. In that format, I think is a great moment for modern film.
 
-[00:13:40] Will: I, I would love to see the first what two parts that are that happened on the trail, in that
+[00:13:40] Will: I would love to see the first what two parts that are that happened on the trail, in that
 
 [00:13:48] Adam: yeah, it was—it’s absolutely beautiful.
 
@@ -496,9 +496,9 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:14:13] Norm: There's a whole you know. It almost seems like you wrote it for that. You have the people leaving the room, coming back in the room, people doing things on their own when you have other people interacting.
 
-[00:14:21] Adam: Interesting. I, sorry. Now that you say that, it reminds me that he might have taken as his as his screenwriting axiom to go back to Reservoir Dogs, put most of this movie in a room, and see what happens among the people. It's also you know. The ensemble acting is phenomenal. Everyone in the movie is incredible.
+[00:14:21] Adam: Interesting. I, sorry. Now that you say that, it reminds me that he might have taken as his screenwriting axiom to go back to Reservoir Dogs, put most of this movie in a room, and see what happens among the people. It's also you know. The ensemble acting is phenomenal. Everyone in the movie is incredible.
 
-[00:14:42] Norm: Yeah, but it's mostly like one-on-one interactions, as a lot of his movies are. You know, you have an intense conversation between two actors, and then the pivots, and then two other actors get to have an intense conversation. And people are doing things on their own. The guy in the corner playing with his cards. the person playing the piano. All this ambiance adds up, which I think works for a play. Because then, and then you have mystery. You know, if you didn't watch closely, who point? You know, who who puts the poison in?
+[00:14:42] Norm: Yeah, but it's mostly like one-on-one interactions, as a lot of his movies are. You have an intense conversation between two actors, and then the pivots, and then two other actors get to have an intense conversation. And people are doing things on their own. The guy in the corner playing with his cards. the person playing the piano. All this ambiance adds up, which I think works for a play. Because then, and then you have mystery. You know, if you didn't watch closely, who point? You know, who who puts the poison in?
 
 [00:15:08] Will: Well, you couldn't see in the 30 mill.
 
@@ -510,7 +510,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:15:11] Will: you saw a hand, but you didn’t see who did it.
 
-[00:15:12] Norm: And you don't see in the in the 70 mill either. But I'm saying, as a play, you could
+[00:15:12] Norm: And you don't see in the 70 mill either. But I'm saying, as a play, you could
 
 [00:15:16] Adam: you might be able to catch that. Yeah,
 
@@ -522,7 +522,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:15:45] Adam: Yeah, and Walter Scoggins, you'd know him as the villain from Justified, but he's been around forever. I've been a fan of his since The Apostle. He's in The Bourne Identity. He's terrific. Anyway, he reveals that there is no way the letter could be real, and the moment he does, Samuel Jackson fesses up. No, the letter is not real, and Kurt Russell, who has been enjoying knowing about this letter for months because he had met Sam Jackson eight months before, is angry. And Sam Jackson says, " Well, I am sorry I hurt your feelings. I am sorry if I hurt your feelings," and Kurt Russell says, " Well, you did." And I love any bloody western that gets to a point where a grizzled old bounty hunting hangman cowboy goes. You hurt my feelings.
 
-[00:16:36] Will: It was, it was. Kurt Russell was like this. Is one of the great, not that Kurt Russell needed dredging up in the same way that John Travolta did before * Pulp Fiction*, but we haven't seen Kurt Russell like this in a really, really long time.
+[00:16:36] Will: It was. Kurt Russell was like this. Is one of the great, not that Kurt Russell needed dredging up in the same way that John Travolta did before * Pulp Fiction*, but we haven't seen Kurt Russell like this in a really, really long time.
 
 [00:16:48] Adam: Also, let’s be clear: [unclear: that Kurt Russell is a great—] this movie, the entire movie, including its setting, is an homage to * The Thing*.
 
@@ -546,21 +546,21 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:17:15] Adam: Right,
 
-[00:17:15] Will: but the rest of it, reading later, almost all of the other characters that had the turn, it was foreshadowed pretty heavily. Um, some one character or another knew something was up with all of them,
+[00:17:15] Will: but the rest of it, reading later, almost all of the other characters that had the turn, it was foreshadowed pretty heavily. Some one character or another knew something was up with all of them,
 
 [00:17:39] Adam: right, right, right.
 
-[00:17:39] Will: Um, and it was there. I, I, it's, it's. To be honest, it's the kind of movie that I, I said I would have turned around and gone back and rewatched again just because I wanted to unpack the performances after having, you know, the first first viewing is for plot, the second one is for the individual performances.
+[00:17:39] Will: And it was there. I, it's. To be honest, it's the kind of movie that I, I said I would have turned around and gone back and rewatched again just because I wanted to unpack the performances after having, you know, the first first viewing is for plot, the second one is for the individual performances.
 
-[00:17:53] Norm: Maybe it's a it's a Rorschach test.
+[00:17:53] Norm: Maybe it's a Rorschach test.
 
-[00:17:56] Adam: Well, I, I'd like to see it again too. I, I’m very much interested in seeing it again because in the end, um, the film has a central thesis about racism and living as a black man in America. In fact, Sam Jackson says that in the
+[00:17:56] Adam: Well, I, I'd like to see it again too. I, I’m very much interested in seeing it again because in the end the film has a central thesis about racism and living as a black man in America. In fact, Sam Jackson says that in the
 
 [00:18:11] Will: or a woman or Hispanic, yeah, yeah,
 
-[00:18:14] Adam: uh, that made me want to go experience it again, looking at it from the front of the film at through that lens.
+[00:18:14] Adam: That made me want to go experience it again, looking at it from the front of the film at through that lens.
 
-[00:18:23] Will: There's a hierarchy. I mean, the hierarchy is clear, right? Because you know, Sam Jackson. says, look, Hattie doesn't allow Mexicans in her establishment,
+[00:18:23] Will: There's a hierarchy. I mean, the hierarchy is clear, right? Because Sam Jackson. says, look, Hattie doesn't allow Mexicans in her establishment,
 
 [00:18:23] Adam: right? Right,
 
@@ -572,15 +572,15 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:18:40] Adam: yeah.
 
-[00:18:40] Will: It's it's an interesting,
+[00:18:40] Will: It's an interesting,
 
-[00:18:44] Norm: yeah. As much as um as as much as they get along, Kurt Russell and Sam Jackson do their relationship. It's also clear the context of that, you know,
+[00:18:44] Norm: yeah. As much as they get along, Kurt Russell and Sam Jackson do their relationship. It's also clear the context of that
 
 [00:18:44] Adam: right?
 
 [00:18:44] Norm: Post Civil War, and
 
-[00:18:56] Will: and they have the closest to a to a friendly relationship with anybody in the movie.
+[00:18:56] Will: and they have the closest to a friendly relationship with anybody in the movie.
 
 [00:18:59] Adam: And then let's talk about the tragedy that happened on set, the destruction of the. So there is a scene in the film where Kurt Russell destroys a guitar, and they had a bunch of copy guitars because they'd been lent this priceless Martin.
 
@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:20:06] Adam: and I haven't watched it again, so I don't know whether she just screams and they cut from that to the next shot.
 
-[00:20:11] Will: It's it's a it was a. So as I recall, I didn't know this beforehand, but as I recall, he smashes it against the pole to directly to her right, yells at her to stop playing it, and then the cut.
+[00:20:11] Will: It's a it was a. So as I recall, I didn't know this beforehand, but as I recall, he smashes it against the pole to directly to her right, yells at her to stop playing it, and then the cut.
 
 [00:20:23] Adam: Right.
 
@@ -636,9 +636,9 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:21:19] Norm: Wow, got a reference
 
-[00:21:22] Will: from the future or the past? I don't know which. The thing, the thing that I loved, one of the things that I loved watching this the first time. Was the number and use of hand props and and costumes and and you know each of the characters had a thing or multiple things that were that were their their bits
+[00:21:22] Will: from the future or the past? I don't know which. The thing that I loved, one of the things that I loved watching this the first time. Was the number and use of hand props and costumes and you know each of the characters had a thing or multiple things that were their bits
 
-[00:21:44] Adam: and and I got to talk to Samm Levine a few years ago. Kevin Pollak came up to San Francisco and interviewed me on his wonderful podcast, and Samm Levine is his right hand in that podcast. Samm Levine was in Freaks and Geeks; it's a wonderful actor, and he's also in. He is also in. I'm sorry, Inglourious Basterds.
+[00:21:44] Adam: and I got to talk to Samm Levine a few years ago. Kevin Pollak came up to San Francisco and interviewed me on his wonderful podcast, and Samm Levine is his right hand in that podcast. Samm Levine was in Freaks and Geeks; it's a wonderful actor, and he's also in. He is also in. I'm sorry, Inglourious Basterds.
 
 [00:22:07] Will: He's one of the. He's one of Brad Pitt's guys.
 
@@ -652,13 +652,13 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:22:26] Adam: Yeah, I agree.
 
-[00:22:51] Norm: I also wanted to call out a few shots he does. He uses it a lot in this film with with a split diopter, um, and that's a lens attachment that goes between the lens and the camera that splits the focus so you can have two things in the in focus both in foreground and the background. He uses it in Reservoir Dogs. He does it in Inglourious Basterds specifically when they walk down the stairs the tavern where they all meet, and then you can see the the shoe in focus. And he does it a lot in Hateful Eight with a gun on the right of the screen and the person in the back, and they both look in focus, and it looks like how it looks like a composite, but it's all done. In camera,
+[00:22:51] Norm: I also wanted to call out a few shots he does. He uses it a lot in this film with a split diopter and that's a lens attachment that goes between the lens and the camera that splits the focus so you can have two things in the in focus both in foreground and the background. He uses it in Reservoir Dogs. He does it in Inglourious Basterds specifically when they walk down the stairs the tavern where they all meet, and then you can see the shoe in focus. And he does it a lot in Hateful Eight with a gun on the right of the screen and the person in the back, and they both look in focus, and it looks like how it looks like a composite, but it's all done. In camera,
 
 [00:23:28] Adam: Orson Welles and Hitchcock were both big fans of the split diopter.
 
 [00:23:31] Norm: Yes, and it's it's a striking effect. It looks even better in in the film.
 
-[00:23:36] Adam: It's a gorgeous looking film. I, I found it impressively hard to take. I, I was I was really I was surprised how difficult I found to take it, especially the, the very bleak ending.
+[00:23:36] Adam: It's a gorgeous looking film. I found it impressively hard to take. I was really I was surprised how difficult I found to take it, especially the very bleak ending.
 
 [00:23:49] Will: Oh, it was.
 
@@ -674,17 +674,17 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:23:59] Norm: they ride off.
 
-[00:24:00] Adam: It's as bleak as Reservoir Dogs. Okay, so I'm going to go back to saying that I think Quentin was really like going back to. He's thinking. Let me go back to my roots. Let me start and think about a a bleak movie that takes place in a single room.
+[00:24:00] Adam: It's as bleak as Reservoir Dogs. Okay, so I'm going to go back to saying that I think Quentin was really like going back to. He's thinking. Let me go back to my roots. Let me start and think about a bleak movie that takes place in a single room.
 
-[00:24:15] Will: I just I thought this was like I love westerns. I, I, I didn’t realize I love westerns until I was 20 years old, probably, and took a class that was about westerns. Was like, wow, this is amazing. Um, I went back and I was sick last week and was going through Criterion on Hulu and watched Stagecoach again. Which, if you haven't seen Stagecoach in a while, it's worth.
+[00:24:15] Will: I just I thought this was like I love westerns. I didn’t realize I love westerns until I was 20 years old, probably, and took a class that was about westerns. Was like, wow, this is amazing. I went back and I was sick last week and was going through Criterion on Hulu and watched Stagecoach again. Which, if you haven't seen Stagecoach in a while, it's worth.
 
 [00:24:34] Adam: I've never seen it.
 
-[00:24:35] Will: Oh, Stagecoach! So, Stagecoach is a relatively, I guess it was probably John Wayne's first big film. Um, and it is, I want to say it's a John Ford. I can't remember, but it's it's a it is the movie that sets a lot of the tone that carries forward into the John Ford era of westerns until you get up to the the the spaghetti westerns of the '60s and '70s. Yeah. Um, and like this is very much in that you know John Ford, Man Who Shot Liberty Valance, Red River. Um, uh, it's it's very much a homage to those in the same way that you know Jackie Brown is to everything Elmore Leonard ever wrote, and and um, like it is it is lovely to look at in that sense because those those openings with the snow are something you never see in those movies because they didn't have the technology. They weren't able to shoot in those places, for the most part, or they faked it on a soundstage.
+[00:24:35] Will: Oh, Stagecoach! So, Stagecoach is a relatively, I guess it was probably John Wayne's first big film. And it is, I want to say it's a John Ford. I can't remember, but it's a it is the movie that sets a lot of the tone that carries forward into the John Ford era of westerns until you get up to the spaghetti westerns of the '60s and '70s. Yeah. And like this is very much in that you know John Ford, Man Who Shot Liberty Valance, Red River. It's very much a homage to those in the same way that you know Jackie Brown is to everything Elmore Leonard ever wrote, and like it is lovely to look at in that sense because those those openings with the snow are something you never see in those movies because they didn't have the technology. They weren't able to shoot in those places, for the most part, or they faked it on a soundstage.
 
 [00:25:31] Adam: Yeah,
 
-[00:25:31] Will: and it's unbelievable to see it in in in real life.
+[00:25:31] Will: and it's unbelievable to see it in real life.
 
 [00:25:36] Adam: Totes agree.
 
@@ -746,7 +746,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:27:01] Will: Might as well be.
 
-[00:27:01] Adam: See, hateful eight. I’m gonna—I’m gonna see it again. Let's bookmark this and talk about it in a couple of months. I'd like to try and catch it one more time.
+[00:27:01] Adam: See, hateful eight. I’m gonna see it again. Let's bookmark this and talk about it in a couple of months. I'd like to try and catch it one more time.
 
 [00:27:08] Will: Sounds good.
 

@@ -66,7 +66,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:01:01] Will: So what were you doing in New Zealand, Mister Savage?
 
-[00:01:04] Adam: Well, we went to see we went to see part of our extended family, the wonderful folks at Weta Workshop, Richard Taylor, and his incredible intrepid team of master craftspeople and geniuses. And honestly, we just we had a like last time. If you listen to the podcast long enough to hear the last time we came back from New Zealand, all the same stuff still applies. New Zealand is an amazing country full of wonderful people. Weta is an incredible company full of the most dedicated, innovative, improvisational, professional folks that we get to work with on a regular basis.
+[00:01:04] Adam: Well, we went to see part of our extended family, the wonderful folks at Weta Workshop, Richard Taylor, and his incredible intrepid team of master craftspeople and geniuses. And honestly, we just we had a like last time. If you listen to the podcast long enough to hear the last time we came back from New Zealand, all the same stuff still applies. New Zealand is an amazing country full of wonderful people. Weta is an incredible company full of the most dedicated, innovative, improvisational, professional folks that we get to work with on a regular basis.
 
 [00:01:43] Norm: It really is. It was a treat to chat with Richard and have him spend some of his time, his lunch time. He didn't eat his. He never ate his salad to podcast with us, which was the last week's episode. If you haven't listened to that, you have to.
 
@@ -74,11 +74,11 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:01:55] Norm: It is so inspirational.
 
-[00:01:57] Adam: So inspirational. Richard is it? Richard is a walking tower of Aphorisms, and they are all completely genuine from the bottom of his soul about how to about how to foment great creativity among a large team of people that you have committed your life to.
+[00:01:57] Adam: So inspirational. Richard is it? Richard is a walking tower of Aphorisms, and they are all completely genuine from the bottom of his soul about how to foment great creativity among a large team of people that you have committed your life to.
 
 [00:02:12] Will: Oh man, that that is so actionable and useful. That's so good.
 
-[00:02:18] Adam: It really it it was incredible to spend so much time. And again, you know, Richard gets more done. I feel lazy around Richard Taylor.
+[00:02:18] Adam: It really it was incredible to spend so much time. And again Richard gets more done. I feel lazy around Richard Taylor.
 
 [00:02:28] Will: Right, we often think of you as
 
@@ -86,9 +86,9 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:02:31] Will: lazy Adam Savage.
 
-[00:02:32] Norm: And we have it's it's a trickle down effect because we feel lazy around you, and when you feel lazy around Richard Taylor, yeah, I don't even know what to do.
+[00:02:32] Norm: And we have it's a trickle down effect because we feel lazy around you, and when you feel lazy around Richard Taylor, yeah, I don't even know what to do.
 
-[00:02:39] Adam: And then we also played around with Peter Jackson. We had many adventures with with with him, separate from and connected to the adventures we had with Richard.
+[00:02:39] Adam: And then we also played around with Peter Jackson. We had many adventures with him, separate from and connected to the adventures we had with Richard.
 
 [00:02:50] Will: Some of the stuff is going to show up on tested.
 
@@ -106,15 +106,15 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:03:47] Will: You have a flight, right?
 
-[00:03:48] Norm: Right, and and got got. Did you do the extended or the?
+[00:03:48] Norm: Right, and got got. Did you do the extended or the?
 
 [00:03:51] Adam: I did the extended. I did the extended for Fellowship. And by the way, Fellowship, it's funny. It sounds weird, but it's so much better than I remember. I didn't remember it not being great, but it's much better than I remember.
 
-[00:04:06] Will: So the problem with fellow, the reason people didn't like Fellowship is. It's it's it's it's all scene it's all setting it's all scene setting right.
+[00:04:06] Will: So the problem with fellow, the reason people didn't like Fellowship is. It's all scene it's all setting it's all scene setting right.
 
 [00:04:13] Adam: But holy cow, I I couldn't believe that by the time they entered Moria, I was still just past the halfway mark in the movie. Well, I thought that that was like close to the end.
 
-[00:04:23] Will: Well, in the in the in the theatrical release, I think it was. It was definitely the back two thirds.
+[00:04:23] Will: Well, in the theatrical release, I think it was. It was definitely the back two thirds.
 
 [00:04:28] Adam: Oh, but this is the extended edition.
 
@@ -126,7 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:04:31] Norm: if you school, yeah, they're like just over three because there's actually 20 minutes at the extra credits sequence. The Lord of the Rings fan club gets put in there, so they're only about a little over three three and a half.
 
-[00:04:49] Will: And and so one of the things that Gina and I were talking about the other day because we were we were looking for a movie to watch and it was maybe 9:30. We're like, I don't want to watch anything that's more than two hours because you know we want to get in bed by midnight. And like Thor Ragnarok is two hours and 30 minutes, right?
+[00:04:49] Will: And so one of the things that Gina and I were talking about the other day because we were looking for a movie to watch and it was maybe 9:30. We're like, I don't want to watch anything that's more than two hours because you know we want to get in bed by midnight. And like Thor Ragnarok is two hours and 30 minutes, right?
 
 [00:04:49] Adam: Yeah.
 
@@ -142,11 +142,11 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:05:35] Will: Where's Tom Bombadil?
 
-[00:05:36] Adam: We also, we also got to fly in some World War One airplanes. Yeah,
+[00:05:36] Adam: We also got to fly in some World War One airplanes. Yeah,
 
-[00:05:42] Will: that seems exciting, and maybe so. Like like like Snoopy with the helmet and the goggles and the whole thing.
+[00:05:42] Will: that seems exciting, and maybe so. Like Snoopy with the helmet and the goggles and the whole thing.
 
-[00:05:48] Adam: Pretty much exactly. They had a soft Sopwith Camel. We didn't fly in that one. We we flew around the the wilds of of New Zealand, and in one of the airplanes, Peter has an airplane factory that makes
+[00:05:48] Adam: Pretty much exactly. They had a soft Sopwith Camel. We didn't fly in that one. We flew around the wilds of New Zealand, and in one of the airplanes, Peter has an airplane factory that makes
 
 [00:05:48] Will: Of course, yeah.
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:06:29] Norm: No, no.
 
-[00:06:30] Adam: Um. He had a London double-decker bus, a you know pre-war London double-decker bus that he had converted into a military vehicle, as the British did in World War One. And he would drive everyone who wasn't flying out to the runway for each flight as an observation. Peter would.
+[00:06:30] Adam: He had a London double-decker bus, a you know pre-war London double-decker bus that he had converted into a military vehicle, as the British did in World War One. And he would drive everyone who wasn't flying out to the runway for each flight as an observation. Peter would.
 
 [00:06:47] Norm: He would.
 
@@ -190,7 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:06:53] Norm: His BBC project, which is his restoration of World War One. He's making a documentary. His next thing, his his passion, obviously, as we're talking about World War One, is huge passion of his, and his next project is going to be a documentary, maybe a series or a film, using lots of archival footage from the BBC.
 
-[00:07:18] Adam: So this is BBC's archival. They've been basically everything they had on file had been converted to video in the '70s. You know, basically filming it off a screen.
+[00:07:18] Adam: So this is BBC's archival. They've been basically everything they had on file had been converted to video in the '70s. Basically filming it off a screen.
 
 [00:07:18] Will: Yeah.
 
@@ -206,9 +206,9 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:08:18] Norm: tanks and airplanes and
 
-[00:08:20] Adam: cavalry or whichever. And you are watching this, and he'll it's been two hours looking at this footage, and he'll scroll and he'll go oh oh oh oh here. He'll show this like sub menu, sub menu, sub menu, sub menu. He'll go and this one a crow lands on one of the bodies. Watch this, and wow, like every piece has this granular like bit in his in his brain that he has logged, and that was that was astounding.
+[00:08:20] Adam: cavalry or whichever. And you are watching this, and he'll it's been two hours looking at this footage, and he'll scroll and he'll go oh oh oh oh here. He'll show this like sub menu. He'll go and this one a crow lands on one of the bodies. Watch this, and wow, like every piece has this granular like bit in his brain that he has logged, and that was astounding.
 
-[00:08:43] Will: So he's he's watching thousands of hours of footage, and he's like he's like he's like making making lists of lists of lists.
+[00:08:43] Will: So he's watching thousands of hours of footage, and he's like making lists of lists.
 
 [00:08:49] Adam: I was totally reminded of those behind the scenes shots in Lord of the Rings for the second two when he's got three second units. They're shooting something like two hours plus of footage per day, and everyone's staying up until one or two in the morning watching all the dailies from the previous day shooting. There is a long pan shot of the whole crew. Richard Taylor, everyone, all of them asleep, and Peter's awake, like taking notes, looking at the screen. Yeah, we this norm. Yeah, it's a we. We were all remarking on that. It's exactly what it's like.
 
@@ -218,21 +218,21 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:09:21] Will: Yeah. Okay.
 
-[00:09:21] Adam: I mean, it's such a prodigious a prodigious brain, and you know, to get to spend. We actually, we visited some locations where in well, if you visited some forested locations in Wellington, you're visiting some locations where Peter has filmed more than one or two or three of his films.
+[00:09:21] Adam: I mean, it's such a prodigious brain, and to get to spend. We actually, we visited some locations where in well, if you visited some forested locations in Wellington, you're visiting some locations where Peter has filmed more than one or two or three of his films.
 
 [00:09:38] Will: Yeah,
 
-[00:09:38] Adam: and so you get to hear stories from the local crew. Oh, we spent five days here. Oh, you know the Helms Deep. What a terrible, what an exhausting shoot of nights in the rain, in costume, in armor. You know, you get all these wonderful elaborations of how much history.
+[00:09:38] Adam: and so you get to hear stories from the local crew. Oh, we spent five days here. Oh, you know the Helms Deep. What a terrible, what an exhausting shoot of nights in the rain, in costume, in armor. You get all these wonderful elaborations of how much history.
 
 [00:09:54] Norm: And I do want to clarify that it's not like the dead bodies, like and and the the grotesqueness of war, which he's documenting. So much of this footage that the BBC had shot was film. It's all film footage, of course.
 
 [00:09:54] Adam: Right
 
-[00:09:54] Norm: of of the soldiers
+[00:09:54] Norm: of the soldiers
 
 [00:10:08] Adam: inspections
 
-[00:10:08] Norm: and and what they were doing. Like it was. Documenting the faces of the people for their families.
+[00:10:08] Norm: and what they were doing. Like it was. Documenting the faces of the people for their families.
 
 [00:10:08] Adam: Yeah.
 
@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:10:23] Norm: Find the faces of their relatives or their loved ones,
 
-[00:10:26] Adam: and the degree to which the the the special sauce that Weta Digital is bringing to this scanned footage is it's shocking. They're fixing they're fixing all sorts of issues with it. I don't want to get too much into the technical details because it's it's pretty mind blowing. Um, but it was it was astounding astounding, and you're you're you're witnessing this footage in a completely new way.
+[00:10:26] Adam: and the degree to which the special sauce that Weta Digital is bringing to this scanned footage is it's shocking. They're fixing all sorts of issues with it. I don't want to get too much into the technical details because it's pretty mind blowing. But it was astounding, and you're witnessing this footage in a completely new way.
 
 [00:10:49] Norm: Yeah.
 
@@ -256,17 +256,17 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:10:54] Adam: Yeah.
 
-[00:10:54] Will: You know, because I is he well, I don't want to ask questions that might we might. Get in trouble.
+[00:10:54] Will: Because I is he well, I don't want to ask questions that might we might. Get in trouble.
 
 [00:10:58] Norm: There's a story I'll put in the show notes where he he has done a video introducing this this documentary concept and as his next project. And I think what he's doing is after he makes it, he's going to make sure every school,
 
 [00:10:58] Adam: yeah,
 
-[00:10:58] Norm: um, has a copy of it so they can they can show it.
+[00:10:58] Norm: Has a copy of it so they can show it.
 
 [00:11:12] Adam: Did we cover scale of our war on the podcast?
 
-[00:11:14] Norm: We did. We we talked with um we we talked with Richard about that.
+[00:11:14] Norm: We did. We talked with Richard about that.
 
 [00:11:17] Adam: Unbelievable.
 
@@ -276,9 +276,9 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:11:23] Norm: At Weta.
 
-[00:11:23] Adam: Well, it's it's an astounding achievement. Um, we covered this in the podcast, Will, but it's a it's a set of five figured vignettes of World War One. Except all the figures are hyper realistic. Every hair punch, every bruise, every scab, uh, is visible and uh feels completely real. The close there is no uncanny valley. Yet all the figures are two and a half times the size of a normal human.
+[00:11:23] Adam: Well, it's an astounding achievement. We covered this in the podcast, Will, but it's a set of five figured vignettes of World War One. Except all the figures are hyper realistic. Every hair punch, every bruise, every scab is visible and feels completely real. The close there is no uncanny valley. Yet all the figures are two and a half times the size of a normal human.
 
-[00:11:47] Will: Oh right, you you told me about this last time we were there.
+[00:11:47] Will: Oh right, you told me about this last time we were there.
 
 [00:11:50] Adam: It's
 
@@ -290,7 +290,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:11:58] Adam: Larger than life. It is a completely other, nearly cinematic kind of experience. It's incredible,
 
-[00:12:04] Norm: fascinating. And we got to meet some some great artists. I don't think we mentioned, but we met um a new artist friend of ours, Gino Gino Acevedo, who works at Weta Digital. Uh, and worked on many projects here in the states in L.A.
+[00:12:04] Norm: fascinating. And we got to meet some some great artists. I don't think we mentioned, but we met a new artist friend of ours, Gino Gino Acevedo, who works at Weta Digital. And worked on many projects here in the states in L.A.
 
 [00:12:15] Adam: Gino has an enviable. Man cave,
 
@@ -306,11 +306,11 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:12:47] Norm: How was that?
 
-[00:12:48] Adam: Brain candy tour of of Sydney, Adelaide, Perth, Melbourne, and Brisbane. Here's a funny. Here's a funny thing about Australians. Australians love what they call taking the piss, which is to take you down a notch, give you a little bit of the business. It's very Anglo-Saxon thing to do, right? So the Australians love doing that. So when I take the piss out of the Australians, and they say, " Where are you going in Australia?" I go, " Oh, Sydney, Adelaide, Perth, Brisbane, Melbourne—all five cities."
+[00:12:48] Adam: Brain candy tour of Sydney, Adelaide, Perth, Melbourne, and Brisbane. Here's a funny. Here's a funny thing about Australians. Australians love what they call taking the piss, which is to take you down a notch, give you a little bit of the business. It's very Anglo-Saxon thing to do, right? So the Australians love doing that. So when I take the piss out of the Australians, and they say, " Where are you going in Australia?" I go, " Oh, Sydney, Adelaide, Perth, Brisbane, Melbourne—all five cities."
 
 [00:12:48] Norm: Right
 
-[00:12:48] Adam: now, that's that's Australians don't like that joke.
+[00:12:48] Adam: now, that's Australians don't like that joke.
 
 [00:12:48] Norm: No,
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:14:25] Norm: Wow,
 
-[00:14:25] Adam: absolutely beautiful. Creature Technologies is the name of the shop, and their their creative director invited me, reached out to me through Tested, I think, and invited me to come by their shop in Melbourne. And holy hell, these guys are doing! They have with the smallest amount of stage trickery, they've built effectively full-size walking T-Rexes that can walk around an open space.
+[00:14:25] Adam: absolutely beautiful. Creature Technologies is the name of the shop, and their creative director invited me, reached out to me through Tested, I think, and invited me to come by their shop in Melbourne. And holy hell, these guys are doing! They have with the smallest amount of stage trickery, they've built effectively full-size walking T-Rexes that can walk around an open space.
 
 [00:14:53] Will: How many people puppet those?
 
@@ -348,17 +348,17 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:15:01] Adam: [unclear: 18 / 20, 18],
 
-[00:15:02] Will: 16, 18 feet. And are they like are they like stick puppets where they're walking?
+[00:15:02] Will: 16, 18 feet. And are they like stick puppets where they're walking?
 
 [00:15:06] Adam: No, no, no. This is full hydraulically or electrically actuated dinosaurs that can look around, blink, snap, make sounds.
 
 [00:15:14] Will: So is there okay? Is there a human inside? There's like working the legs.
 
-[00:15:19] Adam: No humans inside. The legs are are are automatic, but under the legs is a sled that a human rides in.
+[00:15:19] Adam: No humans inside. The legs are automatic, but under the legs is a sled that a human rides in.
 
 [00:15:25] Will: Ah.
 
-[00:15:26] Adam: Like lies down, and then there's uh Waldo. There's one Waldo. They don't call it a Waldo. They called it something else. Um, there's one Waldo for controlling many of the gross movements, and then there's another second Waldo for controlling other movements. And there are some puppets like their King Kong takes like four people to operate.
+[00:15:26] Adam: Like lies down, and then there's Waldo. There's one Waldo. They don't call it a Waldo. They called it something else. There's one Waldo for controlling many of the gross movements, and then there's another second Waldo for controlling other movements. And there are some puppets like their King Kong takes like four people to operate.
 
 [00:15:43] Will: Wow.
 
@@ -366,17 +366,17 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:15:44] Norm: did you get to see the King Kong?
 
-[00:15:46] Adam: I got to see the King Kong. They're doing stuff with with with with um with muscles where they're able to actually replicate the musculature underneath the skin on these puppets and keep them super lightweight. There were some innovations here that I had never imagined in keeping these things both lightweight and hyper realistic and also reparable because these are these aren't one time use for film
+[00:15:46] Adam: I got to see the King Kong. They're doing stuff with muscles where they're able to actually replicate the musculature underneath the skin on these puppets and keep them super lightweight. There were some innovations here that I had never imagined in keeping these things both lightweight and hyper realistic and also reparable because these are these aren't one time use for film
 
 [00:16:09] Will: props. Yeah,
 
 [00:16:10] Adam: these are these are are theme park dinosaurs that have to be able to survive years of the most horrifying abuse from the sun and the rain and the people and yeah.
 
-[00:16:20] Norm: And when we saw a little bit of that when we saw went behind the scenes for Lion King. And they they take that show on the road, and just like this, they have to go on stage every night and perform.
+[00:16:20] Norm: And when we saw a little bit of that when we saw went behind the scenes for Lion King. And they take that show on the road, and just like this, they have to go on stage every night and perform.
 
-[00:16:30] Will: But but those puppets are a little more stylized. Like it's it seems like it's easier to do something stylized and do something that's hyper realistic.
+[00:16:30] Will: But those puppets are a little more stylized. Like it's it seems like it's easier to do something stylized and do something that's hyper realistic.
 
-[00:16:36] Adam: It's actually it was fascinating to talk to them about the engineering requirements when you perform at a Disney or a large theme park because the theme park has so men so much experience with all manner of different mechanical failures. Because you know, even made out of welded steel and giant pieces of machine cast billets of aluminum and iron and steel, the amount of stress on these machines is so massive. Things break all the time, and so the theme parks have these. It's it's like working for NASA, right? They have these incredible specs, and these guys meet them and are able to make money doing it. It's it's really exciting. Long story short, tested will at some point visit Creature Technologies. We talked about this. We started setting this up so that we can see what they do and maybe help and play with them because. You got to see the stuff up close.
+[00:16:36] Adam: It's actually it was fascinating to talk to them about the engineering requirements when you perform at a Disney or a large theme park because the theme park has so men so much experience with all manner of different mechanical failures. Because even made out of welded steel and giant pieces of machine cast billets of aluminum and iron and steel, the amount of stress on these machines is so massive. Things break all the time, and so the theme parks have these. It's like working for NASA, right? They have these incredible specs, and these guys meet them and are able to make money doing it. It's really exciting. Long story short, tested will at some point visit Creature Technologies. We talked about this. We started setting this up so that we can see what they do and maybe help and play with them because. You got to see the stuff up close.
 
 [00:17:26] Will: I can't wait to see that.
 
@@ -404,7 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:17:58] Norm: blister pack,
 
-[00:17:58] Adam: like like like
+[00:17:58] Adam: like
 
 [00:18:00] Will: like Kenner Star Wars scale,
 
@@ -416,7 +416,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:18:08] Norm: We have some of those photos. I'm going to put them in the video. So you guys can check those out.
 
-[00:18:12] Adam: Cool. The fans were, you know, there's a very regular thing we hear from the fans, and I might have said this last. I came in the last time I came back from the tour. If a if someone in their late 20s comes up. I they they they they grew up on my show. If someone in their early 20s shows up, what they say is, " I got them through high school math, and Michael Stevens got them through college physics." And there was that repeated refrain: " Like Michael's demographic is about 10 years younger than mine, which totally makes sense." And that that that fan split of doing the meet and greets each night and meeting these different Australian fans who Vsauce and MythBusters had meant something to. It's never-endingly inspiring. People kept bringing us stuff that they'd made and bringing us pictures of stuff that they'd built. That that was great, and the crowds in Australia were, if anything, better than the last time I toured with Jamie. They were really enthusiastic, loving, great crowd.
+[00:18:12] Adam: Cool. The fans were there's a very regular thing we hear from the fans, and I might have said this last. I came in the last time I came back from the tour. If a if someone in their late 20s comes up. I they grew up on my show. If someone in their early 20s shows up, what they say is, " I got them through high school math, and Michael Stevens got them through college physics." And there was that repeated refrain: " Like Michael's demographic is about 10 years younger than mine, which totally makes sense." And that that that fan split of doing the meet and greets each night and meeting these different Australian fans who Vsauce and MythBusters had meant something to. It's never-endingly inspiring. People kept bringing us stuff that they'd made and bringing us pictures of stuff that they'd built. That that was great, and the crowds in Australia were, if anything, better than the last time I toured with Jamie. They were really enthusiastic, loving, great crowd.
 
 [00:19:08] Will: This is the first time you went to Australia with Michael, right?
 
@@ -430,29 +430,29 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:19:12] Norm: There's one more person that you met that I want to hear about because I saw you posted this on Twitter.
 
-[00:19:18] Adam: I did. I I got to meet one of my YouTube heroes, John Plant, A.K.A. Primitive Technologies Guy.
+[00:19:18] Adam: I did. I got to meet one of my YouTube heroes, John Plant, A.K.A. Primitive Technologies Guy.
 
 [00:19:26] Will: Awesome!
 
 [00:19:27] Adam: I know. I have heard the man speak. That felt to me like an like a life achievement.
 
-[00:19:32] Will: I I love. He did a video of like how to build a hut.
+[00:19:32] Will: I love. He did a video of like how to build a hut.
 
 [00:19:32] Adam: Yeah.
 
 [00:19:32] Will: That I feel like everybody who ever goes on Survivor should should commit to full memory.
 
-[00:19:42] Adam: John is um John is an incredible an incredible person. Uh, we've been corresponding for several months. Um, I reached out because I'm such a huge fan. No, I'm not going to tell you where he lives. No, I'm not going to tell you any more information than is on his page. Uh, he is he's private and deservedly so. I appreciate I appreciate that because his work really speaks for itself. Primitive Technologies is one of my favorite YouTube channels in the world. I watch them all in the moment they come out, and it was thrilling to talk to him about this behind the scenes. I have I had so many technical questions and engineering questions. That was that was the that was really thrilling.
+[00:19:42] Adam: John is an incredible person. We've been corresponding for several months. I reached out because I'm such a huge fan. No, I'm not going to tell you where he lives. No, I'm not going to tell you any more information than is on his page. He is he's private and deservedly so. I appreciate that because his work really speaks for itself. Primitive Technologies is one of my favorite YouTube channels in the world. I watch them all in the moment they come out, and it was thrilling to talk to him about this behind the scenes. I have I had so many technical questions and engineering questions. That was the that was really thrilling.
 
 [00:20:19] Will: I want to know more about his process than. Probably like the Weta process. That's interesting. It's pretty well documented. I want to know more about where he gets his information.
 
-[00:20:28] Adam: Look, maybe we maybe we end up doing something together in the future. I don't know. We just basically got together to have dinner and and start a start a friendship.
+[00:20:28] Adam: Look, maybe we end up doing something together in the future. I don't know. We just basically got together to have dinner and start a friendship.
 
-[00:20:36] Will: Did you Did you build a fire yourself? Did you knap some flint? Did you
+[00:20:36] Will: Did you build a fire yourself? Did you knap some flint? Did you
 
 [00:20:41] Adam: Hey, I'm gonna go out and have a smoke.
 
-[00:20:44] Will: Right. Did you Did you hand axe the meat off of the animal yourself? Like, what was the?
+[00:20:44] Will: Right. Did you hand axe the meat off of the animal yourself? Like, what was the?
 
 [00:20:49] Adam: I had a steak. That felt appropriate.
 
@@ -460,7 +460,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:20:52] Norm: Cool. How have you been spending your time, Will?
 
-[00:20:55] Will: Let's see. The flu has ravaged North America. It's go. It's still not too late to get vaccines. The vaccine is not super effective, but it's worth doing. If my my daughter's pediatrician saved me because when we called and we're like, Hey, do we need to bring her in to see this? The pediatrician was like, No, but if you have people in your house with the flu, anybody who doesn't have it yet should call their doctor and get Tamiflu right now.
+[00:20:55] Will: Let's see. The flu has ravaged North America. It's go. It's still not too late to get vaccines. The vaccine is not super effective, but it's worth doing. If my daughter's pediatrician saved me because when we called and we're like, Hey, do we need to bring her in to see this? The pediatrician was like, No, but if you have people in your house with the flu, anybody who doesn't have it yet should call their doctor and get Tamiflu right now.
 
 [00:20:55] Adam: Oh.
 
@@ -476,11 +476,11 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:20:55] Norm: Chicago.
 
-[00:20:55] Will: It's in Chicago. Gone. It's uh, it's always in like January, which is the best time of year. Like in the entrance to the to the camp, they have a big sign that says, " Uh, you you must be a complete badass to come visit Chicago in January." It was really nice. It was like 40 degrees. Um, I hung out with our friends at Cards Against Humanity for a little bit.
+[00:20:55] Will: It's in Chicago. Gone. It's always in like January, which is the best time of year. Like in the entrance to the camp, they have a big sign that says, " Uh, you you must be a complete badass to come visit Chicago in January." It was really nice. It was like 40 degrees. I hung out with our friends at Cards Against Humanity for a little bit.
 
 [00:20:55] Unknown speaker: Nice.
 
-[00:20:55] Will: Um, I saw a bunch of friends of Tested Dan Shapiro and a bunch of other folks that that you guys all know. I learned how to. I I got to so Ord Camp is a um, it's a foo camp alike. So it's like a build your own conference. They just bring a bunch of interesting people and give everybody post it notes at the start of the at the start of the conference and tell you tell people to either. Write something that they're happy to teach people, or write something they'd like to learn about, and then you stick it on a big board, and it kind of self organizes into a schedule.
+[00:20:55] Will: I saw a bunch of friends of Tested Dan Shapiro and a bunch of other folks that that you guys all know. I learned how to. I got to so Ord Camp is a it's a foo camp alike. So it's like a build your own conference. They just bring a bunch of interesting people and give everybody post it notes at the start of the at the start of the conference and tell you tell people to either. Write something that they're happy to teach people, or write something they'd like to learn about, and then you stick it on a big board, and it kind of self organizes into a schedule.
 
 [00:22:29] Adam: That sounds really cool.
 
@@ -492,11 +492,11 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:22:38] Norm: that's in the Anthony Bourdain documentary, The Rotten. It's the first episode. I'd recommend it.
 
-[00:22:42] Will: Oh well, so the person who Janet Kinsman, who I think you know, does Doodle Booth too, and has been at PAX and stuff like that, but she is a beekeeper. She does Bike a Bee in Chicago, and like they they are the people you call in Chicago if you would like if you have bees where you don't want bees, yeah, and they will come take the bees away and put them in a home where they can produce honey. And she does hyper local honey. So normally you get honey and you kind of blend it with all the places, but Chicago, each of the neighborhoods has unique foliage. So like some of the some of the the honeys from like one neighborhood are more astringent because they have a lot of like lingonberries and stuff like that. That may not be right, but like they have the the flowers that the bees eat there give the the Really, really, super distinct flavor. It's really neat. I I I learned how to puppet.
+[00:22:42] Will: Oh well, so the person who Janet Kinsman, who I think does Doodle Booth too, and has been at PAX and stuff like that, but she is a beekeeper. She does Bike a Bee in Chicago, and like they are the people you call in Chicago if you would like if you have bees where you don't want bees, yeah, and they will come take the bees away and put them in a home where they can produce honey. And she does hyper local honey. So normally you get honey and you kind of blend it with all the places, but Chicago, each of the neighborhoods has unique foliage. So some of the honeys from like one neighborhood are more astringent because they have a lot of like lingonberries and stuff like that. That may not be right, but they have the flowers that the bees eat there give the Really, really, super distinct flavor. It's really neat. I learned how to puppet.
 
 [00:22:42] Adam: What?
 
-[00:22:42] Will: So so they they God I can't remember Liz's last name. A writer from Sesame Street was there, and she she and Mary Robinette Kowal or Kowal Robinette brought their puppets. Mary was on Busy Town, yeah, and and they taught us how to do TV puppetry. So they had TV monitors set up, and they brought the puppets, and we made peepers. You know, they had peepers there that are just basically ping pong balls with dots stuck on them and a piece of elastic that goes around your finger. And they taught us how to how to hand puppet with just the hands, and we got to use the real puppets for a little bit, which was really cool. And the TV and and use the TV monitor at all, which is the part that like I'd never done before, and it's amazing. It is shocking how hard it is to keep your hand vertical when it's up like this.
+[00:22:42] Will: So so they God I can't remember Liz's last name. A writer from Sesame Street was there, and she and Mary Robinette Kowal or Kowal Robinette brought their puppets. Mary was on Busy Town, yeah, and they taught us how to do TV puppetry. So they had TV monitors set up, and they brought the puppets, and we made peepers. They had peepers there that are just basically ping pong balls with dots stuck on them and a piece of elastic that goes around your finger. And they taught us how to hand puppet with just the hands, and we got to use the real puppets for a little bit, which was really cool. And the TV and use the TV monitor at all, which is the part that like I'd never done before, and it's amazing. It is shocking how hard it is to keep your hand vertical when it's up like this.
 
 [00:24:15] Adam: Don't even get me started. I watched Dave. I've watched Dave Goelz perform a couple times now. He's the Gonzo, and it's astounding to me what they do. I also I got to hang out with Dave and Frank Oz at last year South by where they unleashed Muppet Muppet.
 
@@ -512,7 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:25:06] Adam: Yeah.
 
-[00:25:06] Will: And then we one of the one of the most interesting questions we had out of that session because I know people here like puppeteers was how how you do two puppets that are puppeted by the same person in the same scene.
+[00:25:06] Will: And then we one of the most interesting questions we had out of that session because I know people here like puppeteers was how how you do two puppets that are puppeted by the same person in the same scene.
 
 [00:25:06] Unknown speaker: Wow.
 
@@ -520,11 +520,11 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:25:33] Adam: Fascinating.
 
-[00:25:33] Will: Yeah, it was it was super good. Ord camp. If you have a chance to go to a Foo Camp, a Foo Foo Camp like thing, highly recommend it. If you think it sounds cool, start one yourself. Like Ord camp had 400 people, 450 people. They're basically as big as they can get for the space they have now. I think, and it started as 35 people or 50 people 10 years ago. Now, so
+[00:25:33] Will: Yeah, it was super good. Ord camp. If you have a chance to go to a Foo Camp, a Foo Foo Camp like thing, highly recommend it. If you think it sounds cool, start one yourself. Like Ord camp had 400 people, 450 people. They're basically as big as they can get for the space they have now. I think, and it started as 35 people or 50 people 10 years ago. Now, so
 
-[00:25:54] Adam: I'm so I so want to go. I've never I've never been able to make the time work. We were in New Zealand.
+[00:25:54] Adam: I'm so I so want to go. I've never been able to make the time work. We were in New Zealand.
 
-[00:26:00] Will: Yeah, I mean it's it's unfortunate you were a half a world away.
+[00:26:00] Will: Yeah, I mean it's unfortunate you were a half a world away.
 
 [00:26:03] Norm: I mean, we missed Sketchfest. Sketchfest was here.
 
@@ -538,15 +538,15 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:26:40] Will: What are you guys doing that long flight? Just out of curiosity.
 
-[00:26:43] Adam: Um, I you I actually got a lot of flight across the ocean. A lot of sleep across the ocean.
+[00:26:43] Adam: I you I actually got a lot of flight across the ocean. A lot of sleep across the ocean.
 
 [00:26:48] Will: Do you do the old yeah yeah
 
 [00:26:51] Adam: sitting in the comfy seat.
 
-[00:26:52] Will: Yeah, well, no, I know that, but but the
+[00:26:52] Will: Yeah, well, no, I know that, but the
 
-[00:26:54] Adam: I got I got seven hours of sleep on the way.
+[00:26:54] Adam: I got seven hours of sleep on the way.
 
 [00:26:57] Will: Did you have the pod with the thing that goes over? The top?
 
@@ -560,7 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:27:02] Adam: not not but Air New Zealand, without a doubt, full stop. My favorite airline. I just they have like hundreds and hundreds of movies. Last time I flew them, not this time, but last time they had a category of movies. That Bill Murray's in, that was like one of the choices you could make.
 
-[00:27:19] Will: I can't imagine a better cat. Did they have quick change? That's the one, like, like you know, the deep cut, I guess.
+[00:27:19] Will: I can't imagine a better cat. Did they have quick change? That's the one you know, the deep cut, I guess.
 
 [00:27:26] Adam: I love quick change.
 
@@ -582,7 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:28:03] Will: Too small.
 
-[00:28:03] Norm: A little bit too small, and and and I get intimately familiar with like how uncomfortable I am. What I do is I watch the movies that other people are watching and try to deduce the storylines.
+[00:28:03] Norm: A little bit too small, and I get intimately familiar with like how uncomfortable I am. What I do is I watch the movies that other people are watching and try to deduce the storylines.
 
 [00:28:14] Adam: Oh, I watched.
 
@@ -594,7 +594,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:28:17] Adam: Amazing.
 
-[00:28:17] Will: Yeah. No, it's it's this it's a Soderbergh ass heist movie.
+[00:28:17] Will: Yeah. No, it's this it's a Soderbergh ass heist movie.
 
 [00:28:24] Adam: Every bit as much fun as you hope that it is.
 
@@ -606,11 +606,11 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:28:31] Adam: Man, it is so great to watch these wonderful actors do. Yeah. Again, it's a great heist movie. If you liked Ocean's Eleven, Logan Lucky is your movie. This is really fun.
 
-[00:28:40] Will: Yeah. I I was I we Gina and I put that on a few months ago and we're like, this is a really good movie. Who knew that Steven Soderbergh made good movies? Huh?
+[00:28:40] Will: Yeah. I was I we Gina and I put that on a few months ago and we're like, this is a really good movie. Who knew that Steven Soderbergh made good movies? Huh?
 
 [00:28:49] Adam: It's fantastic. Excellent. Anything on the site?
 
-[00:28:53] Norm: Yes, we actually have some some stuff for subscribers. Pushing out a couple stuff that we filmed at the end of last year. Sean and Jeremy did a really cool animatronics build with a kit they bought at Monsterpalooza, and with our new friend Kayte Sabicer painted that in in the shop here. Actually, so that's up on the site right now.
+[00:28:53] Norm: Yes, we actually have some some stuff for subscribers. Pushing out a couple stuff that we filmed at the end of last year. Sean and Jeremy did a really cool animatronics build with a kit they bought at Monsterpalooza, and with our new friend Kayte Sabicer painted that in the shop here. Actually, so that's up on the site right now.
 
 [00:28:53] Adam: Woo hoo!
 

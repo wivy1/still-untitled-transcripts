@@ -14,15 +14,15 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:00:08] Will: Hey, so just as a minor bit of housekeeping, we did an episode, I think last week, about hearing loss,
 
-[00:00:14] Adam: Which is the responses have been, again, you know, Chris Hardwick says, " Don't read comments on the internet." He refers to it as " cutting."
+[00:00:14] Adam: Which is the responses have been, again Chris Hardwick says, " Don't read comments on the internet." He refers to it as " cutting."
 
 [00:00:14] Will: Yeah.
 
-[00:00:14] Adam: But I've been reading a lot of the comments on it. I find them really inspiring. I'm really glad that talking openly about that has engendered such a wide range of responses, including one up on Tested, where where a man said, " I'm I'm I'm older, and I've had hearing loss for a long time, and my family, I drive my family crazy. And if you can admit to it, then I can admit to it. I'm going to go get hearing aids." And I like, I got a little weepy.
+[00:00:14] Adam: But I've been reading a lot of the comments on it. I find them really inspiring. I'm really glad that talking openly about that has engendered such a wide range of responses, including one up on Tested, where a man said, " I'm I'm I'm older, and I've had hearing loss for a long time, and my family, I drive my family crazy. And if you can admit to it, then I can admit to it. I'm going to go get hearing aids." And I like, I got a little weepy.
 
-[00:00:44] Will: It's good. I mean, the the comments were overwhelmingly positive on that episode.
+[00:00:44] Will: It's good. I mean, the comments were overwhelmingly positive on that episode.
 
-[00:00:48] Norm: People like hearing about surgery and the the wonderful details.
+[00:00:48] Norm: People like hearing about surgery and the wonderful details.
 
 [00:00:52] Will: And so, Norm, when you have brain surgery, they cut up under your ears. They cut up under your gum and then just pull your face up.
 
@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:01:18] Adam: Out for Haitian?
 
-[00:01:18] Will: I spent some time this morning, and those comments, the the captions are fixed. So if you want to see them, you can send them to YouTube. Tell them to hit the CC button, and the transcript is human. We're not going to do that for every video because we do long videos, and it takes a lot of time. And it and it was it was funny for the first two minutes, and then terrible for the next three hours.
+[00:01:18] Will: I spent some time this morning, and those comments, the captions are fixed. So if you want to see them, you can send them to YouTube. Tell them to hit the CC button, and the transcript is human. We're not going to do that for every video because we do long videos, and it takes a lot of time. And it was funny for the first two minutes, and then terrible for the next three hours.
 
 [00:02:02] Norm: The good thing is that those things will get better over time.
 
@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:02:28] Will: Right,
 
-[00:02:28] Adam: and I have seen the mistakes that I have seen the syntactical mistakes on the the the television closed captioning live television is specifically oh you. I have a homonym there,
+[00:02:28] Adam: and I have seen the mistakes that I have seen the syntactical mistakes on the television closed captioning live television is specifically oh you. I have a homonym there,
 
 [00:02:59] Will: right?
 
@@ -104,13 +104,13 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:03:04] Adam: right?
 
-[00:03:04] Will: So your, your, your, and there, there, there, all get mixed up.
+[00:03:04] Will: So your, and there, all get mixed up.
 
 [00:03:09] Norm: But it is a hybrid system.
 
 [00:03:09] Adam: Yes. I do think it's a hybrid.
 
-[00:03:11] Will: Cyborgs? I I love like that's the kind of job.
+[00:03:11] Will: Cyborgs? I love like that's the kind of job.
 
 [00:03:15] Adam: Samantha Morton sitting there
 
@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:03:16] Adam: Right,
 
-[00:03:16] Will: but I wonder I wonder where that like where do you send the best live captioner? Like, what is their job? Where do they work?
+[00:03:16] Will: but I wonder where that like where do you send the best live captioner? Like, what is their job? Where do they work?
 
 [00:03:45] Adam: Where are they?
 
@@ -142,7 +142,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:04:17] Will: Well, could the monster live in there?
 
-[00:04:18] Adam: Yeah. But I was thinking, where where could we make? Where could we find an analog for trash compactor? Maybe we could try and escape from a garbage truck that's actively attempting to crush us.
+[00:04:18] Adam: Yeah. But I was thinking, where could we make? Where could we find an analog for trash compactor? Maybe we could try and escape from a garbage truck that's actively attempting to crush us.
 
 [00:04:27] Norm: Now there have been movies, like Bond movies.
 
@@ -160,7 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:04:57] Norm: That's got to be a phobia too, being in a trash compactor.
 
-[00:05:00] Adam: That's a pretty creative phobia. But I, you know, phobias are nothing...
+[00:05:00] Adam: That's a pretty creative phobia. But I phobias are nothing...
 
 [00:05:03] Will: There's a phobia for everything, man.
 
@@ -174,9 +174,9 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:05:11] Adam: Better, better, better, better, better, better, much better,
 
-[00:05:13] Will: much better. Um, I. The thing I want to know is the tropiest of movie tropes: the guy falls off of the ledge. He's hanging on an overhang. It has happened in Return of the Jedi. It happened in the new J. J. Abrams Star Wars. No, how many? How strong someone is in the adrenaline circumstance that they can pull pull them back up? So, like in the new Star Trek, Anton Yelchin pulls up. I can't even remember who it is, but somebody, yeah, two people fall off the ledge, and that little tiny guy hoists up two dudes. I don't think you could do that with one arm.
+[00:05:13] Will: much better. I. The thing I want to know is the tropiest of movie tropes: the guy falls off of the ledge. He's hanging on an overhang. It has happened in Return of the Jedi. It happened in the new J. J. Abrams Star Wars. No, how many? How strong someone is in the adrenaline circumstance that they can pull pull them back up? So, like in the new Star Trek, Anton Yelchin pulls up. I can't even remember who it is, but somebody, yeah, two people fall off the ledge, and that little tiny guy hoists up two dudes. I don't think you could do that with one arm.
 
-[00:05:43] Adam: I don't think you could do it. Um, you know, actually, you're reminding me. I have something in my bag here. Let's see. Ooh. Where is it? There we go. Norm, look.
+[00:05:43] Adam: I don't think you could do it. Actually, you're reminding me. I have something in my bag here. Let's see. Ooh. Where is it? There we go. Norm, look.
 
 [00:05:53] Norm: You also got one.
 
@@ -192,7 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:06:01] Norm: Oh, perfect!
 
-[00:06:01] Adam: I ordered myself both Commander and and Science.
+[00:06:01] Adam: I ordered myself both Commander and Science.
 
 [00:06:07] Norm: That's great. They're $10. They're of course well worth buying.
 
@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:06:18] Adam: I am totally kidding.
 
-[00:06:19] Will: Um, man, speaking of so the so the the little chevron they're not chevrons are they chevrons
+[00:06:19] Will: Man, speaking of so the little chevron they're not chevrons are they chevrons
 
 [00:06:25] Norm: They’re chevrons—ish.
 
@@ -216,7 +216,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:06:27] Norm: They're called chevrons in Trek lore.
 
-[00:06:28] Will: it's the little Trek logo the the Enterprise logo on that reminds me when we were at South by last week we went to the Game of Thrones exhibit
+[00:06:28] Will: it's the little Trek logo the Enterprise logo on that reminds me when we were at South by last week we went to the Game of Thrones exhibit
 
 [00:06:36] Adam: oh yeah how was that
 
@@ -224,7 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:06:38] Norm: There are photos on the website
 
-[00:06:39] Will: there are a ton of photos on the website um we went there waited in line um went in and you know I was expecting like I've seen the Star Wars prop the the original series the original three episodes traveling um I saw the Star Trek stuff there for the original series in the TNG and we've talked about it a lot on the cave videos especially but a lot of times the props look kind of shabby in person
+[00:06:39] Will: there are a ton of photos on the website we went there waited in line went in and you know I was expecting like I've seen the Star Wars prop the original series the original three episodes traveling I saw the Star Trek stuff there for the original series in the TNG and we've talked about it a lot on the cave videos especially but a lot of times the props look kind of shabby in person
 
 [00:06:39] Adam: yeah yeah.
 
@@ -252,7 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:07:24] Adam: I mean, he doesn't live that far away. He's in Santa Fe.
 
-[00:07:26] Will: But he he was too busy smashing somebody's guitar. I think the weirdest smash guitar smash I've ever seen. It was amazing.
+[00:07:26] Will: But he was too busy smashing somebody's guitar. I think the weirdest smash guitar smash I've ever seen. It was amazing.
 
 [00:07:34] Norm: Something that's you notice when wearing the Star Trek uniform. We did a video about it. Also, is that there's a trend in Hollywood of the small small logo making like pattern.
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:07:54] Will: Okay.
 
-[00:07:54] Norm: In the new one, it is it is the waffle pattern, like chainmail almost. But in the Bryan Singer one, it is the S's.
+[00:07:54] Norm: In the new one, it is the waffle pattern, like chainmail almost. But in the Bryan Singer one, it is the S's.
 
 [00:07:54] Adam: Ah.
 
@@ -282,7 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:08:10] Norm: No, we'll have to disagree. I'm saying, I'm just saying, we'll disagree on that.
 
-[00:08:14] Adam: We’ll disagree. Okay, we'll disagree. Um, I finished the second season of House of Cards a few nights ago.
+[00:08:14] Adam: We’ll disagree. Okay, we'll disagree. I finished the second season of House of Cards a few nights ago.
 
 [00:08:20] Will: I'm sorry.
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:08:25] Norm: Oh, yeah.
 
-[00:08:25] Adam: There are there are two moments in the second season. I won't spoil when they are.
+[00:08:25] Adam: There are two moments in the second season. I won't spoil when they are.
 
 [00:08:25] Norm: Uh huh.
 
@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:08:59] Adam: Really, really enjoyable. Actually, second season. Better than the first.
 
-[00:09:02] Will: I'll have to go back. I I lost interest midway through the first season.
+[00:09:02] Will: I'll have to go back. I lost interest midway through the first season.
 
 [00:09:02] Adam: Oh, really?
 
@@ -332,7 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:09:13] Unknown speaker: Yeah.
 
-[00:09:19] Will: That's probably that's probably exactly it.
+[00:09:19] Will: That's probably exactly it.
 
 [00:09:21] Norm: Are you conservative?
 
@@ -346,7 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:09:36] Norm: That's right.
 
-[00:09:37] Will: Oh boy, poor Gray Davis. Um,
+[00:09:37] Will: Oh boy, poor Gray Davis.
 
 [00:09:40] Norm: let's get political.
 
@@ -360,13 +360,13 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:09:45] Will: It’s a great idea. Why would we not do that?
 
-[00:09:47] Adam: Um, South by was great. I had a great time there. It was brief. We were in and out, but what a scene! What a what a thing!
+[00:09:47] Adam: South by was great. I had a great time there. It was brief. We were in and out, but what a scene! What a thing!
 
 [00:09:55] Norm: So it was your first time at South by?
 
 [00:09:56] Adam: My first time.
 
-[00:09:57] Will: So it's. I used to go in the mid 2000s, which was already at that point. There were old timers going around. Man, South by is not the same anymore. We used to just go out to Bruce Sterling's house after the end of the show, and he'd talk for a while, and we'd all just get really shit faced and high out on the lake. But it's it's it's different. I mean, it's a lot bigger than it was even seven or eight years ago, and a lot like the tone of the event has changed a lot as a result. So it used to be the kind of place that you go, and at the end of a session or something, everybody would go out and like the speakers, and everybody would come and stand out in the hall, and you'd kind of chit chat. Oh, and then if you wanted to, you'd go get a beer or something in one of the bars down the street.
+[00:09:57] Will: So it's. I used to go in the mid 2000s, which was already at that point. There were old timers going around. Man, South by is not the same anymore. We used to just go out to Bruce Sterling's house after the end of the show, and he'd talk for a while, and we'd all just get really shit faced and high out on the lake. But it's different. I mean, it's a lot bigger than it was even seven or eight years ago, and a lot like the tone of the event has changed a lot as a result. So it used to be the kind of place that you go, and at the end of a session or something, everybody would go out and like the speakers, and everybody would come and stand out in the hall, and you'd kind of chit chat. Oh, and then if you wanted to, you'd go get a beer or something in one of the bars down the street.
 
 [00:09:57] Adam: That would never happen now?
 
@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:11:27] Adam: and it’s an important audience, and it's important early adopters.
 
-[00:11:29] Norm: And they spent decades building up a reputation and a sense of, and it's a lot of parallels to like San Francisco and the housing crisis we have going on, and people saying, you know, people, everyone's moving into San Francisco, but no one's giving back, and they're just taking advantage of the, you know, the culture that's been here for a while.
+[00:11:29] Norm: And they spent decades building up a reputation and a sense of, and it's a lot of parallels to like San Francisco and the housing crisis we have going on, and people saying people, everyone's moving into San Francisco, but no one's giving back, and they're just taking advantage of the, you know, the culture that's been here for a while.
 
 [00:11:45] Will: Yeah, that's another conversation that started 10 years, 15 years ago.
 
@@ -394,7 +394,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:12:03] Will: It's a real terrible mix of NIMBYism and complete failure to develop.
 
-[00:12:08] Adam: And again, another example where the the right idea, which is rent control, is executed in the worst way that benefits a small number of people but harms a much larger number of people.
+[00:12:08] Adam: And again, another example where the right idea, which is rent control, is executed in the worst way that benefits a small number of people but harms a much larger number of people.
 
 [00:12:21] Will: Well, and because a lot of times stuff like so, for example, the San Francisco rent control example is a great example because it was you know went into place in the what middle '80s, probably I mean initially probably in the '60s and then was updated in the '80s and then it's been static ever since. So rather than having rolling dates, for example, at the time I think the idea was that when something's been around for five or six years, it becomes rent controlled.
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:12:21] Adam: Yeah.
 
-[00:12:21] Will: So I mean, it's it's just a real weird situation. It's a weird place to live.
+[00:12:21] Will: So I mean, it's just a real weird situation. It's a weird place to live.
 
 [00:12:53] Norm: Culturally, I think it makes a lot of sense if you are going to move into a place that's. Has existing culture, whether it's a city or an event like South by, if you can contribute and bring a little to it, and or at least have that mindset,
 
@@ -418,7 +418,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:13:08] Will: So you're saying South by is like locusts that swarm down on Austin every spring.
 
-[00:13:11] Adam: I confronted. I mean, I'm right in the middle here in the Mission, and I'm absolutely one of those people who bought it. I mean, I've been, it literally, I've been, I've been, I've been, I've been, I've been living in and around the Mission for 20 years.
+[00:13:11] Adam: I confronted. I mean, I'm right in the middle here in the Mission, and I'm absolutely one of those people who bought it. I mean, I've been, it literally, I've been living in and around the Mission for 20 years.
 
 [00:13:20] Will: You're the gentrifier, though, is what you're saying.
 
@@ -446,13 +446,13 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:14:08] Norm: 6th Street,
 
-[00:14:10] Adam: yeah. And I was right there. Like I walked out onto my balcony at four p.m. and like all the pedicab drivers were like, " Hey, Adam!" and like you know, lifting their shirts.
+[00:14:10] Adam: yeah. And I was right there. Like I walked out onto my balcony at four p.m. and all the pedicab drivers were like, " Hey, Adam!" and lifting their shirts.
 
 [00:14:10] Will: That's awesome.
 
-[00:14:10] Adam: Because I guess that's how pedicab drivers say hello. And, uh...
+[00:14:10] Adam: Because I guess that's how pedicab drivers say hello. And...
 
-[00:14:10] Will: You know, pedicab's an uncomfortable word.
+[00:14:10] Will: Pedicab's an uncomfortable word.
 
 [00:14:26] Norm: And then you were throwing beads down there.
 
@@ -474,19 +474,19 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:14:35] Will: I understand it's not spelled the same. Successfully tweeted?
 
-[00:14:43] Adam: Successfully tweeted. There’s the, there’s the view from my room.
+[00:14:43] Adam: Successfully tweeted. There’s the view from my room.
 
 [00:14:46] Norm: Oh, it's a great panorama.
 
-[00:14:46] Adam: So basically, it’s pretty. It's really good that I have hearing aids that I can remove because I, as a normal person, wouldn't have got a wink of sleep in that room all night long. It was like pounding music and. Bottles smashing and people yelling and singing and guitars tuning. I mean, it was like sound. If I asked my sound designer to give me the sound of like a whole night festival, I would have told him he was overdoing it. It was crazy, but really fun. And we ended up.  Uh, uh, uh, uh...
+[00:14:46] Adam: So basically, it’s pretty. It's really good that I have hearing aids that I can remove because I, as a normal person, wouldn't have got a wink of sleep in that room all night long. It was like pounding music and. Bottles smashing and people yelling and singing and guitars tuning. I mean, it was like sound. If I asked my sound designer to give me the sound of like a whole night festival, I would have told him he was overdoing it. It was crazy, but really fun. And we ended up...
 
 [00:15:16] Will: Did you get some good food?
 
-[00:15:18] Adam: Uh, we had some okay food. We went to the Ginger Man with MC Frontalot. Yes. Okay. And we had a really nice evening, just sort of chilling in a quieter place. Everyone was really awesome.
+[00:15:18] Adam: We had some okay food. We went to the Ginger Man with MC Frontalot. Yes. Okay. And we had a really nice evening, just sort of chilling in a quieter place. Everyone was really awesome.
 
 [00:15:28] Norm: And you made a discovery at the Ginger Man after we left. The connection.
 
-[00:15:32] Adam: Well, the Ginger Man. This is a weird one. The Ginger Man in South by in in Austin is supposedly linked directly to the Ginger Man in New York, right off of Lincoln Center.
+[00:15:32] Adam: Well, the Ginger Man. This is a weird one. The Ginger Man in South by in Austin is supposedly linked directly to the Ginger Man in New York, right off of Lincoln Center.
 
 [00:15:42] Norm: These are bars.
 
@@ -510,7 +510,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:17:01] Will: Hold on, do you can you do auctioneer patter? A ball right now, and what do you get for it?
 
-[00:17:03] Adam: No, no, no, no. I do more like I had. I was running around fomenting bidding battles by adding sweeteners to the pot. Like if you, if you, whoever wins now, I will record the outgoing message on your machine. Whoever wins now, you get 15 minutes of phone consultation with me about any project you're working on.
+[00:17:03] Adam: No, no, no, no. I do more like I had. I was running around fomenting bidding battles by adding sweeteners to the pot. Like if you, whoever wins now, I will record the outgoing message on your machine. Whoever wins now, you get 15 minutes of phone consultation with me about any project you're working on.
 
 [00:17:03] Will: Wow, that's great.
 
@@ -536,9 +536,9 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:17:36] Adam: Yeah, I bought a sequin coat.
 
-[00:17:37] Norm: Photos to share from this this podcast.
+[00:17:37] Norm: Photos to share from this podcast.
 
-[00:17:39] Adam: The strangest thing about the sequin coat was, you know, you search sequin coat. There's plenty out there, and really, it's hard to find them any more than about $40. They cost about $40. So I—
+[00:17:39] Adam: The strangest thing about the sequin coat was you search sequin coat. There's plenty out there, and really, it's hard to find them any more than about $40. They cost about $40. So I—
 
 [00:17:50] Will: Is this like these stripper stores and stuff like that.
 
@@ -552,7 +552,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:17:52] Adam: Actually, really well cut suit. Who knew? It's just exactly for my form. Got two buttons. Really nice.
 
-[00:18:09] Will: Maybe you're the the epitome of the of the modern man. Or
+[00:18:09] Will: Maybe you're the epitome of the modern man. Or
 
 [00:18:12] Adam: or I'm the exact same as the designer of the coat.
 
@@ -560,7 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:18:18] Adam: No, we haven't even gotten to the point.
 
-[00:18:20] Norm: Oh no, no, we we can save that for next. I think we can.
+[00:18:20] Norm: Oh no, no, we can save that for next. I think we can.
 
 [00:18:23] Will: We can just roll straight into it. Yeah, this was the South by.
 
@@ -570,13 +570,13 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:18:28] Will: Oh, you saw movies?
 
-[00:18:28] Norm: I uh I stayed a couple extra days, few extra days to watch movies, and it's difficult to get in the movies now. First of all, they did a screening of the original.  Godzilla.
+[00:18:28] Norm: I stayed a couple extra days, few extra days to watch movies, and it's difficult to get in the movies now. First of all, they did a screening of the original. Godzilla.
 
 [00:18:36] Will: It used to be so much better in the old days.
 
-[00:18:38] Norm: At uh the Alamo Drafthouse, yeah, which is the uh the movie chain, the movie theater chain in Austin. There's gonna be one in San Francisco, but there's a theater, the Ritz Theater holds. There's two rooms. One holds like 60 people. One holds 120 people. They had a screening of the original Godzilla remastered with 40 minutes of additional footage. And a wonderful poster. Wow! Massive line for that. I didn't get to see that. That was the one I really wanted to see, because people with badges go in first.
+[00:18:38] Norm: At the Alamo Drafthouse, yeah, which is the movie chain, the movie theater chain in Austin. There's gonna be one in San Francisco, but there's a theater, the Ritz Theater holds. There's two rooms. One holds like 60 people. One holds 120 people. They had a screening of the original Godzilla remastered with 40 minutes of additional footage. And a wonderful poster. Wow! Massive line for that. I didn't get to see that. That was the one I really wanted to see, because people with badges go in first.
 
-[00:19:04] Will: You know, it's going to be out on DVD soon. I'm sure.
+[00:19:04] Will: It's going to be out on DVD soon. I'm sure.
 
 [00:19:07] Norm: It's different to watch it in in the theater, and and the Alamo Drafthouse. If you've been to like a Drafthouse theater where you can order,
 
@@ -586,7 +586,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:19:14] Will: Could you order at the seat, or do you have to get up during the movie?
 
-[00:19:16] Norm: So what happens is you sit down, and that's why there aren't that many seats. Is it's all there's a bench in front of you. You you know put your phone or whatever, and there's a menu. And before the movie starts, they play amazing trailers and cut clips from old movies. And you write down on a little piece of paper what you'd like, and then a person ninja like sneaks around, grabs all the tickets.
+[00:19:16] Norm: So what happens is you sit down, and that's why there aren't that many seats. Is it's all there's a bench in front of you. You know put your phone or whatever, and there's a menu. And before the movie starts, they play amazing trailers and cut clips from old movies. And you write down on a little piece of paper what you'd like, and then a person ninja like sneaks around, grabs all the tickets.
 
 [00:19:37] Will: That’s a hard waiting waiting job.
 
@@ -624,11 +624,11 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:20:24] Will: Oh, right, right, right. Okay.
 
-[00:20:25] Norm: He's he's a perfect every man.
+[00:20:25] Norm: He's a perfect every man.
 
 [00:20:25] Will: Yeah.
 
-[00:20:25] Norm: Um, Liv Tyler, is it Matt Bomer from White Collar? He's that USA show. I'm not sure where—
+[00:20:25] Norm: Liv Tyler, is it Matt Bomer from White Collar? He's that USA show. I'm not sure where—
 
 [00:20:34] Will: Oh, okay, I know him. Hold on, is that the one where they're standing with their arms crossed and their backs to each other with a blue sky background?
 
@@ -640,7 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:20:52] Will: Silk Stalkings.
 
-[00:20:53] Norm: The one—I—visual element is blue skies. It is it is a thing that they want to project.
+[00:20:53] Norm: The one—I—visual element is blue skies. It is a thing that they want to project.
 
 [00:21:00] Adam: Wow!
 
@@ -658,15 +658,15 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:21:09] Will: I don't know where I learned that, but I'm sure it was probably Reddit.
 
-[00:21:11] Norm: Um, it was an interview in Wired magazine.
+[00:21:11] Norm: It was an interview in Wired magazine.
 
 [00:21:14] Will: Oh, you're right.
 
-[00:21:14] Norm: The the president of the network.
+[00:21:14] Norm: The president of the network.
 
 [00:21:16] Will: You're absolutely right.
 
-[00:21:17] Norm: Sense memory. Uh, the movie Space Station '76.
+[00:21:17] Norm: Sense memory. The movie Space Station '76.
 
 [00:21:17] Will: Yes,
 
@@ -686,7 +686,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:21:49] Will: Oh, that's amazing!
 
-[00:21:50] Norm: It wasn't as good as I wanted to be, but the the acting is still great.
+[00:21:50] Norm: It wasn't as good as I wanted to be, but the acting is still great.
 
 [00:21:54] Will: Did you laugh out loud?
 
@@ -702,7 +702,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:22:15] Will: Yeah,
 
-[00:22:15] Norm: Frazetta. Yes, and the the the the movie posters and the book covers. And Drew Struzan,
+[00:22:15] Norm: Frazetta. Yes, and the movie posters and the book covers. And Drew Struzan,
 
 [00:22:21] Adam: yes, who's one of the great, one of the most. Yeah, Guillermo actually owns a couple of original Struzan
 
@@ -712,7 +712,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:22:30] Norm: and he did the Hellboy that was never released because the studio didn't want a Struzan that Struzan Hellboy to be the Hellboy poster. So it's like a DVD cover or like a limited edition, limited release thing.
 
-[00:22:41] Will: It's really good that that stuff survived because a lot of a lot of stuff from that period of time, the original artwork just was lost, right?
+[00:22:41] Will: It's really good that that stuff survived because a lot of stuff from that period of time, the original artwork just was lost, right?
 
 [00:22:47] Norm: Well, not only that, Struzan worked for, and this is there's a documentary on Netflix about Drew Struzan.
 
@@ -740,11 +740,11 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:23:29] Adam: Thank you.
 
-[00:23:30] Norm: He's the painter who paints the movie posters that you you know from all the, uh,
+[00:23:30] Norm: He's the painter who paints the movie posters that you know from all the
 
 [00:23:35] Adam: For example, classic Star Wars Raiders. There's a famous the first Raiders poster you saw,
 
-[00:23:40] Will: like the the the one that looks looks like a watercolor almost or chalk or whatever.
+[00:23:40] Will: like the one that looks looks like a watercolor almost or chalk or whatever.
 
 [00:23:43] Adam: Harrison Ford's turning, and he's—look, I mean, it's just his his pictures are almost weirdly.
 
@@ -756,7 +756,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:23:56] Adam: Really?
 
-[00:23:56] Norm: Like his. Oh yeah. Like he did the the thing poster with on a very short notice, never had
+[00:23:56] Norm: Like his. Oh yeah. Like he did the thing poster with on a very short notice, never had
 
 [00:24:06] Adam: And that's the one with the glowing face?
 
@@ -780,13 +780,13 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:24:27] Adam: Speaking of art, there is this beautiful coffee table book out called " Cabinet of Curiosities," which is Guillermo's. Guillermo's,
 
-[00:24:38] Will: it's it's his book.
+[00:24:38] Will: it's his book.
 
 [00:24:39] Adam: Yes.
 
 [00:24:39] Will: Yeah.
 
-[00:24:39] Adam: Of about his diaries that he keeps, and there's a special edition, which I'll show you. It's got it's got extra artifacts in it.
+[00:24:39] Adam: Of about his diaries that he keeps, and there's a special edition, which I'll show you. It's got extra artifacts in it.
 
 [00:24:51] Norm: No.
 
@@ -796,7 +796,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:24:55] Will: But real and not.
 
-[00:24:56] Adam: No, no, no, no, not within the book itself. Okay. It's got a cabinet, and the cabinet itself has some curiosities, like a little Cronos device. They're not the highest quality. But it's a it's a lovely addition.
+[00:24:56] Adam: No, no, no, no, not within the book itself. Okay. It's got a cabinet, and the cabinet itself has some curiosities, like a little Cronos device. They're not the highest quality. But it's a lovely addition.
 
 [00:25:07] Will: Doesn’t matter. Yeah.
 
@@ -808,7 +808,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:25:15] Will: Oh, that’s fantastic.
 
-[00:25:15] Norm: Yes. Um, it's a red book.
+[00:25:15] Norm: Yes. It's a red book.
 
 [00:25:18] Adam: There we go. I talked about something which I can't show during the podcast. So everyone go to hell.
 
@@ -816,15 +816,15 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:25:28] Adam: How about that? That thing is so awesome.
 
-[00:25:29] Will: I can't believe how big that is, and it looks so realistic hanging up there. We're bad people. Um, I think that should probably do it for us this week.
+[00:25:29] Will: I can't believe how big that is, and it looks so realistic hanging up there. We're bad people. I think that should probably do it for us this week.
 
 [00:25:29] Adam: Should do it.
 
-[00:25:29] Will: Um, we'll talk about what we're going to talk about maybe next week or even the week after.
+[00:25:29] Will: We'll talk about what we're going to talk about maybe next week or even the week after.
 
 [00:25:29] Adam: How about that?
 
-[00:25:29] Will: But next week we'll probably talk about something else. And and you know,
+[00:25:29] Will: But next week we'll probably talk about something else. And you know,
 
 [00:25:46] Adam: I think it's time to sign off.
 
@@ -836,7 +836,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:25:47] Adam: Yep.
 
-[00:25:47] Will: Um, you also get a letter from us. Occasionally, monthly, theoretically, okay. Um. We, if you would like to support the podcast in a less fiduciary way, you can by rating us on iTunes or subscribing to the podcast.
+[00:25:47] Will: You also get a letter from us. Occasionally, monthly, theoretically, okay. We, if you would like to support the podcast in a less fiduciary way, you can by rating us on iTunes or subscribing to the podcast.
 
 [00:26:13] Adam: Fiduciary—
 
