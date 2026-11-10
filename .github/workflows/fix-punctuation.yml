@@ -30,8 +30,9 @@ jobs:
           ASCII_PAIR = re.compile(rf"(?<![A-Za-z0-9'’])({WORD})-({WORD})(?![A-Za-z0-9'’])")
           LEFT_WORD = re.compile(rf"({WORD})$")
           RIGHT_WORD = re.compile(rf"^({WORD})")
-          CLOSING_PUNCTUATION = set('”’\"\')]}.,;:!?')
-          OPENING_PUNCTUATION = set('“‘\"\'([{')
+          CLOSING_PUNCTUATION = set("”’\"')]}.,;:!?")
+          OPENING_PUNCTUATION = set("“‘\"'([{")
+          NUMERIC_TOKEN = re.compile(r"(?=.*\d)[A-Za-z0-9]+$")
 
           files = sorted(
               path for path in Path('.').rglob('*.md')
@@ -66,8 +67,10 @@ jobs:
               if candidate in known_hyphenated:
                   return True
 
-              numeric_token = re.compile(r"(?=.*\d)[A-Za-z0-9]+$")
-              return bool(numeric_token.fullmatch(left) and numeric_token.fullmatch(right))
+              return bool(
+                  NUMERIC_TOKEN.fullmatch(left)
+                  and NUMERIC_TOKEN.fullmatch(right)
+              )
 
           def replace_line(line: str):
               output = []
