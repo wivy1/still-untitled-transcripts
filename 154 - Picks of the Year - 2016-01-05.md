@@ -40,13 +40,13 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:00:57] Will: Well, that's good.
 
-[00:00:57] Adam: No, I think it was great. New Year's Eve, and then we went to Restaurant Depot and we bought a bunch of bamboo steamers, and we had five of our six—no, we had all six burners of our stove going on frying pans with a little bit of water, steaming veggie and meat dumplings and chicken wings.
+[00:00:57] Adam: No, I think it was great. New Year's Eve, and then we went to Restaurant Depot and we bought a bunch of bamboo steamers, and we had five of our six - no, we had all six burners of our stove going on frying pans with a little bit of water, steaming veggie and meat dumplings and chicken wings.
 
 [00:01:16] Norm: Brilliant!
 
 [00:01:17] Adam: It was. This is Julia's idea. She's just so good at this. And we ended up with almost no food left at the end of the night, and nobody went hungry.
 
-[00:01:25] Will: Perfect. Like making a big meal like that, especially if you have a bunch of people over, and then having enough food for everybody but not running out—that's that is that's threading the needle.
+[00:01:25] Will: Perfect. Like making a big meal like that, especially if you have a bunch of people over, and then having enough food for everybody but not running out - that's that is that's threading the needle.
 
 [00:01:34] Adam: Totally threading the needle. So what we're going to do later on this week is we're going to sit down and look at exactly who was there, how many bodies were in the house over the course of the evening, how much food we ordered, and then we've got a metric.
 
@@ -422,7 +422,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:17:31] Will: Last decade, and a half.
 
-[00:17:32] Adam: but it doesn't necessarily make you finish the film going, " Wow, Simon Pegg's a great actor," even though he is. It's not like he's terrible in it. He actually has a terrific range, but the he's got a much better. He's starting to show a deeply wonderful range, and I just I really I find that exciting. I'm for sure if Simon was listening to this. He'd be like starting to show. Fuck off! But go, I guess to me, it's not it would be strange. Like I think, oh, Simon Pegg in a romantic comedy—that's not what I would expect. And boy, does he deliver! It's great.
+[00:17:32] Adam: but it doesn't necessarily make you finish the film going, " Wow, Simon Pegg's a great actor," even though he is. It's not like he's terrible in it. He actually has a terrific range, but the he's got a much better. He's starting to show a deeply wonderful range, and I just I really I find that exciting. I'm for sure if Simon was listening to this. He'd be like starting to show. Fuck off! But go, I guess to me, it's not it would be strange. Like I think, oh, Simon Pegg in a romantic comedy - that's not what I would expect. And boy, does he deliver! It's great.
 
 [00:18:05] Will: So I I think my two favorite films of last year are both big movies that everybody's seen. But I really really loved Inside Out. Like I thought Inside Out was the best thing that that Pixar has done. Probably, I mean, everything Pixar does is good. Wave. I think that it's the best thing that they've done since The Incredibles in terms of like the thing that spoke to me, and I had the benefit of watching it through a kid's eyes,
 
@@ -650,7 +650,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:27:28] Norm: yeah,
 
-[00:27:28] Adam: on his phone, on a—.
+[00:27:28] Adam: on his phone, on a -.
 
 [00:27:29] Will: On it's only on the Wii U.
 

@@ -50,7 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=-JuuUH5Dy5E
 
 [00:00:58] Norm: Yes. Yeah, people are buying water bottles that then alert you that you haven't drank enough water.
 
-[00:01:05] Adam: So this is Perhaps the most—
+[00:01:05] Adam: So this is Perhaps the most -
 
 [00:01:08] Norm: thirst is what I use.
 
@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=-JuuUH5Dy5E
 
 [00:09:27] Unknown speaker: Right, right.
 
-[00:09:27] Will: So then you break out from that and you go put Post-it cards on a big giant board. The it's a grid of rooms and times, and you put a you basically put either something you want to share or something you want to learn about. So you know those topics range from super serious stuff like alcoholism and you know drug policy reform to horseback archery. Some guy was like, I I wanted to learn a new skill and I like archery and I wanted to learn more about riding horses, so I wanted to learn about you know riding horseback archers like in the Mongolian steppes in the at the you know turn of the century before last. And you have an opportunity, kind of, and the this is important. One of the rules is that you can drop in, drop out. So if somebody gets up in the middle of a talk, nobody gets offended. You don't get your feelings hurt. It just means that I've had as much as I want to be. If there's any place you'd rather be that's not there, then you get up and leave, and it's no harm, no foul. So people talk about like how to set up a Kickstarter the right way how to like the right way to be a social to promote your stuff on social media without being kind of douchey about it. They talk about making coffee or making. There was one session that was just stupid liquid nitrogen tricks. So they had a Dewar full of liquid nitrogen, and a guy who does science presentations—
+[00:09:27] Will: So then you break out from that and you go put Post-it cards on a big giant board. The it's a grid of rooms and times, and you put a you basically put either something you want to share or something you want to learn about. So you know those topics range from super serious stuff like alcoholism and you know drug policy reform to horseback archery. Some guy was like, I I wanted to learn a new skill and I like archery and I wanted to learn more about riding horses, so I wanted to learn about you know riding horseback archers like in the Mongolian steppes in the at the you know turn of the century before last. And you have an opportunity, kind of, and the this is important. One of the rules is that you can drop in, drop out. So if somebody gets up in the middle of a talk, nobody gets offended. You don't get your feelings hurt. It just means that I've had as much as I want to be. If there's any place you'd rather be that's not there, then you get up and leave, and it's no harm, no foul. So people talk about like how to set up a Kickstarter the right way how to like the right way to be a social to promote your stuff on social media without being kind of douchey about it. They talk about making coffee or making. There was one session that was just stupid liquid nitrogen tricks. So they had a Dewar full of liquid nitrogen, and a guy who does science presentations -
 
 [00:09:23] Norm: Yeah.
 

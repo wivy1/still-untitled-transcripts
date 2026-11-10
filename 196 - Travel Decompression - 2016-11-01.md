@@ -196,7 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:11:19] Norm: Yeah, I think those like the electronic menus, the robot servers. That's not going to be it.
 
-[00:11:19] Unknown speaker: It’s going to—
+[00:11:19] Unknown speaker: It’s going to -
 
 [00:11:25] Adam: no, no. We're not going to eat at the automat.
 
@@ -266,7 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:14:07] Adam: It was a really great show. It was a lot of fun to do. It was also a huge amount of fun to watch. Yeah, I really enjoyed the spit out of it.
 
-[00:14:17] Norm: And I want to thank Kishore, who I know isn't just part of the team, but he listens to the podcast. Who show-runs it— Who show-ran the show.
+[00:14:17] Norm: And I want to thank Kishore, who I know isn't just part of the team, but he listens to the podcast. Who show-runs it - Who show-ran the show.
 
 [00:14:17] Adam: Yeah.
 

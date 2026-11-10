@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:12:47] Norm: How was that?
 
-[00:12:48] Adam: Brain candy tour of Sydney, Adelaide, Perth, Melbourne, and Brisbane. Here's a funny. Here's a funny thing about Australians. Australians love what they call taking the piss, which is to take you down a notch, give you a little bit of the business. It's very Anglo-Saxon thing to do, right? So the Australians love doing that. So when I take the piss out of the Australians, and they say, " Where are you going in Australia?" I go, " Oh, Sydney, Adelaide, Perth, Brisbane, Melbourne—all five cities."
+[00:12:48] Adam: Brain candy tour of Sydney, Adelaide, Perth, Melbourne, and Brisbane. Here's a funny. Here's a funny thing about Australians. Australians love what they call taking the piss, which is to take you down a notch, give you a little bit of the business. It's very Anglo-Saxon thing to do, right? So the Australians love doing that. So when I take the piss out of the Australians, and they say, " Where are you going in Australia?" I go, " Oh, Sydney, Adelaide, Perth, Brisbane, Melbourne - all five cities."
 
 [00:12:48] Norm: Right
 

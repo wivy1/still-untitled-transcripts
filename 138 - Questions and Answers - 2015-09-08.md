@@ -182,7 +182,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:09:28] Will: This first one comes from Emile. Emile says, " Hey guys, I love seeing the different parts of your collection. I guess he means you, and the stories behind them. Anyway, have you seen the newest trailer for The Martian? And what did you think of it?
 
-[00:09:41] Adam: I love the newest trailer for The Martian. I just I can't freaking wait. I can't wait, and I will tell you that a friend of mine managed to sneak—not to sneak—he managed to get an invite to one of the pre-screenings of The Martian. Now, this is an unfinished cut, right? So, some of these special effects shots have blue screen visible, and they haven't completed the CG. But it's just to get the audience's feel for the pacing and how they want it to go. And you know, this is he said it's amazing. He said it's totally amazing.
+[00:09:41] Adam: I love the newest trailer for The Martian. I just I can't freaking wait. I can't wait, and I will tell you that a friend of mine managed to sneak - not to sneak - he managed to get an invite to one of the pre-screenings of The Martian. Now, this is an unfinished cut, right? So, some of these special effects shots have blue screen visible, and they haven't completed the CG. But it's just to get the audience's feel for the pacing and how they want it to go. And you know, this is he said it's amazing. He said it's totally amazing.
 
 [00:10:15] Will: I've heard we've talked about The Martian a lot on this Still Untitled, and this is only a test at this point. People who've been to those screenings, we've gotten enough feedback from those now that I'm like I feel pretty okay about how this is going to go.
 

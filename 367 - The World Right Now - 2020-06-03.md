@@ -70,11 +70,11 @@ Episode URL: https://www.youtube.com/watch?v=4fu9C719cHw
 
 [00:06:03] Adam: Although getting rid of qualified immunity would be great, but go ahead.
 
-[00:06:06] Will: Right, getting rid of qualified immunity, demilitarizing the police—all good choices, right? Maybe not using tear gas and pepper spray during a pandemic that's spread by coughing. I don't know.
+[00:06:06] Will: Right, getting rid of qualified immunity, demilitarizing the police - all good choices, right? Maybe not using tear gas and pepper spray during a pandemic that's spread by coughing. I don't know.
 
 [00:06:15] Adam: Maybe just maybe. Yeah. Maybe yeah. Maybe maybe you're right. Will.
 
-[00:06:19] Will: maybe maybe if you need to do crowd control, don't roll out with a bunch of fucking riot armor and tanks. That's escalate, de-escalate rather than— Anyway I mean, one thing we can talk about is how to be a better ally to people and how we can help. You know, how we can help educate other other you know other people that are like us. And the hardest part of all of it is changing, like changing your pre- your initial thoughts, right? For years and years, when I would see somebody pulled over on the side of the road, I would think, oh, traffic stop, white people. Oh, that guy's probably you know doing something illegal. There's six cops and a black guy on the side of the road, right? And Like admitting that you were wrong about that stuff, or that you're potentially wrong about that stuff, and admit and having the courage to sit down and take out your phone and start recording a video when you see, you know, a black man stopped by cops is is probably the first thing to do. I mean, reading is probably the first thing to do, but like learning to know that you were wrong is is is hard. Like it's hard to challenge your preconceived notions. It's hard to break years and years of training by the by you know everything from your elementary school teachers on up.
+[00:06:19] Will: maybe maybe if you need to do crowd control, don't roll out with a bunch of fucking riot armor and tanks. That's escalate, de-escalate rather than - Anyway I mean, one thing we can talk about is how to be a better ally to people and how we can help. You know, how we can help educate other other you know other people that are like us. And the hardest part of all of it is changing, like changing your pre- your initial thoughts, right? For years and years, when I would see somebody pulled over on the side of the road, I would think, oh, traffic stop, white people. Oh, that guy's probably you know doing something illegal. There's six cops and a black guy on the side of the road, right? And Like admitting that you were wrong about that stuff, or that you're potentially wrong about that stuff, and admit and having the courage to sit down and take out your phone and start recording a video when you see, you know, a black man stopped by cops is is probably the first thing to do. I mean, reading is probably the first thing to do, but like learning to know that you were wrong is is is hard. Like it's hard to challenge your preconceived notions. It's hard to break years and years of training by the by you know everything from your elementary school teachers on up.
 
 [00:07:37] Adam: Well, it's like looking at it is literally looking at the world through a different lens, a lens that makes it clear that when you have laws written when you have a structure built by racists, that structure is going to have racist outcomes, right? Like the casual, banal institutional racism that is so baked into our system is. Traditionally hard for white people to see, and yet it is there for everyone else to witness.
 
@@ -126,7 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=4fu9C719cHw
 
 [00:14:22] Norm: and journalists and the right and yeah people there.
 
-[00:14:25] Adam: There seemed to be a very systemic excuse me across the country. The police were regularly ignoring press, asserting that they were press, and arresting them, manhandling them, kettling them—the whole business.
+[00:14:25] Adam: There seemed to be a very systemic excuse me across the country. The police were regularly ignoring press, asserting that they were press, and arresting them, manhandling them, kettling them - the whole business.
 
 [00:14:44] Will: I don't.
 

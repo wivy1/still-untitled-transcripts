@@ -62,13 +62,13 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:02:28] Norm: Yes.
 
-[00:02:28] Will: Yeah. Okay. Yeah, you're absolutely right. I'd forgotten about that. All— Yeah,
+[00:02:28] Will: Yeah. Okay. Yeah, you're absolutely right. I'd forgotten about that. All - Yeah,
 
 [00:02:33] Norm: they could have been a little more clever.
 
 [00:02:33] Adam: I've been waiting my whole life to give that diatribe.
 
-[00:02:33] [unclear: Will / Adam]: Have—
+[00:02:33] [unclear: Will / Adam]: Have -
 
 [00:02:36] Will: So, have we talked about my WALL-E theory? Speaking of
 
@@ -78,7 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:02:36] Adam: Go for it.
 
-[00:02:36] Will: I think WALL-E's about the singularity. So I think WALL-E contains the spark of self awareness, and when he becomes when he when he sent— touches Eva and that spark goes across, Yeah. he's communicating that to to Eva and then all the rest of the robots on the ship.
+[00:02:36] Will: I think WALL-E's about the singularity. So I think WALL-E contains the spark of self awareness, and when he becomes when he when he sent - touches Eva and that spark goes across, Yeah. he's communicating that to to Eva and then all the rest of the robots on the ship.
 
 [00:02:58] Adam: Oh, fascinating!
 
@@ -216,7 +216,7 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:10:58] Norm: and that accumulation helped you when you pivoted to project B get a nice jump start on it.
 
-[00:11:04] Adam: And that pivot really did sort of surprise me with how invigorating I felt to work with a brand new material and a new process. But—
+[00:11:04] Adam: And that pivot really did sort of surprise me with how invigorating I felt to work with a brand new material and a new process. But -
 
 [00:11:14] Will: the important thing isn't the project or what you did. It's that you got back. You know the old saying: you get back on the horse when you get thrown off.
 
@@ -290,7 +290,7 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:16:52] Norm: Always the most interesting thing that everything you do, the next thing you do should always be the most interesting thing to you.
 
-[00:16:58] Adam: Yeah. Look, I—
+[00:16:58] Adam: Yeah. Look, I -
 
 [00:16:59] Will: we're in a unique situation on that front.
 

@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:11:40] Simone: Dirty.
 
-[00:11:41] Norm: And you have the—I think you tweeted this.
+[00:11:41] Norm: And you have the - I think you tweeted this.
 
 [00:11:41] Adam: I did. I tweeted a picture
 
@@ -266,7 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:11:45] Norm: If anyone, yeah, exactly. Here's the proof.
 
-[00:11:47] Simone: But like of of things that shoot stuff at you in, in restrooms. My worst experience—I think it was actually it was at a hacker space here in San Francisco. It was called like Noisebridge, and they had one of those Japanese toilets that yeah,
+[00:11:47] Simone: But like of of things that shoot stuff at you in, in restrooms. My worst experience - I think it was actually it was at a hacker space here in San Francisco. It was called like Noisebridge, and they had one of those Japanese toilets that yeah,
 
 [00:12:01] Adam: oh bidets
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:19:16] Adam: Ooh.
 
-[00:19:16] Norm: and. Not because the movie's great, but because the design of that airplane—it's almost like the alien character. Like it's in the film for very short period.
+[00:19:16] Norm: and. Not because the movie's great, but because the design of that airplane - it's almost like the alien character. Like it's in the film for very short period.
 
 [00:19:16] Adam: Yeah.
 
@@ -416,7 +416,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:19:34] Adam: Yeah.
 
-[00:19:34] Norm: Ben Affleck's bat plane—you would be hard pressed to do it. But it was obviously a 3D model or miniature. Yeah. And so to see that geometrically from different perspectives in a physical model form—that was like that's why I got it.
+[00:19:34] Norm: Ben Affleck's bat plane - you would be hard pressed to do it. But it was obviously a 3D model or miniature. Yeah. And so to see that geometrically from different perspectives in a physical model form - that was like that's why I got it.
 
 [00:19:48] Adam: Nice. Yeah. I didn't. I never got to walk the floor this year.
 

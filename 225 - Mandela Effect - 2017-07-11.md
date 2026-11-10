@@ -30,7 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:01:02] Norm: does that that feel weird? That sounds weird to me.
 
-[00:01:03] Adam: Totally seems. I'm having like—
+[00:01:03] Adam: Totally seems. I'm having like -
 
 [00:01:03] Norm: A strong sense memory.
 
@@ -498,7 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:21:51] Norm: which is not an American film.
 
-[00:21:53] Adam: It's not an American film. It's a Chinese film with American. So what what's been going on over the past? I'm not exactly sure how long—10, 15 years—is that China's film community of of investors has started to really join up with Hollywood, and so there's a lot more. You'll see a lot more Chinese companies listed in the opening producer credits of of big movies. There's a lot of money coming from China. There's a lot of cross pollination, and it struck me that the Great Wall was this sort of key moment of a huge Chinese production starring an A-list major American actor. I don't, I wasn't sure whether this was whitewashing or an attempt to join two cultures through a film.
+[00:21:53] Adam: It's not an American film. It's a Chinese film with American. So what what's been going on over the past? I'm not exactly sure how long - 10, 15 years - is that China's film community of of investors has started to really join up with Hollywood, and so there's a lot more. You'll see a lot more Chinese companies listed in the opening producer credits of of big movies. There's a lot of money coming from China. There's a lot of cross pollination, and it struck me that the Great Wall was this sort of key moment of a huge Chinese production starring an A-list major American actor. I don't, I wasn't sure whether this was whitewashing or an attempt to join two cultures through a film.
 
 [00:22:34] Norm: It's an interesting take on that exchange, that cultural exchange, because the way we typically think of it is that there's an American film made in the Hollywood studio system that maybe has some foreign investment, and for that movie to be successful overseas, then they put in a token character, and that's it happens so often. Token casting.
 
@@ -914,7 +914,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:40:47] Unknown speaker: Oh.
 
-[00:40:47] Adam: But the thing, the thing is, is wonderful horror and body horror at that. But it's not as like oh as The Fly. The Fly. He's pulling his fingernails off in the sink in close up. It's my my kids were like, " Holy shit! This is terrible. This is awful." And American Werewolf is still not only side splittingly hilarious, but genuinely scary. And the Nazi, the dream sequences with the Nazi stormtroopers shooting and killing everybody—it's horrifying.
+[00:40:47] Adam: But the thing, the thing is, is wonderful horror and body horror at that. But it's not as like oh as The Fly. The Fly. He's pulling his fingernails off in the sink in close up. It's my my kids were like, " Holy shit! This is terrible. This is awful." And American Werewolf is still not only side splittingly hilarious, but genuinely scary. And the Nazi, the dream sequences with the Nazi stormtroopers shooting and killing everybody - it's horrifying.
 
 [00:41:22] Norm: Yeah,
 

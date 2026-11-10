@@ -88,7 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=RbMEbgJe1jg
 
 [00:05:20] Adam: so good. I was very distracted by Chidi’s perfect specimen of a sculpted body.
 
-[00:05:30] Norm: That yes, the character Chidi—
+[00:05:30] Norm: That yes, the character Chidi -
 
 [00:05:32] Adam: very distracting and
 

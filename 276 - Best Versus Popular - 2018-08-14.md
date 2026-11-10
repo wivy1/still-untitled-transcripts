@@ -1208,7 +1208,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:39:47] Adam: Ah, interesting.
 
-[00:39:48] Norm: And that's what—that's the conversation.
+[00:39:48] Norm: And that's what - that's the conversation.
 
 [00:39:51] Adam: That's fascinating.
 

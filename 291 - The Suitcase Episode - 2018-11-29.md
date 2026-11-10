@@ -396,7 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:16:15] Adam: I think you're exactly right and then I mean as a gentleman engineer I guess I woke up that morning stressed stressed on behalf of all the engineers because as one of them said. 10,000 separate things have to go right for this to work, and only one of them has to go wrong.
 
-[00:16:36] Norm: So, what was their level of confidence in the room? I mean, everyone has private feelings about it. NASA publicly never—you know—they always hedge a little bit and relay the risk. But in talking to the people there, did you get a sense that people were like anticipating failure or just bracing themselves?
+[00:16:36] Norm: So, what was their level of confidence in the room? I mean, everyone has private feelings about it. NASA publicly never - you know - they always hedge a little bit and relay the risk. But in talking to the people there, did you get a sense that people were like anticipating failure or just bracing themselves?
 
 [00:16:52] Adam: I didn't get that sense. I really wasn't thinking of polling for that.
 
@@ -846,7 +846,7 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:38:37] Will: Nice.
 
-[00:38:37] Adam: But so I turned on regular television, and the kids tell they were like, " This is new." And they're watching—I don't know—Spider-Man or Transformers—and then the commercials happened, and I'm like, I'm just sort of curious about this, right? And it's immediately like, Toys R Us, blah blah blah blah blah blah blah. [unclear: This is when kids playing with stuff / This is going, kids playing with stuff, da, da, da, da], and my son's just like, thing two is just watching this, and when the commercial finishes, he turns around to me and he goes, " I want that."
+[00:38:37] Adam: But so I turned on regular television, and the kids tell they were like, " This is new." And they're watching - I don't know - Spider-Man or Transformers - and then the commercials happened, and I'm like, I'm just sort of curious about this, right? And it's immediately like, Toys R Us, blah blah blah blah blah blah blah. [unclear: This is when kids playing with stuff / This is going, kids playing with stuff, da, da, da, da], and my son's just like, thing two is just watching this, and when the commercial finishes, he turns around to me and he goes, " I want that."
 
 [00:38:37] Unknown speaker (Adam or Will): Yeah.
 
@@ -910,7 +910,7 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:40:56] Adam: holy hell! What they brought to us
 
-[00:40:58] Norm: from this collection—
+[00:40:58] Norm: from this collection -
 
 [00:40:59] Adam: just to take a look at.
 
@@ -928,7 +928,7 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:41:26] Will: Well, and it's stuff that I would have thought was lost because it was from the time before people saved this stuff, and it would have just gone out in the dumpster behind the backlot.
 
-[00:41:33] Adam: This is—I mean—Hollywood has never been known for its own archival tendencies.
+[00:41:33] Adam: This is - I mean - Hollywood has never been known for its own archival tendencies.
 
 [00:41:39] Norm: They look toward the future, not the past.
 

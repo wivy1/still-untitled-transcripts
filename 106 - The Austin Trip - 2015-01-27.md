@@ -476,7 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:20:46] Will: Wow.
 
-[00:20:46] Adam: And I know this because the ambulance showed up, and he was fine—not fine. I mean, clearly, probably woke up handcuffed to a hospital bed.
+[00:20:46] Adam: And I know this because the ambulance showed up, and he was fine - not fine. I mean, clearly, probably woke up handcuffed to a hospital bed.
 
 [00:20:54] Will: Probably, yeah, he had a bad day of his own making.
 

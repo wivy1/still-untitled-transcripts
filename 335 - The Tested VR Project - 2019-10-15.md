@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=m7aqiOUOibI
 
 [00:09:25] Adam: Exactly. So to get to just to go back to where the story was, after we cut our little thing and started talking to you, we all shot that first video in this in the Oculus series here in the cave as a kind of a test, just to like let's try this all out. And you guys were placing camera. I mean, there was the main camera, the main like stereo camera, like that one there. That was We knew that was going to be the middle of the whole thing, but then you you had all these other shots, and there's this way of like, I hope this will work later. I hope this is useful to me at some point in the future. And you place cameras all over the place. So let let's talk about that process of of choosing choosing where to put those cameras before you'd even built an editing pipeline.
 
-[00:10:09] Joey Fameli: Right. So I mean, well, just to put this in context, if you haven't seen, we did an eight part series, featuring eight different makers, where we um, yeah just traveled around and went into their workshops and had them build stuff. And Norman and I—
+[00:10:09] Joey Fameli: Right. So I mean, well, just to put this in context, if you haven't seen, we did an eight part series, featuring eight different makers, where we um, yeah just traveled around and went into their workshops and had them build stuff. And Norman and I -
 
 [00:10:22] Adam: and the experience is that when you put on the goggles, you're sitting at the other side of the workbench from these makers, and you're in their shops and in their space and watching them do their. thing.
 
@@ -518,7 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=m7aqiOUOibI
 
 [00:49:15] Norm: Well, thank you so much, Eric, for joining us, and thank you for introducing us to. Awesome technology.
 
-[00:49:20] Adam: But thanks for playing in this really, really fun sandbox because we—it's been really rewarding, and we're really proud of what we all got to make together.
+[00:49:20] Adam: But thanks for playing in this really, really fun sandbox because we - it's been really rewarding, and we're really proud of what we all got to make together.
 
 [00:49:28] Norm: Yes, there are links below if you want to check out the Tested VR app to watch this all this content. And like Adam said, post your questions about how we thought through and how we did all this production in the comments below. And we'll be back next week.
 

@@ -44,7 +44,7 @@ Episode URL: https://www.youtube.com/watch?v=XotEzQ2q6hU
 
 [00:01:03] Adam: He had a particular bee in his bonnet about critical theory. He hated critical theory. He hated the way academia dissected literature.
 
-[00:01:16] Will: So you mean East Coast intellectual elitism and, as a—
+[00:01:16] Will: So you mean East Coast intellectual elitism and, as a -
 
 [00:01:20] Adam: Which was the only intellectual elitism back in the mid century, right in the '30s and the '40s? So so he sought out what he looked around for a type of American based fiction that had not that no one was paying attention to.
 
@@ -82,15 +82,15 @@ Episode URL: https://www.youtube.com/watch?v=XotEzQ2q6hU
 
 [00:03:22] Will: Okay.
 
-[00:03:22] Adam: I and it had been a long time since I read that one. I forgot how mean it is. It's a nasty. His characters are nasty. Marlowe. There's a whole long protracted scene in which Marlowe is meditating on the act on the Hollywood and movie stardom and the events of the day, and he keeps on redounding to the phrase, "Criminy, Marlowe, you're not human tonight." So he writes about his main character in a seminal essay on detective fiction called "The Simple Art of Murder." He credits Dashiell Hammett for taking the murder mystery away from the English drawing room and from ridiculous wooden, one-dimensional characters, and quote giving it back, to giving murder back to the people that actually were capable of committing it. I'm mucking up the quote there a little bit, but the mood, the flavor of that line is exactly—
+[00:03:22] Adam: I and it had been a long time since I read that one. I forgot how mean it is. It's a nasty. His characters are nasty. Marlowe. There's a whole long protracted scene in which Marlowe is meditating on the act on the Hollywood and movie stardom and the events of the day, and he keeps on redounding to the phrase, "Criminy, Marlowe, you're not human tonight." So he writes about his main character in a seminal essay on detective fiction called "The Simple Art of Murder." He credits Dashiell Hammett for taking the murder mystery away from the English drawing room and from ridiculous wooden, one-dimensional characters, and quote giving it back, to giving murder back to the people that actually were capable of committing it. I'm mucking up the quote there a little bit, but the mood, the flavor of that line is exactly -
 
 [00:04:18] Will: It just is. Murder's not highbrow; it's in the streets, and it happens to normal schmucks.
 
-[00:04:22] Adam: And he was a huge fan of the Continental Op and of Hammett's writing, and yet I—he saw something missing for him that he wanted there, and it was a bit of— I think if there's a difference, and there are absolutely Chandler people and Hammett people, I think Chandler is much more of a hopeful writer than Hammett was. Hammett, I think, is a much more nihilistic writer about humanity and the hope for humanity, and Chandler writes about Marlowe in the Simple Art of Murder. He says, "You know, in all of these stories that aren't about the murder, they're about a search for a hidden truth. The main characters search for a hidden truth, and—" It's the—
+[00:04:22] Adam: And he was a huge fan of the Continental Op and of Hammett's writing, and yet I - he saw something missing for him that he wanted there, and it was a bit of - I think if there's a difference, and there are absolutely Chandler people and Hammett people, I think Chandler is much more of a hopeful writer than Hammett was. Hammett, I think, is a much more nihilistic writer about humanity and the hope for humanity, and Chandler writes about Marlowe in the Simple Art of Murder. He says, "You know, in all of these stories that aren't about the murder, they're about a search for a hidden truth. The main characters search for a hidden truth, and -" It's the -
 
 [00:05:03] Will: A hidden truth about humanity, or life, or about himself.
 
-[00:05:06] Adam: About himself, and he even says it's you won't even know what the hidden truth he discovers is because it's not yours; it's his. It belongs to him because it belongs to the world that he lives in. He says the story is the adventure is the search for a hidden truth, and it would be no adventure if it didn't happen to a man fit for adventure. He says he is the best man in his world and must be a good enough man for any world. In one of his letters, he wrote to somebody. He said he is realistic in every single way except for the single fact that nobody of his character would ever be a private eye. But there's a way in which the so the other things he says in that essay are so important to me about the character's range of awareness is—always surprises you,
+[00:05:06] Adam: About himself, and he even says it's you won't even know what the hidden truth he discovers is because it's not yours; it's his. It belongs to him because it belongs to the world that he lives in. He says the story is the adventure is the search for a hidden truth, and it would be no adventure if it didn't happen to a man fit for adventure. He says he is the best man in his world and must be a good enough man for any world. In one of his letters, he wrote to somebody. He said he is realistic in every single way except for the single fact that nobody of his character would ever be a private eye. But there's a way in which the so the other things he says in that essay are so important to me about the character's range of awareness is - always surprises you,
 
 [00:06:01] Will: And that it's expanded or that it's narrow.
 
@@ -240,7 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=XotEzQ2q6hU
 
 [00:12:37] Adam: Sometimes it totally happens because there's a moment in the Heartbreaking Work where he's playing frisbee with his little brother in Golden Gate Park on one of those summer days when you've just moved here, and it's, and he writes he completes the description with the paragraph: Have you fucking been to California? And I remember reading that and being like, "Oh, I love that!" It's just like that made me fall in love with that book.
 
-[00:12:59] Will: See, I didn't get that far, so that made—that was it.
+[00:12:59] Will: See, I didn't get that far, so that made - that was it.
 
 [00:13:01] Adam: All right.
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=XotEzQ2q6hU
 
 [00:14:25] Adam: It's like home alone while your wife is out of town and watch like six episodes of the British Office back to back. You'll just feel like the worst human alive.
 
-[00:14:34] Will: Oh, you hate every— You're laughing and you hate yourself.
+[00:14:34] Will: Oh, you hate every - You're laughing and you hate yourself.
 
 [00:14:36] Adam: I'm so full of shit.
 
@@ -328,9 +328,9 @@ Episode URL: https://www.youtube.com/watch?v=XotEzQ2q6hU
 
 [00:16:54] Will: Okay.
 
-[00:16:54] Adam: So that he went to this went to Mexico in the '60s to learn about psychotropic drugs and their use in rituals for Indian magicians—
+[00:16:54] Adam: So that he went to this went to Mexico in the '60s to learn about psychotropic drugs and their use in rituals for Indian magicians -
 
-[00:17:04] Will: Coming of age and or that kind of stuff—
+[00:17:04] Will: Coming of age and or that kind of stuff -
 
 [00:17:06] Adam: Sorcerers, like sorcerers, right? And then he became acquainted with a sorcerer named Don Juan, who initiated him into his line of seers. And now I'm giving you the plot. He purported that it was a genuine chronicle of what happened.
 
@@ -350,7 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=XotEzQ2q6hU
 
 [00:18:19] Adam: And then the other thing that unites us is that we both read voraciously. We both are constantly reading. Jamie has pretty much given up fiction. He's there's too much nonfiction. There's too much information for him out there, and he wants to gather it all. I still read a pretty even balance of fiction and nonfiction.
 
-[00:18:37] Will: Do biographies or histories or—
+[00:18:37] Will: Do biographies or histories or -
 
 [00:18:39] Adam: I do actually. I recently plowed through a couple of Jay Winik's books April 1864, and uh, okay. God, there's another one about I can't remember the title, but it's basically about how the American Revolution went on to foment and start the French Revolution and was ultimately responsible for the downfall of Catherine the Great. So he links these historical events all together and he's a wonderful, engaging writer. So I love histories. I love biographies. I love. I recently finished Taylor, the second of the three books of Taylor Branch's super intense chronicle of the civil rights movement in the South. Again, I'm old, so trying to call up the titles of the books. Parting the Waters is one of them. They're all about Martin Luther King and the civil rights movement in the South through through the '60s. You know.
 
@@ -366,7 +366,7 @@ Episode URL: https://www.youtube.com/watch?v=XotEzQ2q6hU
 
 [00:20:06] Adam: No, that's that's the last couple of years of my reading. But, but good luck.
 
-[00:20:10] Will: Yeah. Do you do like Goodreads or anything like that, where you kind of keep track of stuff, or do you just—is it all?
+[00:20:10] Will: Yeah. Do you do like Goodreads or anything like that, where you kind of keep track of stuff, or do you just - is it all?
 
 [00:20:14] Adam: What do you mean?
 
@@ -374,7 +374,7 @@ Episode URL: https://www.youtube.com/watch?v=XotEzQ2q6hU
 
 [00:20:17] Adam: Yeah.
 
-[00:20:17] Will: Where you literally can post. Here's what I'm reading right now. Here's what I think about it. It's a little bit reductive for lack of a better word. Yeah, people usually say, oh it's there's a lot of I like this more than such and such, but—
+[00:20:17] Will: Where you literally can post. Here's what I'm reading right now. Here's what I think about it. It's a little bit reductive for lack of a better word. Yeah, people usually say, oh it's there's a lot of I like this more than such and such, but -
 
 [00:20:29] Adam: Well, this is so. Whenever I so whenever I read reviews on Amazon, like you can read reviews on Amazon of of Telegraph Avenue right now. There are people who've had advance copies and they're reading them and reading pithy little one paragraph reviews of books as important as Chabon's books is like even if you don't like the books, it's it's not a format for them.
 

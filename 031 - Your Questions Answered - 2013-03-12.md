@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=cKUKjiPQjAA
 
 [00:06:27] Will: what you do. So like, if you take something you cut it, you think, wow, this is the best I can do. And then you show it to somebody else, and they're like, yeah, it was okay. Maybe move on. And the same thing applies to other stuff too. Like if you if you're starting on if you start trying to learn carpentry or joinery or whatever, and you spend hours and hours on it, and you're like, oh, this is pretty good, but you didn't have a blast. Like it's not fun. It's not satisfying to you. Then drop it and move on.
 
-[00:06:50] Norm: Do you derive less satisf— satisfaction from something, for example, in a prop that you've made versus something or someone else has made versus something you've made, if even though they can do it much better because they've built it many times?
+[00:06:50] Norm: Do you derive less satisf-satisfaction from something, for example, in a prop that you've made versus something or someone else has made versus something you've made, if even though they can do it much better because they've built it many times?
 
 [00:07:01] Adam: It's a different type of satisfaction. I am certainly less. So, to give an example, my Master and Commander coat. I love that thing. I it's a beautiful, beautiful piece, and I greatly enjoyed it. It hangs on the door behind my desk in my home office, and I just like I like looking at it. If I had built it, I would feel a much deeper sentimental attachment to it, like I do about my Blade Runner gun. So, my participation in the final product definitely bears on you know whether or not it'd be sad if the building burned down and that was in it.
 
@@ -208,11 +208,11 @@ Episode URL: https://www.youtube.com/watch?v=cKUKjiPQjAA
 
 [00:09:47] Will: What about stuff you do you've done that you absolutely love, and you you've it's I mean, sets you so deep down the path that you ended up learning like what what's the other side of this?
 
-[00:09:56] Adam: Well, the other side of this is the Blade Runner gun, or even like the Blade Runner gun case, right? Like that case is incredibly successful to me from a standpoint of going past my own intention of what I wanted when I built it to coming out with something different than I expected. So I look at it, and it's—I don't—I, you know, the best stuff that you make when you're done with it, you can't quite remember how you knew how to make it like that.
+[00:09:56] Adam: Well, the other side of this is the Blade Runner gun, or even like the Blade Runner gun case, right? Like that case is incredibly successful to me from a standpoint of going past my own intention of what I wanted when I built it to coming out with something different than I expected. So I look at it, and it's - I don't - I, you know, the best stuff that you make when you're done with it, you can't quite remember how you knew how to make it like that.
 
 [00:10:23] Unknown speaker: Yeah.
 
-[00:10:23] Adam: You know, when it's really good, when you really are satisfied by it, it's—it delves into a kind of an other, and that—that other, you know, that's art. That's the muse. That's the center of it.
+[00:10:23] Adam: You know, when it's really good, when you really are satisfied by it, it's - it delves into a kind of an other, and that - that other, you know, that's art. That's the muse. That's the center of it.
 
 [00:10:38] Will: The ineffable.
 
@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=cKUKjiPQjAA
 
 [00:24:08] Adam: Yes.
 
-[00:24:09] Will: I mean, the thing I tell people who don't know what they want to do when they go into college is to find a voca— find an avocation, not a vocation, 
+[00:24:09] Will: I mean, the thing I tell people who don't know what they want to do when they go into college is to find a voca- find an avocation, not a vocation, 
 
 [00:24:14] Adam: Right.
 

@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:00:41] Norm: yeah, yeah. Anyone can do it. It's not not that difficult. I mean, we're if we're going to be doing this a long time, might as well set up the gear to do it and look look good in the zooms. But if you're watching the video, Adam, you are not just wearing a maybe Savage Industry T-shirt or Tested T-shirt, but you're also wearing. Like an apron. What is that?
 
-[00:01:03] Adam: I am. I started wearing it last week, and it's changed my life. I have like three aprons hanging behind the door in the bathroom, and I have never— Come on. All right. Maggie came by to say hi, and I've never been an apron wearer in a shop. I was back in ILM days. I had a Ben Davis that went down to the knee, you know, that buckled behind your legs, and I really liked that one. But for the most part, I haven't worn an apron forever. And then last week, I was noticing I was doing all this specific machining. I've been losing my calipers and losing my pen and my sharpie and stuff, and I pulled this one off, and I'm just loving wearing the apron, and I'm just wearing it all day long now. It feels great, and I take it off, and my pants aren't covered with dust, my pockets aren't filled with sawdust. It's delightful.
+[00:01:03] Adam: I am. I started wearing it last week, and it's changed my life. I have like three aprons hanging behind the door in the bathroom, and I have never - Come on. All right. Maggie came by to say hi, and I've never been an apron wearer in a shop. I was back in ILM days. I had a Ben Davis that went down to the knee, you know, that buckled behind your legs, and I really liked that one. But for the most part, I haven't worn an apron forever. And then last week, I was noticing I was doing all this specific machining. I've been losing my calipers and losing my pen and my sharpie and stuff, and I pulled this one off, and I'm just loving wearing the apron, and I'm just wearing it all day long now. It feels great, and I take it off, and my pants aren't covered with dust, my pockets aren't filled with sawdust. It's delightful.
 
 [00:01:58] Norm: So it's less about the protection for your clothes because you're not welding normally. You're doing milling, you're doing woodworking, and you are happy to be covered in sawdust.
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:07:28] Norm: he's pretty old in North by Northwest.
 
-[00:07:30] Adam: John Landis told told me that the old Hollywood stars like Cary Grant literally glowed like they had a light inside them. Like it was really like it was so. It there was such a aura around them, and I was like, " What about someone like Bill—George Clooney?" He was like, " Ha, no, Bill Clinton's the closest we got."
+[00:07:30] Adam: John Landis told told me that the old Hollywood stars like Cary Grant literally glowed like they had a light inside them. Like it was really like it was so. It there was such a aura around them, and I was like, " What about someone like Bill - George Clooney?" He was like, " Ha, no, Bill Clinton's the closest we got."
 
 [00:07:52] Norm: And even though
 
@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:13:04] Adam: Oh, like to be sure.
 
-[00:13:06] Will: She did maybe one or two reprehensible things, and he has a whole like rogue's gallery of awful like pa—pa—passing the counterfeit money off, getting the new husband arrested twice.
+[00:13:06] Will: She did maybe one or two reprehensible things, and he has a whole like rogue's gallery of awful like pa-pa-passing the counterfeit money off, getting the new husband arrested twice.
 
 [00:13:17] Adam: Her fiancé arrested three times in one day.
 
@@ -408,9 +408,9 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:24:58] Will: She was in the zone, man. She was just she was pounding out the words.
 
-[00:25:01] Adam: Listen, the degree to which. All those hardened reporters at the hall—that that group of of reporters at the Hall of Justice was a wonderful ensemble. Like you were warmed up for it by her walking through the press room of the Tribune, but when you get to the Hall of Justice, those guys playing poker and carrying on three conversations at once are amazing. And the degree to which they love her and respect her is again this like wonderful deepening of the character development of her. Like you, you are really on her side throughout the whole film because of how much the other characters are explicating to you. This is a really rare and amazing practitioner of this craft.
+[00:25:01] Adam: Listen, the degree to which. All those hardened reporters at the hall - that that group of of reporters at the Hall of Justice was a wonderful ensemble. Like you were warmed up for it by her walking through the press room of the Tribune, but when you get to the Hall of Justice, those guys playing poker and carrying on three conversations at once are amazing. And the degree to which they love her and respect her is again this like wonderful deepening of the character development of her. Like you, you are really on her side throughout the whole film because of how much the other characters are explicating to you. This is a really rare and amazing practitioner of this craft.
 
-[00:25:42] Norm: It was so interesting to see their professional courtesies they would extend each other while at the same time also trying to backstab each other to get the lead, get the story. But they would have their natural boundaries. The fact that they would all share the same room, have the phone lines direct access to their newsrooms, and respect that as an operating procedure. But at the same time, trying to fish and again write their clickbait was—it's not something we see today.
+[00:25:42] Norm: It was so interesting to see their professional courtesies they would extend each other while at the same time also trying to backstab each other to get the lead, get the story. But they would have their natural boundaries. The fact that they would all share the same room, have the phone lines direct access to their newsrooms, and respect that as an operating procedure. But at the same time, trying to fish and again write their clickbait was - it's not something we see today.
 
 [00:26:09] Adam: No, and then we
 
@@ -526,7 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:36:25] Will: Everybody knows where they stand coming into the opening scene of this film.
 
-[00:36:30] Adam: Well, I mean, you know, it would have required a whole separate character arc where Rosalind Russell's entire the film is ostensibly about her realizing she's a reporter, but a real emotional arc for her would be to really witness that happening and really witnessing what she's willing to give up for that. They make it a screwball comedy, but again, I submit this is an amazing film for David Fincher to make someday. David Fincher, if any of you listening knows David Fincher, call him up and tell him you got to do a serious dark version of His Girl Friday. With Emma Stone and Ryan Gosling, that's what I—that's there's my—that's my pitch.
+[00:36:30] Adam: Well, I mean, you know, it would have required a whole separate character arc where Rosalind Russell's entire the film is ostensibly about her realizing she's a reporter, but a real emotional arc for her would be to really witness that happening and really witnessing what she's willing to give up for that. They make it a screwball comedy, but again, I submit this is an amazing film for David Fincher to make someday. David Fincher, if any of you listening knows David Fincher, call him up and tell him you got to do a serious dark version of His Girl Friday. With Emma Stone and Ryan Gosling, that's what I - that's there's my - that's my pitch.
 
 [00:37:12] Norm: I'm doing that a lot now too. I'm watching a lot of the old films on Criterion, and I'm imagining recasting those who would be great today to play those archetypes, those roles with the baggage of the celebrity that they have.
 

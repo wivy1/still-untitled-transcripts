@@ -32,7 +32,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:01:05] Norm: Yes, this conversational transaction,
 
-[00:01:07] Adam: and then— look, it's not their fault. I long ago stopped getting mad at customer service reps because
+[00:01:07] Adam: and then - look, it's not their fault. I long ago stopped getting mad at customer service reps because
 
 [00:01:07] Will: Yeah, I was just.
 
@@ -702,7 +702,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:24:58] Will: It's made my new wave metal band.
 
-[00:25:00] Adam: It makes that. It's. I've been machining all day back and forth, and that smell—it's just—it smells like work to me. I'm sorry.
+[00:25:00] Adam: It makes that. It's. I've been machining all day back and forth, and that smell - it's just - it smells like work to me. I'm sorry.
 
 [00:25:07] Norm: It doesn’t come through on the camera. Smell-O-Vision.
 

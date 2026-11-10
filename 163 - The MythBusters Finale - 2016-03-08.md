@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:13:26] Adam: New Mexico Tech will say we can't put a camera there. It's not safe. We have to have you over here. We only have two miles of cord to go over there, and so then all of this has to be worked out by all of us, right? So narratively, what's important to me to see out of this? What are the three key shots I want? They can get all these other shots that they want, but I've got a couple I want on my list. Okay, so we can't get one of mine. How are we going to get something similar to it? Et cetera. It's all of this back and forth. Okay, turns out we can't get this up until then. What do we do about this and that?
 
-[00:13:55] Will: I have a mechanics question about the high speed. When you shoot a high speed, probably people don't know this. It's not like shooting a normal camera. Usually, you either have a pre, a post, or a mid trigger set for it, and that means that somebody literally needs to hit the button within X number of seconds—
+[00:13:55] Will: I have a mechanics question about the high speed. When you shoot a high speed, probably people don't know this. It's not like shooting a normal camera. Usually, you either have a pre, a post, or a mid trigger set for it, and that means that somebody literally needs to hit the button within X number of seconds -
 
 [00:13:55] Adam: Yes.
 
@@ -602,7 +602,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:27:35] Norm: Prices right.
 
-[00:27:35] Adam: Totally. We got a cement truck, and I mean, what can I tell you? It was so epic. I mean, every single shot is a revelation. Every single shot seems to show a different explosion. It illuminates something different about how powerful that blast was. And the thing that's really hard to communicate is when you head back to the center of the former blast, it looks like a moonscape because there's no footprints, there's no vegetation anymore. It is just Things that have fallen from the sky—it's like sandy and right. Really looks like another world. It looks like another planet.
+[00:27:35] Adam: Totally. We got a cement truck, and I mean, what can I tell you? It was so epic. I mean, every single shot is a revelation. Every single shot seems to show a different explosion. It illuminates something different about how powerful that blast was. And the thing that's really hard to communicate is when you head back to the center of the former blast, it looks like a moonscape because there's no footprints, there's no vegetation anymore. It is just Things that have fallen from the sky - it's like sandy and right. Really looks like another world. It looks like another planet.
 
 [00:28:12] Will: Everything that's loose has been blown away.
 

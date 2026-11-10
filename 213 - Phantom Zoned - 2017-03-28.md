@@ -12,7 +12,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:00:11] Will: The Phantom Zone. I'm in now.
 
-[00:00:16] Norm: We're all remote this week, and through the magic of technology, we are in one place—at least to the viewers out there.
+[00:00:16] Norm: We're all remote this week, and through the magic of technology, we are in one place - at least to the viewers out there.
 
 [00:00:25] Adam: Yes.
 
@@ -78,7 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:02:27] Will: I was just going to say, what makes a good venue, Adam? Sorry.
 
-[00:02:29] Adam: Yeah, we've discovered over the course of this tour that we've been doing very, very full crowds, and even when the crowds weren't full, the crowds have been super enthusiastic. So that's been awesome. But we also find that some halls there's a long distance between the back of the stage and the back of the auditorium, like it's hundreds of feet. And others fit the same amount of people, but they're wider. And specifically, the Moody Theater—it's like the distance from the stage to the back of the house has got to be not much more than like 80 to 100 feet. It's that the Moody feels like it's right on top of you, and that's kind of the ideal house for our show. That type of intimacy is is phenomenal. Both for I think the audience—it's like looking right into the show, but also the performers. It feels like the audience is just sitting on top of you in the best way. Like you really hear them.
+[00:02:29] Adam: Yeah, we've discovered over the course of this tour that we've been doing very, very full crowds, and even when the crowds weren't full, the crowds have been super enthusiastic. So that's been awesome. But we also find that some halls there's a long distance between the back of the stage and the back of the auditorium, like it's hundreds of feet. And others fit the same amount of people, but they're wider. And specifically, the Moody Theater - it's like the distance from the stage to the back of the house has got to be not much more than like 80 to 100 feet. It's that the Moody feels like it's right on top of you, and that's kind of the ideal house for our show. That type of intimacy is is phenomenal. Both for I think the audience - it's like looking right into the show, but also the performers. It feels like the audience is just sitting on top of you in the best way. Like you really hear them.
 
 [00:03:28] Will: That's awesome. I love it when you feel like you're in the like on the stage almost when you're in that kind of a shallow venue.
 
@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:16:17] Will: I was blown away because it was not at all like I was expecting your kind of '90s style dry science show, and you guys definitely didn't do that. So I'm really excited to see what you've done with Michael and see how this new shows come together and how it's different.
 
-[00:16:45] Adam: And it's it is so so so different. It's um yeah, it's completely different, and I really enjoyed working with Michael. He is, I mean, anybody who's seen his videos knows how talented he is and how what an amazing master explainer he is. But he's also Wonderful, wonderful at improv, moving on the fly. We try different things all the time. We've added several pieces into the show over the course of it, and the collaboration with him and my director, our director Michael Weber, is just—it's super, super fruitful. I look forward to continuing to tour this show and continuing to write new versions of Brain Candy because it's endlessly fun seeing how the audience responds. Plus, we're—I guess—have we talked about the fact that our meet and greets now are 100 people a night instead of 50 people a night? Yeah.
+[00:16:45] Adam: And it's it is so so so different. It's um yeah, it's completely different, and I really enjoyed working with Michael. He is, I mean, anybody who's seen his videos knows how talented he is and how what an amazing master explainer he is. But he's also Wonderful, wonderful at improv, moving on the fly. We try different things all the time. We've added several pieces into the show over the course of it, and the collaboration with him and my director, our director Michael Weber, is just - it's super, super fruitful. I look forward to continuing to tour this show and continuing to write new versions of Brain Candy because it's endlessly fun seeing how the audience responds. Plus, we're - I guess - have we talked about the fact that our meet and greets now are 100 people a night instead of 50 people a night? Yeah.
 
 [00:17:37] Will: Oh wow.
 

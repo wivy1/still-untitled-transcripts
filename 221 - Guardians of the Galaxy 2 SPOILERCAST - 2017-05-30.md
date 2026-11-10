@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:03:12] Norm: it's been a couple weeks ago. Yeah, only the once though.
 
-[00:03:14] Will: I joked at the end of the last episode that I hated it, but I absolutely—that's absolutely untrue.
+[00:03:14] Will: I joked at the end of the last episode that I hated it, but I absolutely - that's absolutely untrue.
 
 [00:03:18] Adam: No, I'm dying to see it again. I think I'm going to take Mrs. Don't try this to see that see it on Saturday.
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:04:29] Norm: Yeah, well,
 
-[00:04:30] Adam: sorry about that. Oh, it’s all good. For a lot of movies, the plot is paramount, and we talk about plot holes and plot difficulties and suspensions of disbelief and such like that. And there's a standard trope that by page 11 or 15, you need to know the whole thing of what's about to happen in the movie, so you're invested. And both Guardians films are—I was thinking about this in the middle of the sequel—are much more like you're just jumping into a world, and there is a kind of some thing to do, but it's more just like people are doing what they do.
+[00:04:30] Adam: sorry about that. Oh, it’s all good. For a lot of movies, the plot is paramount, and we talk about plot holes and plot difficulties and suspensions of disbelief and such like that. And there's a standard trope that by page 11 or 15, you need to know the whole thing of what's about to happen in the movie, so you're invested. And both Guardians films are - I was thinking about this in the middle of the sequel - are much more like you're just jumping into a world, and there is a kind of some thing to do, but it's more just like people are doing what they do.
 
 [00:05:00] Will: Well, they're character pieces.
 
@@ -434,7 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:17:54] Adam: Mm-hmm.
 
-[00:17:54] Will: It's like, wow, lyricists—they, it's just a bunch of nonsense most of the time, complete and utter gibberish. Anyway,
+[00:17:54] Will: It's like, wow, lyricists - they, it's just a bunch of nonsense most of the time, complete and utter gibberish. Anyway,
 
 [00:17:54] Adam: Um.
 
@@ -474,7 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:19:28] Will: Gesundheit.
 
-[00:19:37] Adam: Excuse me. I loved the fact that Drax laughed so much. This is something I've talked about before. People don't laugh in movies or television or media. In fact, I submit, as I have before, Julia Louis-Dreyfus is one of the few actresses that openly, ha, ha, ha, ha, laughs in Seinfeld, at New Adventures of Old Christine. Veep. She laughs, and to see Bautista getting, I got to meet him last year and spend a day with him, and I found him to be one of the nicest, most. Gentle, intelligent, amazing actors I've spent time with, and then to watch this film and watch how much he got to play with and do in the film—absolutely delightful. I actually I didn't mind that there wasn't a super badass in the group because I was so emotionally invested in each of the characters.
+[00:19:37] Adam: Excuse me. I loved the fact that Drax laughed so much. This is something I've talked about before. People don't laugh in movies or television or media. In fact, I submit, as I have before, Julia Louis-Dreyfus is one of the few actresses that openly, ha, ha, ha, ha, laughs in Seinfeld, at New Adventures of Old Christine. Veep. She laughs, and to see Bautista getting, I got to meet him last year and spend a day with him, and I found him to be one of the nicest, most. Gentle, intelligent, amazing actors I've spent time with, and then to watch this film and watch how much he got to play with and do in the film - absolutely delightful. I actually I didn't mind that there wasn't a super badass in the group because I was so emotionally invested in each of the characters.
 
 [00:20:31] Will: Yeah, I mean that's the thing.
 
@@ -656,9 +656,9 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:26:10] Adam: Right. I can't. I can't.
 
-[00:26:11] Will: And he said, well, this one time I was like, he referenced the other. The other cameos—it was so dumb.
+[00:26:11] Will: And he said, well, this one time I was like, he referenced the other. The other cameos - it was so dumb.
 
-[00:26:16] Adam: Yeah, no, I know. We had Michael Rooker on MythBusters many years ago for the zombie episode, and he like—I'm so happy for his. Oh God,
+[00:26:16] Adam: Yeah, no, I know. We had Michael Rooker on MythBusters many years ago for the zombie episode, and he like - I'm so happy for his. Oh God,
 
 [00:26:27] Will: rebirth, success! He's from Walking Dead.
 

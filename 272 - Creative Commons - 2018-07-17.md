@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:01:48] Will: What what's so? I know a little bit about like aluminum casting and stuff like that. What's different when you get into something like bronze? Is it just temperatures and stuff?
 
-[00:01:54] Adam: So, when you are asking what's different, the answer is I have no idea because this is my first time. This is my first rodeo for doing this. But I took the microcrystalline wax master that I'd spent about 50 hours sculpting here before I left. I added sprue to it, which is I added wax pathways for the metal to move. And it's a—I tweeted some pictures of it.
+[00:01:54] Adam: So, when you are asking what's different, the answer is I have no idea because this is my first time. This is my first rodeo for doing this. But I took the microcrystalline wax master that I'd spent about 50 hours sculpting here before I left. I added sprue to it, which is I added wax pathways for the metal to move. And it's a - I tweeted some pictures of it.
 
 [00:02:18] Norm: It looked elaborate. It looked like Barb had gone through the entire sculpture.
 
@@ -392,7 +392,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:16:47] Norm: and people today can't appreciate how foreign, literally, those films were because we didn't have the internet, Netflix.
 
-[00:16:58] Adam: No, so when I saw Akira—
+[00:16:58] Adam: No, so when I saw Akira -
 
 [00:16:59] Norm: I want to know, yeah, exactly.
 
@@ -498,7 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:21:50] Will: What's Sorry to bother you.
 
-[00:21:51] Adam: Sorry to bother you. Is Boots Riley's film starring Lakeith Stanfield from Atlanta and from Get Out? It's apparent. I have been steadfastly not learning anything about it because I've been hearing it's so amazing. Actually, at Sketchfest about three or four years ago, Boots Riley was here in the cave telling me about his screenplay for this movie [unclear: and telling / And I was like, oh, my God. And telling] me that he had shown it to Dave Eggers, who said it was the best screenplay he'd ever seen, and then published it. Wow! And now it is out, and I like I. I've been a little busy, but I cannot wait to see it. Everyone I know who's seen it says it is completely astounding—an experience.
+[00:21:51] Adam: Sorry to bother you. Is Boots Riley's film starring Lakeith Stanfield from Atlanta and from Get Out? It's apparent. I have been steadfastly not learning anything about it because I've been hearing it's so amazing. Actually, at Sketchfest about three or four years ago, Boots Riley was here in the cave telling me about his screenplay for this movie [unclear: and telling / And I was like, oh, my God. And telling] me that he had shown it to Dave Eggers, who said it was the best screenplay he'd ever seen, and then published it. Wow! And now it is out, and I like I. I've been a little busy, but I cannot wait to see it. Everyone I know who's seen it says it is completely astounding - an experience.
 
 [00:22:34] Norm: Shot in the Bay Area, shot in Oakland, set in Oakland.
 

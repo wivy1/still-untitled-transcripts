@@ -24,7 +24,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:00:14] Adam: This is all part of the cut. Let's try again.
 
-[00:00:17] Will: Norm's the producer and the editor, so it's all on him. Welcome to Still Untitled, the Adam Savage—
+[00:00:17] Will: Norm's the producer and the editor, so it's all on him. Welcome to Still Untitled, the Adam Savage -
 
 [00:00:17] Norm: Now it has to go in.
 
@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:03:18] Adam: I do too.
 
-[00:03:19] Will: And it is—
+[00:03:19] Will: And it is -
 
 [00:03:19] Adam: I have a box of hard drives in your garage. You didn't know about that.
 
@@ -292,7 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:10:57] Unknown speaker (Norm or Will): Yeah.
 
-[00:10:57] Adam: And I'm so glad I remembered that because it was a terrible cr—. To their credit, the critics really knew the show and asked great, insightful questions about the past and the future of MythBusters. But yeah, there are professionals in there working hard.
+[00:10:57] Adam: And I'm so glad I remembered that because it was a terrible cr-. To their credit, the critics really knew the show and asked great, insightful questions about the past and the future of MythBusters. But yeah, there are professionals in there working hard.
 
 [00:11:15] Norm: They're not there to give you anything.
 
@@ -538,17 +538,17 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:21:00] Norm: That's right, exactly. They couldn't do that, right? So they had to find the moment in the Breaking Bad. So I'm just going to go through like the top 10, and then we'll see if things that you guys shout out fit in that list.
 
-[00:21:11] Will: I just want to say, like back in the days when we worked on a magazine, going into a conference room with 10 people and a giant stack of post-it notes or index cards or whatever, and some tape—
+[00:21:11] Will: I just want to say, like back in the days when we worked on a magazine, going into a conference room with 10 people and a giant stack of post-it notes or index cards or whatever, and some tape -
 
-[00:21:21] Norm: a list and the best X—
+[00:21:21] Norm: a list and the best X -
 
 [00:21:21] Will: making this list and like negotiating the placement is it like I get excited just thinking about it
 
 [00:21:28] Adam: because it's like lots of arguing, right?
 
-[00:21:28] Norm: It's such a good—
+[00:21:28] Norm: It's such a good -
 
-[00:21:28] Adam: People yelling, screaming, and wondering—
+[00:21:28] Adam: People yelling, screaming, and wondering -
 
 [00:21:31] Norm: Would that be fun for people to watch?
 
@@ -568,7 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:21:51] Will: Oh man,
 
-[00:21:51] Adam: you put together the right team and you gotta put together the right—
+[00:21:51] Adam: you put together the right team and you gotta put together the right -
 
 [00:21:58] Will: It has to be like five.
 
@@ -730,7 +730,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:26:21] Adam: Is this like in Bruges?
 
-[00:26:22] Will: Kind of, yeah. They get lost. They're like—
+[00:26:22] Will: Kind of, yeah. They get lost. They're like -
 
 [00:26:22] Adam: Sonatine?
 
@@ -808,7 +808,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:28:13] Will: and his his nemesis, that woman, the woman who was the truck driver.
 
-[00:28:16] Norm: I'm sorry. Right. But Sue. Sue. So they have—
+[00:28:16] Norm: I'm sorry. Right. But Sue. Sue. So they have -
 
 [00:28:18] Adam: Didn't Sue and Richard double cross someone who, in that finale, said, " I wouldn't cross the street to piss on you if you were on fire.
 
@@ -892,7 +892,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:31:06] Norm: It's good to know.
 
-[00:31:06] Adam: It's good among LA comedians, like who hang out with him, he is still the one. He is like still preternaturally brilliant. At come— just the raw material out of his brain.
+[00:31:06] Adam: It's good among LA comedians, like who hang out with him, he is still the one. He is like still preternaturally brilliant. At come - just the raw material out of his brain.
 
 [00:31:34] Will: Wish he'd do that instead of you know making movies.
 
@@ -1098,7 +1098,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:37:20] Adam: It's such a crazy solid pilot.
 
-[00:37:22] Will: It's the. I only watched the first season of Lost, and then I was like, nope. Oh, which makes me—I know a bad person. You
+[00:37:22] Will: It's the. I only watched the first season of Lost, and then I was like, nope. Oh, which makes me - I know a bad person. You
 
 [00:37:29] Adam: have a lot to look forward to.
 

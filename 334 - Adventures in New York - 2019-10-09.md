@@ -16,7 +16,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:01:05] Norm: Welcome back to San Francisco.
 
-[00:01:06] Adam: Thank you. This is—is this going to go up next week?
+[00:01:06] Adam: Thank you. This is - is this going to go up next week?
 
 [00:01:09] Norm: It's going up like today.
 
@@ -58,7 +58,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:01:59] Will: Wait, what's a busman's holiday?
 
-[00:02:00] Adam: Busman's holiday is that the bus—the guy who drives the bus—takes the bus on his holiday.
+[00:02:00] Adam: Busman's holiday is that the bus - the guy who drives the bus - takes the bus on his holiday.
 
 [00:02:04] Will: Really?
 
@@ -708,7 +708,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:28:51] Will: Well, you were nude under there, so that helped probably.
 
-[00:28:52] Adam: I went comm—. Everyone should know that I am not going to go commando underneath a costume at a con, just so no one has to have that image in their head.
+[00:28:52] Adam: I went comm-. Everyone should know that I am not going to go commando underneath a costume at a con, just so no one has to have that image in their head.
 
 [00:29:03] Will: Sorry, I am sorry, I couldn't resist. Yeah, the
 

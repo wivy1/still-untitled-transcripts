@@ -168,7 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:07:49] Will: What was the? Did you climb through the hole in the cell?
 
-[00:08:01] Adam: I did. They—actually, so we inspected the cells here that the guys were in. The hole that they carved to get out is still there. And they let us climb through those holes.
+[00:08:01] Adam: I did. They - actually, so we inspected the cells here that the guys were in. The hole that they carved to get out is still there. And they let us climb through those holes.
 
 [00:08:01] Will: Wow!
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:12:33] Norm: If you were to do it again, which how would you do it differently, or would you?
 
-[00:12:37] Adam: This is that's a great question. One of the things that comes up every season that we do MythBusters that we've been doing MythBusters, is we think about stuff we'd like to revisit. And a couple of years ago, when we started doing the show with just Jamie and I, after Kari, Grant and Tory left, we started thinking, " Well, what if there maybe there's some myths that are really old that we could radically improve upon," and I, this, And the end of the story sounds like I'm tooting our horn, but we actually wouldn't have changed most of our methodologies in radical ways that we think would yield a very different result. And Alcatraz, as far as I'm concerned, is as robust an experiment as we've ever conducted. I was—I mean, how much fun is it? You get to enter the water of San Francisco Bay in the exact possible raft, and that raft hung from our ceiling for years until we set fire to it with the Confederate rocket test,
+[00:12:37] Adam: This is that's a great question. One of the things that comes up every season that we do MythBusters that we've been doing MythBusters, is we think about stuff we'd like to revisit. And a couple of years ago, when we started doing the show with just Jamie and I, after Kari, Grant and Tory left, we started thinking, " Well, what if there maybe there's some myths that are really old that we could radically improve upon," and I, this, And the end of the story sounds like I'm tooting our horn, but we actually wouldn't have changed most of our methodologies in radical ways that we think would yield a very different result. And Alcatraz, as far as I'm concerned, is as robust an experiment as we've ever conducted. I was - I mean, how much fun is it? You get to enter the water of San Francisco Bay in the exact possible raft, and that raft hung from our ceiling for years until we set fire to it with the Confederate rocket test,
 
 [00:13:31] Will: as one does.
 
@@ -238,7 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:13:38] Will: Hard lessons learned over M5.
 
-[00:13:39] Adam: Actually, we didn't set fire to it. We—the heat from the rocket exhaust merely melted it. Oh. Oh yeah, that was it was bad.
+[00:13:39] Adam: Actually, we didn't set fire to it. We - the heat from the rocket exhaust merely melted it. Oh. Oh yeah, that was it was bad.
 
 [00:13:49] Will: But that smelled great. Ugh. Um. Okay, so it wouldn't be an episode of Still Untitled if we didn't talk about movies.
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:16:01] Will: The Rock. I think there's only two, so it's either The Rock or that Clint Eastwood Escape from Alcatraz movie.
 
-[00:16:06] Adam: Didn’t they—has anyone made a movie about the Indian occupation of Alcatraz? I mean, that would be a great film.
+[00:16:06] Adam: Didn’t they - has anyone made a movie about the Indian occupation of Alcatraz? I mean, that would be a great film.
 
 [00:16:11] Will: Anybody?
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:17:27] Will: He goes. He's a clown. It's a great heist.
 
-[00:17:29] Adam: Small Change has one of the greatest—
+[00:17:29] Adam: Small Change has one of the greatest -
 
 [00:17:29] Unknown speaker: I don't know.
 

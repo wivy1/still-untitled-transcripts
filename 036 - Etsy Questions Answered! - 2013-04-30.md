@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:01:09] Adam: And I was like, dude, there's just. I said it's a great idea. Actually, I didn't poo-poo the idea. I said the idea is brilliant. But in order to make that happen, you're gonna have to live, eat, sleep, and breathe this for like half a decade to make it happen. It's so much infrastructure to make that work.
 
-[00:01:25] Will: At the time, by the time you finish, it would be like that road, the road that goes all the way across the length of Mexico, where they start and then they finish and then they just go back again and start again because it's—
+[00:01:25] Will: At the time, by the time you finish, it would be like that road, the road that goes all the way across the length of Mexico, where they start and then they finish and then they just go back again and start again because it's -
 
 [00:01:34] Norm: Crowdsourcing wasn't a thing back then.
 
@@ -68,13 +68,13 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:01:58] Will: Oh, yeah.
 
-[00:01:59] Adam: But how it—you can all—also watch it predict their trajectory based on their movement.
+[00:01:59] Adam: But how it - you can all - also watch it predict their trajectory based on their movement.
 
 [00:02:03] Will: Well, so so this, the feedback from the, yeah, the feedback from the sensor, it looks like a something from a science fiction movie, basically.
 
 [00:02:10] Norm: Yeah, point graph.
 
-[00:02:11] Adam: Yeah, exactly. It's really really cool. I, I, I'm—it's, it's gorgeous. I'm very excited about the Google, about the autonomous car. I think that our kids, I think that in 20 or 30 years most major currently congested downtowns of major cities won't allow non-autonomous cars.
+[00:02:11] Adam: Yeah, exactly. It's really really cool. I, I, I'm - it's, it's gorgeous. I'm very excited about the Google, about the autonomous car. I think that our kids, I think that in 20 or 30 years most major currently congested downtowns of major cities won't allow non-autonomous cars.
 
 [00:02:32] Will: Yeah.
 
@@ -82,21 +82,21 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:02:33] Norm: That's the only way it would work.
 
-[00:02:34] Adam: Yeah, you'll have to cede your control of your car when you enter a downtown area so that the traffic planners can actually plot delivery traffic and make it run really smoothly. We'll all still be able to control our cars for—honestly, the idea of cars just driving you from one place to another, that's like 100 years away.
+[00:02:34] Adam: Yeah, you'll have to cede your control of your car when you enter a downtown area so that the traffic planners can actually plot delivery traffic and make it run really smoothly. We'll all still be able to control our cars for - honestly, the idea of cars just driving you from one place to another, that's like 100 years away.
 
 [00:02:52] Will: Yeah.
 
 [00:02:52] Adam: Like, fully driving you from one place to another, because people will always want to drive.
 
-[00:02:56] Will: Well, but—
+[00:02:56] Will: Well, but -
 
-[00:02:57] Adam: But—
+[00:02:57] Adam: But -
 
-[00:02:57] Will: People said that 100 years ago about people always wanting to ride their horses too. So—
+[00:02:57] Will: People said that 100 years ago about people always wanting to ride their horses too. So -
 
-[00:03:02] Adam: At the same time, I think that I feel like culturally the desire to drive your own car is so ingrained in us it will take three or four generations to really weed it out. Plus, you've got that last mile of all the rural communities throughout the world. But really—
+[00:03:02] Adam: At the same time, I think that I feel like culturally the desire to drive your own car is so ingrained in us it will take three or four generations to really weed it out. Plus, you've got that last mile of all the rural communities throughout the world. But really -
 
-[00:03:18] Will: So I saw the Street View car. I mean, not the street—I keep saying Street View. I saw the autonomous car driving on surface roads in San Francisco the other day.
+[00:03:18] Will: So I saw the Street View car. I mean, not the street - I keep saying Street View. I saw the autonomous car driving on surface roads in San Francisco the other day.
 
 [00:03:25] Adam: Oh, really?
 
@@ -104,11 +104,11 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:03:27] Norm: On surface roads.
 
-[00:03:28] Will: I feel like the highway is probably easier because—
+[00:03:28] Will: I feel like the highway is probably easier because -
 
-[00:03:31] Norm: Not the speed of the car and the amount of other cars, but—and the velocities.
+[00:03:31] Norm: Not the speed of the car and the amount of other cars, but - and the velocities.
 
-[00:03:36] Will: I—there's less unpredictable stuff. There's no pedestrians on the freeway. The potential for failure is is much lower,
+[00:03:36] Will: I - there's less unpredictable stuff. There's no pedestrians on the freeway. The potential for failure is is much lower,
 
 [00:03:42] Adam: right?
 
@@ -118,27 +118,27 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:03:50] Will: This one came off at Vermont, where I got off to go to work. Turned left by the UPS place, went underneath the freeway, and was going down 16th as if it was going toward the Mission. It was really crazy. I had not seen that before, and it may not have been self-driving at that point, but it was somewhat unexpected.
 
-[00:04:06] Adam: That's fascinating. I love that thing. So, I got a—when I got a ride in it, I was—my eyes were glued to its, the computer showing its brain and its thinking methods, even down to watching it parse the lane as it merged to get off the freeway. That that was that was awesome.
+[00:04:06] Adam: That's fascinating. I love that thing. So, I got a - when I got a ride in it, I was - my eyes were glued to its, the computer showing its brain and its thinking methods, even down to watching it parse the lane as it merged to get off the freeway. That that was that was awesome.
 
-[00:04:23] Will: The neat thing, I—the thing that was unexpected to me and makes sense is it uses lidar. The sensor uses lidar. It's made by a company that makes headphones as well. It starts with a V, and I can't remember it. Norm, do you remember?
+[00:04:23] Will: The neat thing, I - the thing that was unexpected to me and makes sense is it uses lidar. The sensor uses lidar. It's made by a company that makes headphones as well. It starts with a V, and I can't remember it. Norm, do you remember?
 
 [00:04:35] Norm: Velodyne.
 
-[00:04:35] Will: Velodyne, I think, yeah. And there's—because it's light, there's shadows. So when there's a car in the lane beside the Google car, if it can't see over that car, then the area on the other side of it is unknown, and there be dragons, I guess.
+[00:04:35] Will: Velodyne, I think, yeah. And there's - because it's light, there's shadows. So when there's a car in the lane beside the Google car, if it can't see over that car, then the area on the other side of it is unknown, and there be dragons, I guess.
 
 [00:04:50] Norm: Laser radar.
 
-[00:04:54] Will: So. Right now, well, first off, you should explain what you're doing for the people on—
+[00:04:54] Will: So. Right now, well, first off, you should explain what you're doing for the people on -
 
-[00:04:59] Adam: Oh, I, I, sorry, I've gotten some new lovely little pieces of camera gear from Zacuto and they're for my camera, my FS700. And I'm knolling. I'm just knolling. That's—
+[00:04:59] Adam: Oh, I, I, sorry, I've gotten some new lovely little pieces of camera gear from Zacuto and they're for my camera, my FS700. And I'm knolling. I'm just knolling. That's -
 
 [00:05:12] Norm: What is it about the brain that we we like like regular angles and straight lines and things that fit uniformly with other things?
 
 [00:05:21] Adam: I don't know, but I'll tell you, my intuition says it has something to do with the reason we love music too.
 
-[00:05:27] Norm: Well, the reason we love music is pattern, pattern recognition, and well, and there are recent studies like we get the same type of this—the same triggers when we listen to music as other other pleasure activities.
+[00:05:27] Norm: Well, the reason we love music is pattern, pattern recognition, and well, and there are recent studies like we get the same type of this - the same triggers when we listen to music as other other pleasure activities.
 
-[00:05:40] Adam: And I just, I, I love doing this. It's tough with the—with a flat surface and objects that aren't completely level, but I find it—this, I mean, whenever I'm having a conference call, this is what I'm doing. I'm in my space doing it, and actually, I have noticed that my knolling. If I'm having a difficult call, I still knoll. But if I'm having a call where I'm really upset and trying to communicate something emotional, like if I'm arguing a point with a loved one, or Jamie and I have had some difficult calls I, I don't know. I'm totally concentrated on the thing. But for me, this is sort of like a—it's sort of an ongoing—
+[00:05:40] Adam: And I just, I, I love doing this. It's tough with the - with a flat surface and objects that aren't completely level, but I find it - this, I mean, whenever I'm having a conference call, this is what I'm doing. I'm in my space doing it, and actually, I have noticed that my knolling. If I'm having a difficult call, I still knoll. But if I'm having a call where I'm really upset and trying to communicate something emotional, like if I'm arguing a point with a loved one, or Jamie and I have had some difficult calls I, I don't know. I'm totally concentrated on the thing. But for me, this is sort of like a - it's sort of an ongoing -
 
 [00:06:18] Will: Rather than click your pen.
 
@@ -152,11 +152,11 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:06:39] Adam: I said this is. I actually texted that to my wife the other night. I'm in a hotel room in Utah, and I have been walking back and forth between the bathroom and the bed, and I'm knolling some of the stuff from my bag on both. And in the end, I took a picture of each and texted it to her with that. To knoll you is to love you. But we were talking about Etsy.
 
-[00:07:02] Will: I think we were a while ago. We were talking about Etsy because you after we, well, we talked about Etsy on this show—
+[00:07:02] Will: I think we were a while ago. We were talking about Etsy because you after we, well, we talked about Etsy on this show -
 
 [00:07:07] Adam: Right.
 
-[00:07:07] Will: A few weeks ago, months ago, I guess. Now and your octopus cane, your squid—squid or octopus?
+[00:07:07] Will: A few weeks ago, months ago, I guess. Now and your octopus cane, your squid - squid or octopus?
 
 [00:07:12] Adam: Uh, octopus.
 
@@ -190,13 +190,13 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:07:51] Will: Still Untitled, and that has a hardcoded 30-minute video.
 
-[00:07:54] Norm: All DSLRs and all all cameras, photo— cameras that shoot video,
+[00:07:54] Norm: All DSLRs and all all cameras, photo - cameras that shoot video,
 
 [00:07:59] Will: thanks Germany.
 
 [00:08:00] Norm: Yes.
 
-[00:08:02] Will: That because of tariffs, basically. So—
+[00:08:02] Will: That because of tariffs, basically. So -
 
 [00:08:06] Norm: And also a 32 gigabyte SD card.
 
@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:08:23] Norm: But the Etsy questions,
 
-[00:08:24] Will: the Etsy questions are as followed: the most asked question—
+[00:08:24] Will: the Etsy questions are as followed: the most asked question -
 
 [00:08:29] Adam: Hold on, wait a second.
 
@@ -228,9 +228,9 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:09:10] Adam: That's great. I want to start from the beginning and say Etsy's practice of, and I don't know whether they do this daily or hourly or what the protocol is, of grouping things together on the homepage of like 9 or 12 things that you can see when you go to Etsy first, and they're generally of a similar color or a similar attitude or shape.
 
-[00:09:32] Will: It's like a—I think of it as a game, is like how, why are these things connected? And usually it's color, but usually it's—
+[00:09:32] Will: It's like a - I think of it as a game, is like how, why are these things connected? And usually it's color, but usually it's -
 
-[00:09:38] Adam: color. But it's a very broad approach to color, and I think that it's—I think it's one of my favorite homepages because of like, oh wow, it's blue things, but one's a boat and the other is a piece of jewelry and another is like a croissant. I mean they're super different.
+[00:09:38] Adam: color. But it's a very broad approach to color, and I think that it's - I think it's one of my favorite homepages because of like, oh wow, it's blue things, but one's a boat and the other is a piece of jewelry and another is like a croissant. I mean they're super different.
 
 [00:09:55] Will: Yeah. Um.
 
@@ -244,21 +244,21 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:10:51] Adam: I totally agree.
 
-[00:10:52] Will: For to give you that kind of unexpected because it's always—there's always something that's one or two axes off.
+[00:10:52] Will: For to give you that kind of unexpected because it's always - there's always something that's one or two axes off.
 
-[00:10:57] Norm: Do you sort by, like stuff that's only handmade or—
+[00:10:57] Norm: Do you sort by, like stuff that's only handmade or -
 
-[00:11:01] Adam: I actually. No, I generally don't. When I've got a category I really like, I usually sort by highest price first and I do that because—
+[00:11:01] Adam: I actually. No, I generally don't. When I've got a category I really like, I usually sort by highest price first and I do that because -
 
 [00:11:13] Norm: People do the opposite.
 
 [00:11:14] Will: Yeah, I'm usually the other way, Adam.
 
-[00:11:15] Adam: I—what I find is that the sorting by the highest price first. I don't do that because I want to spend the most money. I do that because I tend to find, you tend to find the most robust product at that highest price, and it gives you an idea about the spectrum. And when you sort by lowest price on eBay, what you've got is like 4,000 like things that cost $0.03.
+[00:11:15] Adam: I - what I find is that the sorting by the highest price first. I don't do that because I want to spend the most money. I do that because I tend to find, you tend to find the most robust product at that highest price, and it gives you an idea about the spectrum. And when you sort by lowest price on eBay, what you've got is like 4,000 like things that cost $0.03.
 
 [00:11:41] Will: Right. If you if you're searching for camera stuff, then it'll be the screw that you use to hold the camera on the tripod.
 
-[00:11:45] Adam: Exactly. So the noise to signal ratio, searching low to high, is is unfortunately—
+[00:11:45] Adam: Exactly. So the noise to signal ratio, searching low to high, is is unfortunately -
 
 [00:11:50] Will: 32 pages. You're at $5.
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:12:09] Will: a sauce.
 
-[00:12:10] Adam: Yeah, a mole sauce is a chocolate. What's effectively a chocolate sauce. It's a Mexican cooking. Requires many, many, many, many steps. Many like dozens and dozens of ingredients. All that had to be ground and prep. And we have little mortar and pestle, and we've got a some good blenders and stuff like that. Oh yeah, I've got stuff in my pockets. And—
+[00:12:10] Adam: Yeah, a mole sauce is a chocolate. What's effectively a chocolate sauce. It's a Mexican cooking. Requires many, many, many, many steps. Many like dozens and dozens of ingredients. All that had to be ground and prep. And we have little mortar and pestle, and we've got a some good blenders and stuff like that. Oh yeah, I've got stuff in my pockets. And -
 
 [00:12:33] Will: I'm a terrible distracting left and right.
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:17:30] Will: S I N U S O I
 
-[00:17:32] Adam: D A L. Yeah. I only know that—
+[00:17:32] Adam: D A L. Yeah. I only know that -
 
 [00:17:32] Will: Is that the two-sided of the brain thing?
 
@@ -360,7 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:18:32] Norm: Right.
 
-[00:18:33] Adam: And once I worked with an art director who saw that I could do that, I got the added bonus of getting a lot more freedom to do what I wanted to do. So, for instance, I was working on episode one and an episode two. Similar thing happened. Doug Chiang, the production designer. I don't know if he was officially listed as a production designer, but he really was the production designer, would make the rounds every day, and he'd go by every model maker's table, and you'd have questions for him. What do you think this should look like? He'd make a little sketch or something, or good, good, no, no, no, stop that, and move in this direction. And one of the things that Doug is really brilliant at, in addition to being an amazing designer, is if he saw you were if he saw you understood, he would give you less and less feedback because you were just on the right path, and that's a lovely thing to find an art director who's willing to do that because it just means you're having more fun, you're coming up with aesthetic solutions to stuff. And—
+[00:18:33] Adam: And once I worked with an art director who saw that I could do that, I got the added bonus of getting a lot more freedom to do what I wanted to do. So, for instance, I was working on episode one and an episode two. Similar thing happened. Doug Chiang, the production designer. I don't know if he was officially listed as a production designer, but he really was the production designer, would make the rounds every day, and he'd go by every model maker's table, and you'd have questions for him. What do you think this should look like? He'd make a little sketch or something, or good, good, no, no, no, stop that, and move in this direction. And one of the things that Doug is really brilliant at, in addition to being an amazing designer, is if he saw you were if he saw you understood, he would give you less and less feedback because you were just on the right path, and that's a lovely thing to find an art director who's willing to do that because it just means you're having more fun, you're coming up with aesthetic solutions to stuff. And -
 
 [00:19:29] Norm: You're asking why?
 
@@ -376,7 +376,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:20:55] Will: want. I don't want handmade toilet paper,
 
-[00:20:58] Adam: artisanal—
+[00:20:58] Adam: artisanal -
 
 [00:20:59] Will: Right.
 
@@ -424,7 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:24:42] Norm: And that community will also evolve so they move out of certain holes like aesthetic holes that they know resonate. Like not everything has to have an owl on it.
 
-[00:24:50] Adam: No, and—
+[00:24:50] Adam: No, and -
 
 [00:24:51] Will: Or a bird.
 
@@ -434,7 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:24:59] Adam: where we have washing machines and durable goods are so much less expensive that everyone can benefit from that. These are remarkable things that have happened in the past two, two or three generations. Clothing, food. It's unfortunate that when you use a free market to make calories cheaper, they're full of butter and fat, and everyone gets full of butter and fat.
 
-[00:25:20] Will: Or they're engineered to make—
+[00:25:20] Will: Or they're engineered to make -
 
 [00:25:25] Adam: To make you want more and eat as much as humanly possible. Yes,
 
@@ -460,7 +460,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:26:18] Will: okay,
 
-[00:26:18] Adam: and then we freeze it, and we've pulled it out of the freezer and thawed it, and thrown it on a frying pan to use in banh mi or other cooking stuff. Up to a year later, it's fantastic. And David Chang confirmed for me that, yeah, it—
+[00:26:18] Adam: and then we freeze it, and we've pulled it out of the freezer and thawed it, and thrown it on a frying pan to use in banh mi or other cooking stuff. Up to a year later, it's fantastic. And David Chang confirmed for me that, yeah, it -
 
 [00:26:32] Will: doesn't.
 
@@ -514,7 +514,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:29:30] Will: there's
 
-[00:29:31] Adam: a phrase that Alexander Jason, who has become an honorary MythBuster, he's our ballistics expert. We've used him on about a dozen episodes over the years. He gave me this phrase, and I told him immediately after I heard it, I'm stealing it. I'm going to say it as often as I can. The only difference between science and screwing around is writing down the results in your notebook. And to somebody who's who thinks that they're interested in science, the fact—the moment you start actually gathering data and being able to compare something that you've done to something else that you've done—you're a scientist. That's you are doing science. You are looking at data and you are comparing it to stuff that is, and it's thrilling when you actually do.
+[00:29:31] Adam: a phrase that Alexander Jason, who has become an honorary MythBuster, he's our ballistics expert. We've used him on about a dozen episodes over the years. He gave me this phrase, and I told him immediately after I heard it, I'm stealing it. I'm going to say it as often as I can. The only difference between science and screwing around is writing down the results in your notebook. And to somebody who's who thinks that they're interested in science, the fact - the moment you start actually gathering data and being able to compare something that you've done to something else that you've done - you're a scientist. That's you are doing science. You are looking at data and you are comparing it to stuff that is, and it's thrilling when you actually do.
 
 [00:30:10] Will: Well, and the thing, the other thing you said about fostering and like pay attention to what your kids are interested in and foster those interests. I mean, my parents did that for you from talking to your mom. Your mom absolutely, your parents absolutely did that for you. If you figure out the things that they're into, and it's going to change a ton because what I was interested when I was 10 years old was completely different than what I was interested when I was eight years old. But they found activities and stuff that we could do that would kind of encourage that behavior, and eventually I found the stuff that I wanted to do on my own, and I ended up someplace that was right for me, and I have a lot of faith that that happens if you apply yourself and are smart and Really, just apply yourself.
 
@@ -570,15 +570,15 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:33:21] Adam: totally something I want to. It's so total. I don't even know if you could mix up enough mayonnaise that would last long enough to be able to swim in.
 
-[00:33:29] Will: The—
+[00:33:29] Will: The -
 
-[00:33:30] Adam: Probably—about how many eggs?
+[00:33:30] Adam: Probably - about how many eggs?
 
 [00:33:31] Norm: Eggs.
 
 [00:33:32] Adam: Oh, gross! That would be awful. Jamie would be so mad if we wasted 100,000 eggs.
 
-[00:33:37] Will: Well, you'd probably— What you'd probably have to do is figure out something that is exactly the same mechanical—
+[00:33:37] Will: Well, you'd probably - What you'd probably have to do is figure out something that is exactly the same mechanical -
 
 [00:33:44] Adam: Right.
 
@@ -606,7 +606,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:34:02] Adam: Cans of tuna. Cans of tuna. Some white bread
 
-[00:34:04] Will: Crackers. Heaven. Yeah. Just let me know when you're going to do that, so I can be as far away as possible. And then Jay Madison—
+[00:34:04] Will: Crackers. Heaven. Yeah. Just let me know when you're going to do that, so I can be as far away as possible. And then Jay Madison -
 
 [00:34:13] Adam: What's the last question?
 
@@ -614,9 +614,9 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:34:14] Adam: Okay.
 
-[00:34:15] Will: We have one or two more. Jay Madison wants to know: What do you enjoy most—making things, collecting things, or blowing things up?
+[00:34:15] Will: We have one or two more. Jay Madison wants to know: What do you enjoy most - making things, collecting things, or blowing things up?
 
-[00:34:22] Adam: Blowing things up is at the bottom of that list. It's—don't get me wrong.
+[00:34:22] Adam: Blowing things up is at the bottom of that list. It's - don't get me wrong.
 
 [00:34:26] Will: We should fight entropy as a people. That should be our goal, right?
 

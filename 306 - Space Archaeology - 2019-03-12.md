@@ -44,7 +44,7 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:02:50] Sarah: Yeah. So so we use pretty standard off-the-shelf remote sensing software. So it's the same software that you know biologists use to map different parts of the rainforest, or that meteorologists use to look at look for differences in climate.
 
-[00:03:04] Adam: And in addition, you're crowdsourcing. This discovery process—that's one of the things I find most exciting about this—is you're giving civilians a chance to join in the journey.
+[00:03:04] Adam: And in addition, you're crowdsourcing. This discovery process - that's one of the things I find most exciting about this - is you're giving civilians a chance to join in the journey.
 
 [00:03:15] Sarah: So yeah, so there are only a couple hundred of us space archaeologists around the world. Maybe maybe there's a couple thousand, but you look look at where we've lived over the last you know several hundred thousand years. There are millions of people. There are millions and millions of archaeological sites out there to discover. And so, a couple years ago, I started an organization called GlobalXplorer, and it's an online citizen science crowdsourcing platform, and it allows anyone in the world to help look at satellite imagery and find sites. And we've had I think about 84,000, 85,000 people from over 100 countries, and they found almost 30,000 potential archaeological features in Peru alone.
 
@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:21:13] Will: What’s a stela?
 
-[00:21:13] Sarah: So, so a false door. So, so essentially, it was the autobiography of this individual written on this two-meter-tall, massive piece of limestone, weighed over a ton. It's the kind of thing you typically see in a museum, and we found it face down in one of the niches. And it was like, holy crap! Like, holy—that's not the word I use. And it was so like we just we thought it had been looted or stolen, and there it was lying down. And we got to put it back in place and translate it, and it was just mind blowing.
+[00:21:13] Sarah: So, so a false door. So, so essentially, it was the autobiography of this individual written on this two-meter-tall, massive piece of limestone, weighed over a ton. It's the kind of thing you typically see in a museum, and we found it face down in one of the niches. And it was like, holy crap! Like, holy - that's not the word I use. And it was so like we just we thought it had been looted or stolen, and there it was lying down. And we got to put it back in place and translate it, and it was just mind blowing.
 
 [00:21:47] Norm: It's like the and then James Horner or Hans Zimmer score starts playing, and the camera pans up, and it's the beginning of Stargate, right?
 
@@ -498,7 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:38:19] Unknown speaker: Oh
 
-[00:38:19] Adam: I felt what I felt like was scenery chewing. I, if you told me the second episode—
+[00:38:19] Adam: I felt what I felt like was scenery chewing. I, if you told me the second episode -
 
 [00:38:23] Will: it earns the whole thing. Okay, I think it sticks the landing better than any any comic book. Thing I've seen in a long time
 

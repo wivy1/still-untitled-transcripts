@@ -50,7 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=N02xowDuu04
 
 [00:03:02] Simone: Yeah.
 
-[00:03:03] Adam: How have you found your output over the past six months versus before? I mean, you—I don't think you've ever spent so much time in a personal shop before, have you?
+[00:03:03] Adam: How have you found your output over the past six months versus before? I mean, you - I don't think you've ever spent so much time in a personal shop before, have you?
 
 [00:03:14] Simone: No, and I think that's what the thing, like the perk of quarantine, is that I've traveled so much less. Obviously, because usually, I mean, I travel like twice a month and do speaking engagements or I'm on shows, and now it's just been so chill, and I've just been able to like, yeah, be in overalls and hang out in the workshop. So it's actually been really nice. I feel like I haven't been living my life as like a builder until now. So that's been great, and just like having a lot of time to spend because before there was this thing where I'd always feel guilty for spending time on projects and like rushing it, and now I'm like sorting screws. That's a great use of my time. So that part has really been nice. I feel like I've connected with making things and actually like. I mean, but that's also like stepping away from building shitty robots because I used to just
 
@@ -78,7 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=N02xowDuu04
 
 [00:06:03] Adam: Yeah.
 
-[00:06:03] Simone: Which is—
+[00:06:03] Simone: Which is -
 
 [00:06:03] Adam: you always feel like you're stealing that time away from things.
 
@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=N02xowDuu04
 
 [00:14:55] Adam: There's a an amazing designer named Milton Glaser who passed away recently, and we should include a link to this talk in the comments, Norm. He gave a talk, Simone, a few years ago and he was inordinately successful, like a world famous graphic designer. And late in his career, he did this wonderful talk where he said, " When you get really good at something, people are going to ask you to do only that thing, and it's going to kill you and crush you. And so, your goal as a creator is to not try and keep doing the same thing. You got to switch it up because you won't advance if you just keep doing the thing you got successful for doing."
 
-[00:15:31] Norm: Oh, God, pop artists, modern artists, all the time, right? That's yeah, they get stuck in that. But which part of the product development journey did you find that you enjoyed the most? Prototyping logistics, you know, the product, the packaging design, or that you didn't think—know that you would enjoy that you liked?
+[00:15:31] Norm: Oh, God, pop artists, modern artists, all the time, right? That's yeah, they get stuck in that. But which part of the product development journey did you find that you enjoyed the most? Prototyping logistics, you know, the product, the packaging design, or that you didn't think - know that you would enjoy that you liked?
 
 [00:15:50] Simone: I think yeah, just seeing the prototyping and seeing the product come together. From, I mean, I, I did the first Every Day Calendar as a project for Tested, right? And it was just something I did for myself, yeah. And it had 365 switches, which I tried to explore if it would work as a product. But the BOM cost is fucking ridiculous. Like it would be like a $1,000 product because you can't have mechanical switches. Or 365 of anything gets really, really expensive. So yeah, just seeing it come together and kind of developing the use case for it, I really like. I like crafting the message for it and like doing all the graphic design for it as well. I mean, I've always thought of myself as aesthetically challenged but I designed the front board or the front plate of the Every Day Calendar. And
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=N02xowDuu04
 
 [00:22:42] Norm: But we're also, I mean, timing-wise, I think the last time I saw you in person was probably at the Tesla Cybertruck event. It might have been Simone, and that was like right at the when you finished Truckla, right that big kind of victory lap that you did with that, and it felt like you know if there was a time that we have to be locked down, it was after you'd completed that big project, and that felt very very fortunate timing.
 
-[00:23:06] Simone: I mean, that's one of the things I really enjoyed about quarantine because I was really squeamish about driving Truckla, because in part she's really recognizable, and it's like people know that I'm in the car, so if I drive like a dick, they'll know it was me which I try to avoid in general too. But yeah, I mean, I was I didn't really drive her. I mean, I was I wasn't really having—taking her around the city, but when I couldn't take shared rides anymore, then I was really forced to start driving her and kind of breaking that dam or that river. No, breaking that. What am I trying to say? Breaking that barrier,
+[00:23:06] Simone: I mean, that's one of the things I really enjoyed about quarantine because I was really squeamish about driving Truckla, because in part she's really recognizable, and it's like people know that I'm in the car, so if I drive like a dick, they'll know it was me which I try to avoid in general too. But yeah, I mean, I was I didn't really drive her. I mean, I was I wasn't really having - taking her around the city, but when I couldn't take shared rides anymore, then I was really forced to start driving her and kind of breaking that dam or that river. No, breaking that. What am I trying to say? Breaking that barrier,
 
 [00:23:46] Adam: opening the floodgates.
 
@@ -212,9 +212,9 @@ Episode URL: https://www.youtube.com/watch?v=N02xowDuu04
 
 [00:26:31] Adam: Well, it's materials, right? It's making. Yeah, again, every time I'm doing a shop infrastructure build, I'm also secretly thinking this will make it easier to move this whole portion of the shop when that has to happen.
 
-[00:26:43] Simone: Yeah, no, I'm really excited to set up the new shop, and like I want to bring in people to help, like make it as easy as possible to film. Like I wish that there was a way to just push one button and everything was rolling, and the lights, like everything was set up. Because then I mean, I—
+[00:26:43] Simone: Yeah, no, I'm really excited to set up the new shop, and like I want to bring in people to help, like make it as easy as possible to film. Like I wish that there was a way to just push one button and everything was rolling, and the lights, like everything was set up. Because then I mean, I -
 
-[00:27:00] Norm: we talk about that all the time. Yeah, what the—what that would be like? There's no way. I mean there's
+[00:27:00] Norm: we talk about that all the time. Yeah, what the - what that would be like? There's no way. I mean there's
 
 [00:27:05] Adam: no way.
 
@@ -286,11 +286,11 @@ Episode URL: https://www.youtube.com/watch?v=N02xowDuu04
 
 [00:31:42] Adam: Over the years, and they're awful, and I hate the table saw. I love it, and I'm terrified every time I use it.
 
-[00:31:48] Simone: I'm so scared when I use it. I think having a SawStop would help with that fear or just—I mean, kickbacks can still happen, but just knowing that it wouldn't cut my finger off, yeah. But that I really want to get better at that and do some really nice wood projects.
+[00:31:48] Simone: I'm so scared when I use it. I think having a SawStop would help with that fear or just - I mean, kickbacks can still happen, but just knowing that it wouldn't cut my finger off, yeah. But that I really want to get better at that and do some really nice wood projects.
 
 [00:32:06] Adam: Yeah.
 
-[00:32:06] Simone: Yeah, but—
+[00:32:06] Simone: Yeah, but -
 
 [00:32:08] Norm: oh, I want to be Jesse Jesse Pinkman from the end of Breaking Bad. In his head, he's just always doing in that perfect box. Yeah
 

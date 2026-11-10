@@ -216,7 +216,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:07:32] Norm: Ah, yes,
 
-[00:07:34] Adam: The full— is the stained glass knight from Young Sherlock Holmes. But
+[00:07:34] Adam: The full - is the stained glass knight from Young Sherlock Holmes. But
 
 [00:07:37] Norm: the first digital representation of a real person is Peter Fonda in Future World.
 
@@ -736,7 +736,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:31:52] Will: Anthony Hopkins really a robot
 
-[00:31:53] Norm: no well no we'll have a whole separate podcast about whether spoilers and discussions like what the relationship between the viewer and the storytellers are when the storytellers also read the comments like that's a whole deep thing so the prevailing theory And it's been widely—it's like 50-50, 46, 43 right now. Is that
+[00:31:53] Norm: no well no we'll have a whole separate podcast about whether spoilers and discussions like what the relationship between the viewer and the storytellers are when the storytellers also read the comments like that's a whole deep thing so the prevailing theory And it's been widely - it's like 50-50, 46, 43 right now. Is that
 
 [00:32:10] Will: that's too real,
 
@@ -758,7 +758,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:32:21] Norm: is that the storyline that you just got introduced to? William and Logan is actually set 30 years ago, and their interactions with Dolores are in the past, and that one of them becomes the Man in Black.
 
-[00:32:36] Will: That’s—
+[00:32:36] Will: That’s -
 
 [00:32:36] Norm: becomes Ed Harris.
 

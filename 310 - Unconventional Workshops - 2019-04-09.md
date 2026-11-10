@@ -180,15 +180,15 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:08:53] Adam: Go ahead.
 
-[00:08:53] Norm: I mean, especially since for a lot of your process seems like half of a significant portion of it is the digital, right? Where you get no physical tactile iteration; it's just at the computer screen, and that's frustrating. Anyone who works modeling—
+[00:08:53] Norm: I mean, especially since for a lot of your process seems like half of a significant portion of it is the digital, right? Where you get no physical tactile iteration; it's just at the computer screen, and that's frustrating. Anyone who works modeling -
 
-[00:09:10] Adam: it's funny though. When I'm doing organizing and research, I find the computer aspect of researching and refining and coming up with plans of attack just as satisfying as the actual making of stuff. But it—
+[00:09:10] Adam: it's funny though. When I'm doing organizing and research, I find the computer aspect of researching and refining and coming up with plans of attack just as satisfying as the actual making of stuff. But it -
 
 [00:09:23] Norm: that's a different part of the digital. Yeah, that's.
 
 [00:09:25] Adam: I will tell you, there's a dirty secret about creation, which is that those those moments of elation, they only get farther apart, specifically because the better you get, the more you demand of yourself, the more you pursue excellence, the more you have to confront all of your own spielkas, all of your own stuff, and it means that those Those high points are even more satisfying, and in the middle, you kind of develop the ability to muscle through all that shit. I mean, it's just there's no way around it. Like everyone, nobody escapes from that line. There's nobody who's just like every day is an unfettered joy. There's none of that. There's nobody who has time to just work in their shop all the time. You get a big shop, you've got to sudden somehow fund it, so you got to do work out of it. You got to bring people in. You don't have enough time to complete all the projects. You've got to collaborate. There's always something that feels less than perfect, but that's the nature of making anything.
 
-[00:10:24] Melissa: And I feel like you know a lot of people think, well, I should be always wired and be be positive all the time. And I feel like that's great. It'd be great if we—
+[00:10:24] Melissa: And I feel like you know a lot of people think, well, I should be always wired and be be positive all the time. And I feel like that's great. It'd be great if we -
 
 [00:10:33] Adam: Wouldn't it?
 
@@ -206,17 +206,17 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:11:25] Melissa: Yeah, I feel bad. I feel bad about feeling bad, and then I feel worse because I I tell myself I shouldn't worry, and then I worry about worrying, and then it just becomes this awful cycle.
 
-[00:11:34] Adam: Yeah. Oh, those spirals—they're delightful. Yeah. No, look, I mean, the best part is I appreciate you're talking about them because I really think that it's important to be open about how difficult the process is. Nobody, nobody escapes from it being difficult. There's no amount of circumstance that suddenly turns it all into an unalloyed pleasure, and it's not because of anything that we lack or the nature of people. It's just that you're creating something from nothing, and when you're doing that, you're. It's a confrontational art.
+[00:11:34] Adam: Yeah. Oh, those spirals - they're delightful. Yeah. No, look, I mean, the best part is I appreciate you're talking about them because I really think that it's important to be open about how difficult the process is. Nobody, nobody escapes from it being difficult. There's no amount of circumstance that suddenly turns it all into an unalloyed pleasure, and it's not because of anything that we lack or the nature of people. It's just that you're creating something from nothing, and when you're doing that, you're. It's a confrontational art.
 
 [00:12:06] Kayte: Well, something I have found about it that is actually a really great balance is that when you're going after it and you're doing this to find your happiness or because it makes you happy, you'll have these down times, and it starts to weigh on you, thinking like, No, all I'm looking for is like to do what I want. But on the other hand, when something really bad happens in your life, and when you're struggling, and you have that to turn to, it becomes your antidepressant. Like it becomes your boost, and all of a sudden, you're getting much more done than you ever thought you could. And it's like by the time you pause and look around, you realize you've gotten through whatever that hard thing was. So like each time I've struggled with something in my personal life. It's like turning to your craft and your art is such a great motivator, and I feel like I've met a lot of really successful hyper creative people who have said like this is how you stay sane, like having that outlet.
 
-[00:13:03] Adam: There's a wonderful story that Baba Ram Dass tells about having been in an ashram in India when his mother died, and flying back to the states dressed in robes of a monk, and he sees his dad who's like a Republican businessman, and his dad and he have no idea how to talk to each other, and they certainly have no idea how to help each other through the grief of his mother and his wife dying. And Ram Dass is in the house for a couple of days when he initiates with his dad to take care of some canning that his mom hadn't gotten to yet, canning a bunch of food that she'd prepared, and after about a day of it, looking up and seeing his dad. Genuinely smiling at the work they were doing together—that just that labor in the face of something that you can't process or that you need time to figure out a way through—is really, really healing.
+[00:13:03] Adam: There's a wonderful story that Baba Ram Dass tells about having been in an ashram in India when his mother died, and flying back to the states dressed in robes of a monk, and he sees his dad who's like a Republican businessman, and his dad and he have no idea how to talk to each other, and they certainly have no idea how to help each other through the grief of his mother and his wife dying. And Ram Dass is in the house for a couple of days when he initiates with his dad to take care of some canning that his mom hadn't gotten to yet, canning a bunch of food that she'd prepared, and after about a day of it, looking up and seeing his dad. Genuinely smiling at the work they were doing together - that just that labor in the face of something that you can't process or that you need time to figure out a way through - is really, really healing.
 
 [00:13:59] Kayte: Yeah, definitely.
 
 [00:14:01] Adam: What is I? Kayte, I don't know what your home workshop space is like
 
-[00:14:05] Kayte: Actually, I was—
+[00:14:05] Kayte: Actually, I was -
 
 [00:14:06] Adam: or if it exists.
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:16:38] Norm: And they don't come out from the wall a lot
 
-[00:16:40] Adam: because no, no, he's got shallow shelves. He's got like eight inch deep, but it gives him. This is the problem: is committing to a—
+[00:16:40] Adam: because no, no, he's got shallow shelves. He's got like eight inch deep, but it gives him. This is the problem: is committing to a -
 
 [00:16:46] Kayte: 'Cause you're constantly rearranging. Yeah, every time, like every time you see one of those beautiful pegboards, and there's the outline of every tool, and I'm sitting there going. What happens when I get a new tool? Like, I've committed already. This is my only layout I'm allowed to have. So, how do you change that? I like being able to add.
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:32:53] Kayte: I always thought was a graphic, and you blew my mind and told me it was a basketball prop.
 
-[00:32:59] Norm: Yeah, I love like these random things, things that like are embedded and associated in your brain. Like even the bokeh in the back—that's all just painted.
+[00:32:59] Norm: Yeah, I love like these random things, things that like are embedded and associated in your brain. Like even the bokeh in the back - that's all just painted.
 
 [00:32:59] Kayte: Wow,
 

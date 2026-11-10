@@ -44,7 +44,7 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:01:09] Will: I brought it was a mistake of my own making. But that doesn't make me any less tired this morning.
 
-[00:01:13] Norm: 12:30—that's time for second dinner.
+[00:01:13] Norm: 12:30 - that's time for second dinner.
 
 [00:01:15] Adam: Second breakfast.
 
@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:01:24] Will: However,
 
-[00:01:24] Adam: however, so when I when when my boys were really young, my my their mom and I—that's the fine way to say that—had a oh sorry,
+[00:01:24] Adam: however, so when I when when my boys were really young, my my their mom and I - that's the fine way to say that - had a oh sorry,
 
 [00:01:24] Will: you're okay.
 
@@ -512,7 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:25:36] Will: because I mean,
 
-[00:25:36] Adam: so Mike Elizalde told me that the one thing they had been told was, " It's not going to be raining when we're filming with this glove." And they arrive in—I don't think they shot in Scotland. I think they shot in Budapest or over there in Eastern Europe, somewhere. Of course, pouring rain for the entire sequence.
+[00:25:36] Adam: so Mike Elizalde told me that the one thing they had been told was, " It's not going to be raining when we're filming with this glove." And they arrive in - I don't think they shot in Scotland. I think they shot in Budapest or over there in Eastern Europe, somewhere. Of course, pouring rain for the entire sequence.
 
 [00:25:54] Will: soaking. Yeah.
 

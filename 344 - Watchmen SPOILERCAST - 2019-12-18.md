@@ -340,7 +340,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:11:48] Norm: exactly. And this touched on many of those things, but did it for 2019.
 
-[00:11:53] Will: Yeah, well, fear of the—I mean, the one common thread is that both of these are about fear, about people fearing things, about fearing, fearing the
+[00:11:53] Will: Yeah, well, fear of the - I mean, the one common thread is that both of these are about fear, about people fearing things, about fearing, fearing the
 
 [00:12:01] Norm: well. So, so
 
@@ -876,7 +876,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:39:07] Norm: Well, having superhero or being a superhero and having kids are incompatible.
 
-[00:39:12] Will: Well, she—I mean, she didn't start out to have kids,
+[00:39:12] Will: Well, she - I mean, she didn't start out to have kids,
 
 [00:39:14] Norm: Right. And That's what she wanted all along. It's Winston from Ghostbusters.
 

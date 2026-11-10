@@ -548,7 +548,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:23:48] Norm: Wow.
 
-[00:23:48] Adam: The set of the Kim family—that entire street is a set.
+[00:23:48] Adam: The set of the Kim family - that entire street is a set.
 
 [00:23:53] Norm: Yeah.
 
@@ -1028,7 +1028,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:42:22] Norm: Yeah.
 
-[00:42:23] Adam: I. I. I'm so excited that. There are still so many places to find thrills and weirdness and awesomeness in filmmaking, especially from corners that you don't necessarily expect. Bong Joon Ho has always made films that subvert expectations, and this is an—I just can't wait to see what he does next.
+[00:42:23] Adam: I. I. I'm so excited that. There are still so many places to find thrills and weirdness and awesomeness in filmmaking, especially from corners that you don't necessarily expect. Bong Joon Ho has always made films that subvert expectations, and this is an - I just can't wait to see what he does next.
 
 [00:42:45] Will: That sounds like as good a place as any to
 

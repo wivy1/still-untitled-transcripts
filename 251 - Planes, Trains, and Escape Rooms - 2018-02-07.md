@@ -400,13 +400,13 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:12:49] Norm: So San Francisco to Seattle is the same one, the Coast Starlight.
 
-[00:12:52] Adam: Yeah, and we and that it's beautiful up through up up from here up north, and it's like 21 hours, and we've spent. 10 days in Seattle. This is back on our honeymoon, and at the end of our trip, we both had the same feeling, which was, " Yay! Tomorrow we have a 21 hour train ride." Like we were psyched about it because it is—it's—it's the, it's that whole thing. It's the social aspect, the fact that for most train rides that are of a long distance, the view out the window is actually pretty similar to what it was 100 years ago.
+[00:12:52] Adam: Yeah, and we and that it's beautiful up through up up from here up north, and it's like 21 hours, and we've spent. 10 days in Seattle. This is back on our honeymoon, and at the end of our trip, we both had the same feeling, which was, " Yay! Tomorrow we have a 21 hour train ride." Like we were psyched about it because it is - it's - it's the, it's that whole thing. It's the social aspect, the fact that for most train rides that are of a long distance, the view out the window is actually pretty similar to what it was 100 years ago.
 
 [00:13:24] Norm: That's right,
 
 [00:13:24] Adam: and that's thrilling to me. That feels like an incredible way to see America and to experience the country.
 
-[00:13:30] Norm: Could not recommend it enough. Even with this car leaving the service, it's still a wonderful journey. And the train enthusiasts we talked to—they said this car made it this route. This parlor car made this route the best, the favorite route. But second, if you're going for the views, it is what you're talking about—the Rockies and San Francisco to Denver, then to Chicago—is the California Zephyr. It's two and a half days. If you just want to do, because it gets expensive if you want to do the sleeper car. Just from San Francisco to Denver, or actually from Denver to San Francisco,
+[00:13:30] Norm: Could not recommend it enough. Even with this car leaving the service, it's still a wonderful journey. And the train enthusiasts we talked to - they said this car made it this route. This parlor car made this route the best, the favorite route. But second, if you're going for the views, it is what you're talking about - the Rockies and San Francisco to Denver, then to Chicago - is the California Zephyr. It's two and a half days. If you just want to do, because it gets expensive if you want to do the sleeper car. Just from San Francisco to Denver, or actually from Denver to San Francisco,
 
 [00:14:08] Adam: yeah,
 

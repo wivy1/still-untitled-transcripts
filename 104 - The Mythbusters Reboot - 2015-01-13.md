@@ -302,7 +302,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:14:12] Will: it's very scary. Oh yeah,
 
-[00:14:14] Norm: those things—they're not toys.
+[00:14:14] Norm: those things - they're not toys.
 
 [00:14:15] Adam: They are not toys, not at all.
 
@@ -316,7 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:15:36] Norm: You can shoot different shutters. You can show particles flying everywhere. Different frame rates to slow down at certain parts.
 
-[00:15:43] Adam: Exactly. So one of the things that we'll do that we that we've been doing is like for the toilets, we shot those toilets in a day, the scale toilets in a day in the shop, and then. Jamie and I went out and started building the large scale toilet, but we didn't bring the whole camera crew. We left—I can't remember who it was. We left one camera and one of our shop guys back in the shop to keep doing toilet explosions to get a whole bunch more really juicy high speeds of the water moving. That's how those come out because each one of those takes a lot of time to set up. You’ve got to color the water, and you got to get the lights ready.
+[00:15:43] Adam: Exactly. So one of the things that we'll do that we that we've been doing is like for the toilets, we shot those toilets in a day, the scale toilets in a day in the shop, and then. Jamie and I went out and started building the large scale toilet, but we didn't bring the whole camera crew. We left - I can't remember who it was. We left one camera and one of our shop guys back in the shop to keep doing toilet explosions to get a whole bunch more really juicy high speeds of the water moving. That's how those come out because each one of those takes a lot of time to set up. You’ve got to color the water, and you got to get the lights ready.
 
 [00:16:22] Will: And then you got to clean up afterwards,
 

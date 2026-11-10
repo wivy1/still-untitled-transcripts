@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:05:47] Adam: It was more about the soul of the recording and his stance, which is lovely and poetic, is that when the needle never lifts, you are getting something much more directly. Akin to what was being recorded,
 
-[00:05:59] Will: I and and look, I I can see that, right? You like you're at some point. It's it's the what's the prob— what's the logic problem where you have to walk half the distance to the thing and you're not.
+[00:05:59] Will: I and and look, I I can see that, right? You like you're at some point. It's it's the what's the prob- what's the logic problem where you have to walk half the distance to the thing and you're not.
 
 [00:05:59] Adam: Oh, you [unclear: can walk / can’t do]. Nothing ever hits the ground.
 
@@ -250,7 +250,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:09:34] Adam: And Jack's obsessed with that technology. The oldest technology. It has a lineage and an import to him and to the stuff that he does that is really really cool because he's breathing, breathing breath back into this like humans did this. You don't just speak into a black box and hear it later from black headphones. It is. These sounds have a history, and the way we've recorded them has a history. And it’s beautiful.
 
-[00:09:58] Will: There's an intrinsic nature to the sound. That's rad. That's so— I'm so glad you went there. I'm so excited.
+[00:09:58] Will: There's an intrinsic nature to the sound. That's rad. That's so - I'm so glad you went there. I'm so excited.
 
 [00:09:58] Adam: It was the best.
 
@@ -550,7 +550,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:20:17] Will: delightful nerd.
 
-[00:20:18] Norm: The build video—it's an hour long, but it's like maybe 60% of it is about the Kendama and the build. The other 40% is just watching you guys hang out and ask each other questions and go into deep, random, tangential deep dives into things like the napkin
+[00:20:18] Norm: The build video - it's an hour long, but it's like maybe 60% of it is about the Kendama and the build. The other 40% is just watching you guys hang out and ask each other questions and go into deep, random, tangential deep dives into things like the napkin
 
 [00:20:34] Adam: ring, napkin ring paradox. Man, we’re totally gonna. Okay, the napkin ring paradox. You ready to have your mind blown?
 
@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:21:59] Norm: Not the mass, the volume.
 
-[00:21:59] Will: No, no, I mean the volume inside the circle or—
+[00:21:59] Will: No, no, I mean the volume inside the circle or -
 
 [00:21:59] Norm: the volume of the strip,
 
@@ -948,7 +948,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:30:14] Adam: Wow. Well, there you go.
 
-[00:30:14] Norm: Completely tied into—
+[00:30:14] Norm: Completely tied into -
 
 [00:30:27] Adam: I mean, he's totally plugged into Bourdain because Cannavale, Bobby Cannavale, he's totally playing Bourdain
 

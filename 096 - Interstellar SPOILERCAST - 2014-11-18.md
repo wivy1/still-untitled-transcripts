@@ -16,7 +16,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:00:10] Will: I wanted to do a woo!
 
-[00:00:11] Adam: Across the thing. A little Doppler effect. We—it's a spoiler cast today.
+[00:00:11] Adam: Across the thing. A little Doppler effect. We - it's a spoiler cast today.
 
 [00:00:13] Will: Yeah.
 
@@ -24,11 +24,11 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:00:18] Norm: People have been waiting for this one.
 
-[00:00:20] Will: We—I wanted to warn you, spoiler casts. We got more requests for this than anything since I thought we got a lot of requests for spoiler casts from Guardians of the Galaxy, but that was nothing compared to this.
+[00:00:20] Will: We - I wanted to warn you, spoiler casts. We got more requests for this than anything since I thought we got a lot of requests for spoiler casts from Guardians of the Galaxy, but that was nothing compared to this.
 
 [00:00:31] Adam: Well, we're working harder nowadays to get out and do the spoiler casts for important events, and this one was definitely worth it.
 
-[00:00:39] Norm: We had to make—we had to watch a movie.
+[00:00:39] Norm: We had to make - we had to watch a movie.
 
 [00:00:40] Will: It's the only reason I go to movies in theaters now is that somebody wants a spoiler cast. So here we are.
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:14:41] Adam: Well, Inception was just really enjoyable.
 
-[00:14:45] Norm: The point of Inception was to let go. Was—
+[00:14:45] Norm: The point of Inception was to let go. Was -
 
 [00:14:48] Adam: I enjoyed Inception immensely, and
 
@@ -524,7 +524,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:18:48] Will: the tesseract.
 
-[00:18:49] Adam: Yeah, all of that stuff. All the space stuff, every last bit of it—from the thing moving across Saturn to clouds that you can break off chunks of, to the planet surfaces, to the black hole and the wormhole—all that stuff, worth going to this movie for. Totally.
+[00:18:49] Adam: Yeah, all of that stuff. All the space stuff, every last bit of it - from the thing moving across Saturn to clouds that you can break off chunks of, to the planet surfaces, to the black hole and the wormhole - all that stuff, worth going to this movie for. Totally.
 
 [00:19:07] Norm: In IMAX 70 millimeters.
 
@@ -638,7 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:22:47] Norm: all women,
 
-[00:22:50] Adam: Because—right.
+[00:22:50] Adam: Because - right.
 
 [00:22:51] Norm: And it sucks.
 
@@ -658,7 +658,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:23:21] Norm: Yes. Oh, it looks terrible. Oh my god,
 
-[00:23:24] Adam: I don't know. Apparently, I was talking to one of the actors, and he said they had a lot of fun. It's called—got the greatest name—Galavant.
+[00:23:24] Adam: I don't know. Apparently, I was talking to one of the actors, and he said they had a lot of fun. It's called - got the greatest name - Galavant.
 
 [00:23:30] Will: Wow.
 

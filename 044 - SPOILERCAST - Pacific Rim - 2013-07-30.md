@@ -398,7 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:14:51] Will: had the things. Yeah.
 
-[00:14:53] Adam: I also loved. There's a scene where Mako and Charlie Hunnam are talking, and in the background, Gipsy Danger—it's a great name—is having its chest reattached, and you see the backside of it. From an engineering perspective, they really worked hard to create a narrative of construction and design on the thing that would hold up to some scrutiny.
+[00:14:53] Adam: I also loved. There's a scene where Mako and Charlie Hunnam are talking, and in the background, Gipsy Danger - it's a great name - is having its chest reattached, and you see the backside of it. From an engineering perspective, they really worked hard to create a narrative of construction and design on the thing that would hold up to some scrutiny.
 
 [00:15:19] Will: Well, they felt like real things that would actually work in the real world, even though there's, you know, what 120 foot tall robot is
 
@@ -450,7 +450,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:17:49] Will: Yeah.
 
-[00:17:49] Adam: Right. So they have a Tremendous amount of intellectual understanding of how to clothe people in armor in ways where the actors don't like start to freak out after a couple of hours, and keep them light, keep them easy to make. The Russian suits—I don't know if you remember in the film, this thing comes down, so the actors. There were two helmets, one that that active actively moved on, and then as soon as that shot was done, they gave the actors actual video goggles so they could see what was going on. At Comic Con, I ran into the guy that played Charlie's brother in the opening scene, the one who gets plucked out, and he was telling me that those that gimbal rig that they were riding on,
+[00:17:49] Adam: Right. So they have a Tremendous amount of intellectual understanding of how to clothe people in armor in ways where the actors don't like start to freak out after a couple of hours, and keep them light, keep them easy to make. The Russian suits - I don't know if you remember in the film, this thing comes down, so the actors. There were two helmets, one that that active actively moved on, and then as soon as that shot was done, they gave the actors actual video goggles so they could see what was going on. At Comic Con, I ran into the guy that played Charlie's brother in the opening scene, the one who gets plucked out, and he was telling me that those that gimbal rig that they were riding on,
 
 [00:18:35] Will: and all of the all of that
 
@@ -534,13 +534,13 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:22:42] Will: geez, Adam.
 
-[00:22:43] Adam: Sorry. The exo—I have to say, my favorite exo suits though are the white ones.
+[00:22:43] Adam: Sorry. The exo - I have to say, my favorite exo suits though are the white ones.
 
 [00:22:48] Will: The white ones are gorgeous.
 
 [00:22:50] Norm: And the fact that the water filling up.
 
-[00:22:52] Adam: the fluid. Yeah, that was neat. The double visor—I love that bit. The weird yellow water coming down—
+[00:22:52] Adam: the fluid. Yeah, that was neat. The double visor - I love that bit. The weird yellow water coming down -
 
 [00:22:58] Will: it was supposed to be some sort of like. It doesn't even matter. It just looked cool.
 

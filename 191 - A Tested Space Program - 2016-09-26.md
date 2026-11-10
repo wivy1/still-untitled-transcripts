@@ -34,7 +34,7 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:01:51] Will: Oh, Norm.
 
-[00:01:52] Norm: [unclear: been / It was] — it's much bigger.
+[00:01:52] Norm: [unclear: been / It was] - it's much bigger.
 
 [00:01:54] Adam: Yeah,
 
@@ -346,7 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:21:05] Norm: And both from the performance, from the astronauts who are on the mission to the people watching it mirrors everything that you would feel. What the astronauts would feel, or us watching NASA missions would feel.
 
-[00:21:15] Adam: Absolutely, and the astronauts get cranky. Those they wore [unclear: the— / …]
+[00:21:15] Adam: Absolutely, and the astronauts get cranky. Those they wore [unclear: the - / …]
 
 [00:21:20] Will: I’m sure. Yeah.
 

@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:07:13] Adam: Okay.
 
-[00:07:13] Will: I I'm a late. I was a late entry to comic books. Like we, my father had a big box of like '50s era Batman's Detective Comics, I guess, and stuff like that that were you know had been obviously much loved and read as a child. Yeah. But like I, I didn't. I grew up in the. I was living in a rural area, so I didn't have a like a corner store. I could go down and pick up the weekly comic books at. And they. I don't think they even sold them in the grocery store, which is weird, I guess. So I, I didn't really get into comics until I was an adult, fully like the Watchmen. Somebody, somebody loaned me a copy of Dark Knight Rises, and I was like, " This is amazing. Why have I not been — Returns. Sorry. See, I told you I'm terrible at this.
+[00:07:13] Will: I I'm a late. I was a late entry to comic books. Like we, my father had a big box of like '50s era Batman's Detective Comics, I guess, and stuff like that that were you know had been obviously much loved and read as a child. Yeah. But like I, I didn't. I grew up in the. I was living in a rural area, so I didn't have a like a corner store. I could go down and pick up the weekly comic books at. And they. I don't think they even sold them in the grocery store, which is weird, I guess. So I, I didn't really get into comics until I was an adult, fully like the Watchmen. Somebody, somebody loaned me a copy of Dark Knight Rises, and I was like, " This is amazing. Why have I not been - Returns. Sorry. See, I told you I'm terrible at this.
 
 [00:07:51] Adam: Well, Dark Knight Returns, Dark Knight Rises is the last.
 
@@ -240,7 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:09:32] Norm: they blow it up because the comics are drawn at the big at that size.
 
-[00:09:36] Will: When they re— do they recolor like there's the coloring is better on that stuff, it seems like,
+[00:09:36] Will: When they re- do they recolor like there's the coloring is better on that stuff, it seems like,
 
 [00:09:39] Adam: They do some recolor. Sometimes,
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:10:40] Unknown speaker: Fuck, yes.
 
-[00:10:40] Norm: Batman— and Robin, Batman Forever.
+[00:10:40] Norm: Batman - and Robin, Batman Forever.
 
 [00:10:43] Will: Holy rusted metal island, and it's a
 
@@ -308,7 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:11:26] Adam: Well, he did, and he actually quoted Harry Knowles from " Ain't It Cool?" saying, " Someone needs to give Joel Schumacher a smack," and Schumacher was like, " I agree, I needed a smack back then. I don't know why I put nipples on the bat suit."
 
-[00:11:40] Will: Oh, that was the least of the crimes. I mean, let's be— okay, anyway. Sorry,
+[00:11:40] Will: Oh, that was the least of the crimes. I mean, let's be - okay, anyway. Sorry,
 
 [00:11:43] Norm: I'm putting it back into focus.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:17:50] Norm: Talk to him about it.
 
-[00:17:52] Will: It's like—
+[00:17:52] Will: It's like -
 
 [00:17:52] Adam: that's I mean that's really cool about Comic Con. I love that.
 
@@ -468,7 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:19:08] Will: The other one that I I know falls in for me fell in the there'll be water if God wills it kind of way. They come when they come. Was Planetary.
 
-[00:19:18] Norm: Same writer. So Warren Ellis, 26 issues, and that's the one that came out. A year like took it took fi— five years for
+[00:19:18] Norm: Same writer. So Warren Ellis, 26 issues, and that's the one that came out. A year like took it took fi-five years for
 
 [00:19:25] Adam: wow
 
@@ -514,7 +514,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:21:16] Adam: Also, Bill Sienkiewicz, the illustrator. Yeah.
 
-[00:21:20] Norm: So you fol— you follow artists and writers?
+[00:21:20] Norm: So you fol- you follow artists and writers?
 
 [00:21:21] Adam: I look for very specific things, and just like movies, I'm not interested in just pretty stuff. Oh, I also love all of the Joss Whedon Buffy stuff. I think is fantastic.
 
@@ -572,7 +572,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:23:09] Adam: What's that?
 
-[00:23:09] Norm: He's the lead writer on Stephen King's Under a Dome. He wrote the pilot episode. He— great, great comic book writer. He also did this series called Ex Machina about the mayor of New York who can talk to machines. And a big twist in issue one is he stopped the second plane in 9/11. Which was crazy!
+[00:23:09] Norm: He's the lead writer on Stephen King's Under a Dome. He wrote the pilot episode. He - great, great comic book writer. He also did this series called Ex Machina about the mayor of New York who can talk to machines. And a big twist in issue one is he stopped the second plane in 9/11. Which was crazy!
 
 [00:23:28] Adam: Wow, Alternate history.
 
@@ -662,7 +662,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:25:56] Will: Yeah, that's a Sarah Silverman joke.
 
-[00:25:57] Adam: I liked re— I read an early review of 300, which by the way I loved, and is totally indefensible.
+[00:25:57] Adam: I liked re- I read an early review of 300, which by the way I loved, and is totally indefensible.
 
 [00:26:03] Will: Yeah,
 
@@ -906,7 +906,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:33:58] Adam: Yeah.
 
-[00:33:58] Will: See that—that's—that is to me as Cheers is to as to Norm as Cheers is to me, the sitcom that you were too young for.
+[00:33:58] Will: See that - that's - that is to me as Cheers is to as to Norm as Cheers is to me, the sitcom that you were too young for.
 
 [00:34:06] Adam: Ah.
 

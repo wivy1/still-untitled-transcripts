@@ -314,7 +314,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:14:19] Will: Yeah, and and as a result, InDesign is a much more powerful tool than those versions. I mean, plus 20 years, but but it was a painful process for all the people mired in the old.
 
-[00:14:30] Adam: Moving a text box and wrapping around a photo is—I don't know how to do it. I mean, I'll figure it out at some point.
+[00:14:30] Adam: Moving a text box and wrapping around a photo is - I don't know how to do it. I mean, I'll figure it out at some point.
 
 [00:14:36] Will: No, if you need to, if you don't, also that's fine.
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:18:17] Adam: It is, and you really see it. And I think it's a lovely way to see the world. One of the things about graphic design, and it still holds for digital, is in order to lay out a page. Let's just say you're laying out a single page in order so that it communicates what you wanted to communicate. You go through these layers, right? You have the information, and you slam it down, and then you've got the and the information includes words and pictures, and then there's this point at which you have to kind of see if it works at a distance, and it like you have to interface with it as a physical body, and you know I always start my designs with literal pencil sketches in terms of the weights of the proportions of the page, and just that exercise made me a far better model model maker when I started doing model making because again of that balance. And I remember my father, who was a painter, worked really hard to see. Different aspects of the of how the formal elements of his paintings work together. So he would not only look at them from a distance; he'd walk to the other side of his studio. He'd also turn them upside down. Oh. He'd also walk to the other side of his studio and look at a painting in a mirror to get like double the throw, and just again to see if these elements are balancing each other.
 
-[00:19:32] Norm: The literal lens in which most of you know media is consumed today—smartphones and cameras. Like that's why whenever we do model making or sculpting projects, we do stuff with Frank. Just every so often, take a step back, take a photo with your phone.
+[00:19:32] Norm: The literal lens in which most of you know media is consumed today - smartphones and cameras. Like that's why whenever we do model making or sculpting projects, we do stuff with Frank. Just every so often, take a step back, take a photo with your phone.
 
 [00:19:32] Adam: Yeah.
 
@@ -534,7 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:26:12] Norm: Really,
 
-[00:26:12] Adam: I'll wager. And then the fact that— I mean, I don't begrudge that. I don't begrudge that at all. If I was him up on that mountain, I would get that shot too because you need the storytelling.
+[00:26:12] Adam: I'll wager. And then the fact that - I mean, I don't begrudge that. I don't begrudge that at all. If I was him up on that mountain, I would get that shot too because you need the storytelling.
 
 [00:26:34] Norm: And every oh, you mean they refilmed it in that moment?
 
@@ -662,7 +662,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:30:10] Will: I found it utterly charming.
 
-[00:30:16] Adam: The fight scene with the five guys—one of my favorite fight scenes in movies.
+[00:30:16] Adam: The fight scene with the five guys - one of my favorite fight scenes in movies.
 
 [00:30:19] Will: It it's one of those ones that it does the thing that Hollywood movies do in fight scenes, where there's cuts away after the hits and stuff like that. But it also doesn't look like they cheated.
 
@@ -702,7 +702,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:32:30] Will: I never saw that.
 
-[00:32:31] Adam: Oh, it's a beautiful, beautiful early Duvall film with Tess Harper. I believe his daughter is played by a super young Ellen Barkin, who's like 18 at the time the movie came out, and he plays a drunken singer who kind of hits bottom and wakes up in a motel in Texas run by Tess Harper and stays, and that's about it. That's that's about the plot of the movie, but it's Really beautiful, really important. As my as my dad said, it reminded him of what growing up in Texas was like—miles and miles of nothing but miles and miles.
+[00:32:31] Adam: Oh, it's a beautiful, beautiful early Duvall film with Tess Harper. I believe his daughter is played by a super young Ellen Barkin, who's like 18 at the time the movie came out, and he plays a drunken singer who kind of hits bottom and wakes up in a motel in Texas run by Tess Harper and stays, and that's about it. That's that's about the plot of the movie, but it's Really beautiful, really important. As my as my dad said, it reminded him of what growing up in Texas was like - miles and miles of nothing but miles and miles.
 
 [00:33:07] Norm: Any other recommendations? I think
 

@@ -224,11 +224,11 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:11:37] Norm: no,
 
-[00:11:38] Adam: they did a tremendous job at building a really exciting narrative about the whole history of the Apollo space program using countdown clocks and archival footage and all the supporting material on side projections that were on, plus an incredible sound system. So at the end of the gala on Friday night, there were performances at 9:30, 10:30, 11:30. And I think 12:30. Yes, as well. So we saw the 10:30, 11:30, 12:30. So I had to leave the gala in my full tux, meet up with the tested crew, who had my spacesuit, and I didn't have anything interim. All I had was the tux or the A seven L. And I'm all so I'm sitting in the bleachers, watching the performance in my tux, and everyone's like, and sometimes if you don't move too, if you don't start sweating, yeah, you can kind of maintain, yeah. So I'm in the tux. I'm moving sort of slowly, and after about half an hour, I saw Michael Giacchino, and he was like, " Aren't you sweating balls in that thing?" And I'm like, " Actually, no." And I'm kind of like getting off on looking this good in this heat, just wearing the full tux. One of the Nick, one of the organizers of this entire event went and found me a Apollo 50th t shirt, so I was able to wear that under the spacesuit, and we got some pictures of me. Right up next to the rocket, down there on the mall. That was just—I mean, we were up until like 1:30 in the morning, two in the morning.
+[00:11:38] Adam: they did a tremendous job at building a really exciting narrative about the whole history of the Apollo space program using countdown clocks and archival footage and all the supporting material on side projections that were on, plus an incredible sound system. So at the end of the gala on Friday night, there were performances at 9:30, 10:30, 11:30. And I think 12:30. Yes, as well. So we saw the 10:30, 11:30, 12:30. So I had to leave the gala in my full tux, meet up with the tested crew, who had my spacesuit, and I didn't have anything interim. All I had was the tux or the A seven L. And I'm all so I'm sitting in the bleachers, watching the performance in my tux, and everyone's like, and sometimes if you don't move too, if you don't start sweating, yeah, you can kind of maintain, yeah. So I'm in the tux. I'm moving sort of slowly, and after about half an hour, I saw Michael Giacchino, and he was like, " Aren't you sweating balls in that thing?" And I'm like, " Actually, no." And I'm kind of like getting off on looking this good in this heat, just wearing the full tux. One of the Nick, one of the organizers of this entire event went and found me a Apollo 50th t shirt, so I was able to wear that under the spacesuit, and we got some pictures of me. Right up next to the rocket, down there on the mall. That was just - I mean, we were up until like 1:30 in the morning, two in the morning.
 
 [00:13:05] Will: How long did the show? The show ran for a couple hours, right?
 
-[00:13:08] Adam: No, the show. So the show—the actual projection show was like—I want to say like 10 minutes.
+[00:13:08] Adam: No, the show. So the show - the actual projection show was like - I want to say like 10 minutes.
 
 [00:13:08] Will: Oh, really?
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:13:40] Adam: hasn't it?
 
-[00:13:40] Will: Like they've—they so basically what they've been doing is is posting mostly just transcripts of the communication back and forth between Capcom and the command module and the LM, yeah, and and over the entire run of like in the weeks leading up, it was about training. Once the launch happened, it started being transcripts. And last night they they got to the point where they you know shot theLEM back into the moon,
+[00:13:40] Will: Like they've - they so basically what they've been doing is is posting mostly just transcripts of the communication back and forth between Capcom and the command module and the LM, yeah, and and over the entire run of like in the weeks leading up, it was about training. Once the launch happened, it started being transcripts. And last night they they got to the point where they you know shot theLEM back into the moon,
 
 [00:13:40] Adam: Right.
 
@@ -402,7 +402,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:24:07] Adam: I want to build some more. Oh yeah! I first of all, I definitely
 
-[00:24:07] Norm: You need a hatch—
+[00:24:07] Norm: You need a hatch -
 
 [00:24:07] Adam: this whole project exists because I wanted my own hatch.
 

@@ -20,9 +20,9 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:00:30] Adam: This is
 
-[00:00:30] Will: I—people love this. This is going to be great. I can't wait to read the comments on this one.
+[00:00:30] Will: I - people love this. This is going to be great. I can't wait to read the comments on this one.
 
-[00:00:34] Norm: Well, it's because people—
+[00:00:34] Norm: Well, it's because people -
 
 [00:00:35] Adam: It's a big franchise movie coming out next summer.
 
@@ -60,7 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:01:13] Will: Oh yeah.
 
-[00:01:14] Adam: No, I double tap on the beat. Everything gets a double tap because you never—
+[00:01:14] Adam: No, I double tap on the beat. Everything gets a double tap because you never -
 
 [00:01:17] Will: Really? Well, there's a penalty for accuracy.
 
@@ -340,7 +340,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:11:51] Adam: yes, we did, and we did a we did. Yeah.
 
-[00:11:54] Will: I need— Can I come in and make a set of?
+[00:11:54] Will: I need - Can I come in and make a set of?
 
 [00:11:55] Norm: That's all I'll say.
 
@@ -562,7 +562,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:22:23] Will: Oh, I didn't know he was in that. I haven't watched it yet.
 
-[00:22:25] Adam: Not only is Billy Crudup in it, but in a roster of terrific actors: Mark Duplass, Steve Carell, Jennifer Aniston, Reese Witherspoon. Billy Crudup is like. He's in almost in a different show, and it's so much fun to watch him go. He is Billy Crudup has played some great villains over the years. In this specific role, he is leaning out over his villainy with a glee that is sheer delight—it's a delight to watch.
+[00:22:25] Adam: Not only is Billy Crudup in it, but in a roster of terrific actors: Mark Duplass, Steve Carell, Jennifer Aniston, Reese Witherspoon. Billy Crudup is like. He's in almost in a different show, and it's so much fun to watch him go. He is Billy Crudup has played some great villains over the years. In this specific role, he is leaning out over his villainy with a glee that is sheer delight - it's a delight to watch.
 
 [00:22:53] Will: Yeah,
 
@@ -618,7 +618,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:26:36] Will: Yeah.
 
-[00:26:36] Adam: And There's a turn in the scene, and the turn—I'm getting chills just thinking about it. The turn in the scene that both of them—it's like because they're comedians, they have explored within an art form that has—immediately had an immediate stakes. People laugh or they don't laugh, depending on how good you served the joke. And those stakes, I think, make comedians truly great actors because they understand within the narrative arc of a set of lines where the turn is, where the punch is, where your emotional arc is going to be. And watching the two of them talk is chilling.
+[00:26:36] Adam: And There's a turn in the scene, and the turn - I'm getting chills just thinking about it. The turn in the scene that both of them - it's like because they're comedians, they have explored within an art form that has - immediately had an immediate stakes. People laugh or they don't laugh, depending on how good you served the joke. And those stakes, I think, make comedians truly great actors because they understand within the narrative arc of a set of lines where the turn is, where the punch is, where your emotional arc is going to be. And watching the two of them talk is chilling.
 
 [00:27:13] Will: It's the difference, like the difference in cadence between a huge audience laugh and a huge audience groan. Right? Same words, same delivery, same timing, even.
 
@@ -668,7 +668,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:28:32] Will: Yeah, I, like she. Well, she's yeah, she's playing Steve Carell in Morning Show in Horrible Bosses. Sorry,
 
-[00:28:38] Adam: but. You get to, like I said, the show is uneven. I totally granted that. I find myself. I find the episodes go very quickly. I— which is to me a marker. Yeah, it's an hour. Okay. Which it's to me a marker that it's really good. That it's enjoyable, right? If it's like I'm not feeling like anyone's wasting my time.
+[00:28:38] Adam: but. You get to, like I said, the show is uneven. I totally granted that. I find myself. I find the episodes go very quickly. I - which is to me a marker. Yeah, it's an hour. Okay. Which it's to me a marker that it's really good. That it's enjoyable, right? If it's like I'm not feeling like anyone's wasting my time.
 
 [00:28:56] Will: Yeah.
 
@@ -700,7 +700,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:29:44] Adam: and maybe I've talked about this on the podcast.
 
-[00:29:48] Will: Can we do this one with the Kurt—Karl—
+[00:29:48] Will: Can we do this one with the Kurt - Karl -
 
 [00:29:50] Norm: Urban. One weekend.
 
@@ -770,7 +770,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:32:12] Will: Yeah, exactly.
 
-[00:32:13] Adam: Do you know, by the way? Do I just learned that I'm older than Wilford Brimley was when he made—?
+[00:32:13] Adam: Do you know, by the way? Do I just learned that I'm older than Wilford Brimley was when he made -?
 
 [00:32:20] Will: Oh, you passed the cocoon line.
 
@@ -942,7 +942,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:38:40] Will: all the whole history, how why Wi-Fi is important, and like, can you remember the time without Wi-Fi?
 
-[00:38:46] Adam: Lamarr's—Hedy Lamarr's contribution.
+[00:38:46] Adam: Lamarr's - Hedy Lamarr's contribution.
 
 [00:38:48] Will: We didn't get that far.
 

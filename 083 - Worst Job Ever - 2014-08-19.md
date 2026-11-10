@@ -18,7 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:00:14] Adam: That did.
 
-[00:00:14] Will: Good morning. So this morning we're recording early morning, which is kind of a—it's a new thing for us, but it's a little unusual given the run of the series. And this morning, on the way into your shop, I was cursing at Past Me.
+[00:00:14] Will: Good morning. So this morning we're recording early morning, which is kind of a - it's a new thing for us, but it's a little unusual given the run of the series. And this morning, on the way into your shop, I was cursing at Past Me.
 
 [00:00:29] Adam: At what did Past you do?
 
@@ -26,17 +26,17 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:00:31] Adam: Right.
 
-[00:00:31] Will: And—
+[00:00:31] Will: And -
 
 [00:00:31] Adam: Get into the car.
 
-[00:00:31] Will: I get in the car, and it’s like 16 miles to empty. I was like—
+[00:00:31] Will: I get in the car, and it’s like 16 miles to empty. I was like -
 
 [00:00:45] Norm: Do you play the? The gas game?
 
 [00:00:46] Will: I never let it get to 16 miles to empty.
 
-[00:00:47] Norm: The how long can I make it ride? Not the not as far as Kramer, but like on a road trip from LA or something like—
+[00:00:47] Norm: The how long can I make it ride? Not the not as far as Kramer, but like on a road trip from LA or something like -
 
 [00:00:47] Will: Oh yeah.
 
@@ -82,7 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:02:00] Will: It's really bad with a fuel injected. Car to let your car run out of gas. Just to be clear.
 
-[00:02:03] Adam: Yeah, no, I know. I did that. In my friend lent me a Jaguar mid '80s XJ6, which is—
+[00:02:03] Adam: Yeah, no, I know. I did that. In my friend lent me a Jaguar mid '80s XJ6, which is -
 
 [00:02:03] Will: Oh, that’s a gorgeous car.
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:03:02] Will: Really, interesting.
 
-[00:03:02] Adam: Yeah. I mean, you know, this is 20 years ago, but yeah. But the long story short, I let my Jaguar run out of gas. I accidentally didn't switch. over—
+[00:03:02] Adam: Yeah. I mean, you know, this is 20 years ago, but yeah. But the long story short, I let my Jaguar run out of gas. I accidentally didn't switch. over -
 
 [00:03:14] Will: You let someone else's Jaguar run out of gas, which is even worse.
 
@@ -130,7 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:03:37] Will: Yeah. so you like burn up seals or something,
 
-[00:03:49] Adam: right? Burn up, it just fries itself, yeah, very quickly too. By the way—
+[00:03:49] Adam: right? Burn up, it just fries itself, yeah, very quickly too. By the way -
 
 [00:03:53] Will: yeah,
 
@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:05:05] Will: It’s on my list.
 
-[00:05:05] Adam: Yeah. I am still so madly in love with the throaty roar of my Abarth that—
+[00:05:05] Adam: Yeah. I am still so madly in love with the throaty roar of my Abarth that -
 
 [00:05:13] Norm: With the Teslas, you can they give you a CD or you can download one that we can switch between the sounds of all the different cars you want. You can drive a Veyron.
 
@@ -206,11 +206,11 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:06:29] Norm: Yes.
 
-[00:06:29] Adam: The batteries— and expensive to extract.
+[00:06:29] Adam: The batteries - and expensive to extract.
 
 [00:06:35] Norm: So the more people that have these cars, better infrastructure can get where you know you get more of these fill up points, at least in urban city areas.
 
-[00:06:43] Will: But—
+[00:06:43] Will: But -
 
 [00:06:43] Adam: I mean, we're in an ideal ideal city. Yeah, to adopt electric cars,
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:08:50] Adam: Nice.
 
-[00:08:50] Will: A Ford you know Ranger pickup truck. Manual transmission, and it was a wonderful car. It was an amazing car to learn how to drive in because it was—
+[00:08:50] Will: A Ford you know Ranger pickup truck. Manual transmission, and it was a wonderful car. It was an amazing car to learn how to drive in because it was -
 
 [00:09:11] Norm: practical, also.
 
@@ -384,7 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:13:36] Adam: Right.
 
-[00:13:36] Will: And I worked the restaurant by the hospital that was like old ladies who did clerical work and doctors. And—
+[00:13:36] Will: And I worked the restaurant by the hospital that was like old ladies who did clerical work and doctors. And -
 
 [00:13:49] Adam: Was it a good job?
 
@@ -396,7 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:13:51] Adam: Probably still running it.
 
-[00:13:51] Will: Yeah. Like— I enjoyed the job. Just to be clear,
+[00:13:51] Will: Yeah. Like - I enjoyed the job. Just to be clear,
 
 [00:14:03] Adam: Yeah, no, I enjoyed it too. So I've said in the past that I've worked most of my jobs for either a year or an hour. I have had two or three jobs that I quit very, very, very quickly.
 
@@ -410,7 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:14:38] Will: like the kind of stuff that people get at college. On your first day of school?
 
-[00:14:40] Adam: Yeah, exactly. The Blade Runner poster on my wall—that you could buy that there.
+[00:14:40] Adam: Yeah, exactly. The Blade Runner poster on my wall - that you could buy that there.
 
 [00:14:40] Will: Got it.
 
@@ -434,7 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:15:36] Adam: Yeah, I pulled the rip cord. I didn’t ever want to talk to these people again.
 
-[00:15:39] Will: That's a good. That's a good. I mean—
+[00:15:39] Will: That's a good. That's a good. I mean -
 
 [00:15:41] Norm: Best diet coke I ever had.
 
@@ -462,7 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:16:13] Will: And I like I did the orientation thing. I was like, man, this is a lot about folding. And then I got there, and people were really awful. But they weren't like I hate everything awful. They were the other side. So they were the they no no they were true believers. They were true believers in the mission of the made in Honduras clothing. No, this was before.
 
-[00:16:46] Adam: Oh, before—
+[00:16:46] Adam: Oh, before -
 
 [00:16:47] Will: This was before they did all that.
 
@@ -476,7 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:17:06] Norm: You should put that on your LinkedIn.
 
-[00:17:06] Will: No, I’m not. Copy ever copy— retail specialist.
+[00:17:06] Will: No, I’m not. Copy ever copy - retail specialist.
 
 [00:17:12] Adam: I also worked for a short time. I say that Jamie gave me my first job in special effects. It's not entirely true. I actually worked for a short time at a place in New York called Peter Wallach Enterprises, and Peter Wallach is a fantastic special effects guy who did some very important work in the '80s. He's Eli Wallach's son, first of all, and he did a really terrific short film in the early '80s called " Raygun's Nightmare" about Reagan, and it involved just like Mechagodzilla with television eyes. It was really beautiful. He also is probably most well known for the Sledgehammer video, Peter Gabriel's Sledgehammer video, done in claymation,
 
@@ -522,13 +522,13 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:19:28] Will: That I did that. I did that after school.
 
-[00:19:28] Adam: I wouldn’t— Pay for college now.
+[00:19:28] Adam: I wouldn’t - Pay for college now.
 
 [00:20:09] Will: College was cheaper then.
 
 [00:20:10] Adam: Yeah, I was gonna say.
 
-[00:20:12] Will: Yeah, but I worked—
+[00:20:12] Will: Yeah, but I worked -
 
 [00:20:13] Adam: An order of magnitude cheaper.
 
@@ -536,9 +536,9 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:20:13] Adam: Wow.
 
-[00:20:13] Will: And it was it was I had a lot of time to myself. I had lots of books, and I was able to do like study stuff because there's a lot of downtime with that. But it was horrible, like like not sleeping on three nights a week, and then going out drinking two nights a week. That leaves—
+[00:20:13] Will: And it was it was I had a lot of time to myself. I had lots of books, and I was able to do like study stuff because there's a lot of downtime with that. But it was horrible, like like not sleeping on three nights a week, and then going out drinking two nights a week. That leaves -
 
-[00:20:13] Adam: Trying to keep—
+[00:20:13] Adam: Trying to keep -
 
 [00:20:13] Will: And then trying to get stay stay in school was really hard on me over the period of time.
 
@@ -556,7 +556,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:21:35] Adam: And yeah, right, it is the sought after.
 
-[00:21:38] Norm: Yeah, you’re thinking—
+[00:21:38] Norm: Yeah, you’re thinking -
 
 [00:21:40] Adam: Of Red from Shawshank, right?
 
@@ -580,9 +580,9 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:22:29] Adam: Well, This is an entire television station that they're allowing like two people to run with whoever they want doing whatever they want,
 
-[00:22:36] Will: Right, and crazy—
+[00:22:36] Will: Right, and crazy -
 
-[00:22:37] Norm: People—
+[00:22:37] Norm: People -
 
 [00:22:37] Will: Can bring a tape.
 
@@ -644,7 +644,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:25:05] Norm: I've never had a terrible job.
 
-[00:25:07] Adam: You've never had a—
+[00:25:07] Adam: You've never had a -
 
 [00:25:08] Norm: I've never had a terrible job.
 
@@ -654,11 +654,11 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:25:12] Will: You worked at Tested. You worked at Maximum PC. You worked at PC Gamer.
 
-[00:25:14] Norm: Does fundraising with the Boy Scouts—
+[00:25:14] Norm: Does fundraising with the Boy Scouts -
 
 [00:25:14] Will: Nope.
 
-[00:25:14] Norm: Count as for food—
+[00:25:14] Norm: Count as for food -
 
 [00:25:14] Adam: Selling cookies?
 
@@ -668,13 +668,13 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:25:26] Norm: Yes.
 
-[00:25:26] Will: Oh, yeah. That might be—
+[00:25:26] Will: Oh, yeah. That might be -
 
 [00:25:27] Norm: College football games.
 
 [00:25:27] Adam: Were customers difficult?
 
-[00:25:27] Norm: Eh— The college football fans. I rolled hot dogs and made nachos at at 14 years old.
+[00:25:27] Norm: Eh - The college football fans. I rolled hot dogs and made nachos at at 14 years old.
 
 [00:25:35] Adam: That's not. That's sort of bad. Were the people that hired you jerks?
 
@@ -690,7 +690,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:25:53] Adam: that's when you have a terrible job. Like when you can barely stay awake and it's like the middle of the day.
 
-[00:25:58] Will: I did have the job that I almost got electrocuted once. So when I was working for the Department of for the—
+[00:25:58] Will: I did have the job that I almost got electrocuted once. So when I was working for the Department of for the -
 
 [00:25:58] Adam: Corrections?
 
@@ -734,7 +734,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:26:42] Adam: Man.
 
-[00:26:42] Will: It’s like, “You almost killed me, you old bastard.” So anyway—
+[00:26:42] Will: It’s like, “You almost killed me, you old bastard.” So anyway -
 
 [00:28:11] Adam: you know the for me personally, and I will admit that I had I I had a I had parents that I knew if I was in dire straits would help me out.
 
@@ -820,7 +820,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:34:00] Will: Yeah.
 
-[00:34:00] Adam: I did— for a year, like everyone does.
+[00:34:00] Adam: I did - for a year, like everyone does.
 
 [00:34:13] Will: Yeah. So
 
@@ -828,7 +828,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:34:20] Norm: Oh, we want to hear what? Yeah,
 
-[00:34:21] Will: Yeah. Please—
+[00:34:21] Will: Yeah. Please -
 
 [00:34:21] Norm: Sure.
 
@@ -838,9 +838,9 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:34:21] Will: My job was prostate massager on bulls.
 
-[00:34:21] Adam: We—
+[00:34:21] Adam: We -
 
-[00:34:21] Will: I don’t know. I mean, I I—
+[00:34:21] Will: I don’t know. I mean, I I -
 
 [00:34:33] Norm: that's a good one.
 

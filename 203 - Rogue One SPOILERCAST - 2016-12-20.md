@@ -954,7 +954,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:33:39] Adam: you really got to bring the helmet sometimes,
 
-[00:33:40] Norm: totally. But the fact that it's at the end of a lava channel and it takes this chaotic lava energy and then takes puts it into this. Like this waterfall of lava, and the fact that he—it's a place where he can be vulnerable because Vader doesn't have arms and legs, so he's in his his bacta jar, and I think they called it like the Vader Spa, right? But a place where he's guarded, right? He's guarded by two red guards, and he looks while he's in the jar regenerating, looking at the place where he was born. Like that's a powerful thing, and then you have this great scene with him and Krennic, where Krennic gets put in his place, and you have the power that the organizational structure reestablished.
+[00:33:40] Norm: totally. But the fact that it's at the end of a lava channel and it takes this chaotic lava energy and then takes puts it into this. Like this waterfall of lava, and the fact that he - it's a place where he can be vulnerable because Vader doesn't have arms and legs, so he's in his his bacta jar, and I think they called it like the Vader Spa, right? But a place where he's guarded, right? He's guarded by two red guards, and he looks while he's in the jar regenerating, looking at the place where he was born. Like that's a powerful thing, and then you have this great scene with him and Krennic, where Krennic gets put in his place, and you have the power that the organizational structure reestablished.
 
 [00:34:18] Adam: The audience when he does the little choke on Krennic and says, " Don't choke on your own aspirations."
 

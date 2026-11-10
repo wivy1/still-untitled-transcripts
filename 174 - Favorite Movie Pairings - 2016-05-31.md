@@ -312,7 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:09:29] Will: Sean Astin,
 
-[00:09:30] Norm: yeah. Did you see—You named those three movies?
+[00:09:30] Norm: yeah. Did you see - You named those three movies?
 
 [00:09:32] Adam: John Astin’s son, John Astin, who played Gomez on the
 
@@ -394,7 +394,7 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:10:59] Adam: Cliffhanger.
 
-[00:10:59] Will: Man, that has to—talk about a movie that does not open slow.
+[00:10:59] Will: Man, that has to - talk about a movie that does not open slow.
 
 [00:10:59] Adam: Right, right, right. Yeah,
 
@@ -656,7 +656,7 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:18:53] Adam: In residency, yes, it's my first artist of residency.
 
-[00:18:55] Will: They’re going to—where are they going to do it?
+[00:18:55] Will: They’re going to - where are they going to do it?
 
 [00:18:56] Adam: Um, I’m
 

@@ -20,7 +20,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:00:15] Will: No segue.
 
-[00:00:16] Adam: I don't have anything new to talk about right now. I've got a— I got myself a little Mercury G.I. Joe Mercury astronaut.
+[00:00:16] Adam: I don't have anything new to talk about right now. I've got a - I got myself a little Mercury G.I. Joe Mercury astronaut.
 
 [00:00:16] Unknown speaker: That's awesome.
 
@@ -70,29 +70,29 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:01:35] Will: Some of the crazy new process, right?
 
-[00:01:37] Adam: No, no, no, no. It's, it's an old process. You actually— there's only a few places that do it because it's hard, but it's basically getting an actual metal coating on resin.
+[00:01:37] Adam: No, no, no, no. It's, it's an old process. You actually - there's only a few places that do it because it's hard, but it's basically getting an actual metal coating on resin.
 
 [00:01:37] Will: Okay.
 
 [00:01:37] Adam: You have to spray it with a conductive paint, and then you copper plate it, and then you nickel plate it, and then you chrome plate it, and it's a whole thing.
 
-[00:01:50] Norm: Is your family okay with big packages coming here and you opening, like— you threw— you open that big box—
+[00:01:50] Norm: Is your family okay with big packages coming here and you opening, like - you threw - you open that big box -
 
 [00:01:56] Will: Peanuts.
 
-[00:01:57] Norm: Peanuts everywhere, and—
+[00:01:57] Norm: Peanuts everywhere, and -
 
-[00:01:58] Adam: It is— so we're on a summer break right now, and so the packages are arriving here, and it is just definitely something that needs to get managed. But that's what teenage sons are for. I make them take all the stuff down and sort it in all the garbage cans.
+[00:01:58] Adam: It is - so we're on a summer break right now, and so the packages are arriving here, and it is just definitely something that needs to get managed. But that's what teenage sons are for. I make them take all the stuff down and sort it in all the garbage cans.
 
-[00:02:12] Will: Flatten out—
+[00:02:12] Will: Flatten out -
 
 [00:02:13] Adam: That's what they do to earn their allowance.
 
 [00:02:15] Will: What do you do with peanuts? Peanuts are hard to get rid of.
 
-[00:02:16] Adam: I think that we have— we bag them separately and put them next to the recycling.
+[00:02:16] Adam: I think that we have - we bag them separately and put them next to the recycling.
 
-[00:02:24] Will: Yeah, we have to— I have to take them to a special place. Really, and then even they give you the stink eye when you roll in with a big bag of peanuts.
+[00:02:24] Will: Yeah, we have to - I have to take them to a special place. Really, and then even they give you the stink eye when you roll in with a big bag of peanuts.
 
 [00:02:29] Adam: I don't end up with too many, luckily.
 
@@ -102,13 +102,13 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:02:37] Will: Well, there you go.
 
-[00:02:37] Norm: I had a question for you. We put—
+[00:02:37] Norm: I had a question for you. We put -
 
 [00:02:39] Will: Don't try this at home.
 
 [00:02:40] Adam: Don't know.
 
-[00:02:41] Norm: We just posted a story on the site that people can— it'll be in the past now, but—
+[00:02:41] Norm: We just posted a story on the site that people can - it'll be in the past now, but -
 
 [00:02:45] Will: You mean on Tested.com.
 
@@ -116,11 +116,11 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:02:49] Adam: Yeah.
 
-[00:02:46] Norm: A bunch of the old ILM guys including your friend Fon Davis—
+[00:02:46] Norm: A bunch of the old ILM guys including your friend Fon Davis -
 
 [00:02:54] Adam: Oh, yeah.
 
-[00:02:46] Norm: And Lorne Peterson— And they did a talk about miniature making.
+[00:02:46] Norm: And Lorne Peterson - And they did a talk about miniature making.
 
 [00:02:57] Adam: Yeah.
 
@@ -136,7 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:03:21] Adam: The stadium. I did not. That, that happened about, about 8 or 10 months before I showed up.
 
-[00:03:26] Norm: Ah, so the, the fun story he told was that when they were building that stadium, and this is the, the big Jabba stadium—
+[00:03:26] Norm: Ah, so the, the fun story he told was that when they were building that stadium, and this is the, the big Jabba stadium -
 
 [00:03:32] Adam: Yeah.
 
@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:03:56] Norm: Yes.
 
-[00:03:47] Adam: In order to get a kind of a broad, you know, a crowd as a sort of—
+[00:03:47] Adam: In order to get a kind of a broad, you know, a crowd as a sort of -
 
 [00:03:58] Will: Yeah, you want noise.
 
@@ -172,11 +172,11 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:04:11] Will: Wow. I thought that was CG.
 
-[00:04:13] Adam: No, that was live. It didn't— well, wait. Two stories. One is that one of the ILM model makers, an amazing model maker named Danny Wagner, who did my makeup for the "You Can Live Forever," my thousand-year-old man—
+[00:04:13] Adam: No, that was live. It didn't - well, wait. Two stories. One is that one of the ILM model makers, an amazing model maker named Danny Wagner, who did my makeup for the "You Can Live Forever," my thousand-year-old man -
 
 [00:04:13] Unknown speaker: Mm-hmm.
 
-[00:04:27] Adam: Show on Discovery. Danny's terrific, and Danny actually took— I never got one of these from him, and I always wanted one. Danny, if you're listening, I got to get one of those. Danny took three of the Q-tips, and he made a vacuform blister pack for them. Star Wars Episode I action figure set.
+[00:04:27] Adam: Show on Discovery. Danny's terrific, and Danny actually took - I never got one of these from him, and I always wanted one. Danny, if you're listening, I got to get one of those. Danny took three of the Q-tips, and he made a vacuform blister pack for them. Star Wars Episode I action figure set.
 
 [00:04:46] Norm: Oh, cute!
 
@@ -194,11 +194,11 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:04:56] Will: How have I never seen this?
 
-[00:04:57] Adam: It's in there. Oh, we can— it's just, it's like a Lucite box with a toothpick, and it's like Sly Stallone's toothpick. It's total bullshit.
+[00:04:57] Adam: It's in there. Oh, we can - it's just, it's like a Lucite box with a toothpick, and it's like Sly Stallone's toothpick. It's total bullshit.
 
 [00:05:04] Will: Of course.
 
-[00:05:06] Adam: But the other one is, is that on Episode I, so many models, so many beautiful, beautiful models. Those Federation trade ships, the globes, those were like seven feet across. They were—
+[00:05:06] Adam: But the other one is, is that on Episode I, so many models, so many beautiful, beautiful models. Those Federation trade ships, the globes, those were like seven feet across. They were -
 
 [00:05:18] Will: Wait, those weren't CG too?
 
@@ -212,7 +212,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:05:27] Norm: For that crowd scene.
 
-[00:05:29] Adam: But, but the— wow, so many models, and yet, and, and all these pods crashing were practical effects, throwing them out there on the slab at ILM and filming them in high speed, and, you know, the big story when Episode I came out was the advances in digital technology, and we, the model makers from ILM, could tell you that. Just the majority of the time, you'd have news footage of shots from Episode I with George talking about the incredible advances of digital effects. Those shots would be practical—
+[00:05:29] Adam: But, but the - wow, so many models, and yet, and, and all these pods crashing were practical effects, throwing them out there on the slab at ILM and filming them in high speed, and, you know, the big story when Episode I came out was the advances in digital technology, and we, the model makers from ILM, could tell you that. Just the majority of the time, you'd have news footage of shots from Episode I with George talking about the incredible advances of digital effects. Those shots would be practical -
 
 [00:05:58] Will: So, okay.
 
@@ -228,11 +228,11 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:06:04] Will: The things that the robot army came out of, you the unloaders.
 
-[00:06:08] Adam: The unloaders were— there were practical models of those, and, but I think when they're all coming out of those, those were all CG.
+[00:06:08] Adam: The unloaders were - there were practical models of those, and, but I think when they're all coming out of those, those were all CG.
 
 [00:06:15] Will: Okay, so maybe the ones on the ship when they're getting in to stow away, or...?
 
-[00:06:18] Adam: The Queen Ship, the Chrome Queen Queen Ship. I worked with my friend—
+[00:06:18] Adam: The Queen Ship, the Chrome Queen Queen Ship. I worked with my friend -
 
 [00:06:22] Will: Wait, that was a real thing?
 
@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:06:27] Will: How did you not get fingerprints on that thing?
 
-[00:06:28] Adam: Well, you did it. We— yeah, it's really, really, really hard. We spent a whole weekend putting Mylar, stretching it to put it down to get this chrome finish on this huge fiberglass model. It was really intense.
+[00:06:28] Adam: Well, you did it. We - yeah, it's really, really, really hard. We spent a whole weekend putting Mylar, stretching it to put it down to get this chrome finish on this huge fiberglass model. It was really intense.
 
 [00:06:41] Will: Oh God, one mistake.
 
@@ -252,39 +252,39 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:07:00] Adam: Did you?
 
-[00:07:00] Will: It was amazing. It's this— it was one of those HP Envy. It wasn't an Envy. It was an HP Blackbird.
+[00:07:00] Will: It was amazing. It's this - it was one of those HP Envy. It wasn't an Envy. It was an HP Blackbird.
 
 [00:07:08] Adam: And you used Mylar.
 
-[00:07:09] Will: No, no, no. We sent it to a guy and had the whole— it was an aluminum case, we had it chromed.
+[00:07:09] Will: No, no, no. We sent it to a guy and had the whole - it was an aluminum case, we had it chromed.
 
 [00:07:13] Adam: Oh, nice.
 
-[00:07:14] Will: And it ended up absolutely— I mean, they had to do it very quickly because we got the case late and all that, but it ended up really gorgeous.
+[00:07:14] Will: And it ended up absolutely - I mean, they had to do it very quickly because we got the case late and all that, but it ended up really gorgeous.
 
 [00:07:21] Adam: Awesome.
 
 [00:07:21] Will: But it didn't hide the mistakes. So we, I'm, I'm curious. It had more straight edges.
 
-[00:07:25] Adam: Well, when you're covering with Mylar, there's definitely— it definitely did hide a bunch of the mistakes. Okay. I did build a spaceship. I got to build a spaceship for Episode I when I first showed up. I was doing some stuff, and they gave me, as a new hire— yeah. They put me under the wing of a guy who'd been there for a long time, the wonderful and sweet Larry Tan, who'd been on since, I think, Empire, and Larry's just— super, super nice. He had built the main structure of Nute and Rune's shuttle, the racist Federation representatives.
+[00:07:25] Adam: Well, when you're covering with Mylar, there's definitely - it definitely did hide a bunch of the mistakes. Okay. I did build a spaceship. I got to build a spaceship for Episode I when I first showed up. I was doing some stuff, and they gave me, as a new hire - yeah. They put me under the wing of a guy who'd been there for a long time, the wonderful and sweet Larry Tan, who'd been on since, I think, Empire, and Larry's just - super, super nice. He had built the main structure of Nute and Rune's shuttle, the racist Federation representatives.
 
 [00:08:00] Will: Yeah.
 
 [00:08:00] Adam: That's comes down, that shuttle that has spider legs.
 
-[00:08:03] Will: Lands in the Naboo city. The—
+[00:08:03] Will: Lands in the Naboo city. The -
 
-[00:08:05] Adam: Yeah, so I think Michael Steffe designed the mechanics for the legs as they sat. Those laser-cut files, and my job was the la— the loading bay. So I got to design the whole interior of the loading bay. I mean, I had sketches from Doug Chiang beautiful and amazing sketches, and I had to make them all practical and make them work. Layers of lattice work, and then I did the lighting, and then I also got to do the painting—
+[00:08:05] Adam: Yeah, so I think Michael Steffe designed the mechanics for the legs as they sat. Those laser-cut files, and my job was the la- the loading bay. So I got to design the whole interior of the loading bay. I mean, I had sketches from Doug Chiang beautiful and amazing sketches, and I had to make them all practical and make them work. Layers of lattice work, and then I did the lighting, and then I also got to do the painting -
 
 [00:08:29] Will: Cool.
 
-[00:08:29] Adam: Of that whole ship, so I felt like— and that was, you know, that was there. I don't think we built any spaceships for Episode II. I don't think we built a single fricking one.
+[00:08:29] Adam: Of that whole ship, so I felt like - and that was, you know, that was there. I don't think we built any spaceships for Episode II. I don't think we built a single fricking one.
 
 [00:08:37] Will: Yeah, I was going to say.
 
 [00:08:38] Adam: Because that's the last movie ILM built spaceships for.
 
-[00:08:40] Will: The flying wing shiny Naboo ship—
+[00:08:40] Will: The flying wing shiny Naboo ship -
 
 [00:08:43] Adam: Yeah.
 
@@ -300,11 +300,11 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:08:51] Adam: Episode I, sorry.
 
-[00:08:52] Will: I'm talking about the sequel to the—
+[00:08:52] Will: I'm talking about the sequel to the -
 
 [00:08:54] Adam: Oh, right, right.
 
-[00:08:55] Will: Right. Not the one—
+[00:08:55] Will: Right. Not the one -
 
 [00:08:55] Adam: Yeah, no, that was not entirely CG.
 
@@ -326,11 +326,11 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:09:11] Will: I went back and watched that movie again. It's still not great, but it's very pretty.
 
-[00:09:16] Adam: Did— I don't know. I don't know if this actually aired, but Discovery had this idea that they should have a pint with Adam and Jamie, and we sit in a bar and talk about movies, which is weird because we don't ever do that under normal circumstances.
+[00:09:16] Adam: Did - I don't know. I don't know if this actually aired, but Discovery had this idea that they should have a pint with Adam and Jamie, and we sit in a bar and talk about movies, which is weird because we don't ever do that under normal circumstances.
 
 [00:09:28] Will: Yeah.
 
-[00:09:28] Adam: And there's a reason, which is that at a certain point I say— there's— somebody asks, "What's your favorite character in movies?" And I was like, "Well, I don't know if I can say a favorite character. I will tell you my favorite non-human character is Chewbacca."
+[00:09:28] Adam: And there's a reason, which is that at a certain point I say - there's - somebody asks, "What's your favorite character in movies?" And I was like, "Well, I don't know if I can say a favorite character. I will tell you my favorite non-human character is Chewbacca."
 
 [00:09:43] Will: Yeah.
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:09:50] Will: And that's when you smash the bottle in the bar and start stabbing him. And that's the end of MythBusters.
 
-[00:09:56] Adam: I didn't need to. I just pictured the public, like World War Z, going after Jamie's house, right? Like—
+[00:09:56] Adam: I didn't need to. I just pictured the public, like World War Z, going after Jamie's house, right? Like -
 
 [00:10:01] Norm: Fast zombies.
 
@@ -352,7 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:10:14] Adam: I know.
 
-[00:10:15] Will: We were going to talk about—
+[00:10:15] Will: We were going to talk about -
 
 [00:10:16] Norm: So, behind-the-scenes stuff.
 
@@ -362,13 +362,13 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:10:20] Will: Bringing it all around.
 
-[00:10:21] Norm: It— it's something that we've talked about, and we get a lot of, and when you think of movies, we watch narrative movies, but another genre of film is the documentary.
+[00:10:21] Norm: It - it's something that we've talked about, and we get a lot of, and when you think of movies, we watch narrative movies, but another genre of film is the documentary.
 
 [00:10:31] Will: Yeah, this segue isn't as perfect.
 
 [00:10:33] Norm: Not as perfect as us.
 
-[00:10:34] Will: I mean, last week—
+[00:10:34] Will: I mean, last week -
 
 [00:10:34] Unknown speaker: I was trying to say.
 
@@ -380,37 +380,37 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:10:53] Norm: And we're wondering what were some documentaries that you like, yeah, and maybe ones you've seen recently and ones that you can recommend.
 
-[00:10:59] Adam: I never feel like I watch enough documentaries, but it is a totally key and vital genre to me of some really amazing, amazing stuff. I'm a huge fan of Ken Burns. Every if you know, if you feel like you can't sit through The Civil War or Jazz or World War II or, what is it called, The Great War—
+[00:10:59] Adam: I never feel like I watch enough documentaries, but it is a totally key and vital genre to me of some really amazing, amazing stuff. I'm a huge fan of Ken Burns. Every if you know, if you feel like you can't sit through The Civil War or Jazz or World War II or, what is it called, The Great War -
 
 [00:11:19] Norm: He's done The War.
 
-[00:11:20] Adam: The War. The Brooklyn Bridge is an hour long. His first— one of his first documentaries. Totally riveting.
+[00:11:20] Adam: The War. The Brooklyn Bridge is an hour long. His first - one of his first documentaries. Totally riveting.
 
 [00:11:26] Norm: National, National Parks. No, Ken Burns. National Parks is great. This one on the boxer Jack Johnson. Great. Yeah, you got to pick the right topics.
 
-[00:11:35] Adam: I have to say, though, I think my favorite documentary— I'm just going to start at the top. My— one of my all-time favorite documentaries has to be When We Were Kings.
+[00:11:35] Adam: I have to say, though, I think my favorite documentary - I'm just going to start at the top. My - one of my all-time favorite documentaries has to be When We Were Kings.
 
 [00:11:45] Norm: I've never seen that.
 
 [00:11:45] Will: I've never seen that.
 
-[00:11:46] Adam: So, I think Taylor Hackford. I can't remember who the actual director is. I know Taylor Hackford worked with the, with it as maybe one of the producers. It is the Muhammad Ali, George Foreman Zaire fight, and— what's that?
+[00:11:46] Adam: So, I think Taylor Hackford. I can't remember who the actual director is. I know Taylor Hackford worked with the, with it as maybe one of the producers. It is the Muhammad Ali, George Foreman Zaire fight, and - what's that?
 
 [00:12:00] Will: Leon Gast.
 
 [00:12:01] Adam: The fight in Zaire, the Rumble in the Jungle in 1974, if I remember correctly.
 
-[00:12:06] Will: Which was one of the most— yeah, it was the heavyweight championship bout, and it was, uh— yes.
+[00:12:06] Will: Which was one of the most - yeah, it was the heavyweight championship bout, and it was, uh - yes.
 
 [00:12:11] Adam: It is. It's a shocking and amazing, beautiful document about a beautiful human. I really will just say that Ali is a beautiful man and just inside and out.
 
-[00:12:25] Will: Do you see him in a way that you— because he was— I'm, I'm old enough that I remember the end when I was a kid. We saw the last couple of Muhammad Ali fights. They were still on TV. Maybe they were throwing them on Wide World of Sports on Sunday morning or something. But I remember you'd occasionally see him fight, and Dad would always come in. Like, my father didn't watch TV during the day, and when there was a Muhammad Ali fight on, he came in and we'd watch TV during the day. But he was very kind of outspoken.
+[00:12:25] Will: Do you see him in a way that you - because he was - I'm, I'm old enough that I remember the end when I was a kid. We saw the last couple of Muhammad Ali fights. They were still on TV. Maybe they were throwing them on Wide World of Sports on Sunday morning or something. But I remember you'd occasionally see him fight, and Dad would always come in. Like, my father didn't watch TV during the day, and when there was a Muhammad Ali fight on, he came in and we'd watch TV during the day. But he was very kind of outspoken.
 
-[00:12:57] Adam: Ali was—
+[00:12:57] Adam: Ali was -
 
 [00:12:58] Will: Publicly, yeah.
 
-[00:12:59] Adam: Yeah, yeah, absolutely. Always a big mouth, always a shit disturber—
+[00:12:59] Adam: Yeah, yeah, absolutely. Always a big mouth, always a shit disturber -
 
 [00:13:03] Will: Yeah.
 
@@ -422,7 +422,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:13:44] Unknown speaker: Spoilers.
 
-[00:13:46] Adam: George Foreman was the scariest mofo on the planet at that point in time. He was—
+[00:13:46] Adam: George Foreman was the scariest mofo on the planet at that point in time. He was -
 
 [00:13:51] Will: Big.
 
@@ -438,15 +438,15 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:14:20] Will: In fairness.
 
-[00:14:21] Adam: I mean, in fairness, but he was terrifying, and so you think you're watching this chronicle, but in fact, what you're watching is something that has been engineered by Ali from start to finish, and you don't rea— again. This is—
+[00:14:21] Adam: I mean, in fairness, but he was terrifying, and so you think you're watching this chronicle, but in fact, what you're watching is something that has been engineered by Ali from start to finish, and you don't rea- again. This is -
 
 [00:14:33] Will: You mean the documentary.
 
-[00:14:34] Adam: That— no, the fight. What the documentary is covering.
+[00:14:34] Adam: That - no, the fight. What the documentary is covering.
 
 [00:14:37] Will: Okay.
 
-[00:14:38] Adam: So, Ali understands everything in a way that, that sort of skewers you at the end of the film. You're like, "I cannot believe how, how masterfully he understood everything I was seeing, everything everyone was seeing, and manipulating it to this degree and this depth." And there's this point in, I but it's no secret that I'm an atheist. It doesn't mean—
+[00:14:38] Adam: So, Ali understands everything in a way that, that sort of skewers you at the end of the film. You're like, "I cannot believe how, how masterfully he understood everything I was seeing, everything everyone was seeing, and manipulating it to this degree and this depth." And there's this point in, I but it's no secret that I'm an atheist. It doesn't mean -
 
 [00:15:04] Will: Ooh!
 
@@ -454,29 +454,29 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:15:05] Unknown speaker: Oh, sorry.
 
-[00:15:06] Adam: But it doesn't mean that I can't appreciate people who speak from a moving standpoint about their religion and about what it does for them. I'm, I'm a crazy huge fan of— of course. Everyone is a fan. Ridiculous. Martin Luther King is a very important figure in my personal makeup. It's things that he said and things that he's written, and, you know, the stuff I've read about him, his religion doesn't— the fact that I don't agree with him doesn't diminish him in any way in my mind because of how much of a force for good he was. And—
+[00:15:06] Adam: But it doesn't mean that I can't appreciate people who speak from a moving standpoint about their religion and about what it does for them. I'm, I'm a crazy huge fan of - of course. Everyone is a fan. Ridiculous. Martin Luther King is a very important figure in my personal makeup. It's things that he said and things that he's written, and, you know, the stuff I've read about him, his religion doesn't - the fact that I don't agree with him doesn't diminish him in any way in my mind because of how much of a force for good he was. And -
 
 [00:15:39] Will: Just because someone has faith doesn't mean you're necessarily opposed to them.
 
 [00:15:42] Adam: No, of course not. Of course not.
 
-[00:15:44] Will: It's not always— doesn't always work the other way.
+[00:15:44] Will: It's not always - doesn't always work the other way.
 
-[00:15:45] Adam: And there's this point in When We Were Kings, when Ali says— they— the interviewer asks— somebody asks him for the millionth time, and he's just training. He's just running literally through the desert of Zaire with kids following him, just in a, in sweat clothes, just training. And someone says, "You think you can beat him?" And he says, "I'm not going to beat him. I, I'm—" He says something like, "I'm the will of Allah, and it's Allah that's going to beat him. How can I lose?"
+[00:15:45] Adam: And there's this point in When We Were Kings, when Ali says - they - the interviewer asks - somebody asks him for the millionth time, and he's just training. He's just running literally through the desert of Zaire with kids following him, just in a, in sweat clothes, just training. And someone says, "You think you can beat him?" And he says, "I'm not going to beat him. I, I'm -" He says something like, "I'm the will of Allah, and it's Allah that's going to beat him. How can I lose?"
 
 [00:16:16] Will: Wow.
 
-[00:16:17] Adam: And he says it in this way that is so unbelievably humble and yet—
+[00:16:17] Adam: And he says it in this way that is so unbelievably humble and yet -
 
 [00:16:23] Will: Confident.
 
-[00:16:23] Adam: You understand he believes it entirely, and at that point you're like, "Oh, wow. I, I see, I see something about him that I didn't understand before, and I see it to a degree that I find really invigorating and intense." and I, I won't spoil what the big reveal is. I mean, I'm sure a lot of people— you can wiki it and get spoiled for you, but watch When We Were Kings. I showed it to my kids a couple years ago. My wife had never seen it. She was completely gobsmacked by how incredible it is. It is the origin of the term rope-a-dope, if I'm not correct.
+[00:16:23] Adam: You understand he believes it entirely, and at that point you're like, "Oh, wow. I, I see, I see something about him that I didn't understand before, and I see it to a degree that I find really invigorating and intense." and I, I won't spoil what the big reveal is. I mean, I'm sure a lot of people - you can wiki it and get spoiled for you, but watch When We Were Kings. I showed it to my kids a couple years ago. My wife had never seen it. She was completely gobsmacked by how incredible it is. It is the origin of the term rope-a-dope, if I'm not correct.
 
 [00:16:59] Will: Oh, really?
 
-[00:17:00] Adam: Or it is the ultimate rope-a-dope. He hit his— he led George Foreman to believe he was going to fight one type of fight, and then he got in the ring and he fought a completely different type of fight.
+[00:17:00] Adam: Or it is the ultimate rope-a-dope. He hit his - he led George Foreman to believe he was going to fight one type of fight, and then he got in the ring and he fought a completely different type of fight.
 
-[00:17:11] Will: That was kind of his whole— that was the way he fought all fights.
+[00:17:11] Will: That was kind of his whole - that was the way he fought all fights.
 
 [00:17:14] Adam: That nobody thought he could win the type of fight that he turned the fight into.
 
@@ -488,13 +488,13 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:17:27] Adam: Right. Foreman is punching this heavy bag, and you can see that he's made a fist-sized dent, about the size of a half a basketball, in the heavy bag. And this is what Ali goes and faces off against.
 
-[00:17:41] Will: And, well, and it's, and it's, it's one of those situations that, because I've seen the fight—
+[00:17:41] Will: And, well, and it's, and it's, it's one of those situations that, because I've seen the fight -
 
 [00:17:45] Adam: Right.
 
-[00:17:45] Will: It's one of those situations that if Foreman had gotten one good hit on him, it would have been— he wouldn't have been able to do it, right?
+[00:17:45] Will: It's one of those situations that if Foreman had gotten one good hit on him, it would have been - he wouldn't have been able to do it, right?
 
-[00:17:51] Adam: Right. And he's got tons and Foreman got tons of hits on Ali, and there's this other point at which they describe how Ali— they really break it down. So you get to see Norman Mailer and— Christ I'll remember his name in a second. All these sports writers of the time, first of all, predicting Ali's loss, and then afterwards going over the fight and talking about it. At one point, Ali's fighting Foreman. He hits him with his left, and he's like, "It's terribly insulting to a fighter for you to come and hit him with your left, not in a combo, because the left's over here, yeah, and you're like this. And so to hit him with this is, is just like saying, 'I don't think you're going to be able to get out of the way of this.' Here comes— you ready? I'm mailing you a postcard. Here it comes," and then hits him, and it's all geared to unhinging—
+[00:17:51] Adam: Right. And he's got tons and Foreman got tons of hits on Ali, and there's this other point at which they describe how Ali - they really break it down. So you get to see Norman Mailer and - Christ I'll remember his name in a second. All these sports writers of the time, first of all, predicting Ali's loss, and then afterwards going over the fight and talking about it. At one point, Ali's fighting Foreman. He hits him with his left, and he's like, "It's terribly insulting to a fighter for you to come and hit him with your left, not in a combo, because the left's over here, yeah, and you're like this. And so to hit him with this is, is just like saying, 'I don't think you're going to be able to get out of the way of this.' Here comes - you ready? I'm mailing you a postcard. Here it comes," and then hits him, and it's all geared to unhinging -
 
 [00:18:36] Will: Just to mess with it.
 
@@ -508,7 +508,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:18:57] Adam: Oh, yeah.
 
-[00:19:05] Will: It's something I I do not care about women's fashion at all. But I, we, Norm and I used to work—,
+[00:19:05] Will: It's something I I do not care about women's fashion at all. But I, we, Norm and I used to work -,
 
 [00:19:18] Adam: Oh, great.
 
@@ -726,7 +726,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:23:55] Adam: Really?
 
-[00:23:55] Will: Yeah, because our friend Gary wrote his la— last movie.
+[00:23:55] Will: Yeah, because our friend Gary wrote his la-last movie.
 
 [00:23:58] Adam: I think Will Smith is a. I think you know he's a genuine movie star, and I think he's a fantastic actor from Six Degrees. He's genius.
 
@@ -786,7 +786,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:25:08] Will: Put him, Joss Whedon, and me in a lineup. You won't be able to tell which one's which.
 
-[00:25:11] Adam: Kirby's—he's a wonderful writer from a cultural standpoint. He's kind of a great cultural anthropologist, talking about remix culture, talking about how culture, how copyright act was built to understand that the creator of something should get a limited monopoly, but then works are only good for the public if they're in the public domain.
+[00:25:11] Adam: Kirby's - he's a wonderful writer from a cultural standpoint. He's kind of a great cultural anthropologist, talking about remix culture, talking about how culture, how copyright act was built to understand that the creator of something should get a limited monopoly, but then works are only good for the public if they're in the public domain.
 
 [00:25:33] Will: Yeah.
 
@@ -912,7 +912,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:29:22] Will: like Howard Hughes, crazy?
 
-[00:29:23] Adam: No, just like his. You gotta read Joyce Maynard's account of going up there and being with him. He, it wa— it wasn't. He has weird ideas about men and women and sex and relationships. He was controlling. He's bizarre. He does not come across very well on anyone else's account of him.
+[00:29:23] Adam: No, just like his. You gotta read Joyce Maynard's account of going up there and being with him. He, it wa- it wasn't. He has weird ideas about men and women and sex and relationships. He was controlling. He's bizarre. He does not come across very well on anyone else's account of him.
 
 [00:29:45] Norm: Very, very had issues.
 
@@ -972,7 +972,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:31:10] Will: That's you guys.
 
-[00:31:11] Adam: and we'll compile a list of—
+[00:31:11] Adam: and we'll compile a list of -
 
 [00:31:13] Will: No, let's not get crazy.
 

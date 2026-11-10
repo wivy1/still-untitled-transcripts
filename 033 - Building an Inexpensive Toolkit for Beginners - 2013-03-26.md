@@ -22,7 +22,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:00:19] Adam: I, through through an Etsy maker, I have pulled the trigger on a commission for a Mercury-era spacesuit, which is actually I realized I love the AL7, your standard moon landing spacesuit. I worked on accuratizing one for years, and I've got a really nice one. But I've always loved the Mercury suit.
 
-[00:00:38] Will: Well, because they didn't—
+[00:00:38] Will: Well, because they didn't -
 
 [00:00:39] Norm: because of its design, its look, or like its place in history.
 
@@ -70,7 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:02:06] Will: So they had, it was like a Nomex-looking thing on there.
 
-[00:02:07] Adam: Yeah, and it's a very special kind of fabric that's expensive and hard to get. So and this is—
+[00:02:07] Adam: Yeah, and it's a very special kind of fabric that's expensive and hard to get. So and this is -
 
 [00:02:12] Norm: And they only buy them in bulk when they do the production.
 
@@ -92,7 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:03:02] Adam: Right,
 
-[00:03:02] Will: right. But i—if you really want to go down a wiki hole, go look at spacesuits from how they've changed from the shuttle period, the beginning of the shuttle period in 1981, to today on the ISS.
+[00:03:02] Will: right. But i - if you really want to go down a wiki hole, go look at spacesuits from how they've changed from the shuttle period, the beginning of the shuttle period in 1981, to today on the ISS.
 
 [00:03:14] Adam: Oh, really?
 
@@ -160,7 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:05:43] Adam: Yeah. First off, I, for some reason, this is in my head, and I want to get it out, which is that don't buy that set of 12 freaking screwdrivers.
 
-[00:05:54] Will: Like you mean the one that you're buying, you roll out and it has like six different size heads and it has—
+[00:05:54] Will: Like you mean the one that you're buying, you roll out and it has like six different size heads and it has -
 
 [00:05:58] Adam: no no no no. There's like in every hardware area of every big box store or in every hardware store, they always have like the 12 screwdrivers. Truth be told, you need four. You need a big Phillips, a small Phillips, a big flathead, and a small flathead. And really, you could then also invest in some Wiha, W I H A, jeweler's screwdrivers, which are really nice. But again, you only need like a couple.
 
@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:07:02] Will: Hardly ever use them.
 
-[00:07:03] Adam: So you know, a big and a small plus a jeweler's size of Phillips and—
+[00:07:03] Adam: So you know, a big and a small plus a jeweler's size of Phillips and -
 
 [00:07:07] Will: yeah, the jewelers can be adjustable.
 
@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:09:47] Adam: If you want really, if you want good wire strippers, the kind that are actually adjustable, that have a pair of V's that meet at different depths depending on where you've set them, those are great. I have a couple pairs of those, and those are great. One of the first, if you're going to do a lot of electronics wiring, one of the first tools to invest in is to spend $40 on a pair of Greenlee automatic wire strippers.
 
-[00:10:09] Will: The ones that, you, yeah—
+[00:10:09] Will: The ones that, you, yeah -
 
 [00:10:10] Adam: they grab the wire and strip the end off, and I love showing those to people who never knew they existed because they change your life.
 
@@ -330,7 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:12:48] Will: but the corded one is still there. I would add an extension cord to your list too, because you're going to want an extension cord if you're buying corded appliances.
 
-[00:12:54] Norm: I think most people buy the cordless because they think it's more convenient. But—
+[00:12:54] Norm: I think most people buy the cordless because they think it's more convenient. But -
 
 [00:12:57] Adam: well, and again, I'm thinking if you're really on the tightest budget, that's the cheapest, really versatile drill that you can get. It'll have a, I think a three-eighths chuck to it, so you can fit a reasonably sized bit in there. You'll obviously need a drill index. Those can cost everything from $15 up to hundreds of dollars for really high quality ones. If you're just starting out, you don't need the really high quality ones. You can buy the cheap ones. Even the ones from Harbor Freight will serve you just fine.
 
@@ -372,7 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:15:18] Will: Okay.
 
-[00:15:18] Adam: Uh, and—
+[00:15:18] Adam: Uh, and -
 
 [00:15:20] Will: so when you're talking about instead of the ones that go twang when you wobble.
 
@@ -380,7 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:15:48] Norm: That's a good question. How long do these, do you expect these to last?
 
-[00:15:52] Adam: Um, so—
+[00:15:52] Adam: Um, so -
 
 [00:15:52] Norm: are you buying for things to last, or just spending $200, or you're just buying so you?
 
@@ -434,7 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:18:33] Will: I bought a really nice one for $25.
 
-[00:18:35] Adam: Yeah, and i—it's not expensive. I'll tell you, in general, the cheap ones are every bit as useful to you as the expensive ones. Make sure it's made of metal. Don't buy the plastic ones; they are really, really cheap.
+[00:18:35] Adam: Yeah, and i - it's not expensive. I'll tell you, in general, the cheap ones are every bit as useful to you as the expensive ones. Make sure it's made of metal. Don't buy the plastic ones; they are really, really cheap.
 
 [00:18:48] Will: In my experience, the difference between the cheap and the expensive on calipers is that the cheap ones lose their zero, and you have to keep re-zeroing which is fine if you're just going to make one or two measurements a day.
 
@@ -720,7 +720,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:32:09] Will: yeah,
 
-[00:32:09] Adam: an electrical multimeter. Electrical multimeters—they come in all shapes and sizes. If you're going to buy one, make sure you buy one. It's an electronic device that allows you to read the voltage coming out of a battery or a circuit,
+[00:32:09] Adam: an electrical multimeter. Electrical multimeters - they come in all shapes and sizes. If you're going to buy one, make sure you buy one. It's an electronic device that allows you to read the voltage coming out of a battery or a circuit,
 
 [00:32:23] Will: resistance, continuity.
 
@@ -840,7 +840,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:37:24] Will: Very good.
 
-[00:37:27] Adam: and then si—crazy glue, cyanoacrylate
+[00:37:27] Adam: and then si- crazy glue, cyanoacrylate
 
 [00:37:30] Will: glue, which
 

@@ -120,7 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=9_rhqdcgRzc
 
 [00:04:55] Adam: a photo booth, and about a dozen of my costumes on display from past Comic Cons and from my collection.
 
-[00:05:01] Will: Yeah, so it was—
+[00:05:01] Will: Yeah, so it was -
 
 [00:05:01] Norm: a little inside baseball and like the party planning, right? We work with you to pick out what costumes you want to bring. You want to bring the stuff that you'd worn at Comic Con, stuff that we'd shown on Tested, some of the projects, and it really was the whole pantheon of your history of costume making.
 
@@ -152,7 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=9_rhqdcgRzc
 
 [00:06:29] Will: were wonderful. They were so good.
 
-[00:06:29] Adam: And we met a lot of. She was the one with the—
+[00:06:29] Adam: And we met a lot of. She was the one with the -
 
 [00:06:29] Will: she was the one with the freaky contacts. Yeah.
 
@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=9_rhqdcgRzc
 
 [00:09:54] Will: Oh, that was so good.
 
-[00:09:54] Adam: Okay, so—
+[00:09:54] Adam: Okay, so -
 
 [00:09:54] Will: sorry.
 
@@ -280,7 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=9_rhqdcgRzc
 
 [00:11:47] Norm: Guillermo del Toro was there.
 
-[00:11:49] Adam: Came early, and it was lovely to see him. He and I had had a meal yesterday to talk and catch up and stuff. And he's such a—he's like one of the sweetest people alive.
+[00:11:49] Adam: Came early, and it was lovely to see him. He and I had had a meal yesterday to talk and catch up and stuff. And he's such a - he's like one of the sweetest people alive.
 
 [00:12:00] Norm: You got to introduce him to the Mecha Hand prop,
 
@@ -422,7 +422,7 @@ Episode URL: https://www.youtube.com/watch?v=9_rhqdcgRzc
 
 [00:19:10] Will: did you know? I mean, so Mark told us the story, which was basically that they wanted to make something that was impossible for Chinese toy factories to knock off two weeks after the movie came out,
 
-[00:19:22] Adam: and they totally—
+[00:19:22] Adam: and they totally -
 
 [00:19:23] Will: mission accomplished, guys.
 
@@ -606,7 +606,7 @@ Episode URL: https://www.youtube.com/watch?v=9_rhqdcgRzc
 
 [00:27:01] Will: And on that note. Gallery will be up by the time you guys hear this.
 
-[00:27:01] Norm: We’ll see you guys—
+[00:27:01] Norm: We’ll see you guys -
 
 [00:27:01] Adam: The gallery will be up. Just so much good stuff, and so much of it like deep within the tested maker Comic Con community.
 

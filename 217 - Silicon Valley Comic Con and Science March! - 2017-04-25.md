@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=o8Ij0rEn6J8
 
 [00:06:12] Kishore: I initially thought there'd be a bunch of scientists out there, right? They're frustrated. They're you know they're marching against certain you know cuts in funding and whatnot. I started meeting people that just didn't line up into that neat and little narrative. I met a lot of teachers. I met a lot of artists. I met a lot of just you know people that just had everyday jobs. They just didn't fit neatly in that, but they felt like there was this erosion and has been for 20 years of like of intellectualism is going away, and that creeping sense that people are just coming up with their own way of coming to conclusions. And I think you had a sort of a beautiful statement about that yesterday, Adam. Like what the enemy of science was.
 
-[00:06:53] Adam: That that was when you write something like this, you know you write five times as much as you need, and you pare it back and pare it back. Even up to yesterday morning, I pulled 20% of my talk out after talking extensively with my wife about it, and. Yeah, the enemy of science is—it's not an ideology, it's not a party, it's not a person, it's not a law, it's bias, and it's personal bias that we all suffer from. We can't escape it. All we can do is face it and witness it. It's institutional bias. I also noticed that the crowd, like I, I had a line towards the end when I said we are agents of change. In fact, we are reagents, and I thought that would get a giant laugh, and the degree of laugh told me, oh, there's not a, it's not like 50% scientists here. It's like 20%.
+[00:06:53] Adam: That that was when you write something like this, you know you write five times as much as you need, and you pare it back and pare it back. Even up to yesterday morning, I pulled 20% of my talk out after talking extensively with my wife about it, and. Yeah, the enemy of science is - it's not an ideology, it's not a party, it's not a person, it's not a law, it's bias, and it's personal bias that we all suffer from. We can't escape it. All we can do is face it and witness it. It's institutional bias. I also noticed that the crowd, like I, I had a line towards the end when I said we are agents of change. In fact, we are reagents, and I thought that would get a giant laugh, and the degree of laugh told me, oh, there's not a, it's not like 50% scientists here. It's like 20%.
 
 [00:07:40] Kishore: It also kind of told you that wasn't as funny as you thought it was.
 
@@ -116,7 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=o8Ij0rEn6J8
 
 [00:12:15] Norm: So we've been here. We're actually recording in our cosplay repair shop. We've partnered with the organizers of this convention, Silicon Valley Comic Con, and it's the first time we're doing this. And we talked about it last week in the podcast. You've actually had this idea in your head for a long time, and we dipped our toes in it.
 
-[00:12:31] Adam: And this is—it's not an original idea. I saw the first time I saw this was at DragonCon, probably 10 years ago now. Somebody walking around with a repair kit on their body, helping people fix with safety pins and zip ties and glue and acrylic paint, fix whatever was broken in their costumes. Because as an avid cosplayer, I'm here to tell you, nothing ever goes as you planned,
+[00:12:31] Adam: And this is - it's not an original idea. I saw the first time I saw this was at DragonCon, probably 10 years ago now. Somebody walking around with a repair kit on their body, helping people fix with safety pins and zip ties and glue and acrylic paint, fix whatever was broken in their costumes. Because as an avid cosplayer, I'm here to tell you, nothing ever goes as you planned,
 
 [00:12:53] Norm: and no one ever wants to make that long walk back to the hotel on a hot day.
 
@@ -322,9 +322,9 @@ Episode URL: https://www.youtube.com/watch?v=o8Ij0rEn6J8
 
 [00:25:42] Kishore: Yeah, I just started seeing K two S Os recently going to cons. I it is so phenomenal because it just is the least humanoid shape possible with how it like cuts in at the thorax. So seeing those people out there together in that way,
 
-[00:25:57] Adam: totally. And the one that we covered recently on tested that you saw at Frank's prop party at the RPF prop party at Frank's shop. I've been following that build, and it is a build I would love to do at some point because K2SO is such a great character, and to do it in that Bunraku style—is that the way to describe it?
+[00:25:57] Adam: totally. And the one that we covered recently on tested that you saw at Frank's prop party at the RPF prop party at Frank's shop. I've been following that build, and it is a build I would love to do at some point because K2SO is such a great character, and to do it in that Bunraku style - is that the way to describe it?
 
-[00:26:13] Norm: I'm not sure, but I think so. Yeah, where every one of your motions, your hands and your legs—
+[00:26:13] Norm: I'm not sure, but I think so. Yeah, where every one of your motions, your hands and your legs -
 
 [00:26:17] Adam: it's the same way threePO was done for the prequel for the for Episode One.
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=o8Ij0rEn6J8
 
 [00:26:44] Adam: So this has been a weekend of basically total inspiration on every kind of front, from civic engagement to public pride in evidence-based policies to cosplay to the con full of scientists.
 
-[00:26:59] Kishore: What a wonderful world that I can go from—you know—leading a global. March to wearing a cheeseburger on my head,
+[00:26:59] Kishore: What a wonderful world that I can go from - you know - leading a global. March to wearing a cheeseburger on my head,
 
 [00:27:08] Adam: Kishore. It is something. It might be my favorite quality about you. And I really can't believe how how what I think we should finish on this. I really can't believe how much dedication and how much energy you put into this, and yet you are still easygoing, sweet, fun to talk to, Kishore. You're not like ah, I'm totally overwhelmed. I don't know how you stay from being completely overwhelmed, but you do.
 

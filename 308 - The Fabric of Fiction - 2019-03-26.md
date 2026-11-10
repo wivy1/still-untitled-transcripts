@@ -250,7 +250,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:12:11] Will: Against her twice.
 
-[00:12:11] Max: Wow, that's very woke of you. Will. I—we’re all impressed, but I'm just saying, like the die has not been cast here, right? Like the voters have no idea who these people are. These polls are all over the place. And name, it's you're just asking name ID right now. You're just asking who have people heard of. Well, we're almost. I think we're just past exactly one year until Iowa caucuses. So there's a long, long way to go. Yeah,
+[00:12:11] Max: Wow, that's very woke of you. Will. I - we’re all impressed, but I'm just saying, like the die has not been cast here, right? Like the voters have no idea who these people are. These polls are all over the place. And name, it's you're just asking name ID right now. You're just asking who have people heard of. Well, we're almost. I think we're just past exactly one year until Iowa caucuses. So there's a long, long way to go. Yeah,
 
 [00:12:37] Will: and this is the thing. Like I, there's a lot of talk in journalism circles about how we cover presidential elections, how journalists cover presidential elections, and there's a lot of talk about horse race journalism and what and I feel like a lot of people that don't follow that that specific subset of politics don't know what that means. But it's the idea that there are opinion polls right now that have Biden and Harris in the lead and Elizabeth Warren in the lead. But it's literally just because of that. It's because people recognize those names. So when somebody calls, when Gallup calls them during dinner time and says, " Hey, who do you think is going to win the Democratic primary?" and they're like, " I don't know. What about that Biden guy?"
 
@@ -424,7 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:20:13] Will: He's Tony Stark and the what's his name with the cat from Spectre.
 
-[00:20:18] Max: Well. it, Tony, all of—
+[00:20:18] Max: Well. it, Tony, all of -
 
 [00:20:19] Adam: Blofeld?
 
@@ -1000,7 +1000,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:48:14] Adam: Yeah.
 
-[00:48:15] Will: Like your top 10 lists that you like to consult when you’re—
+[00:48:15] Will: Like your top 10 lists that you like to consult when you’re -
 
 [00:48:16] Max: Do you have like a notes app or something?
 

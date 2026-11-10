@@ -122,7 +122,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:04:36] Norm: I’ve seen it,
 
-[00:04:36] Adam: but Will—
+[00:04:36] Adam: but Will -
 
 [00:04:36] Norm: Will has not seen it.
 
@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:06:08] Adam: Yeah.
 
-[00:06:08] Will: Who has survived more campaigns than anyone else except for—
+[00:06:08] Will: Who has survived more campaigns than anyone else except for -
 
 [00:06:17] Adam: oh no, well he's the one that he he's the one that first meets Tom Cruise when he wakes up in the morning and he's like you know I'm going to send you to the squad.
 
@@ -260,7 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:07:53] Adam: Right.
 
-[00:07:53] Will: Not—
+[00:07:53] Will: Not -
 
 [00:07:58] Adam: oh, okay. So in the movie, it just wakes up and it's Groundhog Day every day. So Tom Cruise gets this ability when he kills a slightly higher up alien, and it bleeds on him as he dies. The
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:09:18] Will: no. Oh, because the book. Oh, by the way, spoiler in the book too.
 
-[00:09:23] Norm: Okay, well, we’ll get to the ending, and yeah, that’s that’s a that’s a point of weakness of the movie. She’s—
+[00:09:23] Norm: Okay, well, we’ll get to the ending, and yeah, that’s that’s a that’s a point of weakness of the movie. She’s -
 
 [00:09:27] Adam: tried everything except that. So you think that that you think the loop is specific to one entity per battle?
 
@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:10:16] Will: For example, Smith. I like that movie. It is a bad movie, but it is a likable. It's
 
-[00:10:24] Adam: very likable. It is very likable. Vince Vaughn yelling at his mom, and Brad and Angelina are just—I mean—they're compelling no matter what. But the movie is plot-wise, oh, light as a feather.
+[00:10:24] Adam: very likable. It is very likable. Vince Vaughn yelling at his mom, and Brad and Angelina are just - I mean - they're compelling no matter what. But the movie is plot-wise, oh, light as a feather.
 
 [00:10:35] Will: Couldn't agree more.
 
@@ -330,11 +330,11 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:10:36] Adam: Yeah.
 
-[00:10:36] Norm: She has—
+[00:10:36] Norm: She has -
 
-[00:10:54] Will: The Devil Wears Prada. I’m—
+[00:10:54] Will: The Devil Wears Prada. I’m -
 
-[00:10:55] Norm: I’m not gonna say resting bitch face, but like she has a she—
+[00:10:55] Norm: I’m not gonna say resting bitch face, but like she has a she -
 
 [00:10:59] Adam: does have bitchy resting face. Totally,
 
@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:12:14] Adam: No, it’s actually a helicopter blade.
 
-[00:12:14] Will: Fuck! They— ruined the goddamn book.
+[00:12:14] Will: Fuck! They - ruined the goddamn book.
 
 [00:12:18] Norm: She has a giant sword.
 
@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:12:55] Will: They make her a damsel
 
-[00:12:56] Norm: She does—no. She’s not a damsel, not at all.
+[00:12:56] Norm: She does - no. She’s not a damsel, not at all.
 
 [00:12:58] Adam: She's not a damsel at all, but.
 
@@ -410,13 +410,13 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:13:11] Norm: It's well, you see his journey. But to go back to your point, by her having a problem with shooting, Doug Liman's shooting style is very guerrilla. The beach scene, they had to scrap a full day of shooting and talk about expenses, right?
 
-[00:13:11] Adam: Wow. And why— would they have to scrap a full day?
+[00:13:11] Adam: Wow. And why - would they have to scrap a full day?
 
 [00:13:25] Norm: Because he wanted to shoot differently the second day.
 
 [00:13:25] Adam: Wow.
 
-[00:13:25] Norm: And so adding on a production, they built that whole beachfront. Oh man. They released it on the anniversary of D-Day, first of all, and had it—
+[00:13:25] Norm: And so adding on a production, they built that whole beachfront. Oh man. They released it on the anniversary of D-Day, first of all, and had it -
 
 [00:13:25] Will: Classy.
 
@@ -440,7 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:14:22] Norm: So they set her up as the big badass, right? They have like she's the war hero, the war angel, and it's explained why that is because she had that power before Tom Cruise.
 
-[00:14:31] Adam: Well, but the point—
+[00:14:31] Adam: Well, but the point -
 
 [00:14:31] Norm: Sorry. To to learn all those abilities.
 
@@ -500,7 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:16:46] Will: Do they actually repeat? Like, are they reshooting each day? Or is it that they just reuse the Paxton monologue?
 
-[00:16:46] Adam: They do. They do a very— good job at letting you know you're seeing the same day again, without ever letting you be bored at seeing the same scene again.
+[00:16:46] Adam: They do. They do a very - good job at letting you know you're seeing the same day again, without ever letting you be bored at seeing the same scene again.
 
 [00:16:59] Will: Like the book was like one of the things I love. So I love kind of like I I don't know enough about where this book falls in Japanese fiction, but I kind of assume it's in the same place as like the battle royale novel, which if you've never read, you've only seen the movie is is a fascinating exercise in how do you make a kind of shitty movie off of a an amazing book
 
@@ -522,7 +522,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:17:49] Adam: Yeah, it is.
 
-[00:17:49] Will: What’s— The twist?
+[00:17:49] Will: What’s - The twist?
 
 [00:17:50] Adam: The twist is that he finally gets to where he thinks the Omega is, and it's not there. And it turns out that the aliens are already hyped to his ability to reset the day, and they're trying to trick him.
 
@@ -546,7 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:18:17] Norm: Yes. Which is, is that in the book?
 
-[00:18:19] Adam: And the stakes building—
+[00:18:19] Adam: And the stakes building -
 
 [00:18:20] Will: At the end never never comes up.
 
@@ -636,7 +636,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:22:10] Will: right? They have to have the exo suits, yeah,
 
-[00:22:12] Adam: Right. And—
+[00:22:12] Adam: Right. And -
 
 [00:22:13] Norm: The exo suit stuff was great. I love the movie was surprisingly funny.
 
@@ -686,7 +686,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:24:49] Will: I would say I thought Oblivion was better.
 
-[00:24:50] Norm: I think stylistically, Oblivion made by—
+[00:24:50] Norm: I think stylistically, Oblivion made by -
 
 [00:24:50] Will: Oblivion was beautiful.
 
@@ -694,7 +694,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:24:55] Will: absolutely gorgeous,
 
-[00:24:56] Norm: And ripe for prop making and ripe for—
+[00:24:56] Norm: And ripe for prop making and ripe for -
 
 [00:24:58] Will: Oh yeah, yeah, gorgeous stuff, really well done.
 
@@ -782,7 +782,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:26:54] Adam: That’s one of my favorite lines in Big Bang Theory, is when Koothrappali meets Summer Glau on the train, and his opening line is, " It's hot in here. It must be summer." Oh boy! Jesus, that is a hell of a line. How do you?
 
-[00:27:16] Norm: The actress you’re talking about—
+[00:27:16] Norm: The actress you’re talking about -
 
 [00:27:18] Adam: I’m so glad I’m not a woman.
 
@@ -840,7 +840,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:28:48] Will: It was a good show this week. So edge of tomorrow, like I just I'm just bummed. When a science fiction movie that reviews well seems like it's pretty pretty well thought out, maybe a couple of holes comes out and it doesn't do well in movie theaters. I get a little bummed out because we had a long stretch there where nobody made big budget science fiction movies because they bombed.
 
-[00:28:48] Adam: Yeah. And it— Would be a shame if this was part of the same trend.
+[00:28:48] Adam: Yeah. And it - Would be a shame if this was part of the same trend.
 
 [00:29:07] Will: Yeah.
 
@@ -848,7 +848,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:29:11] Will: When was the last good science fiction movie?
 
-[00:29:13] Adam: I will say that hiring the Looper director to direct Star Wars seven and eight—Star Wars eight, nine, brilliant.
+[00:29:13] Adam: I will say that hiring the Looper director to direct Star Wars seven and eight - Star Wars eight, nine, brilliant.
 
 [00:29:19] Norm: The elephant in the room.
 

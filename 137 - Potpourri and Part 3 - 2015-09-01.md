@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:01:31] Adam: Alex, big heart, big love.
 
-[00:01:34] Will: If he’s listening to the audio version, you’re making a big heart right— over where your heart is not.
+[00:01:34] Will: If he’s listening to the audio version, you’re making a big heart right - over where your heart is not.
 
 [00:01:38] Adam: My heart, but my Vulcan heart.
 
@@ -52,7 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:01:46] Norm: So it maybe have ties to the original, may have some some connection to the buckle.
 
-[00:01:52] Adam: Yeah, no, no, no. It's [unclear: a,/—] it is exact in almost every single detail. I feel that looking at pictures I have in my archives of the original, [unclear: um,/—] and knowing the long and exhausting history on the RPF of the search for this buckle, [unclear: um,/—] and some of the scandals around it, I believe this might be one of the replica buckles. But the replica buckle is also made out of steel with an almost identical finish in every single way. Also, another RPF member who I know, [unclear: uh,/—] Matt Munson, [unclear: uh,/—] is a deep Rocketeer addict, and also when he saw the buckle at the party at Comic Con, [unclear: um,/—] also felt like I did that it was probably more likely one of the replicas.
+[00:01:52] Adam: Yeah, no, no, no. It's [unclear: a,/-] it is exact in almost every single detail. I feel that looking at pictures I have in my archives of the original, [unclear: um,/-] and knowing the long and exhausting history on the RPF of the search for this buckle, [unclear: um,/-] and some of the scandals around it, I believe this might be one of the replica buckles. But the replica buckle is also made out of steel with an almost identical finish in every single way. Also, another RPF member who I know, [unclear: uh,/-] Matt Munson, [unclear: uh,/-] is a deep Rocketeer addict, and also when he saw the buckle at the party at Comic Con, [unclear: um,/-] also felt like I did that it was probably more likely one of the replicas.
 
 [00:01:52] Will: Yes,
 
@@ -64,9 +64,9 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:02:39] Will: it's funny when you get when you are looking at something like that. How much of that is is like deep knowledge, and then how much of it is just your instinctual memory of how it. It's of the that comes from the knowledge.
 
-[00:02:49] Adam: It's funny. It's both. It's totally an equal amount of both. You take you in. You take your intuition, and I mean, which means it's this is rife with bias. I have a friend who, an old friend who's an [unclear: uh,/—] antique dealer, and at one point he showed me three artifacts, and he said one of these is a fake. Tell me which one, and I looked at it, and I looked at them for a while, and after a while, as I kept on looking at them and kept on sort of going over them, two of them just felt weirder, and I was like, this third one is the copy. And he said, yes, you're right. And he said, this is this whole thing about being a in this kind of business is you've got to play on your intuition in order to kind of look for those metrics that are really hard to quantify, and sometimes you're wrong. But I've looked at enough pictures of that buckle up close. I will tell you that the little evergreen tree that is part of the logo on the buckle. Is on the one that that got given to me is slightly not square. It's ever so slightly not square, and in the pictures I have on my computer, they're dead square, and that led me to wonder: is maybe a post-manufacturing stamp? I'm not sure.
+[00:02:49] Adam: It's funny. It's both. It's totally an equal amount of both. You take you in. You take your intuition, and I mean, which means it's this is rife with bias. I have a friend who, an old friend who's an [unclear: uh,/-] antique dealer, and at one point he showed me three artifacts, and he said one of these is a fake. Tell me which one, and I looked at it, and I looked at them for a while, and after a while, as I kept on looking at them and kept on sort of going over them, two of them just felt weirder, and I was like, this third one is the copy. And he said, yes, you're right. And he said, this is this whole thing about being a in this kind of business is you've got to play on your intuition in order to kind of look for those metrics that are really hard to quantify, and sometimes you're wrong. But I've looked at enough pictures of that buckle up close. I will tell you that the little evergreen tree that is part of the logo on the buckle. Is on the one that that got given to me is slightly not square. It's ever so slightly not square, and in the pictures I have on my computer, they're dead square, and that led me to wonder: is maybe a post-manufacturing stamp? I'm not sure.
 
-[00:04:04] Will: I mean, the antique thing is an interesting case because I spent my parents collect you know post colonial [unclear: uh,/—] pre colonial and colonial era antiques and have for years. So I spent a lot of time going to antique stores and junk shops.
+[00:04:04] Will: I mean, the antique thing is an interesting case because I spent my parents collect you know post colonial [unclear: uh,/-] pre colonial and colonial era antiques and have for years. So I spent a lot of time going to antique stores and junk shops.
 
 [00:04:04] Adam: Yep,
 
@@ -96,7 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:05:44] Unknown: [unclear: That’s right.]
 
-[00:05:44] Adam: that his friend had had for decades, [unclear: Uh,/—] and as a thank you for the entertainment that MythBusters had given them. And this box came, and it is absolutely hand built by whoever used it, but with beautiful dovetails.
+[00:05:44] Adam: that his friend had had for decades, [unclear: Uh,/-] and as a thank you for the entertainment that MythBusters had given them. And this box came, and it is absolutely hand built by whoever used it, but with beautiful dovetails.
 
 [00:06:12] Will: Like a toolbox?
 
@@ -190,7 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:08:44] Adam: Well, yeah, no, it stops. Stops, especially since you're leaning and you're balancing, and it's accommodating for that. You stop instantly anyway, as I can attest to you from my aging body having withstood a bunch of bruises and knocks over the past week as I've been learning to ride the Onewheel.
 
-[00:09:02] Will: As it is, [unclear: as it goes./—]
+[00:09:02] Will: As it is, [unclear: as it goes./-]
 
 [00:09:03] Adam: luckily we were out on Treasure Island on a big tarmac, so I had some space to do it.
 
@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:10:27] Will: Oh, you got to take pictures of everybody in the chair.
 
-[00:10:29] Adam: I know it's true. Yeah, he sat in the captain's chair for a while while we talked, and then [unclear: um,/—] it turns out Weird has an SBU. Which he loves.
+[00:10:29] Adam: I know it's true. Yeah, he sat in the captain's chair for a while while we talked, and then [unclear: um,/-] it turns out Weird has an SBU. Which he loves.
 
 [00:10:38] Will: I'm not surprised.
 
@@ -292,11 +292,11 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:11:40] Will: I love it. They feel it. It feels almost like I imagine riding the conveyor belt and the Jetsons would, right? It feels effortless because after you internalize controls, you just kind of think the thing that you want to do, and then it happens.
 
-[00:11:53] Adam: And being, I'm a very experienced unicycle rider. [unclear: Uh,/—] I can go up and down stairs and juggle on it and everything. And I love the SBU. [unclear: I pre./Um, I perf,] I think the Onewheel gives me even more of that. I'm looking at a place, and I am heading over there now.
+[00:11:53] Adam: And being, I'm a very experienced unicycle rider. [unclear: Uh,/-] I can go up and down stairs and juggle on it and everything. And I love the SBU. [unclear: I pre./Um, I perf,] I think the Onewheel gives me even more of that. I'm looking at a place, and I am heading over there now.
 
 [00:11:53] Will: Yeah.
 
-[00:11:53] Adam: The. The like you said, thought-driven movement, which is uncanny. [unclear: Um,/—] One of the other advantages. The last thing I'll say about this is when you ride it, you automatically go into a skateboard slouch, which for me is sort of like the ultimate in cool. And I never thought, close to fifty, that I'd ever get to enjoy a skateboard slouch.
+[00:11:53] Adam: The. The like you said, thought-driven movement, which is uncanny. [unclear: Um,/-] One of the other advantages. The last thing I'll say about this is when you ride it, you automatically go into a skateboard slouch, which for me is sort of like the ultimate in cool. And I never thought, close to fifty, that I'd ever get to enjoy a skateboard slouch.
 
 [00:12:27] Will: I mean, who would think that you would ever be cool, Adam?
 
@@ -372,7 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:14:40] Will: Like, just bye. We'll see you next week. Thanks for watching.
 
-[00:14:44] Adam: [unclear: Um,/—] The third part takes place on Earth.
+[00:14:44] Adam: [unclear: Um,/-] The third part takes place on Earth.
 
 [00:14:46] Will: 5,000 years in the future.
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:15:33] Norm: on the outside of the cradle. Beautiful. And then he comes. He they talk about how in the future the kids, you know, the future generations will develop, and they'll and then he came back and he died.
 
-[00:15:44] Adam: It’s and that’s really really beautiful. And [unclear: uh,/—] I love the way that with the various characters like Tavist and the Doob that he shows how different people are affected by their notoriety and the power that they have by communication.
+[00:15:44] Adam: It’s and that’s really really beautiful. And [unclear: uh,/-] I love the way that with the various characters like Tavist and the Doob that he shows how different people are affected by their notoriety and the power that they have by communication.
 
 [00:15:59] Unknown: That that hits right at home. Yeah.
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:16:42] Norm: Yes.
 
-[00:16:44] Will: Yeah, [unclear: uh,] No doubt. [unclear: Yeah./—]
+[00:16:44] Will: Yeah, [unclear: uh,] No doubt. [unclear: Yeah./-]
 
 [00:16:45] Norm: No doubt. And and maybe loosely based on, or just an institutionalized communicator.
 
@@ -462,7 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:17:40] Adam: and how effective and poisonous it is.
 
-[00:17:43] Will: And and [unclear: I,/—] it's been a while since I read this, Ada. Was she Ieda? Like her, I thought. I thought even worse than Julia was the Ieda character. Her her manipulation of the willful ignorance. This we did talk about this a little bit. Like the the rise of modern American conservatism,
+[00:17:43] Will: And and [unclear: I,/-] it's been a while since I read this, Ada. Was she Ieda? Like her, I thought. I thought even worse than Julia was the Ieda character. Her her manipulation of the willful ignorance. This we did talk about this a little bit. Like the the rise of modern American conservatism,
 
 [00:18:00] Adam: and it was fascinating to me as they went 5,000 years in the future that you had a culture built on a suspicious approach to that type of [unclear: well, some help./some healthy.]
 
@@ -504,7 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:20:39] Norm: right,
 
-[00:20:39] Will: was that the kind of fascist uprising of Dinah's father's clan that dug in under the mountains and had to take extreme measures when they ran out of you know things like birth control, right? Like they became essentially a fascist state. And at the same time, we know nothing about Ivy's husband's pingers who lived who [unclear: who/—] adapted to live under the ocean
+[00:20:39] Will: was that the kind of fascist uprising of Dinah's father's clan that dug in under the mountains and had to take extreme measures when they ran out of you know things like birth control, right? Like they became essentially a fascist state. And at the same time, we know nothing about Ivy's husband's pingers who lived who [unclear: who/-] adapted to live under the ocean
 
 [00:21:17] Norm: And that's the big twist.
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:21:48] Norm: I, we're not at a point in real life where if that was happening, if the moon blew up and we had two years ago, I don't think we could do it.
 
-[00:22:04] Will: We talked about it a little bit. I don't know if you listened to the podcast, but did you feel like I I really left the end of part one thinking that the effort to build the ark, the cloud ark, was a panacea to keep the people on the ground [unclear: um,/—] from revolting from to keep chaos at bay as long as possible.
+[00:22:04] Will: We talked about it a little bit. I don't know if you listened to the podcast, but did you feel like I I really left the end of part one thinking that the effort to build the ark, the cloud ark, was a panacea to keep the people on the ground [unclear: um,/-] from revolting from to keep chaos at bay as long as possible.
 
 [00:22:22] Adam: To give people something to do and to something to focus. on.
 
@@ -554,7 +554,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:22:42] Norm: So, without going to all the specific plot points, what were the things you liked and disliked about the third part of the book?
 
-[00:22:48] Will: So, I thought that the third part of the book could have easily been an Arthur Clarke-style 2001 epilogue. At 5,000 years in the future, and then it [unclear: it/—] opens with a descendant of Dinah stepping out of the cradle onto the [unclear: the/—] new primordial Earth, and seeing a cheetah eat a lion or something, a lion eat a elk or something, and then close. I understand why he like. I think I I got the strong feeling reading the third part. I know a lot of people didn't like it. I got the strong feeling reading the third part that Neal Stephenson had a strong vision for what he wanted that to be.
+[00:22:48] Will: So, I thought that the third part of the book could have easily been an Arthur Clarke-style 2001 epilogue. At 5,000 years in the future, and then it [unclear: it/-] opens with a descendant of Dinah stepping out of the cradle onto the [unclear: the/-] new primordial Earth, and seeing a cheetah eat a lion or something, a lion eat a elk or something, and then close. I understand why he like. I think I I got the strong feeling reading the third part. I know a lot of people didn't like it. I got the strong feeling reading the third part that Neal Stephenson had a strong vision for what he wanted that to be.
 
 [00:23:22] Adam: Oh, I think so too. Especially when you read the interviews and see that, and we talked about this on the podcast that Neal had developed this as a video game, as a television series, as a film, and it was very. I think that when you talk about developing that stuff. There's a lot to develop in the first two parts, but the third is where I think a lot of his
 
@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:27:24] Adam: oh is it yeah
 
-[00:27:25] Will: [unclear: You know,/—] it's great they act out Star Wars yeah for the kids
+[00:27:25] Will: [unclear: You know,/-] it's great they act out Star Wars yeah for the kids
 
 [00:27:28] Norm: yes
 
@@ -632,7 +632,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:27:38] Will: oh right right theater theater is the first thing that comes back after the apocalypse
 
-[00:27:41] Adam: right. And I really believe, and when I say theater, I don't mean putting on full costumes and doing a dance routine, but I mean telling each other stories and making those stories have a greater impact. The development of storytelling, theater is just the natural extension of storytelling, [unclear: Storytelling/—] as film is, as any other art form is. And I would be interested to see what kind of art would survive after 5,000 years. What it would look like. What it would feel.
+[00:27:41] Adam: right. And I really believe, and when I say theater, I don't mean putting on full costumes and doing a dance routine, but I mean telling each other stories and making those stories have a greater impact. The development of storytelling, theater is just the natural extension of storytelling, [unclear: Storytelling/-] as film is, as any other art form is. And I would be interested to see what kind of art would survive after 5,000 years. What it would look like. What it would feel.
 
 [00:28:10] Norm: And how storytelling informs the culture,
 
@@ -662,7 +662,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:29:14] Adam: I needed it. I needed that denouement. I needed that come down.
 
-[00:29:18] Norm: You did, [unclear: ah./—]
+[00:29:18] Norm: You did, [unclear: ah./-]
 
 [00:29:19] Adam: yeah, dramatically.
 
@@ -696,7 +696,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:30:36] Norm: Oh yes. I love the very X Men style of the third part of the book, but the doc Doc Hu in his wheelchair, and you have the beast like. Bards,
 
-[00:30:45] Adam: yes, yes, right, and the ones who must fight [unclear: and the./—]
+[00:30:45] Adam: yes, yes, right, and the ones who must fight [unclear: and the./-]
 
 [00:30:48] Norm: Yes, oh, it’s the way [unclear: the Thor’s hammer/the scry]. Yes,
 
@@ -714,7 +714,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:31:24] Norm: without rocket fuel
 
-[00:31:25] Will: without using without having a lot of rocket fuel without having a lot of fossil fuels consumables [unclear: How,/—] yeah how does it work and it's fascinating
+[00:31:25] Will: without using without having a lot of rocket fuel without having a lot of fossil fuels consumables [unclear: How,/-] yeah how does it work and it's fascinating
 
 [00:31:34] Adam: I'm also there Am I right that there's a book of illustrations inspired by the book?
 
@@ -822,9 +822,9 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:35:17] Adam: Cherry Jones would be brilliant
 
-[00:35:19] Norm: because [unclear: she was,/—] she played the president in 24. also.
+[00:35:19] Norm: because [unclear: she was,/-] she played the president in 24. also.
 
-[00:35:22] Adam: Cherry Jones would be absolutely perfect. Cherry Jones is her she is partners with the woman from Studio 60 on the Sunset Strip the female star, [unclear: Uh,/—] she's also a, [unclear: a/—] long time muse and a, [unclear: a/—] cast member of John Patrick Shanley's plays. I saw her here in San Francisco in Proof. Hmm. But she'd be wonderful. That's perfect.
+[00:35:22] Adam: Cherry Jones would be absolutely perfect. Cherry Jones is her she is partners with the woman from Studio 60 on the Sunset Strip the female star, [unclear: Uh,/-] she's also a, [unclear: a/-] long time muse and a, [unclear: a/-] cast member of John Patrick Shanley's plays. I saw her here in San Francisco in Proof. Hmm. But she'd be wonderful. That's perfect.
 
 [00:35:46] Will: I don’t know if you could get seven women working in Hollywood today.
 

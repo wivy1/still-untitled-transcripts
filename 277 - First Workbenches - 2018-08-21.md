@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:06:54] Kayte Sabicer: Yeah, exactly.
 
-[00:06:55] Adam: The most as specific as you can possibly imagine—that's where Cinefex goes.
+[00:06:55] Adam: The most as specific as you can possibly imagine - that's where Cinefex goes.
 
 [00:06:59] Kayte Sabicer: Well, and I've encountered a lot of people in the industry who treat things like trade secrets too. So sometimes you'll work with people. Who have great knowledge and insight, but you don't get access to any of that because they don't want to share it. So sometimes this is a way of like getting in there and feeling like you're hearing the secrets.
 
@@ -152,7 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:09:23] Kayte Sabicer: I'll just take a vacation week, just look at Cinefex the whole time.
 
-[00:09:27] Adam: It's I. It really like, way back before I was doing television, I worked for Lucasfilm, and they started to send me out to do public speaking on behalf of Lucasfilm. I mentioned to the PR department that I was potentially good at it, and in 2000, they sent me to the Breckenridge, Colorado Film Festival, and in this small auditorium, I, I I built a slide deck with actual slides and a slide projector from Lucasfilm Archives, and I built a talk, and then I took questions from the audience, and this is I'm like. A 30-year-old model maker, right? 33-year-old model maker. I don't, and yet, because I had read every single episode of Cine—every single issue of Cinefex, I had this ability to put these pieces together for the audience to really help them understand the arc of how some of the effects that we're using today are still some of the oldest effects that anyone's used in film.
+[00:09:27] Adam: It's I. It really like, way back before I was doing television, I worked for Lucasfilm, and they started to send me out to do public speaking on behalf of Lucasfilm. I mentioned to the PR department that I was potentially good at it, and in 2000, they sent me to the Breckenridge, Colorado Film Festival, and in this small auditorium, I, I I built a slide deck with actual slides and a slide projector from Lucasfilm Archives, and I built a talk, and then I took questions from the audience, and this is I'm like. A 30-year-old model maker, right? 33-year-old model maker. I don't, and yet, because I had read every single episode of Cine- every single issue of Cinefex, I had this ability to put these pieces together for the audience to really help them understand the arc of how some of the effects that we're using today are still some of the oldest effects that anyone's used in film.
 
 [00:10:33] Norm: Yeah,
 

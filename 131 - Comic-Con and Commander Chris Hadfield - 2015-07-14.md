@@ -12,7 +12,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:00:12] Norm: and I am Norm.
 
-[00:00:13] Adam: [unclear: I—my] my voice is completely trashed from the party last night, and I knew it was first of all I knew it was happening at w00tstock because backstage gets real noisy, and you know I it's all these people I only see once a year, so Thursday night was spent kind of yelling and screaming, and like okay, I've got to hold my voice back until I sing, and then I can talk.
+[00:00:13] Adam: [unclear: I - my] my voice is completely trashed from the party last night, and I knew it was first of all I knew it was happening at w00tstock because backstage gets real noisy, and you know I it's all these people I only see once a year, so Thursday night was spent kind of yelling and screaming, and like okay, I've got to hold my voice back until I sing, and then I can talk.
 
 [00:00:34] Will: Yeah,
 
@@ -140,7 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:04:48] Norm: to watch the San Diego Philharmonic play Star Wars. I don't know if it's because John Williams was there, Harrison Ford was there, and they had fireworks.
 
-[00:04:56] Will: I got the scoop. It was John Williams. John Williams wasn't there. He he came in by video conference. He basically said, " Look, this is my favorite stuff that I've done for Star Wars over the years. This is my this is my all time faves." And rolled through it all, and it was just—it's open with the Imperial March. Yeah, it was. Yeah, super good.
+[00:04:56] Will: I got the scoop. It was John Williams. John Williams wasn't there. He he came in by video conference. He basically said, " Look, this is my favorite stuff that I've done for Star Wars over the years. This is my this is my all time faves." And rolled through it all, and it was just - it's open with the Imperial March. Yeah, it was. Yeah, super good.
 
 [00:05:16] Adam: So good.
 

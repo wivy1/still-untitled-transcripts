@@ -178,7 +178,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:13:38] Will: I think Capricorn One. You know.
 
-[00:13:39] Adam: Yeah, or I guess Apollo 18. I haven't either, but this is what I've heard. So we think of low budget as meaning like you know someone bangs into the set and it moves like cardboard. This film doesn't suffer from any of that. It is very well constructed. There's there's a lot of action on the set, and when they're—there's action, the whole set moves. They really built a set, and they can you know jiggle it and move it. The weightless stuff that they do and the simulated gravity stuff that they do is is really well thought out. They use their money incredibly wisely. So I got to give them huge props for a film that looks fantastic and not. I don't think. It would be obvious to a ton of people how low the budget probably was, and the acting like I said was great.
+[00:13:39] Adam: Yeah, or I guess Apollo 18. I haven't either, but this is what I've heard. So we think of low budget as meaning like you know someone bangs into the set and it moves like cardboard. This film doesn't suffer from any of that. It is very well constructed. There's there's a lot of action on the set, and when they're - there's action, the whole set moves. They really built a set, and they can you know jiggle it and move it. The weightless stuff that they do and the simulated gravity stuff that they do is is really well thought out. They use their money incredibly wisely. So I got to give them huge props for a film that looks fantastic and not. I don't think. It would be obvious to a ton of people how low the budget probably was, and the acting like I said was great.
 
 [00:14:24] Norm: They wrote the movie so they could work around the low budget. Like you said, there is simulated gravity, and they designed it in a way their ship,
 
@@ -224,7 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:17:25] Will: It's fucking terrible.
 
-[00:17:26] Norm: The first two thirds is—is fantastic.
+[00:17:26] Norm: The first two thirds is - is fantastic.
 
 [00:17:30] Adam: I've heard about that.
 
@@ -298,7 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:20:06] Norm: That's what he's going for.
 
-[00:20:06] Adam: Uncomfortable, but maybe that’s exactly what the point was. Oh, can I point, can I make something, I—can I talk about something? Moon. You guys have both seen it?
+[00:20:06] Adam: Uncomfortable, but maybe that’s exactly what the point was. Oh, can I point, can I make something, I - can I talk about something? Moon. You guys have both seen it?
 
 [00:20:13] Norm: Yeah, absolutely.
 

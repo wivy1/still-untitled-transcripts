@@ -62,9 +62,9 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:02:44] Adam: And that that was not an easy cut. That wouldn't have been an easy costume to ship. We had to drive it to LA at an expense to get it to New York City in a box that would have to be four feet on the side and six feet tall.
 
-[00:02:55] Norm: No. But in your build of the bear costume, you had done many revisions, and you had gotten to a point where it was you could teach people how to make it. It wouldn't be difficult. And we talked about that in the last video. And someone posted in our comments. Oh, I wonder if you could use this—the same technique that you would use to build a bear costume—to build a Totoro.
+[00:02:55] Norm: No. But in your build of the bear costume, you had done many revisions, and you had gotten to a point where it was you could teach people how to make it. It wouldn't be difficult. And we talked about that in the last video. And someone posted in our comments. Oh, I wonder if you could use this - the same technique that you would use to build a bear costume - to build a Totoro.
 
-[00:03:14] Adam: And this—I read this in the comments, and I was like, Norm, you have to reach out to them and ask them if it's okay if I take that idea and run with it, right?
+[00:03:14] Adam: And this - I read this in the comments, and I was like, Norm, you have to reach out to them and ask them if it's okay if I take that idea and run with it, right?
 
 [00:03:14] Norm: Right.
 
@@ -272,7 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:10:52] Norm: Right, right.
 
-[00:10:52] John Scalzi: and we all get that—that's a five-minute joke. But you know, the thing about it is, and I think this is a testament to my nerddom, is you want to go deeper than that. It's like, well, why has it been this way? Why, you know, how would this affect people if they found out? You know, how would they try to solve that problem? Because everybody has been that person who, whether or not it's been like you're in a group of friends and you are the last friend picked, almost sort of thing. It's like, all right, you can come along too. Right.
+[00:10:52] John Scalzi: and we all get that - that's a five-minute joke. But you know, the thing about it is, and I think this is a testament to my nerddom, is you want to go deeper than that. It's like, well, why has it been this way? Why, you know, how would this affect people if they found out? You know, how would they try to solve that problem? Because everybody has been that person who, whether or not it's been like you're in a group of friends and you are the last friend picked, almost sort of thing. It's like, all right, you can come along too. Right.
 
 [00:11:38] Adam: That was all of my grade school experience.
 
@@ -348,7 +348,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:14:19] John Scalzi: right.
 
-[00:14:19] Adam: We don't have footage of it, but this couple—they just grabbed some paper,
+[00:14:19] Adam: We don't have footage of it, but this couple - they just grabbed some paper,
 
 [00:14:19] John Scalzi: right.
 

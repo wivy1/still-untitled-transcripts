@@ -74,7 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:02:55] Will: Oh no, no, it's all wonderful. It's all really good. There's a great bit about shoes.
 
-[00:03:07] Adam: The other thing that Gaiman told me, and I was—I don't know why I was surprised by this—but he said he's never seen anybody in his whole life more gracious with the fans than Alan Moore.
+[00:03:07] Adam: The other thing that Gaiman told me, and I was - I don't know why I was surprised by this - but he said he's never seen anybody in his whole life more gracious with the fans than Alan Moore.
 
 [00:03:21] Will: Really, I can see that.
 
@@ -104,7 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:04:21] Will: You mean when they first wake up and they're oh wow?
 
-[00:04:23] Adam: Yeah, I have some taller ones too. Really hard to find. These are Rossetti, Mep—Rosti Mepal, M E P A L from 2007, and I bought a case of them. I don't need a case of them, so hence,
+[00:04:23] Adam: Yeah, I have some taller ones too. Really hard to find. These are Rossetti, Mep- Rosti Mepal, M E P A L from 2007, and I bought a case of them. I don't need a case of them, so hence,
 
 [00:04:40] Will: well, thank you.
 
@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:07:37] Will: It's so good. It makes you just. It's just nice to read about, and it's not a food porny magazine.
 
-[00:07:37] Adam: No, no, no. I wish there was—
+[00:07:37] Adam: No, no, no. I wish there was -
 
 [00:07:37] Will: Tons of glossy pictures.
 
@@ -204,7 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:08:51] Adam: or knowing even as simple as things like, yeah, if you're going to chop something, chop them all the same size so that they cook at the exact same rate. Those are little bits. But what cooks does is you can either just follow the recipe and get a great meal, or you can learn the philosophy of the recipe, which allows you to improvise. It gives you another way.
 
-[00:09:09] Norm: You know where the why—
+[00:09:09] Norm: You know where the why -
 
 [00:09:09] Adam: Yeah,
 
@@ -238,7 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:10:53] Adam: I find among the things that I can't ever have too many of is you can't have too many baking sheets of different sizes
 
-[00:11:01] Will: and with lips and with—
+[00:11:01] Will: and with lips and with -
 
 [00:11:01] Adam: with lips. Not without. And you can't have too much parchment paper. Boy, that is one that like that changed our lives.
 
@@ -340,15 +340,15 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:15:41] Adam: Yeah,
 
-[00:15:41] Will: Like vegetable peelers, a good vegetable peeler. A ceramic blade—it's worth $20 for a vegetable peeler.
+[00:15:41] Will: Like vegetable peelers, a good vegetable peeler. A ceramic blade - it's worth $20 for a vegetable peeler.
 
-[00:16:13] Adam: Totally, totally, totally. Vegetable peelers—you're going to use it more than any other thing. And by the way, go and get the bright one.
+[00:16:13] Adam: Totally, totally, totally. Vegetable peelers - you're going to use it more than any other thing. And by the way, go and get the bright one.
 
 [00:16:13] Will: Yeah.
 
-[00:16:13] Adam: Because if it's black, like all the other stuff in your drawer, the vegetable—I—I drives me crazy looking for the vegetable peeler until I bought an Oxo orange one.
+[00:16:13] Adam: Because if it's black, like all the other stuff in your drawer, the vegetable - I - I drives me crazy looking for the vegetable peeler until I bought an Oxo orange one.
 
-[00:16:27] Will: So I bought—I have an orange one that is not the kind that you hold and peel across. It's you run it down.
+[00:16:27] Will: So I bought - I have an orange one that is not the kind that you hold and peel across. It's you run it down.
 
 [00:16:32] Adam: Oh yeah, yeah, right.
 
@@ -466,7 +466,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:20:28] Will: I don't want to get into it.
 
-[00:20:28] Adam: You don’t like—
+[00:20:28] Adam: You don’t like -
 
 [00:20:28] Norm: Will’s anti-toaster oven.
 
@@ -558,9 +558,9 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:22:48] Will: depending on the relative humidity and all that stuff.
 
-[00:22:48] Adam: Really a stickler about that—
+[00:22:48] Adam: Really a stickler about that -
 
-[00:22:48] Norm: sifting because—
+[00:22:48] Norm: sifting because -
 
 [00:22:48] Adam: of that.
 
@@ -586,7 +586,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:23:45] Will: And I am always short a hand anyway. Yeah, so I I stay away from the iPhone connected stuff.
 
-[00:23:45] Adam: That’s— that is a very reasonable plan.
+[00:23:45] Adam: That’s - that is a very reasonable plan.
 
 [00:24:12] Will: A roasting pan is great. You can get away with the aluminum disposable ones from the grocery store when you are first starting out.
 
@@ -632,7 +632,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:25:34] Norm: That's like okay.
 
-[00:25:34] Will: They're like $300. If you—
+[00:25:34] Will: They're like $300. If you -
 
 [00:25:34] Adam: Costco has a cheaper one,
 
@@ -714,11 +714,11 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:29:39] Adam: No,
 
-[00:29:39] Will: but the America’s Test Kitchen—
+[00:29:39] Will: but the America’s Test Kitchen -
 
 [00:29:39] Adam: America’s Test Kitchen.
 
-[00:29:39] Will: new best recipe—
+[00:29:39] Will: new best recipe -
 
 [00:29:39] Adam: You can't go wrong with America's Test Kitchen back issues of Cook's Illustrated. And I sorry, or
 
@@ -1004,23 +1004,23 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:39:22] Adam: maybe I think the flexibility of the steel is a key part of this but I'm not positive about that but there's Julia sent me another one the other day of somebody peeling an entire
 
-[00:39:22] Will: toilet brush—
+[00:39:22] Will: toilet brush -
 
-[00:39:22] Adam: bucket full of potatoes—
+[00:39:22] Adam: bucket full of potatoes -
 
-[00:39:22] Will: yes, I’m gonna bring it up—
+[00:39:22] Will: yes, I’m gonna bring it up -
 
-[00:39:22] Adam: with a toilet brush—
+[00:39:22] Adam: with a toilet brush -
 
-[00:39:22] Will: we have to try it—
+[00:39:22] Will: we have to try it -
 
-[00:39:22] Adam: on a drill—
+[00:39:22] Adam: on a drill -
 
-[00:39:22] Norm: oh, and—
+[00:39:22] Norm: oh, and -
 
-[00:39:22] Will: so he—
+[00:39:22] Will: so he -
 
-[00:39:22] Adam: in a bucket of water—
+[00:39:22] Adam: in a bucket of water -
 
 [00:39:22] Will: He said it was a new toilet brush first.
 
@@ -1050,9 +1050,9 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:40:10] Adam: twine, uh huh.
 
-[00:40:10] Will: A little—
+[00:40:10] Will: A little -
 
-[00:40:10] Adam: twine is—
+[00:40:10] Adam: twine is -
 
 [00:40:10] Will: $0.50 worth of twine.
 

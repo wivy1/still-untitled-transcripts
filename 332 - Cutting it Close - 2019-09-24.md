@@ -312,7 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:12:57] Adam: Yeah, literally at that second, I hand them my ticket, I get in, I sit down. Five minutes later, who sits down next to me? But that Sikh gentleman
 
-[00:13:07] Will: who was taking his time—it's an important lesson there.
+[00:13:07] Will: who was taking his time - it's an important lesson there.
 
 [00:13:08] Adam: Well, no, I did it in my head. I was like, he flies out of here all the time. He must because he knows precisely how much time he has. I did not.
 
@@ -616,7 +616,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:25:14] Adam: Yeah.
 
-[00:25:14] Will: But I watched Bull Durham for the first time, in—I, I, it's funny. It used to be like a springtime ritual. I'd watch at the beginning of spring.
+[00:25:14] Will: But I watched Bull Durham for the first time, in - I, I, it's funny. It used to be like a springtime ritual. I'd watch at the beginning of spring.
 
 [00:25:21] Adam: Yeah.
 

@@ -62,7 +62,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:01:13] Adam: I managed to catch a 6 p.m. flight. I was home by 7:30.
 
-[00:01:16] Will: Oh my—great! What did it cost you to drive back from Los Angeles?
+[00:01:16] Will: Oh my - great! What did it cost you to drive back from Los Angeles?
 
 [00:01:18] Norm: Uh, $14.
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:02:40] Norm: There are hundreds of processes and steps to get to a suit,
 
-[00:02:44] Adam: and he's been chipping away at it. A lot of the suit is made out of spray polyurea, a spray truck bed liner. And. There's actually turnkey services that now do this in L.A. So Frank's shop—they—they've really done the bulk of all the work on this. They sculpted some of the parts. They had them mold. They had open molds made and had them sprayed. So most of the pieces are there. It's now time for us to just start sanding and finishing and mechanizing and painting.
+[00:02:44] Adam: and he's been chipping away at it. A lot of the suit is made out of spray polyurea, a spray truck bed liner. And. There's actually turnkey services that now do this in L.A. So Frank's shop - they - they've really done the bulk of all the work on this. They sculpted some of the parts. They had them mold. They had open molds made and had them sprayed. So most of the pieces are there. It's now time for us to just start sanding and finishing and mechanizing and painting.
 
 [00:03:13] Norm: Yeah. It's like this is no easy feat, and I think when we started three years ago, there was a thinking of well, we could approach this as what cost from the fan perspective and what cosplayers would do, and maybe make some stuff out of foam. But I think Frank wanted to because he was still scaling up and building out his business. He wanted to really use this as an exercise to do it exactly as FBFX would have done it with you know very close reference. We had access to a suit.
 
@@ -220,7 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:06:50] Norm: But while like New York Comic Con and San Diego Comic Con. Are also widely different because they're just different organizations. Maker Faire thinks of these as different flagships. Also, New York is World Maker Faire, while the San Mateo one is the home base. And one, it's they curate different types of projects that are shown. It's not it's different different place, different projects, and different people. And so it's a whole different flavor.
 
-[00:07:14] Will: I think the first thing we said when we went to the World Maker Faire the first time was that there were way more robotic stuff. There was way— And that's shifted a little bit more toward Bay Area in the six years, I guess, since we went to
+[00:07:14] Will: I think the first thing we said when we went to the World Maker Faire the first time was that there were way more robotic stuff. There was way - And that's shifted a little bit more toward Bay Area in the six years, I guess, since we went to
 
 [00:07:26] Norm: like first robotics, huge presence,
 
@@ -374,7 +374,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:14:42] Adam: Yeah, I tend to be a window side.
 
-[00:14:45] Will: Because she likes to have the window open, likes a little bit more air than I do. But she hurt her ankle a few weeks ago and has had like. Hasn't been able to keep it under the covers, and the side that it's on means that we've had to switch sides of the bed at home, which has been—it was really discomforting. Like we've lived in this house for 12 years, I've slept on the same side of the bed every night for 12 years. Yeah, it's real weird, man.
+[00:14:45] Will: Because she likes to have the window open, likes a little bit more air than I do. But she hurt her ankle a few weeks ago and has had like. Hasn't been able to keep it under the covers, and the side that it's on means that we've had to switch sides of the bed at home, which has been - it was really discomforting. Like we've lived in this house for 12 years, I've slept on the same side of the bed every night for 12 years. Yeah, it's real weird, man.
 
 [00:15:08] Adam: Yeah, that's a thing. That's so funny.
 
@@ -470,7 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:20:13] Adam: yeah, so the yeah,
 
-[00:20:16] Will: one of the things that struck me—I don't want to say what it is because I don't want to give it away—but I remember we first started working with you in 2012. We talked about how you feel about 3D printing.
+[00:20:16] Will: one of the things that struck me - I don't want to say what it is because I don't want to give it away - but I remember we first started working with you in 2012. We talked about how you feel about 3D printing.
 
 [00:20:24] Adam: Mm-hmm.
 
@@ -530,7 +530,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:24:31] Adam: Is there anything else?
 
-[00:24:32] Will: That's—
+[00:24:32] Will: That's -
 
 [00:24:33] Adam: So I wanted to mention. I watched a movie in the hotel this week.
 
@@ -666,7 +666,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:27:33] Norm: And you have very Shane Black jokes in here, and the there are two predators. The first predator looks really great. The second predator doesn't look so good.
 
-[00:27:40] Unknown speaker (Will or Norm carry): So—
+[00:27:40] Unknown speaker (Will or Norm carry): So -
 
 [00:27:41] Norm: Apparently they rewrote the last third of the movie because of test screenings.
 
@@ -696,7 +696,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:28:21] Will: But yeah, like are these the Civil War reenactors of the Predator world that we see? Are they going out and living the way things used to be? Like, but Steve in accounting is like, man, look look Shane, I don't want to see your.
 
-[00:28:32] Adam: I think you actually— The Predator is the alt right of the Predator planet?
+[00:28:32] Adam: I think you actually - The Predator is the alt right of the Predator planet?
 
 [00:28:35] Will: Right, that's my question.
 
@@ -708,9 +708,9 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:28:53] Adam: such a great design. That in the first movie when that happens, you're so. It's just one of the coolest aliens ever.
 
-[00:29:00] Will: Well, it took the good lesson of Jaws and applied it exceptionally well, which is—
+[00:29:00] Will: Well, it took the good lesson of Jaws and applied it exceptionally well, which is -
 
-[00:29:04] Adam: Oh my God. Do you—
+[00:29:04] Adam: Oh my God. Do you -
 
 [00:29:05] Will: Yeah.
 

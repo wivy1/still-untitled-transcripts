@@ -60,7 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=1s_YY_MYkfI
 
 [00:00:39] Adam: I have lots of love for Cleveland.
 
-[00:00:39] Frank: It’s— I grew up in Cleveland.
+[00:00:39] Frank: It’s - I grew up in Cleveland.
 
 [00:00:39] Adam: It's a real city.
 
@@ -296,7 +296,7 @@ Episode URL: https://www.youtube.com/watch?v=1s_YY_MYkfI
 
 [00:07:18] Adam: I know. Would that be awesome? Like, well, that looks ludicrous.
 
-[00:07:21] Norm: Walk walk us through your thought process as you’re—
+[00:07:21] Norm: Walk walk us through your thought process as you’re -
 
 [00:07:23] Adam: So, what I think when I see that trailer is, I think he says, " We're going to go someplace you don't expect, which is great. Of course, we want that, but we're going to keep to the conventions that make you feel comfortable in this space. Whoop, whoop, whoop, whoop, whoop, of of the sounds of things.
 
@@ -468,11 +468,11 @@ Episode URL: https://www.youtube.com/watch?v=1s_YY_MYkfI
 
 [00:15:56] Norm: Pinewood,
 
-[00:15:56] Adam: Pinewood, right? Seeing the flyovers of that—I mean, my favorite ship in the whole world—I seriously considered flying to London and trying to get a visit to the set just to see it.
+[00:15:56] Adam: Pinewood, right? Seeing the flyovers of that - I mean, my favorite ship in the whole world - I seriously considered flying to London and trying to get a visit to the set just to see it.
 
 [00:16:13] Norm: outside the gates.
 
-[00:16:14] Adam: Oh, but, Abrams has made it clear he is going practical as much as possible. Give the actors real environments to work in, but also—and I'm not even positive that that means he's going to do motion control ship filming and stuff. It's probably hard to justify the expense of moco rigs given how inexpensive CG is. And frankly, I'm not sure you'd see the difference in the hands of a great director. But the idea that we'd be seeing practical effects, practical droids, actors in real environments really excites me.
+[00:16:14] Adam: Oh, but, Abrams has made it clear he is going practical as much as possible. Give the actors real environments to work in, but also - and I'm not even positive that that means he's going to do motion control ship filming and stuff. It's probably hard to justify the expense of moco rigs given how inexpensive CG is. And frankly, I'm not sure you'd see the difference in the hands of a great director. But the idea that we'd be seeing practical effects, practical droids, actors in real environments really excites me.
 
 [00:16:44] Frank: Well, you say that about about the ships, but in Interstellar, they built a lot of those space
 

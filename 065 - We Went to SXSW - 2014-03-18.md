@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:06:19] Will: Man, speaking of so the little chevron they're not chevrons are they chevrons
 
-[00:06:25] Norm: They’re chevrons—ish.
+[00:06:25] Norm: They’re chevrons-ish.
 
 [00:06:26] Will: The chevronies.
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:17:37] Norm: Photos to share from this podcast.
 
-[00:17:39] Adam: The strangest thing about the sequin coat was you search sequin coat. There's plenty out there, and really, it's hard to find them any more than about $40. They cost about $40. So I—
+[00:17:39] Adam: The strangest thing about the sequin coat was you search sequin coat. There's plenty out there, and really, it's hard to find them any more than about $40. They cost about $40. So I -
 
 [00:17:50] Will: Is this like these stripper stores and stuff like that.
 
@@ -628,7 +628,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:20:25] Will: Yeah.
 
-[00:20:25] Norm: Liv Tyler, is it Matt Bomer from White Collar? He's that USA show. I'm not sure where—
+[00:20:25] Norm: Liv Tyler, is it Matt Bomer from White Collar? He's that USA show. I'm not sure where -
 
 [00:20:34] Will: Oh, okay, I know him. Hold on, is that the one where they're standing with their arms crossed and their backs to each other with a blue sky background?
 
@@ -640,7 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:20:52] Will: Silk Stalkings.
 
-[00:20:53] Norm: The one—I—visual element is blue skies. It is a thing that they want to project.
+[00:20:53] Norm: The one - I - visual element is blue skies. It is a thing that they want to project.
 
 [00:21:00] Adam: Wow!
 
@@ -746,7 +746,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:23:40] Will: like the one that looks looks like a watercolor almost or chalk or whatever.
 
-[00:23:43] Adam: Harrison Ford's turning, and he's—look, I mean, it's just his his pictures are almost weirdly.
+[00:23:43] Adam: Harrison Ford's turning, and he's - look, I mean, it's just his his pictures are almost weirdly.
 
 [00:23:48] Will: It's like the montage, right? The ones with were the ones like they take four or five key moments from the film and put them all in
 
@@ -838,7 +838,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:25:47] Will: You also get a letter from us. Occasionally, monthly, theoretically, okay. We, if you would like to support the podcast in a less fiduciary way, you can by rating us on iTunes or subscribing to the podcast.
 
-[00:26:13] Adam: Fiduciary—
+[00:26:13] Adam: Fiduciary -
 
 [00:26:14] Will: That’s the right word, right?
 

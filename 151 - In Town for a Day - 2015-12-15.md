@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:29:17] Will: Oh, it has the first iPad problem.
 
-[00:29:18] Adam: And it won't—you can't scale them. You can't add more icons into the.
+[00:29:18] Adam: And it won't - you can't scale them. You can't add more icons into the.
 
 [00:29:22] Will: They'll fix that in the
 
@@ -624,7 +624,7 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:29:28] Adam: Is it really?
 
-[00:29:29] Will: Yeah, remember the first iPad? They had the same number of icons on the iPad that they had on the iPhone. So when you opened it up, it just—it looked like a big iPhone.
+[00:29:29] Will: Yeah, remember the first iPad? They had the same number of icons on the iPad that they had on the iPhone. So when you opened it up, it just - it looked like a big iPhone.
 
 [00:29:37] Adam: Yeah, no, this is the joke. The OS is a little bit spotty on that front.
 

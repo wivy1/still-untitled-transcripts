@@ -86,7 +86,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:03:39] Adam: And then as we woke up on Saturday morning I found one of my Savage stickers on the ground in front of my house, and I was like, " Oh, I guess I must have dropped that."
 
-[00:03:53] Will: Littering—that's not good.
+[00:03:53] Will: Littering - that's not good.
 
 [00:03:54] Adam: And then I looked over and. I could see something was wrong in my Land Cruiser, and then I looked and saw that it had been ransacked.
 
@@ -310,7 +310,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:18:47] Adam: And so it had. I think if I remember correctly, it was built in the '70s and it was a teaching ship for a couple decades. When Peter Weir's production bought it, I actually got reached out to by one of the art department from the film who had told me some wonderful stories via Twitter DMs of working on the film and some of the props that they built.
 
-[00:19:06] Will: And is it's a partial scale or is it a full scale? Because I know like—
+[00:19:06] Will: And is it's a partial scale or is it a full scale? Because I know like -
 
 [00:19:09] Adam: The Surprise is full scale.
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:19:26] Will: Yeah.
 
-[00:19:26] Adam: and everyone bumps their heads. But, huh? Hopefully, when I go back, maybe we can set up like I can take some photos all over that and—
+[00:19:26] Adam: and everyone bumps their heads. But, huh? Hopefully, when I go back, maybe we can set up like I can take some photos all over that and -
 
 [00:19:36] Norm: Absolutely.
 
@@ -388,7 +388,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:22:16] Will: Uh.
 
-[00:22:16] Norm: Oh, it’s a—
+[00:22:16] Norm: Oh, it’s a -
 
 [00:22:18] Will: Oh, yeah, I do.
 
@@ -418,7 +418,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:22:48] Will: Wow!
 
-[00:22:48] Norm: And there is a scene in the movie that is—you know how Crazy Rich Asians has the mahjong scene that everyone talks about.
+[00:22:48] Norm: And there is a scene in the movie that is - you know how Crazy Rich Asians has the mahjong scene that everyone talks about.
 
 [00:22:56] Will: Yeah,
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:23:19] Will: I watched a really serious show about interpersonal relationships called Doom Patrol.
 
-[00:23:24] Norm: It’s a— oh, it's a DC show.
+[00:23:24] Norm: It’s a - oh, it's a DC show.
 
 [00:23:25] Will: It's a DC show, and it's about
 
@@ -488,11 +488,11 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:24:30] Norm: How do you act?
 
-[00:24:31] Will: It's all voice, and it works like it's voice and body movement, and it and it's all carried in. It's all carried in him, like having this weird frame that he can kind of control, but not really super well, and it's. I was shocked. I was really blown away by it. There’s— I should have looked up the names before we started the show, but there is two women. One plays Elastic Girl, DC Elastic Girl,
+[00:24:31] Will: It's all voice, and it works like it's voice and body movement, and it and it's all carried in. It's all carried in him, like having this weird frame that he can kind of control, but not really super well, and it's. I was shocked. I was really blown away by it. There’s - I should have looked up the names before we started the show, but there is two women. One plays Elastic Girl, DC Elastic Girl,
 
 [00:24:52] Norm: Okay.
 
-[00:24:52] Will: who like can't control. She took— when she gets stressed out, she turns into a blob, which I can identify with. And then there is a woman that has like 65 personalities, and each personality has a different superpower, and it's just like the best bad gimmick for one-off gags that I've ever seen. Like it's really fun and silly and kind of heartfelt and sweet and yeah, it's not what I was expecting.
+[00:24:52] Will: who like can't control. She took - when she gets stressed out, she turns into a blob, which I can identify with. And then there is a woman that has like 65 personalities, and each personality has a different superpower, and it's just like the best bad gimmick for one-off gags that I've ever seen. Like it's really fun and silly and kind of heartfelt and sweet and yeah, it's not what I was expecting.
 
 [00:25:21] Adam: So while signing autographs at Phoenix Fan Fusion Con, I did a long signing. It's like four, three and a half, four hours. Several hundred people, and when you are doing that, you end up accidentally misspelling a bunch of names.
 
@@ -628,7 +628,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:31:25] Adam: Wow.
 
-[00:31:25] Will: About it, like it's a third person shooter where you're just this woman who goes into this place, and the building is a mystery that you have to unravel, and it's been taken over by these this entity thing. I'm doing a terrible job explaining this [unclear: game / shit] It's it is basically you journey through to find out what happened to your brother is the goal, and it's. The explorer—exploring this world has been one of the more fascinating video game experiences I've ever had because as you go through the world, you find all the like internal memorandum memoranda from the universe,
+[00:31:25] Will: About it, like it's a third person shooter where you're just this woman who goes into this place, and the building is a mystery that you have to unravel, and it's been taken over by these this entity thing. I'm doing a terrible job explaining this [unclear: game / shit] It's it is basically you journey through to find out what happened to your brother is the goal, and it's. The explorer - exploring this world has been one of the more fascinating video game experiences I've ever had because as you go through the world, you find all the like internal memorandum memoranda from the universe,
 
 [00:31:25] Norm: Yeah.
 
@@ -686,7 +686,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:34:21] Will: Got all the way down, drilled, drilled down to. We were talking about routing tables in the whole thing.
 
-[00:34:25] Adam: I was going to listen to that on the plane tonight. [unclear: It’ll take an hour / because I’m taking a red—].
+[00:34:25] Adam: I was going to listen to that on the plane tonight. [unclear: It’ll take an hour / because I’m taking a red-].
 
 [00:34:28] Will: That'll help you go to sleep. Yeah, you'll be right there. But yeah, it's on iTunes and Google and all the Spotify, wherever you get your podcasts. We're there now.
 

@@ -608,7 +608,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:34:09] Kishore: Low, low, low, low price of 885,000.
 
-[00:34:12] Adam: So, yeah, the first film that got Steven—I'm going to tell a story that ties back into this. The first movie that Steven Soderbergh got famous for was * Sex, Lies, and Videotape*, which is a masterpiece and is still a wonderful and weird and intense movie. And it stars Peter Gallagher, Andie MacDowell, Laura San Giacomo, and. Come on, the guy, James Spader. Excuse me. And Spader,
+[00:34:12] Adam: So, yeah, the first film that got Steven - I'm going to tell a story that ties back into this. The first movie that Steven Soderbergh got famous for was * Sex, Lies, and Videotape*, which is a masterpiece and is still a wonderful and weird and intense movie. And it stars Peter Gallagher, Andie MacDowell, Laura San Giacomo, and. Come on, the guy, James Spader. Excuse me. And Spader,
 
 [00:34:39] Norm: Ultron.
 

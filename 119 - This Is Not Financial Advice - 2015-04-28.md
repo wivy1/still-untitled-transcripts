@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:02:07] Adam: Yeah.
 
-[00:02:07] Will: So, you know, if we're gonna say, hey, these are public use spaces, or whatever it happens to be, what's the best way to use this the water? I don't necessarily think it is getting rid of—. Like I joke about the almonds, but I don't think it necessarily is letting all the almonds die because we've already spent in many cases ten or twenty. I mean, those are trees that will produce for a very long time, take 10, 20 years, and the one gallon per almond is some cost over the life of the tree, not per almond every year.
+[00:02:07] Will: So, you know, if we're gonna say, hey, these are public use spaces, or whatever it happens to be, what's the best way to use this the water? I don't necessarily think it is getting rid of -. Like I joke about the almonds, but I don't think it necessarily is letting all the almonds die because we've already spent in many cases ten or twenty. I mean, those are trees that will produce for a very long time, take 10, 20 years, and the one gallon per almond is some cost over the life of the tree, not per almond every year.
 
 [00:02:36] Adam: Right.
 
@@ -152,7 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:04:09] Adam: let's be realistic.
 
-[00:04:10] Will: Like the middle of 19th Avenue, that doesn't need to be green. Nobody, no, no feet trod on the middle of— Anyway,
+[00:04:10] Will: Like the middle of 19th Avenue, that doesn't need to be green. Nobody, no, no feet trod on the middle of - Anyway,
 
 [00:04:16] Norm: my experience with SimCity, people are going to be sad and angry.
 
@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:06:24] Norm: Sounds like ninth grade.
 
-[00:06:26] Adam: But they're not. Yes, but they're not They’re not— learning about how to balance a checkbook.
+[00:06:26] Adam: But they're not. Yes, but they're not They’re not - learning about how to balance a checkbook.
 
 [00:06:30] Will: Well, the things that they actually need to know, like here's here's how in car insurance and house insurance work.
 
@@ -422,7 +422,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:15:41] Adam: I'd be interested in one that I could listen to with my kids. You know, something like that to really help them understand the shape, because I understand it now in a way that I was so dumb and green and the perfect target.
 
-[00:15:56] Will: Well, you learned the hard way. I mean, everybody. I did the same thing when I was in college. I signed— signed up for one of those. Hey, you get a two liter Coke if you sign up for this credit card right now. It's like, why would I not do it? I'd be a fool not to do this.
+[00:15:56] Will: Well, you learned the hard way. I mean, everybody. I did the same thing when I was in college. I signed - signed up for one of those. Hey, you get a two liter Coke if you sign up for this credit card right now. It's like, why would I not do it? I'd be a fool not to do this.
 
 [00:16:09] Norm: It sounds like a difference between what they teach in school is more of the macro side, like the big picture. You know how how banks screw over corporations, other banks,
 

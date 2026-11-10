@@ -356,7 +356,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:10:49] Will: I mean, that looked like a tractor like hooking a chain to the axle and pulling it out with a tractor situation.
 
-[00:10:54] Adam: Everything about this area made it difficult. There were tree stumps, but none of them were closer than 150 feet away. They were all off angle. It was leaning towards a neighbor's fence, and by the way, the neighbors that I dealt with—Hamidi, Kathy, Byron, and Lynette—all the neighbors were awesome. Like they were, they just they all came out.
+[00:10:54] Adam: Everything about this area made it difficult. There were tree stumps, but none of them were closer than 150 feet away. They were all off angle. It was leaning towards a neighbor's fence, and by the way, the neighbors that I dealt with - Hamidi, Kathy, Byron, and Lynette - all the neighbors were awesome. Like they were, they just they all came out.
 
 [00:11:16] Will: Look, it's the longest Sunday. They got a great story to tell. No damage done.
 

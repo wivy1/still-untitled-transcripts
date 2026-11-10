@@ -670,11 +670,11 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:29:44] Will: Seven women of childbearing age.
 
-[00:29:45] Adam: Seven women of childbearing age, and they—that's what seven eves is.
+[00:29:45] Adam: Seven women of childbearing age, and they - that's what seven eves is.
 
 [00:29:50] Will: So literally, I just got chills.
 
-[00:29:51] Adam: I know I'm getting a little choked up. So I I. I came to this part of the book. It was about 2:30 in the morning of the weekend. I was polishing it off, and I just—I literally dropped the book and openly wept. I just—I couldn't believe how lovely that that that construction was. Of course.
+[00:29:51] Adam: I know I'm getting a little choked up. So I I. I came to this part of the book. It was about 2:30 in the morning of the weekend. I was polishing it off, and I just - I literally dropped the book and openly wept. I just - I couldn't believe how lovely that that that construction was. Of course.
 
 [00:30:09] Will: But I mean, it's it highlights the fragility of our existence as a whole.
 

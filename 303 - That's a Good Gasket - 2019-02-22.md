@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:05:47] Will: It's just our spirits leaving our bodies and going up in space.
 
-[00:05:49] Kishore: I was gonna go I don't—
+[00:05:49] Kishore: I was gonna go I don't -
 
 [00:05:50] Will: need to ask.
 
@@ -470,7 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:21:14] Will: Yeah.
 
-[00:22:38] Kishore: The Groundhog Day thing we did—we screened that last month for my science series at the Alamo Drafthouse,
+[00:22:38] Kishore: The Groundhog Day thing we did - we screened that last month for my science series at the Alamo Drafthouse,
 
 [00:22:43] Adam: Oh, wow.
 
@@ -684,9 +684,9 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:32:39] Adam: which is sort of the north star of this podcast.
 
-[00:32:41] Kishore, possibly Adam: And Carrey—
+[00:32:41] Kishore, possibly Adam: And Carrey-
 
-[00:32:43] Adam: —rou, John.
+[00:32:43] Adam: -rou, John.
 
 [00:32:43] Kishore: The hard part about this entire story, like because like we live in a world where there's a ton of malfeasance, is that we'll never understand what the malfeasance, like the impacts of it, because all these people took this test, and it's hard to know understand the decisions they make based off of a bad test.
 

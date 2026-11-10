@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:04:27] Adam: Running water? Yes, yes, you do.
 
-[00:04:30] Will: End up—a composting toilet.
+[00:04:30] Will: End up - a composting toilet.
 
 [00:04:31] Adam: You end up with a shade spot, and you can, if you want, purchase an extra curtain that goes from the exterior floor pan down to the ground as a shower or an extra tent.
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:13:07] Will: I mean, it's probably more prevalent. In a lot in places,
 
-[00:13:10] Adam: I've known many people who have—I've known many people of color who said they trust Southerners better, more because at least they're honest about the racism. when it exists
+[00:13:10] Adam: I've known many people who have - I've known many people of color who said they trust Southerners better, more because at least they're honest about the racism. when it exists
 
 [00:13:19] Will: predictable and yeah, the rural rural poor, scary conservative. Those are the three markers,
 
@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:14:54] Will: his parents moved him to a school where he could learn about that stuff, and they said, " Hey, go do this. It's a great idea. "
 
-[00:15:10] Adam: Look, all of this is to say the plural of anecdote it is is not evidence. No. But the idea of a 14-year-old kid who is doing everything right—he's indulging his passion. He is exploring a new field for him, electronics. He is building something. He is making something,
+[00:15:10] Adam: Look, all of this is to say the plural of anecdote it is is not evidence. No. But the idea of a 14-year-old kid who is doing everything right - he's indulging his passion. He is exploring a new field for him, electronics. He is building something. He is making something,
 
 [00:15:10] Norm: and he's proud of it.
 

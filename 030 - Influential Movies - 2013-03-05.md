@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:09:43] Will: And he's there's still love.
 
-[00:09:45] Adam: There's still a real sweetness about it, and the fact that you could watch it repeatedly and it's never boring. You know that Julia when he's like and she it's a thing between my wife and I when you know where one of us is doing a bad impression, the other one goes. I hate that stupid mongoloid voice you make. I mean, pulp fiction is. Full of one-liners that are almost a constant stream of one-liners in my relationship with my wife because we're both film addicts. We love great films, and really specifically, we love watching them together, pausing, talking about them, keeping going, rewinding, watching things, analyzing them, breaking them down. And pulp fiction's just—it's never—it's always thrilling.
+[00:09:45] Adam: There's still a real sweetness about it, and the fact that you could watch it repeatedly and it's never boring. You know that Julia when he's like and she it's a thing between my wife and I when you know where one of us is doing a bad impression, the other one goes. I hate that stupid mongoloid voice you make. I mean, pulp fiction is. Full of one-liners that are almost a constant stream of one-liners in my relationship with my wife because we're both film addicts. We love great films, and really specifically, we love watching them together, pausing, talking about them, keeping going, rewinding, watching things, analyzing them, breaking them down. And pulp fiction's just - it's never - it's always thrilling.
 
 [00:10:32] Will: The thing we do is we'll play board games, and the background for the board game when the other because you play a board game, you have to think about it. The worst thing in the world is waiting for the other person to take their turn.
 
@@ -244,7 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:11:28] Adam: In general it's funny. I went through this phase in my early 20s when I moved out here to San Francisco. I was 23, and I've been here. I've been here 22 years. I was
 
-[00:11:43] Will: Catches— creeps up on you, doesn't it?
+[00:11:43] Will: Catches - creeps up on you, doesn't it?
 
 [00:11:44] Adam: Yeah, I was 23, and I remember sitting in the movies watching Joy Luck Club, which is, I guess, yeah, 91, 92. It
 

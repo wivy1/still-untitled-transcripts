@@ -18,7 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=LPi49fqsYo8
 
 [00:01:16] Will: How's everybody doing this morning?
 
-[00:01:20] Adam: Everybody’s doing gr—. I'm doing great.
+[00:01:20] Adam: Everybody’s doing gr-. I'm doing great.
 
 [00:01:22] Will: Norm,
 
@@ -156,7 +156,7 @@ Episode URL: https://www.youtube.com/watch?v=LPi49fqsYo8
 
 [00:07:29] Norm: If someone's getting a fresh cup of coffee at some point of this day, and I'm not, then they're getting the better of me. Right,
 
-[00:07:34] Will: coffee pot isn't a zero sum game. Right, it's like if [unclear: Nor / Nora] gets a good cup of coffee doesn't mean I get a garbage cup of coffee. It means we both get this. To me, though, the larger issue—I mean, the entitlement thing—is is sad, frankly. People who are unkind to people who have bad jobs or unpleasant—they're not bad jobs; they're unpleasant jobs. A lot of times, customer-facing jobs, whether it's retail or waiting tables or whatever—and in this, when I say bad, I mean anything like. I think people who tip badly, like even if you have bad service at a restaurant, I tip.
+[00:07:34] Will: coffee pot isn't a zero sum game. Right, it's like if [unclear: Nor / Nora] gets a good cup of coffee doesn't mean I get a garbage cup of coffee. It means we both get this. To me, though, the larger issue - I mean, the entitlement thing - is is sad, frankly. People who are unkind to people who have bad jobs or unpleasant - they're not bad jobs; they're unpleasant jobs. A lot of times, customer-facing jobs, whether it's retail or waiting tables or whatever - and in this, when I say bad, I mean anything like. I think people who tip badly, like even if you have bad service at a restaurant, I tip.
 
 [00:08:12] Adam: Yeah.
 

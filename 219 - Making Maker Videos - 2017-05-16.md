@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=IyI0ey_T4c0
 
 [00:12:53] Laura Kampf: Yeah,
 
-[00:12:54] Adam: we had to come up with a poop analog. So we got dog poop, and Jamie did this wonderful sequence where he examined the material properties of poop—how sticky it was, how soft it was—and he replicated that with some grains and some flour and some sugars and some water, et cetera. And my thing from a producing standpoint was it has to be blue. It has to be clear that it's not poop. And Jamie was like, " No, I want it to be brown, and more than that, I want to eat it on camera." And I was like, " There's no way you're gonna be allowed to eat shit on camera, even if it just think about the person clicking through the dial, getting to that point where you're like eating a turd and laughing at—that's not gonna happen.
+[00:12:54] Adam: we had to come up with a poop analog. So we got dog poop, and Jamie did this wonderful sequence where he examined the material properties of poop - how sticky it was, how soft it was - and he replicated that with some grains and some flour and some sugars and some water, et cetera. And my thing from a producing standpoint was it has to be blue. It has to be clear that it's not poop. And Jamie was like, " No, I want it to be brown, and more than that, I want to eat it on camera." And I was like, " There's no way you're gonna be allowed to eat shit on camera, even if it just think about the person clicking through the dial, getting to that point where you're like eating a turd and laughing at - that's not gonna happen.
 
 [00:13:41] Norm: Yeah,
 
@@ -434,7 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=IyI0ey_T4c0
 
 [00:33:27] Laura Kampf: Yeah, I mean, I can tell by by the way.
 
-[00:33:28] Adam: I finally I realize it's about probably 15 to 20 percent of what I do in the shop is just infrastructure. Just figuring out a new place to put a shelf, or looking at that—that pile's been there for three months. Maybe I need to make a shelf space for it.
+[00:33:28] Adam: I finally I realize it's about probably 15 to 20 percent of what I do in the shop is just infrastructure. Just figuring out a new place to put a shelf, or looking at that - that pile's been there for three months. Maybe I need to make a shelf space for it.
 
 [00:33:44] Laura Kampf: Yes, and that's another cool aspect about YouTube because with these videos, I get to share my shop, which is the heart of everything for me. And if I'm just there selling my products or doing client work, they don't get to see the best part of it.
 

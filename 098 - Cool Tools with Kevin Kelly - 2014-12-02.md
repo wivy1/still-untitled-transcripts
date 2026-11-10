@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:01:23] Kevin: Well, I was actually involved in starting the WELL, which was the first public access to the internet. I did the Hackers First Hackers Conference, which brought together three generations of hackers. I did the Virtual Reality Jamboree. We call it Cyberthon, which was the first public access to VR in '89.
 
-[00:01:39] Adam: So wait, the WELL—you helped birth the first trolls.
+[00:01:39] Adam: So wait, the WELL - you helped birth the first trolls.
 
 [00:01:43] Kevin: Exactly. I was there for the first flame.
 
@@ -854,7 +854,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:43:27] Kevin: it's the first thing you thought of.
 
-[00:43:28] Will: yeah we call it the— Nothing’s gonna leak out of that.
+[00:43:28] Will: yeah we call it the - Nothing’s gonna leak out of that.
 
 [00:43:31] Adam: Gambino
 
@@ -1028,7 +1028,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:49:48] Adam: There's there's another use that it has which I use all the time, which is if you're grinding something small and metal, it's going to get hot really quickly, and you're going to have to be cooling it down constantly. But you can clamp it to a vise grip and grind all day long. It's great for holding onto small parts while you're filing and shaping them.
 
-[00:50:05] Kevin: Right, right. Last one is. LED flashlights have sort of just—they're on another one of these curves of changing really, really fast.
+[00:50:05] Kevin: Right, right. Last one is. LED flashlights have sort of just - they're on another one of these curves of changing really, really fast.
 
 [00:50:17] Adam: And what are you using now?
 

@@ -224,13 +224,13 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:08:06] Will: This is what your special lady friends call it
 
-[00:08:08] Norm: That’s what it calls it, —the [unclear: mass matrium / masamitorium].
+[00:08:08] Norm: That’s what it calls it, - the [unclear: mass matrium / masamitorium].
 
 [00:08:10] Adam: That is the best non sequitur. I know it's a sequitur, but it felt like a non. sequitur.
 
 [00:08:13] Will: I know what this episode is going to be called.
 
-[00:08:15] Adam: So, so your grand—you grew up going to grandpa's house, and he had a full-size pool table.
+[00:08:15] Adam: So, so your grand- you grew up going to grandpa's house, and he had a full-size pool table.
 
 [00:08:20] Will: Yeah. So he grew up in New York as a Jewish kid in New York.
 
@@ -294,11 +294,11 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:11:41] Will: Might have been a Radiolab, but I think it was.
 
-[00:11:42] Adam: I love telling that story. But so it had all original 1910 Brunswick-Balke-Collender equipment. I've still got the Kelly pool board, which is an incredibly rare piece. We sold the table a few years ago. I think my mom got a good amount of money for it at auction, but I grew up playing on that table, playing poorly. And then, when I was, I think, about 16, my dad's randy friend—he really has no other way to describe this crazy Irishman named Bob Clatworthy—I think he was Irish, might have been British anyway. Bob Clatworthy,
+[00:11:42] Adam: I love telling that story. But so it had all original 1910 Brunswick-Balke-Collender equipment. I've still got the Kelly pool board, which is an incredibly rare piece. We sold the table a few years ago. I think my mom got a good amount of money for it at auction, but I grew up playing on that table, playing poorly. And then, when I was, I think, about 16, my dad's randy friend - he really has no other way to describe this crazy Irishman named Bob Clatworthy - I think he was Irish, might have been British anyway. Bob Clatworthy,
 
 [00:12:18] Will: wonderful artist. The story's better if he's Irish.
 
-[00:12:20] Adam: Randy, friend of my dad's, we're playing pool, and I am playing terribly. And he turns to me and says, " It's not really a game, is it?" And I thought, " Fuck you!" And so I—I don't know for some reason I started practicing,
+[00:12:20] Adam: Randy, friend of my dad's, we're playing pool, and I am playing terribly. And he turns to me and says, " It's not really a game, is it?" And I thought, " Fuck you!" And so I - I don't know for some reason I started practicing,
 
 [00:12:33] Norm: nice
 
@@ -500,7 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:26:21] Adam: I am going to find some pool halls on the road, by the way. So tell me your one more pool. One more thing, your Steve Jobs moment.
 
-[00:26:26] Will: My one more thing. It's a funny story. I was sitting in a bar playing pool, and I was with some friends. The guy next in line for the table was standing there watching, and we were talking about whether it would hurt worse—to get shot or stabbed. And we go on and on and on, as people drinking and playing pool do. And finally, the guy who's sitting there waiting at the table says, " Stabbed is much worse." And I said, how? Why? How do you know? And he's like, Well, this one's from a stab, and this one's from getting shot. And he pointed to the meat of his arm, and the and I was like, Well, okay, pool halls.
+[00:26:26] Will: My one more thing. It's a funny story. I was sitting in a bar playing pool, and I was with some friends. The guy next in line for the table was standing there watching, and we were talking about whether it would hurt worse - to get shot or stabbed. And we go on and on and on, as people drinking and playing pool do. And finally, the guy who's sitting there waiting at the table says, " Stabbed is much worse." And I said, how? Why? How do you know? And he's like, Well, this one's from a stab, and this one's from getting shot. And he pointed to the meat of his arm, and the and I was like, Well, okay, pool halls.
 
 [00:27:02] Adam: I have one more story, which is many of my best nights at pool had been when I lost, but so spectacularly that I got the respect of the room,
 

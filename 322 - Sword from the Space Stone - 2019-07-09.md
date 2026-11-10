@@ -18,7 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:00:07] Will: It's been a weekend.
 
-[00:00:10] Adam: Well, we're—
+[00:00:10] Adam: Well, we're -
 
 [00:00:10] Will: we had a long weekend.
 
@@ -28,7 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:00:12] Adam: and it feels like July Fourth weekend lasted like 12 days.
 
-[00:00:17] Will: Do you—
+[00:00:17] Will: Do you -
 
 [00:00:17] Norm: For you are out.
 
@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:00:22] Will: It was so amazing.
 
-[00:00:23] Norm: That was so—
+[00:00:23] Norm: That was so -
 
 [00:00:24] Adam: It was so quiet.
 
@@ -60,7 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:01:06] Adam: Yes, and I sustained an injury on stage during my talk.
 
-[00:01:11] Will: Were you juggling, what—?
+[00:01:11] Will: Were you juggling, what -?
 
 [00:01:12] Adam: No, paper cut. No, they specifically asked for a talk that was about the history of MythBusters and some things that I stories that I wanted to tell about it. So I went through a bunch of old stuff I had, and way back after we had aired Waterslide Wipeout,
 
@@ -80,7 +80,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:01:54] Adam: Yeah.
 
-[00:01:54] Will: Nailed it. Nailed— One in a million shot, Adam. Good
+[00:01:54] Will: Nailed it. Nailed - One in a million shot, Adam. Good
 
 [00:01:56] Adam: job. So I finished my talk, and people were clapping, and then I had another 30 minutes of Q and A to do, and that's when the one of the organizers that had hired me. Came up to the foot of the stage and said, " Here's a napkin. You've cut yourself. I didn't even realize I'd lacerated.
 
@@ -244,7 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:08:34] Will: On the other hand, they made what is arguably the most famous fireworks display of all time.
 
-[00:08:40] Adam: So I am not sure that I'm not sure they're—. It's like the cannonball episode for me, right? It's like I am really glad no one was hurt, but it's not something I love to talk about. I am happy to tell the story in order to tell the cautionary tale, but it's not like it's still not funny.
+[00:08:40] Adam: So I am not sure that I'm not sure they're -. It's like the cannonball episode for me, right? It's like I am really glad no one was hurt, but it's not something I love to talk about. I am happy to tell the story in order to tell the cautionary tale, but it's not like it's still not funny.
 
 [00:08:55] Will: Well, you don't
 
@@ -642,7 +642,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:24:09] Norm: I can't believe that's it's. Next week is the
 
-[00:24:11] Adam: Yeah, I leave like—
+[00:24:11] Adam: Yeah, I leave like -
 
 [00:24:11] Norm: anniversary. We're like a week and a half.
 

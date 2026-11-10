@@ -118,17 +118,17 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:03:53] Will: There's a secret world. We're not going to spoil, but there's secret worlds in the like the whole first act is building to this big reveal, and then the big reveal comes. You're like, wait, what? And then it gets real weird from there.
 
-[00:04:05] Adam: It gets very weird, and some of the—
+[00:04:05] Adam: It gets very weird, and some of the -
 
 [00:04:06] Will: it's very reminiscent of Dune.
 
-[00:04:09] Adam: Like, I—I had some significant problems with some of the biggest pieces, like the way our hero moves around.
+[00:04:09] Adam: Like, I - I had some significant problems with some of the biggest pieces, like the way our hero moves around.
 
 [00:04:16] Will: Meaning,
 
 [00:04:17] Norm: Channing Tatum.
 
-[00:04:18] Adam: Yeah. The way Channing Tatum moves around with his—
+[00:04:18] Adam: Yeah. The way Channing Tatum moves around with his -
 
 [00:04:21] Will: oh, his rocket, his
 
@@ -212,7 +212,7 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:06:46] Norm: Okay. Okay. Okay.
 
-[00:06:50] Will: Okay. Okay. [unclear: Can / Could] also be something, I mean—
+[00:06:50] Will: Okay. Okay. [unclear: Can / Could] also be something, I mean -
 
 [00:07:10] Adam: Okay. Okay. [unclear: Jared, Agol and Marky / Jerry and Marky]
 
@@ -236,7 +236,7 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:07:27] Norm: Do you know?
 
-[00:07:27] Unknown speaker: Oh, um—
+[00:07:27] Unknown speaker: Oh, um -
 
 [00:07:28] Adam: I was talking about Channing Tatum roller skates.
 
@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:08:04] Adam: Yeah, it was.
 
-[00:08:06] Will: So I—
+[00:08:06] Will: So I -
 
 [00:08:06] Norm: From my perspective, it felt like that the Wachowskis were the studio because the last movie they made, Cloud Atlas, independent film, very expensive, not a commercial success. This one maybe they got the funding because they sold it as like a YA. Here's your a Hunger Games style girl's gonna save the world, at least the universe. Yeah, this one's a galaxy
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:08:06] Norm: With the love story, and that felt that was the stuff that felt unnecessary.
 
-[00:08:33] Adam: But to be—
+[00:08:33] Adam: But to be -
 
 [00:08:33] Norm: and poorly written.
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:09:46] Norm: they're cruising through the universe that's it's really good world building there
 
-[00:09:46] Adam: A to— beautiful world building I give it that that the script was bizarre and weird but the world building was amazing
+[00:09:46] Adam: A to - beautiful world building I give it that that the script was bizarre and weird but the world building was amazing
 
 [00:10:25] Will: I I feel I watched the movie and I felt at the end of it I was like man I feel like if there were a couple more establishing shots for that whole B story the the whole what's happening in space story
 
@@ -352,7 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:11:27] Will: Okay,
 
-[00:11:27] Adam: I took a picture of a car that I owned, my Land Cruiser BJ42 1982 diesel right hand drive Land Cruiser in front of my house in San Francisco, and I had locat—location tracking on, and someone used that to figure out the GPS coordinates of my house and to confirm that they went by my house. and took a picture of the car, and the DoD built a briefing based on this occurrence, saying you got to be careful with smartphones because the pictures are carrying data you don't know about. This is early days. Now that's standard. Everyone knows to turn it on if you want and turn it off if you want.
+[00:11:27] Adam: I took a picture of a car that I owned, my Land Cruiser BJ42 1982 diesel right hand drive Land Cruiser in front of my house in San Francisco, and I had locat-location tracking on, and someone used that to figure out the GPS coordinates of my house and to confirm that they went by my house. and took a picture of the car, and the DoD built a briefing based on this occurrence, saying you got to be careful with smartphones because the pictures are carrying data you don't know about. This is early days. Now that's standard. Everyone knows to turn it on if you want and turn it off if you want.
 
 [00:11:27] Unknown speaker: Mm-hmm.
 
@@ -394,13 +394,13 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:13:42] Will: Oh, I would think left. Is it left turns? Probably changing lanes on the interstate on the freeway. [unclear: are challenging / it’s not that hard].
 
-[00:13:48] Norm: One-way streets and— Yeah.
+[00:13:48] Norm: One-way streets and - Yeah.
 
-[00:13:50] Adam: Here's the thing that I found that I really like about it that's different than five years ago. And five years ago, I don't know. I basically what I've been falling back in love with is how analog it is to drive this car. I love my Fiat. And it's a standard too, but modern cars—they're super quiet, they're super comfy. I've got seat heaters; everything's great. My stereo's lovely. I drive to work, but the car is insulating you from the experience of the fact that you're hurtling around the world at 70 miles an hour. This car does not. This car takes all your attention to drive. It is.
+[00:13:50] Adam: Here's the thing that I found that I really like about it that's different than five years ago. And five years ago, I don't know. I basically what I've been falling back in love with is how analog it is to drive this car. I love my Fiat. And it's a standard too, but modern cars - they're super quiet, they're super comfy. I've got seat heaters; everything's great. My stereo's lovely. I drive to work, but the car is insulating you from the experience of the fact that you're hurtling around the world at 70 miles an hour. This car does not. This car takes all your attention to drive. It is.
 
 [00:14:27] Will: Is it? I assume that the wheels steering's nice and loose, and you're kind of bouncing all over.
 
-[00:14:31] Unknown speaker: The steering is—
+[00:14:31] Unknown speaker: The steering is -
 
 [00:14:31] Adam: So the BJ42, the 82 version, was actually built with power steering.
 

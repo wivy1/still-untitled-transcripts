@@ -220,7 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:11:04] Will: Or tape, or hot glue, or whatever it is you want to use. But yeah.
 
-[00:11:08] Adam: So here's the thing that happened. Those projects, along with a bunch of other art projects that I had made, including a ping pong ball shooting gun, and some other things, other stuff that I was very proud of, some of them I hadn't even made for art class; I'd made in other places, but I brought them into art class so that people could see. Including the suit of armor I'd made out of roofing tin when I was 15. And the school year ended. The two art rooms, Mister Benton and Miss Masumian's art rooms, had been—they were cluttered with decades worth of crap from this public school, right? There’s, you know, it was all there. And somewhere over the summer, the principal, Doctor Clark,
+[00:11:08] Adam: So here's the thing that happened. Those projects, along with a bunch of other art projects that I had made, including a ping pong ball shooting gun, and some other things, other stuff that I was very proud of, some of them I hadn't even made for art class; I'd made in other places, but I brought them into art class so that people could see. Including the suit of armor I'd made out of roofing tin when I was 15. And the school year ended. The two art rooms, Mister Benton and Miss Masumian's art rooms, had been - they were cluttered with decades worth of crap from this public school, right? There’s, you know, it was all there. And somewhere over the summer, the principal, Doctor Clark,
 
 [00:11:51] Will: was he the villain in this story? Dun, dun, dun.
 
@@ -362,7 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:17:17] Adam: shoplifting must mean something more complicated.
 
-[00:17:19] Will: Shoplifting—the complication of shoplifting was how much stuff you could cram in your pants, not not the mechanics of stealing.
+[00:17:19] Will: Shoplifting - the complication of shoplifting was how much stuff you could cram in your pants, not not the mechanics of stealing.
 
 [00:17:24] Adam: The other term that flummoxed me for a long time when I was younger was jaywalking. I didn't realize I was crossing against the light. I thought it must have meant walking diagonally across an intersection against the light. Like that has to be jaywalking because
 
@@ -370,7 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:17:38] Adam: But, so anyway, I took this price gun, which had a beautiful big fat white trigger, and I took it apart and attached that trigger to a string that went up and around to this fork. So you would actually put the ping pong ball, in a hole drilled into it, and it threaded onto a long rod, which was a coat hanger, and then it was captured by a fork. And when you pulled the trigger, it lifted the fork and shot the ping pong ball out.
 
-[00:18:00] Will: So what was the force—a spring or something?
+[00:18:00] Will: So what was the force - a spring or something?
 
 [00:18:02] Adam: A rubber band.
 
@@ -504,7 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:23:17] Will: So yeah.
 
-[00:23:18] Adam: By the way, that is—it's not like I'm a genius with a Jung analysis. Please, there's a great book by Robert Johnson called He, and there's actually another one called She, and they're about the development of men and women according to Jung's look at archetypal heroes and hero stories and how they exemplify human growth patterns and emotional growth patterns. And He is a wonderful book. It is one of these books that you read it and you're like, wow, of course, it's all there. It's beautiful.
+[00:23:18] Adam: By the way, that is - it's not like I'm a genius with a Jung analysis. Please, there's a great book by Robert Johnson called He, and there's actually another one called She, and they're about the development of men and women according to Jung's look at archetypal heroes and hero stories and how they exemplify human growth patterns and emotional growth patterns. And He is a wonderful book. It is one of these books that you read it and you're like, wow, of course, it's all there. It's beautiful.
 
 [00:23:50] Will: It makes sense now.
 

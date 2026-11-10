@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:07:50] Will: They were excited.
 
-[00:07:51] Adam: No, no, no. They're like, cool. That's what they're. Yeah, you can't thrill a T— As far as I can tell, you can't really thrill a TSA agent.
+[00:07:51] Adam: No, no, no. They're like, cool. That's what they're. Yeah, you can't thrill a T- As far as I can tell, you can't really thrill a TSA agent.
 
 [00:08:00] Will: If you go through security with your keys in your jacket pocket and a bottle of water because there was no line at Chicago, the TSA agent gets a level of agitated that I was surprised by.
 
@@ -296,13 +296,13 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:13:18] Will or Norm (speaker uncertain): Bundaberg. Okay.
 
-[00:13:18] Adam: got to hang out in the green room. Sat next to Bill Shatner. Did not say hi. He's just—he's really intimidating.
+[00:13:18] Adam: got to hang out in the green room. Sat next to Bill Shatner. Did not say hi. He's just - he's really intimidating.
 
 [00:13:26] Will: I rode the escalator down to.
 
 [00:13:30] Adam: And to be clear, I've met him. He's always been very gracious to me. I just didn't feel like interrupting him while he was sitting there looking at reading a book.
 
-[00:13:37] Will: Well, I've heard so many stories about him, like being rude to people who walk up to him. I mean, you're a different space. I have—
+[00:13:37] Will: Well, I've heard so many stories about him, like being rude to people who walk up to him. I mean, you're a different space. I have -
 
 [00:13:43] Adam: look. He doesn't know me literally from Adam. Yeah, the one time he met me, I was dressed as Jack Sparrow, and he thought I was a total weirdo, and also yet was really gracious. That's nice. That was really lovely. Karl Urban was there with a lot of the cast of the boys.
 
@@ -418,7 +418,7 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:19:15] Will: These glasses are still part of your face, Norm.
 
-[00:19:17] Adam: Washing—it's still a disease vector. Washing your hands is the most effective thing, and don't believe any of those bullshit tweets saying that the alcohol-based hand sanitizers won't work against the virus.
+[00:19:17] Adam: Washing - it's still a disease vector. Washing your hands is the most effective thing, and don't believe any of those bullshit tweets saying that the alcohol-based hand sanitizers won't work against the virus.
 
 [00:19:28] Norm: I can't believe that.
 

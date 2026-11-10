@@ -38,7 +38,7 @@ Episode URL: https://www.youtube.com/watch?v=ImsjC-f56dQ
 
 [00:00:38] Joey: Yeah.
 
-[00:00:39] Norm: We're gonna get to the episode. So as we're recording this depending on when you're listening to this episode Mandalorian, Mandalorian season two has not finished airing yet on a week by week basis. We are through episode—
+[00:00:39] Norm: We're gonna get to the episode. So as we're recording this depending on when you're listening to this episode Mandalorian, Mandalorian season two has not finished airing yet on a week by week basis. We are through episode -
 
 [00:00:51] Adam: two episodes left, right?
 
@@ -48,7 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=ImsjC-f56dQ
 
 [00:01:21] Norm: So much to talk about. So the first, I guess, we should jump right in if we're going to go through every single one. The first episode of this season they literally called Chapter Nine, which indicates to us that they're thinking of this as the saga, episodic saga, and continues right off of the end of last season. Mando has the child. He's on his quest to find this race of sorcerers known as the Jedi, and he's been quested to return the child slash baby Yoda to the Jedi, and it takes him back to Tatooine.
 
-[00:01:54] Unknown speaker (Adam or Norm): And it's a—
+[00:01:54] Unknown speaker (Adam or Norm): And it's a -
 
 [00:01:56] Adam: I want to say I love I. We know television writers and we've hung out with a lot of different screenwriters and such, and we know that within a television show there are often new approaches brought into the writers' room with each subsequent season. Famously on Lost, they there was a lot of back and forth season to season as to whether or not it's a soap opera or a science fiction show and some sort of compromise in between. But I really appreciated Mandalorian giving us a season finale for season one that stated the purpose of season two. That gave us an anchor that this is a quest. Season two is going to be a quest.
 
@@ -62,7 +62,7 @@ Episode URL: https://www.youtube.com/watch?v=ImsjC-f56dQ
 
 [00:04:38] Joey: Well, it was also that like that kind of pose, that like standing there, the way his like body was like that looks. This looks like Once Upon a Time in Hollywood. Like I've seen this.
 
-[00:04:47] Adam: And Olyphant really, really, really has—I mean, it's fascinating how particular you're right, both the physicality and the physicality of the voice. Just it lands. There's a perfect bit of casting for the new season.
+[00:04:47] Adam: And Olyphant really, really, really has - I mean, it's fascinating how particular you're right, both the physicality and the physicality of the voice. Just it lands. There's a perfect bit of casting for the new season.
 
 [00:05:00] Norm: What was also interesting is that very clearly they were trying to telegraph Boba Fett's armor, but give you a physicality that was not Boba Fett that we saw in the original trilogy.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=ImsjC-f56dQ
 
 [00:37:18] Adam: Well, and that's actually the other wonderful elaboration was Ahsoka Tano saying, " I can't train him; it's too dangerous." Which I mean, of all the bits of the original canon that is really narratively interesting, that's fascinating, right? Like we're basically talking about Jedi that have attachment disorder becoming really bad bad things.
 
-[00:37:42] Joey: Yeah, there's a moment when—
+[00:37:42] Joey: Yeah, there's a moment when -
 
 [00:37:44] Norm: goes back to Yoda, right, saying, " I can't train Luke; he's too old. Right, he's too emotional."
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=ImsjC-f56dQ
 
 [00:40:30] Adam: I mean, just a rock solid and amazing action director. Apparently, was a late replacement. They had some issue. Maybe somebody's schedule got wronged, but he got brought in late and described it like all the other directors describe it as absolute fantasy camp to get to play play with the sandbox that Favreau and Filoni have built.
 
-[00:40:54] Norm: We've mentioned the Chef Show on the podcast before, and there was an episode, I think, in the most recent or two seasons ago, of Jon Favreau going and making pizza with veggie— vegan pizza with Robert Rodriguez at his kitchen, and he talks about some of his filmmaking philosophy, and a lot of that is borne out in this episode. If you watch how how this episode was filmed, yeah,
+[00:40:54] Norm: We've mentioned the Chef Show on the podcast before, and there was an episode, I think, in the most recent or two seasons ago, of Jon Favreau going and making pizza with veggie - vegan pizza with Robert Rodriguez at his kitchen, and he talks about some of his filmmaking philosophy, and a lot of that is borne out in this episode. If you watch how how this episode was filmed, yeah,
 
 [00:41:18] Adam: oh, that's awesome! I totally
 
@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=ImsjC-f56dQ
 
 [00:43:49] Joey: The part that got me wasn't just that it blew up; is that you then spend the next shot with Mando just kind of kicking dirt around where it was, walking through the smoke and rubble, just like, oh, head down. It's so sad.
 
-[00:44:01] Adam: I know it's like—is that the last of the tuning fork rifle? I love that thing.
+[00:44:01] Adam: I know it's like - is that the last of the tuning fork rifle? I love that thing.
 
 [00:44:05] Norm: Well, he has a spear now, so that's got to factor in somehow. And then Boba Fett. So portrayal of Boba Fett. Love to hear what you guys thought, Joey. To tie back into the first episode of season two.
 
@@ -488,7 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=ImsjC-f56dQ
 
 [00:45:53] Joey: Oh yeah, I absolutely.
 
-[00:45:54] Adam: However, I too have PTSD from a lot of the fan service from the last three films of characters under being underutilized or. And that's the thing that gives me hope. Here is that Filoni and Favreau have infused so much great character into all of these. I like several things about Boba showing up that I didn't expect. I like the way he fought; was very different than the way Mando fights. I like the fact that they argued over whose armor was over the armor being Boba's. I thought that was like, oh, that's an interesting tactic to take. Where Mando's like, can't give it to you; it's not the rule. And then later, Boba kind of earns the right to wear the armor. I thought that was really neat. I also like—
+[00:45:54] Adam: However, I too have PTSD from a lot of the fan service from the last three films of characters under being underutilized or. And that's the thing that gives me hope. Here is that Filoni and Favreau have infused so much great character into all of these. I like several things about Boba showing up that I didn't expect. I like the way he fought; was very different than the way Mando fights. I like the fact that they argued over whose armor was over the armor being Boba's. I thought that was like, oh, that's an interesting tactic to take. Where Mando's like, can't give it to you; it's not the rule. And then later, Boba kind of earns the right to wear the armor. I thought that was really neat. I also like -
 
 [00:46:34] Norm: it's way more honorable, I think, than people expected.
 
@@ -504,7 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=ImsjC-f56dQ
 
 [00:46:58] Norm: Well, that's the thing; we didn't know what the character was. I think what I think part of what you're saying is the appeal of Boba Fett is isn't just that it was a character with. Interesting and great-looking armor,
 
-[00:47:08] Joey: but we did know a few things about him. We did know that he was a bounty hunter, who you know. Now we are getting a different version of what that means in this world, but also the way people talk to him—no incinerations. He sounded like a loose cannon. We saw his childhood, right? You saw a kid who's kind of royalty in this certain aspect of the military, seeing, watching his dad getting killed by these lightsabers, and then you can kind of imagine what that child would become. It's hard to believe that he would just become, hey, let's go help bring this child to the Jedi after all this, after this past.
+[00:47:08] Joey: but we did know a few things about him. We did know that he was a bounty hunter, who you know. Now we are getting a different version of what that means in this world, but also the way people talk to him - no incinerations. He sounded like a loose cannon. We saw his childhood, right? You saw a kid who's kind of royalty in this certain aspect of the military, seeing, watching his dad getting killed by these lightsabers, and then you can kind of imagine what that child would become. It's hard to believe that he would just become, hey, let's go help bring this child to the Jedi after all this, after this past.
 
 [00:47:40] Norm: That's an interesting thing to reconcile.
 
@@ -516,7 +516,7 @@ Episode URL: https://www.youtube.com/watch?v=ImsjC-f56dQ
 
 [00:47:57] Joey: Yeah,
 
-[00:47:57] Norm: one of the strongest cases for the potential, at least I'll say, for Boba Fett is what Dave Filoni did with Darth Maul, also kind of. Badass appeared very briefly on screen, had one great fight, but really was more a presence than anything. And for him to take a character that died on screen and then brought him back and made it a compelling, deep character with a real antagonist to Obi Wan in Clone Wars, that hopefully is what they're gonna—he's going to bring also to Boba Fett.
+[00:47:57] Norm: one of the strongest cases for the potential, at least I'll say, for Boba Fett is what Dave Filoni did with Darth Maul, also kind of. Badass appeared very briefly on screen, had one great fight, but really was more a presence than anything. And for him to take a character that died on screen and then brought him back and made it a compelling, deep character with a real antagonist to Obi Wan in Clone Wars, that hopefully is what they're gonna - he's going to bring also to Boba Fett.
 
 [00:48:30] Adam: I also, I the actor's name that plays Boba Fett,
 

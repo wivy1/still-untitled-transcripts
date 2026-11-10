@@ -154,7 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:07:03] Norm: Perfect.
 
-[00:07:03] Adam: And I'm hanging out with thing two. And this big—is it Luigi or Mario?
+[00:07:03] Adam: And I'm hanging out with thing two. And this big - is it Luigi or Mario?
 
 [00:07:11] Norm: Mario,
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:11:56] Norm: we've shown this in videos before. He has a shelf where he has the hero ones that he made for the film,
 
-[00:12:02] Adam: and so he showed us some of its qualities, and he said to Joey, " Here, go ahead and grab the end." And so Joey grabbed the end and did this to it. He if I can't look. Anyway, yeah, it it's spring steel, so it bends on a—it bends.
+[00:12:02] Adam: and so he showed us some of its qualities, and he said to Joey, " Here, go ahead and grab the end." And so Joey grabbed the end and did this to it. He if I can't look. Anyway, yeah, it it's spring steel, so it bends on a - it bends.
 
 [00:12:15] Norm: Oh wow!
 
@@ -624,7 +624,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:24:21] Will: Yeah.
 
-[00:24:21] Adam: And the crowd—that was the most enthusiastic panel I've ever done. The questions were amazing. Richard Taylor was the moderator. What an amazing moderator he turned out to be! Dude, I love doing that panel with him. He here's a move he did during the panel, which I am stealing forever. Someone gets up to the mic and they ask a question, and just as they finish, Richard goes, " Now, whoever's next, I'm not going to try and do his accent. Whoever's next, if you could just wait, I see a little girl about seven people back. Let's bring her up and ask her question. " And she comes up to the mic, and then when they told us, " Oh, that's your last question," he was like, " No, the woman, the mom holding a baby in her arms, come on up. Let's ask your question. It's the last question. "
+[00:24:21] Adam: And the crowd - that was the most enthusiastic panel I've ever done. The questions were amazing. Richard Taylor was the moderator. What an amazing moderator he turned out to be! Dude, I love doing that panel with him. He here's a move he did during the panel, which I am stealing forever. Someone gets up to the mic and they ask a question, and just as they finish, Richard goes, " Now, whoever's next, I'm not going to try and do his accent. Whoever's next, if you could just wait, I see a little girl about seven people back. Let's bring her up and ask her question. " And she comes up to the mic, and then when they told us, " Oh, that's your last question," he was like, " No, the woman, the mom holding a baby in her arms, come on up. Let's ask your question. It's the last question. "
 
 [00:25:01] Will: Good, good for him.
 

@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:00:46] Will: Wow. Is it nonsense or does it make? Is it?
 
-[00:00:46] Adam: It makes a little bit of sense. It’s very long. It makes some sense. You’re you’re giving them a big pass on. On sensibility because—
+[00:00:46] Adam: It makes a little bit of sense. It’s very long. It makes some sense. You’re you’re giving them a big pass on. On sensibility because -
 
 [00:00:46] Norm: It’s poetry. At some point.
 
@@ -70,7 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:02:16] Will: but I think I was probably more accurate overall.
 
-[00:02:16] Adam: Right, because I actually— a was an upside down v.
+[00:02:16] Adam: Right, because I actually - a was an upside down v.
 
 [00:02:24] Will: Yeah, exactly.
 
@@ -100,23 +100,23 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:03:04] Will: Really?
 
-[00:03:04] Adam: My kids' handwriting is semi-abysmal. But so is mine. I mean, I remember my—I had—I was always put in the special class for crappy handwriting.
+[00:03:04] Adam: My kids' handwriting is semi-abysmal. But so is mine. I mean, I remember my - I had - I was always put in the special class for crappy handwriting.
 
 [00:03:14] Norm: They're all time travelers, and
 
-[00:03:16] Adam: my dad actually—my dad had unbelievably beautiful handwriting. He was a real illustrator, and he said, " You have to think of writing as drawing." And it took me years to understand that really what he meant by that was you have to like the act of writing. In the same way that you're careful with drawing because you want the line to depict something, in the same way you are accurate with your writing. But of course, there's so much to write, and it takes so long, and it gets so impatient, and it ends up looking like a doctor's prescription.
+[00:03:16] Adam: my dad actually - my dad had unbelievably beautiful handwriting. He was a real illustrator, and he said, " You have to think of writing as drawing." And it took me years to understand that really what he meant by that was you have to like the act of writing. In the same way that you're careful with drawing because you want the line to depict something, in the same way you are accurate with your writing. But of course, there's so much to write, and it takes so long, and it gets so impatient, and it ends up looking like a doctor's prescription.
 
 [00:03:16] Norm: Yeah, but there’s beauty in it.
 
-[00:03:16] Will: there's—I could do that beautifully fast. And
+[00:03:16] Will: there's - I could do that beautifully fast. And
 
 [00:03:49] Norm: don't you get frustrated? Like that's why people like you know writing within the lines and having really beautiful calligraphy. Yeah, it's really pretty.
 
-[00:03:58] Adam: It is. It is absolutely gorgeous. And I'm a huge—you know—I respect greatly lovely handwriting. It's funny. Both my wife and I love each other's handwriting, but deride our own. Maybe that means we're meant for each other.
+[00:03:58] Adam: It is. It is absolutely gorgeous. And I'm a huge - you know - I respect greatly lovely handwriting. It's funny. Both my wife and I love each other's handwriting, but deride our own. Maybe that means we're meant for each other.
 
 [00:04:10] Will: Yeah,
 
-[00:04:10] Adam: lucky, that—
+[00:04:10] Adam: lucky, that -
 
 [00:04:10] Will: perfect compliment. Speaking of perfect compliments,
 
@@ -176,9 +176,9 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:05:35] Adam: It's all over the map. Actually, there's over 700 members, I believe. I hope I'm right about this of the Connecticut Forum. The youngest members are in grade school or high school. We met a bunch of those kids, and the oldest are regular people, my age and even older. And they buy season tickets, or they buy tickets individually per event, and you know, everything from watching people talk about medicine to music.
 
-[00:05:35] Norm: Politics and—
+[00:05:35] Norm: Politics and -
 
-[00:05:35] Adam: Politics and—
+[00:05:35] Adam: Politics and -
 
 [00:05:35] Norm: It’s like the Commonwealth Club.
 
@@ -252,7 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:08:49] Will: You had to hide shit.
 
-[00:08:55] Adam: Now, now we talked to the kids, and when we were talking to the kids, we got to a point that we made also in front of the audience, which was the kids were asking us about challenges. We'd had in our lives and ways we overcome—came them, and ways we'd made choices and stuff. And we realized at a certain point, and we said this: Look, please understand. Don't make the mistake of thinking that our lives, any of the four of us, our lives were in all in any way linear.
+[00:08:55] Adam: Now, now we talked to the kids, and when we were talking to the kids, we got to a point that we made also in front of the audience, which was the kids were asking us about challenges. We'd had in our lives and ways we overcome - came them, and ways we'd made choices and stuff. And we realized at a certain point, and we said this: Look, please understand. Don't make the mistake of thinking that our lives, any of the four of us, our lives were in all in any way linear.
 
 [00:09:21] Will: Yeah.
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:10:58] Norm: Oh, reclaiming your childhood is a fun activity.
 
-[00:11:02] Adam: I was actually the other night looking not only at Six Million Dollar Man to find that all of the roll-up arm flesh on the old Six Million Dollar Man—it's
+[00:11:02] Adam: I was actually the other night looking not only at Six Million Dollar Man to find that all of the roll-up arm flesh on the old Six Million Dollar Man - it's
 
 [00:11:09] Will: all gone. Yeah,
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:12:38] Adam: I think I'm still right about this. That Fon Davis actually owns a complete set of Star Wars figures.
 
-[00:12:44] Will: Oh, this first series of first—
+[00:12:44] Will: Oh, this first series of first -
 
 [00:12:44] Adam: No,
 
@@ -394,7 +394,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:14:08] Norm: It’s massive.
 
-[00:14:08] Adam: It’s it's it it's—
+[00:14:08] Adam: It’s it's it it's -
 
 [00:14:19] Will: It sells out.
 
@@ -436,7 +436,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:15:14] Will: I’m so excited.
 
-[00:15:14] Adam: But— since we last spoke about it, the casting.
+[00:15:14] Adam: But - since we last spoke about it, the casting.
 
 [00:15:41] Will: Well, there were rumors and all that stuff.
 
@@ -454,13 +454,13 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:16:09] Adam: So there’s a picture of all of them plus the new cast, including Adam Driver from Girls. Yep. Is it Max von Sydow?
 
-[00:16:09] Norm: No. Yes, it is—
+[00:16:09] Norm: No. Yes, it is -
 
 [00:16:09] Adam: Max von Sydow.
 
 [00:16:09] Norm: He’s not in the picture. He’s the only one that’s on the picture, but not shown.
 
-[00:16:21] Will: We presume—
+[00:16:21] Will: We presume -
 
 [00:16:21] Norm: he is probably the villain.
 
@@ -468,7 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:16:23] Will: Wow.
 
-[00:16:23] Adam: that is the—
+[00:16:23] Adam: that is the -
 
 [00:16:29] Will: Oh, that’s the R2-D2 box?
 
@@ -476,7 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:16:23] Will: Wow.
 
-[00:16:23] Adam: It’s actually Annie Leibovitz took some photos of R2 in that crate for Vanity Fair for one of the prequel—
+[00:16:23] Adam: It’s actually Annie Leibovitz took some photos of R2 in that crate for Vanity Fair for one of the prequel -
 
 [00:16:38] Will: Oh, that's awesome,
 
@@ -492,21 +492,21 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:17:08] Norm: Caesar in Planet
 
-[00:17:08] Adam: of the Apes. Caesar in Planet of the Apes, both the previous one and the one that's just coming out. He's a brilliant actor. So whether or not he is a virtual character or Andy Serkis himself, he's a phenomenal, amazing actor who I would see in a movie. I’d see him on stage. I’d see him—
+[00:17:08] Adam: of the Apes. Caesar in Planet of the Apes, both the previous one and the one that's just coming out. He's a brilliant actor. So whether or not he is a virtual character or Andy Serkis himself, he's a phenomenal, amazing actor who I would see in a movie. I’d see him on stage. I’d see him -
 
-[00:17:08] Norm: in anything. Oh, on stage for sure. He was in the Prestige. He played—
+[00:17:08] Norm: in anything. Oh, on stage for sure. He was in the Prestige. He played -
 
 [00:17:08] Adam: Really?
 
 [00:17:08] Norm: David Bowie’s assistant, Tesla’s assistant. Huh. And so there’s been some analysis.
 
-[00:17:35] Adam: he's in Inkheart with Brendan Fraser as the villain, and he's terrific in that. It’s not that awesome a movie, but—
+[00:17:35] Adam: he's in Inkheart with Brendan Fraser as the villain, and he's terrific in that. It’s not that awesome a movie, but -
 
 [00:17:35] Norm: But the performance. So these actors are there, and there was a bunch of a young, a new cast of young actors.
 
 [00:17:35] Adam: Yes,
 
-[00:17:35] Norm: you mentioned—
+[00:17:35] Norm: you mentioned -
 
 [00:17:35] Adam: Adam Driver,
 
@@ -576,9 +576,9 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:21:16] Norm: The question is whether that's going to be the same characterization that he has in this new movie, which would be a little weird for a elder Han Solo.
 
-[00:21:16] Adam: Well, I mean, obviously—
+[00:21:16] Adam: Well, I mean, obviously -
 
-[00:21:16] Norm: he’s—
+[00:21:16] Norm: he’s -
 
 [00:21:16] Adam: 30 years later.
 
@@ -602,7 +602,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:22:46] Adam: Or he could be. People are like, oh, you make a good Sith.
 
-[00:22:46] Will: I mean— Just because he has dark hair and white light skin doesn't mean he's kind of weird. He doesn't have any weird horns or anything.
+[00:22:46] Will: I mean - Just because he has dark hair and white light skin doesn't mean he's kind of weird. He doesn't have any weird horns or anything.
 
 [00:22:54] Adam: It's so funny when I read all that speculation. Personally, I understand the excitement and the desire to speculate. I look at that and I think, oh, cool. Eventually, I'll find out what those people are doing. I mean, then I literally move my brain to the next thing,
 
@@ -646,11 +646,11 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:24:15] Adam: Let's do a spoiler cast from this point forward.
 
-[00:24:15] Will: Oh my goodness. Okay. We’ll—
+[00:24:15] Will: Oh my goodness. Okay. We’ll -
 
 [00:24:15] Adam: talk about it for.
 
-[00:24:15] Will: Oh, I'm so excited! I—
+[00:24:15] Will: Oh, I'm so excited! I -
 
 [00:24:15] Norm: I saw it twice.
 
@@ -670,7 +670,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:25:04] Will: it’s great.
 
-[00:25:04] Adam: Chris Evans, is so good and so genuine. He and Scarlett Johansson have a bunch of some complicated things to act out—
+[00:25:04] Adam: Chris Evans, is so good and so genuine. He and Scarlett Johansson have a bunch of some complicated things to act out -
 
 [00:25:27] Norm: when they're driving in the car. Yeah, and they have a scene about you know his first kiss.
 
@@ -746,7 +746,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:27:14] Norm: Yes, that was a great car chase scene.
 
-[00:27:14] Adam: Really, really, really great. But—
+[00:27:14] Adam: Really, really, really great. But -
 
 [00:27:14] Norm: they got Robert Redford to say " Hail Hydra," which wow! Things you never thought that Robert Redford would ever say in a movie.
 
@@ -794,7 +794,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:30:09] Adam: yeah, and those moments of pause really allow you to again fall in love with the characters, so you're more invested to the end.
 
-[00:30:16] Will: I—
+[00:30:16] Will: I -
 
 [00:30:17] Adam: So exciting.
 
@@ -802,7 +802,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:30:32] Norm: The fight scenes were also very well shot. There, you could actually see what was going on.
 
-[00:30:36] Will: That freeway fight. The—
+[00:30:36] Will: That freeway fight. The -
 
 [00:30:36] Adam: credit.
 
@@ -828,7 +828,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:31:29] Will: It’s only a four square block radius. It's very small, actually.
 
-[00:31:38] Norm: You’ve talked to the guys that—
+[00:31:38] Norm: You’ve talked to the guys that -
 
 [00:31:38] Will: They didn’t kill that many people, Adam. It's okay.
 

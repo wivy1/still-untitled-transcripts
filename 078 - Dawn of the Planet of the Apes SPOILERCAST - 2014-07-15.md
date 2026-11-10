@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:00:25] Will: Yeah. So we don't number these. So I have no idea, but you can look at the feed and tell.
 
-[00:00:33] Adam: I'm sure some of them— How do you like your pebble? There, are you happy with it?
+[00:00:33] Adam: I'm sure some of them - How do you like your pebble? There, are you happy with it?
 
 [00:00:36] Norm: We both have one.
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:05:58] Will: Yeah, I was waiting for. I've got one. I figured you've been working on it all this time.
 
-[00:06:02] Adam: Well, Norman and I had a fun night last night. We went and saw the world premiere, which rarely happens here in San Francisco. We saw a world premiere of Rise of Planet of the— Dawn. Sorry, Dawn. Rise—
+[00:06:02] Adam: Well, Norman and I had a fun night last night. We went and saw the world premiere, which rarely happens here in San Francisco. We saw a world premiere of Rise of Planet of the - Dawn. Sorry, Dawn. Rise -
 
 [00:06:17] Norm: In my mind, I get those mixed up too.
 
@@ -394,7 +394,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:12:11] Will: is that he's the only person that's performing at that level.
 
-[00:12:11] Adam: Well, in that constraint that we've seen now, The— he's right now one of the masters of it. I mean, there are other people who are great physical performers, like Doug Jones, who has been in countless movies. If you look at his IMDb, he's been your favorite monster in every movie
+[00:12:11] Adam: Well, in that constraint that we've seen now, The - he's right now one of the masters of it. I mean, there are other people who are great physical performers, like Doug Jones, who has been in countless movies. If you look at his IMDb, he's been your favorite monster in every movie
 
 [00:12:35] Norm: in video games. Nolan North
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:12:56] Will: No, that's Natascha something.
 
-[00:12:58] Adam: That's Natascha McEl— McElhone. Um, no, Judy Greer plays the wife of Matthew Lillard in The Descendants.
+[00:12:58] Adam: That's Natascha McEl-McElhone. Um, no, Judy Greer plays the wife of Matthew Lillard in The Descendants.
 
 [00:12:58] Will: Oh, okay.
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:13:49] Adam: lead ape,
 
-[00:13:49] Norm: right? And it's if you remember the original five Planet of the Apes movies, it was time travel. It was time paradox that brought it— about the Planet of the Apes.
+[00:13:49] Norm: right? And it's if you remember the original five Planet of the Apes movies, it was time travel. It was time paradox that brought it - about the Planet of the Apes.
 
 [00:14:02] Will: Charlton Heston goes forward in time to a world that shouldn't exist because it hasn't been created yet. Because he had to bring the apes back in order to make the world exist. Spoilers.
 
@@ -512,7 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:16:59] Will: Is it? Is it?
 
-[00:17:00] Adam: Well, I'll tell you where I thought it was really great. Is there's the there's a tension between one of the movie's central points is a tension between Caesar and his sort of best friend and second in command, Koba. And Koba is more self-absorbed. Caesar is more a natural leader of his people, and the performance of Koba is astonishing. The characterization—he's the one-eyed ape from the first one with the scar across his eye—is phenomenal. But when Koba tricks the humans with his whole sort of step and fetch it, it's terrifying kind of like I'm not threatening because you think of me as a dumb ape. Is actually, I think, one of the most it's an impressive little bit of filmmaking because you have these because it's an allegory. There's a clear allegory for racism across this film.
+[00:17:00] Adam: Well, I'll tell you where I thought it was really great. Is there's the there's a tension between one of the movie's central points is a tension between Caesar and his sort of best friend and second in command, Koba. And Koba is more self-absorbed. Caesar is more a natural leader of his people, and the performance of Koba is astonishing. The characterization - he's the one-eyed ape from the first one with the scar across his eye - is phenomenal. But when Koba tricks the humans with his whole sort of step and fetch it, it's terrifying kind of like I'm not threatening because you think of me as a dumb ape. Is actually, I think, one of the most it's an impressive little bit of filmmaking because you have these because it's an allegory. There's a clear allegory for racism across this film.
 
 [00:17:57] Will: There's always been a clear allegory for racism.
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:18:44] Will: So you know the wedding planner was here too.
 
-[00:18:47] Norm: There— Godzilla was also here.
+[00:18:47] Norm: There - Godzilla was also here.
 
 [00:18:49] Will: The Rock.
 
@@ -604,7 +604,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:19:30] Will: Please don't put on the muscle suit again.
 
-[00:19:32] Norm: Set here, or— and so the premiere is here. And when we say it's a world premiere, this is the first time. This is where all the actors get to go.
+[00:19:32] Norm: Set here, or - and so the premiere is here. And when we say it's a world premiere, this is the first time. This is where all the actors get to go.
 
 [00:19:38] Adam: Yeah, they were all there
 
@@ -730,7 +730,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:24:16] Adam: Well, I I did.
 
-[00:24:17] Norm: [unclear: You want to—]
+[00:24:17] Norm: [unclear: You want to -]
 
 [00:24:18] Will: [unclear: do?] That's not the cool way to do it, but you know he'd notice.
 
@@ -778,7 +778,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:26:09] Adam: She's fabulous. Anyway, Keri Russell is lovely.
 
-[00:26:10] Norm: Yes, and then a bunch, and then all the actors who are there, who who played the—
+[00:26:10] Norm: Yes, and then a bunch, and then all the actors who are there, who who played the -
 
 [00:26:15] Adam: Who played apes.
 
@@ -824,7 +824,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:27:11] Will: that was pretty good,
 
-[00:27:11] Adam: yeah, yeah, pretty good. But so the fur was amazing. They did a lot of they played around a lot with bokeh with depth of field to make stuff really feel like you were looking at film of ape hands, and then the scene where you're looking at— sound design of the rough hands touching, which was a key element in the film, was terrific. I thought that some of the animation of the apes swinging and landing.
+[00:27:11] Adam: yeah, yeah, pretty good. But so the fur was amazing. They did a lot of they played around a lot with bokeh with depth of field to make stuff really feel like you were looking at film of ape hands, and then the scene where you're looking at - sound design of the rough hands touching, which was a key element in the film, was terrific. I thought that some of the animation of the apes swinging and landing.
 
 [00:27:37] Norm: Didn't have weight?
 
@@ -876,7 +876,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:29:51] Norm: Yeah, it's a very small story.
 
-[00:29:52] Adam: It's a very small story, and yet so much is covered from a from an ex— expository standpoint that doesn't feel like someone's just downloading information into you. It feels like you're watching a genuine struggle, and you're empathizing with different characters at different times to understand what's going on. And it's really effective.
+[00:29:52] Adam: It's a very small story, and yet so much is covered from a from an ex-expository standpoint that doesn't feel like someone's just downloading information into you. It feels like you're watching a genuine struggle, and you're empathizing with different characters at different times to understand what's going on. And it's really effective.
 
 [00:30:11] Will: You never have one of those scenes where at the end you feel like the guy should just break the fourth wall, look at the camera, be like, " Well, that was a lot of exposition, wasn't it?"
 

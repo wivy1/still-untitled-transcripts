@@ -188,11 +188,11 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:05:10] Will: None of the discourse?
 
-[00:05:10] Adam: So, I have no idea what they filmed with Carrie Fisher and how they were able to get her to be in two movies. I thought there was—I was kind of astounded at how well she integrated into this movie
+[00:05:10] Adam: So, I have no idea what they filmed with Carrie Fisher and how they were able to get her to be in two movies. I thought there was - I was kind of astounded at how well she integrated into this movie
 
 [00:05:21] Norm: True.
 
-[00:05:10] Adam: and how well that felt. All the performances were stunning. The music is actually some of the—it's like maybe my favorite Star Wars score ever.
+[00:05:10] Adam: and how well that felt. All the performances were stunning. The music is actually some of the - it's like maybe my favorite Star Wars score ever.
 
 [00:05:30] Will: It wraps up all of the best themes from all of the Star Wars movies. Like there's there's Duel of the Fates, there's Leia's theme, there's Luke's theme, there's the Imperial March. It's A plus. Like John if John Williams is
 
@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:05:58] Will: Rey's theme's great.
 
-[00:05:58] Norm: bum bum bum, but like when she's like you know exploring, bum bum bum bum, and I think they brought that back. Well, the one thing that I kept on thinking, I was bracing throughout my entire screening, and we are starting with non-spoilers because this is a film for which the spoilers seem to—if the fear of spoilers and the plot reveals kind of loom over your watching of the film—because the promise is that it's the end of the saga, it's the end of nine movies,
+[00:05:58] Norm: bum bum bum, but like when she's like you know exploring, bum bum bum bum, and I think they brought that back. Well, the one thing that I kept on thinking, I was bracing throughout my entire screening, and we are starting with non-spoilers because this is a film for which the spoilers seem to - if the fear of spoilers and the plot reveals kind of loom over your watching of the film - because the promise is that it's the end of the saga, it's the end of nine movies,
 
 [00:06:26] Adam: It's the coda, yeah.
 
@@ -494,7 +494,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:17:03] Norm: Exactly, and I mean, why not? It's supposed to be the end of the story here.
 
-[00:17:07] Will: They resurrected C3— They killed C-3PO and then resurrected C-3PO.
+[00:17:07] Will: They resurrected C3- They killed C-3PO and then resurrected C-3PO.
 
 [00:17:10] Norm: No, I actually liked him more as the new C-3PO.
 
@@ -514,7 +514,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:17:37] Norm: he's plugged in, and yeah.
 
-[00:17:39] Will: The I mean the big look if we want to get to the thing that is the unearned thing that made me like I was with the movie right up until about the last 10 minutes, and then we got to the bit where the Emperor—Rey does the business with the Force and the lightsabers, and I'm like, fuck yeah, kill the Emperor with his own. Bad force juice, and then she dies,
+[00:17:39] Will: The I mean the big look if we want to get to the thing that is the unearned thing that made me like I was with the movie right up until about the last 10 minutes, and then we got to the bit where the Emperor - Rey does the business with the Force and the lightsabers, and I'm like, fuck yeah, kill the Emperor with his own. Bad force juice, and then she dies,
 
 [00:17:57] Unknown speaker: Force juice.
 
@@ -884,7 +884,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:30:09] Norm: Because it's universal acclaim; it deserves it. He deserves all the praise for that. And I hope that Disney and Lucasfilm take a look at his work, take a step back after, of course, all this * Rise of Skywalker* stuff, and say, " I think people are going to get really excited about Rian Johnson taking something and doing something different, and the expectation is not being it being a * Star Wars* Episode X
 
-[00:30:33] Will: Yeah, yeah. movie." Well, I mean, it's—I mean, look, movie executives should pay less attention to YouTube and more, more to the work, right? Like, look at look at the work.
+[00:30:33] Will: Yeah, yeah. movie." Well, I mean, it's - I mean, look, movie executives should pay less attention to YouTube and more, more to the work, right? Like, look at look at the work.
 
 [00:30:45] Adam: I am look at the work and look at specifically the prop that I wanted to make from this movie, the Sith Wayfinder.
 
@@ -952,7 +952,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:32:09] Will: Across the board. Pretty much across the board. Yeah.
 
-[00:32:09] Adam: Yeah, and I love Daisy Ridley's voice, and it was great to hear Keri Russell because they're both female actresses with this really resonant low end part of their voice that is just—it's never not great to hear them talk.
+[00:32:09] Adam: Yeah, and I love Daisy Ridley's voice, and it was great to hear Keri Russell because they're both female actresses with this really resonant low end part of their voice that is just - it's never not great to hear them talk.
 
 [00:32:25] Will: Yeah.
 

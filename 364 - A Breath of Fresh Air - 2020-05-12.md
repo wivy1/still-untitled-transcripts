@@ -62,7 +62,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:04:45] Adam: Well, also these local businesses, they have a fifth or a tenth of their workforce, right? So at Ritual Coffee, they've got two people. Doing everything, whereas normally they'd have four to six, and it just means that everything takes longer. And San Francisco is much more on island time. If you've ever gone down to the Bahamas or to Hawaii, and you know everyone's kind of doing their own thing that’s what it feels like. It feels like that in the length of time. But yeah, that tension is is real.
 
-[00:05:15] Will: The hustle of the city is, I—I have to imagine is is is the first casualty of this whole thing, right?
+[00:05:15] Will: The hustle of the city is, I - I have to imagine is is is the first casualty of this whole thing, right?
 
 [00:05:24] Adam: One could only hope? Well, I just wish that everyone would wear masks. This is the thing, is and this is I don't want to like I have an opinion about the specific types of people I think aren't wearing masks, and I won't voice it because it's just my own dumb like bias. But I want to say if you're listening to this and you're not wearing a mask, you're being kind of a jerk. Like,
 
@@ -74,7 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:06:07] Adam: Probably, but now I'm seeing half of the people I'm seeing on the street are like they're like hanging on their face like this. They're basically holding on to them so that they can go into a store and kind of pretend they're wearing a mask and then leave immediately.
 
-[00:06:19] Will: So I don't remember who said this. I think it was a an old Gawker writer, a Gawker the company, not Gawker the site writer, who said the rule on masks is really simple. You should treat it like the number of people you want to see your butthole. If someone is close enough that they can see that you wouldn't want them to, you would not want to be walking around with your pants down and your cheeks spread because they would see your butthole. You should put the mask on like that’s the—use the same rules, and then there's no problem because like it's if you're on a hike, if you're on a trail, you're backpacking, you're hiking, you're far away from everybody. Fine, pull the mask down. You’re not going to, but as soon as you see another person—whoop—put it right back up.
+[00:06:19] Will: So I don't remember who said this. I think it was a an old Gawker writer, a Gawker the company, not Gawker the site writer, who said the rule on masks is really simple. You should treat it like the number of people you want to see your butthole. If someone is close enough that they can see that you wouldn't want them to, you would not want to be walking around with your pants down and your cheeks spread because they would see your butthole. You should put the mask on like that’s the - use the same rules, and then there's no problem because like it's if you're on a hike, if you're on a trail, you're backpacking, you're hiking, you're far away from everybody. Fine, pull the mask down. You’re not going to, but as soon as you see another person - whoop - put it right back up.
 
 [00:07:01] Norm: But as a society, what's the best way? I mean, I don't think shaming people into wearing masks is going to ever work.
 
@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:08:43] Adam: how does that feel now?
 
-[00:08:44] Will: Well, I—I was going to say there's a ton of dialogue about masks in relation to law because that's the people attacking the cops and the cops wearing the mask to protect their identities is the trigger for the entire story as it unfolds later on, and I'm like, I think I'm still skeezed out by cops. Like I'm, I'm glad that when I walk around, I see cops. I'm glad that they're wearing masks. But I'm kind of skeezed out by cops wearing masks. It's a really uncomfortable, conceptually to me that law enforcement is anonymous. In right?
+[00:08:44] Will: Well, I - I was going to say there's a ton of dialogue about masks in relation to law because that's the people attacking the cops and the cops wearing the mask to protect their identities is the trigger for the entire story as it unfolds later on, and I'm like, I think I'm still skeezed out by cops. Like I'm, I'm glad that when I walk around, I see cops. I'm glad that they're wearing masks. But I'm kind of skeezed out by cops wearing masks. It's a really uncomfortable, conceptually to me that law enforcement is anonymous. In right?
 
 [00:09:17] Adam: Did you happen to catch the tweet from the prosecutor, who said, " I wore a mask into a bank to do a transaction, and I thought to myself, I have sent people for jail for less than this."
 
@@ -114,9 +114,9 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:09:32] Adam: He thought he was making a commentary on wearing masks, and everyone in the response line was like, " Ah, you've made a very important commentary about the American justice system."
 
-[00:09:43] Will: Yeah. Well, I—so I saw another one that was like, " Look, if I," it was somebody who was a you know, a white guy went to the bank with the mask on. I was like, " Wow, I don't think I would like this." Was weird, but fine. And I think that there are a lot of people that this would be weird and dangerous for. Totally. Yeah. So I don't know. It's a weird, strange times.
+[00:09:43] Will: Yeah. Well, I - so I saw another one that was like, " Look, if I," it was somebody who was a you know, a white guy went to the bank with the mask on. I was like, " Wow, I don't think I would like this." Was weird, but fine. And I think that there are a lot of people that this would be weird and dangerous for. Totally. Yeah. So I don't know. It's a weird, strange times.
 
-[00:10:04] Adam: I just finished a thing just before the podcast. This is the epic one-day build, Norm. That's been going on for weeks. I’m just going to flash it here. It is a fully machined base plate for my mini chop saw and we are going to. I actually think, Norm, this is the one that I—I don’t want to try and take the beauty shots of. I want to leave it over at Tested. You can swab it down, and I think you should take the beauty shots.
+[00:10:04] Adam: I just finished a thing just before the podcast. This is the epic one-day build, Norm. That's been going on for weeks. I’m just going to flash it here. It is a fully machined base plate for my mini chop saw and we are going to. I actually think, Norm, this is the one that I - I don’t want to try and take the beauty shots of. I want to leave it over at Tested. You can swab it down, and I think you should take the beauty shots.
 
 [00:10:29] Norm: Yeah, yeah, that'd be really fun. It's gorgeous. I can even look at it just through the Zoom window.
 
@@ -128,9 +128,9 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:10:56] Will: Really cool.
 
-[00:10:58] Norm: Well, One felt like the stepping stone to this by doing the die filer kit and also all the upgrades you've done since to your existing shop tools at that scale. Right then, this you felt like you could tackle that, and it's been bigger than you. The scope is even bigger than you—what you set it out to be.
+[00:10:58] Norm: Well, One felt like the stepping stone to this by doing the die filer kit and also all the upgrades you've done since to your existing shop tools at that scale. Right then, this you felt like you could tackle that, and it's been bigger than you. The scope is even bigger than you - what you set it out to be.
 
-[00:11:14] Adam: Well, there's this very specific thing that I’ve talked about in the lathe chuck video, which we’ll—we’re cutting now and we’ll go up in a while. In that, having a consciousness about things that weigh like 5 to 20 pounds and their concentricity within a few thousandths of an inch, which is actually of real concern when you're using these machines and trying to get accurate. I had a funny thing this morning, so I have a three jaw chuck, which was my main bread and butter chuck in the lathe, and I took it apart last week and put it back together and filmed the process and talked about it. And when I put it back together, I put the micrometer on it and I was getting run out of about eight thousandths on it, which is a lot. That's like three sheets of paper. And again, this is a big 20 pound chuck, but eight thousandths you can get better than that. Standard on these is about four thousandths, right? Like three to four is considered acceptable and like good enough for a three-jaw chuck. So this weekend, I thought about it, and I was like, " Oh, I'm going to remachine the adapter plate from the cam spindle lock to the lathe to the lathe chuck, and I'm going to make it adjustable, and I'm going to dial it all in." Because I had it, I—I managed through a bunch of trial and error and testing to get it to about four thou.
+[00:11:14] Adam: Well, there's this very specific thing that I’ve talked about in the lathe chuck video, which we’ll - we’re cutting now and we’ll go up in a while. In that, having a consciousness about things that weigh like 5 to 20 pounds and their concentricity within a few thousandths of an inch, which is actually of real concern when you're using these machines and trying to get accurate. I had a funny thing this morning, so I have a three jaw chuck, which was my main bread and butter chuck in the lathe, and I took it apart last week and put it back together and filmed the process and talked about it. And when I put it back together, I put the micrometer on it and I was getting run out of about eight thousandths on it, which is a lot. That's like three sheets of paper. And again, this is a big 20 pound chuck, but eight thousandths you can get better than that. Standard on these is about four thousandths, right? Like three to four is considered acceptable and like good enough for a three-jaw chuck. So this weekend, I thought about it, and I was like, " Oh, I'm going to remachine the adapter plate from the cam spindle lock to the lathe to the lathe chuck, and I'm going to make it adjustable, and I'm going to dial it all in." Because I had it, I - I managed through a bunch of trial and error and testing to get it to about four thou.
 
 [00:12:36] Norm: How do I identify? How do you diagnose and find where your slop is?
 
@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:14:01] Adam: A friend of Tested Tom Lipton, who built one of the beautiful, most beautiful parts for the Apollo hatch last summer, gave me some counsel over the phone this weekend. And he's got a very he’s got a real old school make it work mentality, right? Like you ask him, what's the best chuck I could buy, and he's like, yeah, you could spend any amount of money you want, but here's the one, here's the thing is, here's the way to think about it, and it's a much more sort of like make work what you've got, because thousands of dollars only buys you a couple of thousandths of an inch of accuracy.
 
-[00:14:37] Norm: And that's the hard part of making—but making any type of purchasing recommendation. You have to know the person asking the question as much as you know to really know what they need, and sometimes know what they what they're really asking for.
+[00:14:37] Norm: And that's the hard part of making - but making any type of purchasing recommendation. You have to know the person asking the question as much as you know to really know what they need, and sometimes know what they what they're really asking for.
 
 [00:14:51] Adam: Right?
 
@@ -170,17 +170,17 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:15:23] Adam: yeah. And it's what are the and the increments? You spend more time on the last 1% of accuracy than on the first 98%, right?
 
-[00:15:32] Norm: And yeah, and that’s not—
+[00:15:32] Norm: And yeah, and that’s not -
 
 [00:15:33] Adam: also more money.
 
 [00:15:34] Norm: Yes, and that's not to discount the like personal value or utility in that last 1%, or in the perceived value because perceived value is a form of value, right? It's just knowing who's making the ask. If the person making the ask is the type of person that really that's what they want to pay the extra because they get a lot from that part of it. Then that might be right.
 
-[00:15:55] Adam: Yeah, well, no, look, I—it’s like it's. I mean, very specifically for all of the obvious reasons, I am not looking to spend money right now, but I can certainly see a point in the future where. A windfall came in, and I thought to myself, " I am going to go buy the Cadillac of Chucks, and I'm going to love that thing till the end of my days." You know, that is that type of pleasure of augmenting and upgrading your stuff is a deep and abiding pleasure, and it's really like I've pursued it at many points in my life, just not right now.
+[00:15:55] Adam: Yeah, well, no, look, I - it’s like it's. I mean, very specifically for all of the obvious reasons, I am not looking to spend money right now, but I can certainly see a point in the future where. A windfall came in, and I thought to myself, " I am going to go buy the Cadillac of Chucks, and I'm going to love that thing till the end of my days." You know, that is that type of pleasure of augmenting and upgrading your stuff is a deep and abiding pleasure, and it's really like I've pursued it at many points in my life, just not right now.
 
 [00:16:27] Will: Well, but I mean, the thing that the thing that's interesting about what happened to you is you were looking at a at what you perceived as a number, and you're like, " This number is not where that number should be." So rather than identifying a problem when you were using the tool you were like the number, and it's it is an easy thing to do. I'm glad it happens to you too. I always thought that was just me, and, uh, yeah, everyone else. So
 
-[00:16:50] Adam: oh well, in, in fact, and I—and I was totally aware of it, but I was also curious about my ability to eliminate the—
+[00:16:50] Adam: oh well, in, in fact, and I - and I was totally aware of it, but I was also curious about my ability to eliminate the -
 
 [00:17:00] Will: Of course.
 
@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:19:40] Will: Love a Favreau commentary.
 
-[00:19:41] Norm: Yeah, it's Favreau and Dave Filoni basically—basically doing roundtables with the other directors as well as the creative team for the Mandalorian. So it's basically dinner for five.
+[00:19:41] Norm: Yeah, it's Favreau and Dave Filoni basically - basically doing roundtables with the other directors as well as the creative team for the Mandalorian. So it's basically dinner for five.
 
 [00:19:52] Adam: Oh my God!
 
@@ -252,7 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:23:52] Norm: And I I think there are a lot of probably similarities in that these they're fantasy stories. Where we think of Star Wars, not necessarily science fiction, but a fantasy. But both Avatar and Star Wars have these kind of universal truths. and tell a hero, a traditional hero’s journey. That’s very resonant, and it made me think about obviously under Disney, you have the MCU and you have Star Wars, and they're both $1 billion franchise machines, and they have a you know a shared audience, at least in the United States. But why is it that fans? What is it that separates like the expectations between an MCU movie, like an Avengers movie, and a next Star Wars movie, and why are they maybe held to different standards, or why, and as fans, why do you why do we weigh them different? I have I'll
 
-[00:24:38] Adam: yeah, but I mean I think there's there's so much more to it than just the fan response. There's also the institutional inertia of the decision-making process because I think it's pretty cool. I mean, of course, Kathleen Kennedy and her team, John Knoll and all those wonderful people at Lucasfilm have a procedure that they've been doing and working with each other and to great success for decades, and the same thing is true with Kevin Feige and his whole team. But they're they're not the same at all, right? Like all of the ways in which they—it’s just hard to imagine a Star Wars universe that would let a movie like Ragnarok happen. And yet, I am really hopeful now that they're all under the Disney banner that that might occur. And what you say about the about the behind the scenes stuff is really exciting to me.
+[00:24:38] Adam: yeah, but I mean I think there's there's so much more to it than just the fan response. There's also the institutional inertia of the decision-making process because I think it's pretty cool. I mean, of course, Kathleen Kennedy and her team, John Knoll and all those wonderful people at Lucasfilm have a procedure that they've been doing and working with each other and to great success for decades, and the same thing is true with Kevin Feige and his whole team. But they're they're not the same at all, right? Like all of the ways in which they - it’s just hard to imagine a Star Wars universe that would let a movie like Ragnarok happen. And yet, I am really hopeful now that they're all under the Disney banner that that might occur. And what you say about the about the behind the scenes stuff is really exciting to me.
 
 [00:25:29] Norm: But in the same vein, I think there are fans that don't want that too. That I've heard directly from fans who say a Ragnarok style a comedy in Star Wars is not what I want, and they hold it on a different pedestal.
 
@@ -316,7 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:33:31] Norm: The that was the. I also I completely agree with you the it being taken to a place where it represented their interpretation of the future from a production design standpoint and an effect standpoint. Like that was real fun world building to see on a you know HBO budget, right? That normally and different than what we'd seen from a Blade Runner or other far future sci fi stories. But what and it was very more plot driven, like a lot more stuff happened. I think in season three. But what I missed was Anthony Hopkins. I missed the monologues.
 
-[00:34:06] Adam: Hopkins acting in the is is one of the best things about the first season is his measured, incredible beat by beat performance. Totally, he’s met—
+[00:34:06] Adam: Hopkins acting in the is is one of the best things about the first season is his measured, incredible beat by beat performance. Totally, he’s met -
 
 [00:34:17] Will: I went back after watching. So I'm I just finished season one and I went back and watched the episode with Bernard. The with I don't want to spoil anything for people who haven't watched, but the Bernard reveal and the model the Hopkins performance in that episode is astounding. Like he he's both that and the time when he's sitting with the other with the woman who's Bernard's
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:35:25] Adam: Okay. Okay.
 
-[00:35:25] Norm: It—
+[00:35:25] Norm: It -
 
 [00:35:27] Adam: Wait, there's a
 
@@ -382,7 +382,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:36:52] Adam: So we might have some work to do, but we're going to show her Captain Marvel tonight.
 
-[00:36:57] Will: You should get her to rank them. Just to get—show her all all 25 movies and put them in order from best to worst.
+[00:36:57] Will: You should get her to rank them. Just to get - show her all all 25 movies and put them in order from best to worst.
 
 [00:37:03] Adam: That is a that's a tough thing to do to an 85 year old broad. Come on,
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:38:14] Norm: and like creatively, all of them look great to me. To be able to then, in the process, in the chaos of filmmaking, have a vision to make a choice and say, " No, this isn't working," and then find something that ultimately, obviously, worked, and stick that. That is, I can't even imagine what it takes.
 
-[00:38:33] Adam: It's funny that you mention that because I think the same thing when I watch an alternate scene and I see how much work everyone did to make that scene work, and the actors and the post-production and everything, and somebody watched it and they're like, " Oh, we’re all agreeing, it's just not quite there." Okay, let's rewrite four scenes and make them all redo it. It’s—that’s. Can you imagine the responsibility?
+[00:38:33] Adam: It's funny that you mention that because I think the same thing when I watch an alternate scene and I see how much work everyone did to make that scene work, and the actors and the post-production and everything, and somebody watched it and they're like, " Oh, we’re all agreeing, it's just not quite there." Okay, let's rewrite four scenes and make them all redo it. It’s - that’s. Can you imagine the responsibility?
 
 [00:38:56] Will: Well, or even just sitting in the editing room, right? Like sitting in the editing room, and you're like, you have these four takes, all four of them. I watched, and I'm like, these are incredible. Like, there's nothing. The all of these would land in slightly different ways, and the yeah
 
@@ -430,7 +430,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:41:45] Adam: It's a great. It's lovely. You're reminding me that one of the things Sigourney Weaver said she got out of making Alien which was her first film, was you can't. She said, " I realized I can't worry about the full arc of the film's narrative. I have to play each scene." In and of itself, for the scene, I the director's job is to make it all work together. My job is to make each scene work, and again, that's like that that level of consciousness about how each of these pieces fits together is really amazing to watch happen. I love that we live in an age where we get so much granularity from the creatives in this process about how it works for them.
 
-[00:42:30] Will: There's there's we've talked about this movie a lot on the podcast, but there's a moment in the still untitled commentary for I think the extended the one that's actually called sorry the Almost Famous box set that's called still untitled that has all the extended stuff, and it's Cameron Crowe talking to Frances McDormand and I think his mom maybe it's the other way around maybe he's talking to his mom and they're talking about Frances McDormand, but they—he has this lovely conversation about how he was trying to get the performance he wanted out of Frances McDormand, and then he realized he needed to get the Performance Frances McDormand wanted onto film, and anyway, it's good. You should listen to that.
+[00:42:30] Will: There's there's we've talked about this movie a lot on the podcast, but there's a moment in the still untitled commentary for I think the extended the one that's actually called sorry the Almost Famous box set that's called still untitled that has all the extended stuff, and it's Cameron Crowe talking to Frances McDormand and I think his mom maybe it's the other way around maybe he's talking to his mom and they're talking about Frances McDormand, but they - he has this lovely conversation about how he was trying to get the performance he wanted out of Frances McDormand, and then he realized he needed to get the Performance Frances McDormand wanted onto film, and anyway, it's good. You should listen to that.
 
 [00:43:11] Adam: That's one of my all-time favorite movies. I love it. Have you watched the "Stairway to Heaven" scene in that film, Will?
 

@@ -96,7 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:05:51] Will: like Leatherman sleeve badly, or
 
-[00:05:53] Adam: worse. I had to bend this specific piece of aluminum. And I'd bought a specific piece of aluminum, and in order to make sure, so I'm doing both long, wide arch bends, but I'm also doing hard right angle bends. And this piece fits into—this is a bit of a tease. I'm sorry.
+[00:05:53] Adam: worse. I had to bend this specific piece of aluminum. And I'd bought a specific piece of aluminum, and in order to make sure, so I'm doing both long, wide arch bends, but I'm also doing hard right angle bends. And this piece fits into - this is a bit of a tease. I'm sorry.
 
 [00:05:53] Norm: That's all right.
 
@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:06:56] Adam: along everything, everything about it sucked.
 
-[00:06:58] Norm: And this is a realization that you came to. Not in the day, and you actually—I think—you answered a question about this at New York Comic Con in the Q and A. It was an aha moment you had, like middle of the night, very similar to when you did the Exploratorium project for your Strandbeest.
+[00:06:58] Norm: And this is a realization that you came to. Not in the day, and you actually - I think - you answered a question about this at New York Comic Con in the Q and A. It was an aha moment you had, like middle of the night, very similar to when you did the Exploratorium project for your Strandbeest.
 
 [00:07:12] Adam: Yeah, and frankly, I was pissed. I thought I I did some pre work on this one day build so that we could get it done in a day because I really wanted to.
 
@@ -472,7 +472,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:30:06] Will: Oh,
 
-[00:30:06] Adam: which is so watchable and so incredible—an incredible deep dive. The interview it is really anchored by this incredible interview with Dylan himself, who is so forthcoming. I could only imagine it's just him and Marty in the room alone together because it feels that intimate the way he's talking. But then supported by everyone who was around at the time, and just really a remarkable view on an important time in history from a really important artist who is still really pretty incredibly articulate about exactly how important they were. Like Dylan really got it back then. Why? What he was doing was important, and still is right there. Really a lovely mind.
+[00:30:06] Adam: which is so watchable and so incredible - an incredible deep dive. The interview it is really anchored by this incredible interview with Dylan himself, who is so forthcoming. I could only imagine it's just him and Marty in the room alone together because it feels that intimate the way he's talking. But then supported by everyone who was around at the time, and just really a remarkable view on an important time in history from a really important artist who is still really pretty incredibly articulate about exactly how important they were. Like Dylan really got it back then. Why? What he was doing was important, and still is right there. Really a lovely mind.
 
 [00:31:06] Norm: Is Martin Scorsese? He put himself in the documentaries.
 

@@ -380,7 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=dONf_TaqMgE
 
 [00:26:53] Adam: all of the dancers' movements incorporate. It's not just a sort of an emotional through, but there's actually like physical actions that are speaking to the lines that they're singing.
 
-[00:27:05] Norm: Yes. Yeah, i—it's meticulous. I think that's one of those things that because the whole musical. Is sung. I mean, 99% of it is sung, and there is no traditional time for your, you know, the lights go down and set changes to happen.
+[00:27:05] Norm: Yes. Yeah, i - it's meticulous. I think that's one of those things that because the whole musical. Is sung. I mean, 99% of it is sung, and there is no traditional time for your, you know, the lights go down and set changes to happen.
 
 [00:27:22] Adam: Yeah.
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=dONf_TaqMgE
 
 [00:27:34] Norm: that happens around, it becomes part of the set.
 
-[00:27:37] Adam: When you watch Hurricane, which is my favorite, it's among my favorite choreography in the show. I—
+[00:27:37] Adam: When you watch Hurricane, which is my favorite, it's among my favorite choreography in the show. I -
 
 [00:27:44] Norm: Where he's in the middle, and they're spinning around.
 
@@ -398,7 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=dONf_TaqMgE
 
 [00:28:30] Norm: This is one of those things, and what's interesting about this, the film, which I think of as a document almost, as an artifact and a document, because it's a time capsule. It is something that was shot four years ago. Now, the actors themselves have all gone to other things, many other things that people might know them more for, yeah. Right then, for this show, that's almost like one, it's them returning home, but it's almost like they are different than the people who they were in 2014 2015 when they were constructing this. But I want to. I wish there was a commentary. I want the Thomas Kail commentary.
 
-[00:29:06] Adam: I can't wait. I'm sure they're they got to do it. I they. There's one other thing I want to say, and I know that in the description for this, it's called a spoiler cast, and it certainly is. But there's one thing that I won't spoil, and that's the very ending, which you. There's no way to get how the show ends from listening to the soundtrack, and that if you've been listening to the soundtrack, there's a key aspect to the ending, yeah, right, that is so powerful and so subtle that it—that's the one thing I won't that we won't spoil in this podcast because it's really worth sitting through all two and a half hours to get to that point.
+[00:29:06] Adam: I can't wait. I'm sure they're they got to do it. I they. There's one other thing I want to say, and I know that in the description for this, it's called a spoiler cast, and it certainly is. But there's one thing that I won't spoil, and that's the very ending, which you. There's no way to get how the show ends from listening to the soundtrack, and that if you've been listening to the soundtrack, there's a key aspect to the ending, yeah, right, that is so powerful and so subtle that it - that's the one thing I won't that we won't spoil in this podcast because it's really worth sitting through all two and a half hours to get to that point.
 
 [00:29:45] Norm: Yeah, I almost wanted the intermission to be longer so it could be a real pee break. [unclear: "We actually pause it" / "but you could pause it"].
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=dONf_TaqMgE
 
 [00:34:32] Norm: Yeah,
 
-[00:34:32] Adam: and help inform the way that they were playing it to the camera, and in Once Upon a Time in the West, when all those—I mean, when Jason—spoiler alert—when Jason Robards dies and his theme ends in the middle, when all those themes come together in the swirl of emotion for the finale of Once Upon a Time in the West, have we talked on the podcast, by the way, that Sam Raimi's Western with Russell Crowe, This Quick and the Dead, is effectively a almost narrative remake in some ways of Once Upon a Time in the West.
+[00:34:32] Adam: and help inform the way that they were playing it to the camera, and in Once Upon a Time in the West, when all those - I mean, when Jason - spoiler alert - when Jason Robards dies and his theme ends in the middle, when all those themes come together in the swirl of emotion for the finale of Once Upon a Time in the West, have we talked on the podcast, by the way, that Sam Raimi's Western with Russell Crowe, This Quick and the Dead, is effectively a almost narrative remake in some ways of Once Upon a Time in the West.
 
 [00:35:09] Norm: No, oh my God, we'll have to save that for a future podcast. I love that one too. Jill getting off the train and that long shot where she sees the furniture off the side of the tracks, goes through the building, and the camera goes up. It's like that is a bit what a reveal, and the music. Perfect for that. Yeah,
 
@@ -484,6 +484,6 @@ Episode URL: https://www.youtube.com/watch?v=dONf_TaqMgE
 
 [00:38:38] Adam: Oh, yes, yes, we're finally doing. Wow, that was a while back. I am staring at it right over here.
 
-[00:38:43] Norm: It's— You've done a lot of builds, and there'll be more to come. And so we will see you next time. But thanks for listening.
+[00:38:43] Norm: It's - You've done a lot of builds, and there'll be more to come. And so we will see you next time. But thanks for listening.
 
 [00:38:51] Adam: Thanks for listening in. Bye, everybody.

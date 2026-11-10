@@ -36,9 +36,9 @@ Episode URL: https://www.youtube.com/watch?v=2XqEZH4KUEA
 
 [00:02:53] Adam: Yeah.
 
-[00:02:53] Will: And I mean, we're getting dangerously near Andy Rooney territory here, but like everything is nothing. The more complex things get, the less likely they are to work. Like Windows on my machine just. Every once in a while, for some reason, just won't boot. You press the button, it runs halfway through the boot. The little dot, the circle of waiting, freezes, and then the only thing you can do is reboot. And I have to reset a bunch of settings to make it come back up. And I have—I've been making computers, building computers for 20 years. I am—I used to run a magazine, entirely about building computers. I am good at building computers, and the fact that I can't get shit to work is—it means that there are some larger problems out there in terms of like where we are with technology.
+[00:02:53] Will: And I mean, we're getting dangerously near Andy Rooney territory here, but like everything is nothing. The more complex things get, the less likely they are to work. Like Windows on my machine just. Every once in a while, for some reason, just won't boot. You press the button, it runs halfway through the boot. The little dot, the circle of waiting, freezes, and then the only thing you can do is reboot. And I have to reset a bunch of settings to make it come back up. And I have - I've been making computers, building computers for 20 years. I am - I used to run a magazine, entirely about building computers. I am good at building computers, and the fact that I can't get shit to work is - it means that there are some larger problems out there in terms of like where we are with technology.
 
-[00:03:39] Adam: I would also point out that we've had MP3 players now for 20 some odd years, and iTunes. I—I'm not exaggerating here. iTunes is a scourge on humanity. There's what I'm.
+[00:03:39] Adam: I would also point out that we've had MP3 players now for 20 some odd years, and iTunes. I - I'm not exaggerating here. iTunes is a scourge on humanity. There's what I'm.
 
 [00:03:52] Will: I'm going to. I'm going to introduce you to an i. Look, I have an iPhone. I came back to an iPhone from Android, despite the iOS being the worst part of that experience. The hardware is really nice. The OS is a flaming hot mess right now. Go get Spotify. You're going to be really happy with it.
 
@@ -52,7 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=2XqEZH4KUEA
 
 [00:05:06] Adam: There's always by trade-offs and stuff like that, and yeah, it is about what works for you. What I am complaining about is not my use of the phone. It's Apple engineers trying to get me to go to the cloud, and I'm not going to the cloud.
 
-[00:05:21] Will: Well, so most—
+[00:05:21] Will: Well, so most -
 
 [00:05:22] Norm: it's the business model.
 
@@ -112,7 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=2XqEZH4KUEA
 
 [00:11:33] Norm: I've actually. I've just done the opposite switch, where for the past couple years I've only wanted to carry a DSLR, and recently with the new iPhone X and being able to shoot raw photos on that with a third party app, it's been completely satisfactory, and I've been 100%. I don't feel like I'm missing out on the quality of images.
 
-[00:11:57] Will: Speak—Speaking of of iPhone X, Norm, did you did you were you the one that told me about the depth camera app? The one that lets you see the depth.
+[00:11:57] Will: Speak-Speaking of of iPhone X, Norm, did you did you were you the one that told me about the depth camera app? The one that lets you see the depth.
 
 [00:12:04] Norm: Yeah, Focos.
 
@@ -240,7 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=2XqEZH4KUEA
 
 [00:23:58] Will: Well, that sounds awesome.
 
-[00:24:01] Adam: That was by far the—
+[00:24:01] Adam: That was by far the -
 
 [00:24:01] Norm: I'm skeptical.
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=2XqEZH4KUEA
 
 [00:25:00] Will: Yeah, so that was very exciting. We've had a falling down fence here for the last year because of the winds and rain from last winter. You know, the rain got soft and the blew the fence over. So now I actually have full privacy across my entire backyard, which is a real real revolution down here in Pacifica. But yeah, it's not a it's pretty like it's kind of quiet in the city right now. We're into that time between Thanksgiving and Christmas when people start to go off on vacation and stuff. So like, there's a little less traffic and fewer people walking around. It's really nice.
 
-[00:25:47] Norm: We miss you in the office, Adam, and we can't wait for you to get back. I know you're back in just a week. We're all itching to get to building and doing some cool cool shoots. I know it's the time of year when we all kind of get a little—we're lulled in the complacency because it's the end of the year, things are winding down. And I know we're not a political podcast, but there is one thing I want to mention, and that is in 10 days, nine days or so, the FCC will be voting on their attempt to repeal the net neutrality laws that were enacted in the last administration. And if there's one thing you should do, regardless of your—I think of your political affiliations—I think it's going to affect us all. You should look into how that may affect you, and then do something about it. And the EFF has a great website, act.act.eff.org, with a lot of links on how you can learn more. Even just learning more, I think, helps a lot. But I wanted to get that out there.
+[00:25:47] Norm: We miss you in the office, Adam, and we can't wait for you to get back. I know you're back in just a week. We're all itching to get to building and doing some cool cool shoots. I know it's the time of year when we all kind of get a little - we're lulled in the complacency because it's the end of the year, things are winding down. And I know we're not a political podcast, but there is one thing I want to mention, and that is in 10 days, nine days or so, the FCC will be voting on their attempt to repeal the net neutrality laws that were enacted in the last administration. And if there's one thing you should do, regardless of your - I think of your political affiliations - I think it's going to affect us all. You should look into how that may affect you, and then do something about it. And the EFF has a great website, act.act.eff.org, with a lot of links on how you can learn more. Even just learning more, I think, helps a lot. But I wanted to get that out there.
 
 [00:26:53] Will: One of the things everyone can do is on that site. There's a phone number you can call that goes directly to the Commissioner of the FCC's office. You leave a brief message saying what your name is, where you live, and whether you are for or against net neutrality. There's a lot of shenanigans around that, with people kind of stuffing the ballot box in favor of repealing that neutrality.
 

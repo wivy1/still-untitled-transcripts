@@ -12,7 +12,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:00:09] Norm: and I'm Norm.
 
-[00:00:10] Will: And we have a—
+[00:00:10] Will: And we have a -
 
 [00:00:11] Adam: special guest,
 
@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:00:43] Frank: I can't stop staring at everything in here.
 
-[00:00:45] Will: So, so you should share—
+[00:00:45] Will: So, so you should share -
 
 [00:00:47] Frank: I just want to put it all on.
 
@@ -62,7 +62,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:01:48] Frank: and then triggered like a box of awesome dynamite.
 
-[00:01:51] Will: Well, it's funny because like when you first come in, you think, " Oh my god, this is a cacophony of things," and then when you start looking around and you spend some time. There's, there's, there is. It's, it's a mental palace. It's a mind palace of stuff. That’s what it is. And—
+[00:01:51] Will: Well, it's funny because like when you first come in, you think, " Oh my god, this is a cacophony of things," and then when you start looking around and you spend some time. There's, there's, there is. It's, it's a mental palace. It's a mind palace of stuff. That’s what it is. And -
 
 [00:02:06] Frank: Oh, I’ve been watching Sherlock the third season.
 
@@ -98,7 +98,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:02:32] Frank: They'd be great if they didn't call him Sherlock.
 
-[00:02:35] Will: Just, just like—
+[00:02:35] Will: Just, just like -
 
 [00:02:36] Frank: Their Holmes or whatever they’re calling it.
 
@@ -114,7 +114,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:02:49] Adam: Richard Condon? Richard Condon’s acting?
 
-[00:02:50] Frank: I don’t know. I don’t think that Ian McKellen looks like a Sherlock Holmes. He’s supposed to be more angular—
+[00:02:50] Frank: I don’t know. I don’t think that Ian McKellen looks like a Sherlock Holmes. He’s supposed to be more angular -
 
 [00:02:56] Adam: Whatever the fuck he wants.
 
@@ -142,11 +142,11 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:03:16] Will: And you’re gonna be gone for six weeks.
 
-[00:03:16] Frank: And I just— got back from Australia, so we're all time traveling right now.
+[00:03:16] Frank: And I just - got back from Australia, so we're all time traveling right now.
 
 [00:03:24] Will: Right, exactly. So you don't know where you are right now or when it is. Is it tomorrow? Is it today? Is it yesterday? What's the future like Frank?
 
-[00:03:29] Adam: When—Australia? It’s tomorrow.
+[00:03:29] Adam: When - Australia? It’s tomorrow.
 
 [00:03:31] Will: Right. It's always the future.
 
@@ -168,7 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:03:48] Adam: something like that. I can't remember the first one, but yeah, something like that.
 
-[00:03:51] Will: Norm, you've you've been to—
+[00:03:51] Will: Norm, you've you've been to -
 
 [00:03:53] Norm: This is my 10th.
 
@@ -188,7 +188,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:05:06] Adam: For Five days in a row.
 
-[00:05:06] Norm: This is—it's really interesting because as veterans of Comic Con, we—it is something that we anticipate every year. We just book that week and a half. That's what we're going to be doing. Vast majority of people listening to this have never been. Yeah. Maybe. In the Oakland Museum of California in the East Bay, there is actually an exhibit on Comic Con. I went.
+[00:05:06] Norm: This is - it's really interesting because as veterans of Comic Con, we - it is something that we anticipate every year. We just book that week and a half. That's what we're going to be doing. Vast majority of people listening to this have never been. Yeah. Maybe. In the Oakland Museum of California in the East Bay, there is actually an exhibit on Comic Con. I went.
 
 [00:05:27] Adam: I didn't know this.
 
@@ -200,7 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:05:51] Frank: Did they just make you wait in line for half a day?
 
-[00:05:54] Norm: If I was— To— design an exhibit on Comic Con, it would be a six-hour line that led back into itself.
+[00:05:54] Norm: If I was - To - design an exhibit on Comic Con, it would be a six-hour line that led back into itself.
 
 [00:05:56] Adam: Right.
 
@@ -216,7 +216,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:05:56] Adam: Right.
 
-[00:05:56] Norm: What the Hitchhiker’s Guide Comic Con entry is like—
+[00:05:56] Norm: What the Hitchhiker’s Guide Comic Con entry is like -
 
 [00:06:25] Will: ancient history.
 
@@ -224,9 +224,9 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:06:26] Will: Humans used to gather in large quantities to celebrate.
 
-[00:06:29] Adam: I mean, I should point out that— It's almost impossible to encapsulate, no matter how big your museum might be, because even though we'll be doing Comic Con on that kind of schedule, none of us gets anything close to a full picture of—
+[00:06:29] Adam: I mean, I should point out that - It's almost impossible to encapsulate, no matter how big your museum might be, because even though we'll be doing Comic Con on that kind of schedule, none of us gets anything close to a full picture of -
 
-[00:06:41] Norm: What’s—
+[00:06:41] Norm: What’s -
 
 [00:06:42] Will: going on. There's there's like seven different Comic Cons. There's the floor. There's the panels. There's all the stuff that happens around outside that. There's yeah.
 
@@ -244,7 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:06:58] Adam: Wow!
 
-[00:06:58] Will: I mean— But that’s true. That’s one of the seven Comic Cons.
+[00:06:58] Will: I mean - But that’s true. That’s one of the seven Comic Cons.
 
 [00:07:18] Frank: I’ve never been to that.
 
@@ -252,7 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:07:20] Adam: Yeah.
 
-[00:07:20] Norm: and it made me think of what would if I was to design exhibit to showcase maybe 100 years. You always have the if I was in crowd, just sleep the Futurama. You became the expert on the 20th century for the 30th century. How would you encapsulate that—
+[00:07:20] Norm: and it made me think of what would if I was to design exhibit to showcase maybe 100 years. You always have the if I was in crowd, just sleep the Futurama. You became the expert on the 20th century for the 30th century. How would you encapsulate that -
 
 [00:07:35] Adam: culture? Well, so I'll tell you a couple years ago, John Landis took me on a walk through Artist Alley because he was telling me, " You're full of shit. You don't know Comic Con unless you go into Artist Alley." And he took me down Artist Alley and introduced me to some of my favorite comic book artists who are just sitting there signing stuff at the tables, which is how Comic Con began.
 
@@ -316,13 +316,13 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:10:16] Frank: it doesn't matter what it is. It's a giant like Easter egg hunt to try and find somebody that knows somebody that can get you on a list for something else, and then at the end of the night, you just get really drunk and try and sneak into some place. Which is how I got into a couple of parties. That's where I saw you last year.
 
-[00:10:39] Adam: He got into the EW party. I couldn’t get—
+[00:10:39] Adam: He got into the EW party. I couldn’t get -
 
 [00:10:39] Will: Really?
 
 [00:10:39] Adam: I couldn’t get Kari, Grant and Tory into the EW party. And Frank snuck in.
 
-[00:10:46] Norm: Yeah, that’s a unique—
+[00:10:46] Norm: Yeah, that’s a unique -
 
 [00:10:46] Will: Ability.
 
@@ -332,7 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:11:03] Adam: I know I look different in person.
 
-[00:11:05] Will: And then they look at me and—
+[00:11:05] Will: And then they look at me and -
 
 [00:11:06] Adam: But Jada’s parking the car.
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:11:19] Will: No.
 
-[00:11:19] Adam: Podcast. Okay, so my first comic—
+[00:11:19] Adam: Podcast. Okay, so my first comic -
 
 [00:11:24] Will: You should set the stage for what EW party is.
 
@@ -394,11 +394,11 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:14:45] Will: Oh, this is good.
 
-[00:14:45] Adam: Right? And I'm like giving my peace sign, " Hey, how's it going?" And then get to them, and I'm like, " Adam Savage from MythBusters." And they're like, " Okay, absolutely." And they start looking. No. They start calling on the radios. No, they're looking. Meanwhile, I'm looking at the crowd. Now the crowd's making enough noise along the red carpet. The red carpet is for press, so lining the red carpet are about 30 different news cameras with interviewers, and they're all on satellite feed and recording. Now they hear the crowd and it's empty, so they don't have anything else to do. They start looking over and they see me. Now here's the best part about MythBusters is we started as crew, and all the LA crews and around the world know that Jamie and I are crew in our hearts. So the crews turn around and start to see us, and they start waving. And now I'm waving to the camera crews and the interviewers on the red carpet line, and the girls are still looking at the list. And finally, one of the cameramen yells, " Let him the fuck— in!" And all the cameramen start going, " Let him in! Let him in!" And the crowd starts whooping. And the girl just closes her thing and goes, " Go ahead."
+[00:14:45] Adam: Right? And I'm like giving my peace sign, " Hey, how's it going?" And then get to them, and I'm like, " Adam Savage from MythBusters." And they're like, " Okay, absolutely." And they start looking. No. They start calling on the radios. No, they're looking. Meanwhile, I'm looking at the crowd. Now the crowd's making enough noise along the red carpet. The red carpet is for press, so lining the red carpet are about 30 different news cameras with interviewers, and they're all on satellite feed and recording. Now they hear the crowd and it's empty, so they don't have anything else to do. They start looking over and they see me. Now here's the best part about MythBusters is we started as crew, and all the LA crews and around the world know that Jamie and I are crew in our hearts. So the crews turn around and start to see us, and they start waving. And now I'm waving to the camera crews and the interviewers on the red carpet line, and the girls are still looking at the list. And finally, one of the cameramen yells, " Let him the fuck - in!" And all the cameramen start going, " Let him in! Let him in!" And the crowd starts whooping. And the girl just closes her thing and goes, " Go ahead."
 
 [00:15:48] Will: Oh, that’s crazy. That’s great.
 
-[00:15:48] Adam: And that’s I walked in, and I walked in. The first person I saw was Amy Berg. My friend, who’s a wonderful writer,—
+[00:15:48] Adam: And that’s I walked in, and I walked in. The first person I saw was Amy Berg. My friend, who’s a wonderful writer, -
 
 [00:16:07] Will: Producer, Eureka. Yeah, Eureka. Yeah.
 
@@ -424,7 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:16:43] Norm: Can you like cut in line like a hey I know that guy?
 
-[00:16:46] Frank: No, I just—
+[00:16:46] Frank: No, I just -
 
 [00:16:47] Norm: Chat and walk.
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:17:08] Adam: That never worked. At the moment you’re saying that you’ve lost all your dignity.
 
-[00:17:08] Will: Yeah, exactly. So— Norm and I got bounced off of the red carpet at the Hyundai party last year because we were standing talking to Grant as he was getting ready to do his walk down the carpet, and the security guys were like, " You, I have no idea. Get the hell off!" So we were just on the sidewalk where the red carpet was.
+[00:17:08] Will: Yeah, exactly. So - Norm and I got bounced off of the red carpet at the Hyundai party last year because we were standing talking to Grant as he was getting ready to do his walk down the carpet, and the security guys were like, " You, I have no idea. Get the hell off!" So we were just on the sidewalk where the red carpet was.
 
 [00:17:30] Norm: It also helps to dress up.
 
@@ -554,7 +554,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:22:00] Will: Yeah. the Marriott.
 
-[00:22:14] Adam: So as a good—
+[00:22:14] Adam: So as a good -
 
 [00:22:15] Will: You just outed us.
 
@@ -568,13 +568,13 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:22:18] Adam: Right. Wow, there are lots, but there’s only two that bank.
 
-[00:22:24] Norm: Hey, there are two called the Marriott. So—
+[00:22:24] Norm: Hey, there are two called the Marriott. So -
 
 [00:22:24] Adam: Oh really?
 
 [00:22:24] Will: There you go.
 
-[00:22:27] Adam: Yeah. At any rate, the hospitality suites are these corner—
+[00:22:27] Adam: Yeah. At any rate, the hospitality suites are these corner -
 
 [00:22:30] Will: The same Marriott a few more times, please.
 
@@ -592,11 +592,11 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:22:56] Will: Oh God!
 
-[00:22:56] Adam: You know how it's just like, and the elevators at Comic Con—
+[00:22:56] Adam: You know how it's just like, and the elevators at Comic Con -
 
 [00:23:23] Will: It’s a mess.
 
-[00:23:24] Adam: It’s like half an hour to get an elevator—
+[00:23:24] Adam: It’s like half an hour to get an elevator -
 
 [00:23:24] Will: Sometimes.
 
@@ -634,7 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:24:57] Will: Oh my God! You know that’s gotta be the weirdest dream he’s ever had.
 
-[00:24:57] Adam: He woke up and was like— Wow, that was strange."
+[00:24:57] Adam: He woke up and was like - Wow, that was strange."
 
 [00:25:05] Will: I dreamt Adam Savage came to my hotel room last night.
 
@@ -710,9 +710,9 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:26:34] Will: Wow.
 
-[00:26:34] Adam: Yeah, so so much has happened since then. I mean there’s a lot of new infrastructure in this shop since—
+[00:26:34] Adam: Yeah, so so much has happened since then. I mean there’s a lot of new infrastructure in this shop since -
 
-[00:26:53] Will: Yeah, the metal shop is new, the all your—
+[00:26:53] Will: Yeah, the metal shop is new, the all your -
 
 [00:26:55] Adam: Costume.
 
@@ -728,7 +728,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:27:01] Adam: Mm-hmm.
 
-[00:27:01] Will: Okay— so
+[00:27:01] Will: Okay - so
 
 [00:27:08] Norm: so yeah, come to our party. And even if you can't make it, we're doing a special offer right now on the site where if you subscribe to membership, you're going to get this really cool art print that Adam designed that's related to something that's going to be unveiled at the party.
 
@@ -760,7 +760,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:28:44] Adam: plausibly sold out.
 
-[00:28:45] Will: Yes. You'll be at the EW party on Saturday night. It sounds like—
+[00:28:45] Will: Yes. You'll be at the EW party on Saturday night. It sounds like -
 
 [00:28:49] Adam: Panel is on Saturday.
 
@@ -786,7 +786,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:29:14] Adam: Oh, right.
 
-[00:29:15] Norm: Rupert knows. Oh—
+[00:29:15] Norm: Rupert knows. Oh -
 
 [00:29:17] Frank: I don’t know.
 
@@ -794,7 +794,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:29:18] Norm: No, the other dude, the Australian,
 
-[00:29:19] Will: Amazing. Who—
+[00:29:19] Will: Amazing. Who -
 
 [00:29:20] Norm: play? Who who's a villain? Who plays? Also puts on the Tom Cruise mask. Double mask.
 
@@ -804,7 +804,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:29:26] Will: If you walked halfway down the line and ripped the first mask off,
 
-[00:29:29] Frank: I actually—
+[00:29:29] Frank: I actually -
 
 [00:29:29] Adam: just do do do do a total recall, and you could show three boobs,
 
@@ -818,17 +818,17 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:29:41] Will: Yeah. Just put on the full suit.
 
-[00:29:41] Frank: Oh, the tighty whities. In there with—
+[00:29:41] Frank: Oh, the tighty whities. In there with -
 
 [00:29:45] Adam: You’ve Seen that footage of Charlie Day putting on
 
 [00:29:47] Will: The tighty whities?
 
-[00:29:48] Adam: Yeah. So they did an Always Sunny in Philadelphia where Danny DeVito stuck in—
+[00:29:48] Adam: Yeah. So they did an Always Sunny in Philadelphia where Danny DeVito stuck in -
 
 [00:29:48] Will: A couch?
 
-[00:29:48] Adam: In an amusement park. Sorry, a kids’ play—
+[00:29:48] Adam: In an amusement park. Sorry, a kids’ play -
 
 [00:29:57] Will: Like a structure. Yeah, it’s like a monkey bars.
 
@@ -838,13 +838,13 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:30:07] Adam: but they want he said, " I'll wear the tighty whities, but only if Charlie puts them on me." And so Charlie, Charlie's sitting there, he's stuck in the structure naked, and Charlie's slipping the whities up. And when he gets up to the top, it turns on there backwards, so he's got to slip them all the way back down and turn around and Put them on again.
 
-[00:30:24] Will: So—
+[00:30:24] Will: So -
 
 [00:30:26] Adam: like a mindful
 
 [00:30:26] Will: Bird. Yeah, no.
 
-[00:30:26] Adam: Yeah, you— Should go as Danny’s date.
+[00:30:26] Adam: Yeah, you - Should go as Danny’s date.
 
 [00:30:29] Frank: Oh yeah, no, I don’t think Danny’s going this year.
 
@@ -858,7 +858,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:30:29] Adam: Totally.
 
-[00:30:29] Frank: He used to have a booth. I used to—
+[00:30:29] Frank: He used to have a booth. I used to -
 
 [00:30:37] Adam: I know, I went there a couple years ago. I took a picture in the severed body.
 
@@ -876,7 +876,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:30:58] Adam: Yeah, it was beautiful.
 
-[00:31:07] Frank: Yeah, RJ did a good job. It was—
+[00:31:07] Frank: Yeah, RJ did a good job. It was -
 
 [00:31:08] Will: unbelievable. Yeah,
 
@@ -930,7 +930,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:32:05] Will: Yeah.
 
-[00:32:05] Adam: It’s a freaking—
+[00:32:05] Adam: It’s a freaking -
 
 [00:32:11] Will: I wear glasses, and I have a beard.
 
@@ -944,7 +944,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:32:25] Adam: She plays the scientists in the lab, the brunette female scientists in the lab figuring stuff out. She's most famous for playing the lead in the BBC six-hour version of Pride and Prejudice, which we talked about a couple of weeks ago on the adaptation podcast. Yeah. Jennifer Ehle, I just I I heart Jennifer Ehle. She's a great actress.
 
-[00:32:46] Will: Um. From—
+[00:32:46] Will: Um. From -
 
 [00:32:46] Adam: From Contagion,
 
@@ -1016,11 +1016,11 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:34:46] Adam: There’s just it’s a whole yes.
 
-[00:34:50] Frank: Well, I’m—
+[00:34:50] Frank: Well, I’m -
 
-[00:34:51] Will: Like going to—
+[00:34:51] Will: Like going to -
 
-[00:34:51] Frank: I’m reskinning Zoidberg. So if if since this is playing the Tuesday before Comic Con, yeah, you don’t think they have the I could I could—
+[00:34:51] Frank: I’m reskinning Zoidberg. So if if since this is playing the Tuesday before Comic Con, yeah, you don’t think they have the I could I could -
 
 [00:34:58] Norm: Yes, yeah, yeah. Yes, you can, you may.
 
@@ -1036,7 +1036,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:35:12] Will: The end is lobster.
 
-[00:35:13] Adam: Yeah, there is got to be a lobster pun. You could do the end is—
+[00:35:13] Adam: Yeah, there is got to be a lobster pun. You could do the end is -
 
 [00:35:16] Will: Nigh. The end is claws, claws, maybe.
 
@@ -1060,7 +1060,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:35:44] Norm: And if you can't make it to the party, we'll have some video and photos.
 
-[00:35:44] Adam: Absolutely, there— will be tremendous amounts of ancillary material from our trip to Comic Con.
+[00:35:44] Adam: Absolutely, there - will be tremendous amounts of ancillary material from our trip to Comic Con.
 
 [00:35:51] Will: And just to be clear, we're showing something. That's never been shown before in a completed state.
 
@@ -1074,7 +1074,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:36:05] Adam: always prepared. I'm also going to have a casual walk around costume so that I don't have to overheat.
 
-[00:36:05] Will: Yes. I know what that is. We will be back next week with another with a post Comic Con—
+[00:36:05] Will: Yes. I know what that is. We will be back next week with another with a post Comic Con -
 
 [00:36:13] Adam: Post Comic Con, yes.
 

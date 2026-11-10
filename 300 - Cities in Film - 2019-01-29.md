@@ -140,7 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:07:49] Norm: Yeah, and that's the thing.
 
-[00:07:51] Adam: The stairs that he's—that's the Mission Dolores.
+[00:07:51] Adam: The stairs that he's - that's the Mission Dolores.
 
 [00:07:54] Jen: Oh wow, that puts a totally new perspective on that movie. I'll have to go back and watch it again.
 

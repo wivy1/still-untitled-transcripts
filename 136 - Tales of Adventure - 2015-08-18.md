@@ -120,7 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:05:22] Will: Well, and it's amazing to me because you're talking about these cities that are building up. Like normally, when you talk about mega skyscrapers, it's some place like Manhattan or Chicago where there's a limited amount of space to develop. And here, we're talking about a place that's surrounded by infinite space, almost
 
-[00:05:39] Adam: space. And they're building so furiously that a not insignificant percentage—I think it's like 10 or 15%—of the world's cranes are in the UAE.
+[00:05:39] Adam: space. And they're building so furiously that a not insignificant percentage - I think it's like 10 or 15% - of the world's cranes are in the UAE.
 
 [00:05:39] Will: Wow,
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:16:47] Norm: Yeah, something like that. I mean, it was three days to Calgary and then two days back.
 
-[00:16:51] Adam: Oh wow, two days back—that's fast.
+[00:16:51] Adam: Oh wow, two days back - that's fast.
 
 [00:16:51] Unknown: [unclear: Two days back.]
 
@@ -604,7 +604,7 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:25:56] Adam: That would be amazing.
 
-[00:25:57] Will: DC to LA in an hour and four minutes—that's an okay way to travel.
+[00:25:57] Will: DC to LA in an hour and four minutes - that's an okay way to travel.
 
 [00:26:02] Adam: Yeah,
 

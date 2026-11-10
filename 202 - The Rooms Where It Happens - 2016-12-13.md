@@ -346,7 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:16:04] Adam: Which was where we filmed Duct Tape Canyon. It was in Moab and Monument Valley. Oh my god, what a beautiful place! Anyway,
 
-[00:16:10] Will: so Park City, though, like it, just especially coming from the East Coast, it feels huge. Like driving up from Salt Lake, which is in this valley, and there's these gigantic old—I mean, sorry, new rather—rugged mountains, kind of on three sides.
+[00:16:10] Will: so Park City, though, like it, just especially coming from the East Coast, it feels huge. Like driving up from Salt Lake, which is in this valley, and there's these gigantic old - I mean, sorry, new rather - rugged mountains, kind of on three sides.
 
 [00:16:26] Adam: Relatively young,
 
@@ -534,9 +534,9 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:27:01] Adam: actually, some theaters have tons of it. Some every theater is totally different. When you when we take our show around, when we'll take Brain Candy around, some theaters will have tons of crossover, big fat wings. Others will have nothing at all.
 
-[00:27:13] Will: I mean, I guess the place that Norman and I went—the Civic Coliseum in Bakersfield—they just opened up the trucks there.
+[00:27:13] Will: I mean, I guess the place that Norman and I went - the Civic Coliseum in Bakersfield - they just opened up the trucks there.
 
-[00:27:19] Adam: You went to the biggest one there is. That is my—that's my favorite because the buses pull in right behind the stage. Yeah, we were
+[00:27:19] Adam: You went to the biggest one there is. That is my - that's my favorite because the buses pull in right behind the stage. Yeah, we were
 
 [00:27:26] Will: indoors. We drove away. We rolled in, and I texted you, " Is like, hey, where where should we meet?" You was like, " You were like, just come up to the loading dock. You'll see." And there were four, three 18 wheelers and two buses parked there. It was amazing.
 

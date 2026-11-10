@@ -68,7 +68,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:02:11] Will: I.
 
-[00:02:11] Adam: San Francisco is getting warmer, and in 50 years, San Francisco will have the weather of LA. Is the latest forecast I saw. And if that's the case, AC is going to be in—completely vital.
+[00:02:11] Adam: San Francisco is getting warmer, and in 50 years, San Francisco will have the weather of LA. Is the latest forecast I saw. And if that's the case, AC is going to be in- completely vital.
 
 [00:02:19] Will: You'll have to. Yeah. Well, you have a central furnace, right?
 
@@ -152,7 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:04:52] Unknown speaker: Right.
 
-[00:04:52] Norm: Go is the learning curve can go—
+[00:04:52] Norm: Go is the learning curve can go -
 
 [00:04:55] Will: It's infinite.
 
@@ -228,9 +228,9 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:10:32] Adam: because he's put him off balance, and then he just stands up and sinks this three. Yeah, and like I watched that game. So first of all, I was like, I should watch the last three games of Michael Jordan's career for hell's sake, right?
 
-[00:10:44] Will: He's—yeah,
+[00:10:44] Will: He's - yeah,
 
-[00:10:45] Adam: Yeah, it's one of the— And I enjoyed the spit out of them. It was really, really, really great. My ex-wife was wandering around the house going, " I didn't marry a man who watches sports on TV. What's happened? What have you done with my husband?" And then I found online about a year later this, or maybe it was even a New Yorker article, a deep dive. Into that game and that move of Jordan, and they talked about it within the arc of Jordan's body changing through the course of his career, and him adjusting his style of play and strategy, knowing deeply what his body could and couldn't do, and how the mental aspect of the strategy was all exemplified by the " All I have to do is fake this little bit, and this guy will be doesn't realize how far off balance he will be. I'll tip him over and do this shot." And I like I. It was lovely to read that kind of stuff.
+[00:10:45] Adam: Yeah, it's one of the - And I enjoyed the spit out of them. It was really, really, really great. My ex-wife was wandering around the house going, " I didn't marry a man who watches sports on TV. What's happened? What have you done with my husband?" And then I found online about a year later this, or maybe it was even a New Yorker article, a deep dive. Into that game and that move of Jordan, and they talked about it within the arc of Jordan's body changing through the course of his career, and him adjusting his style of play and strategy, knowing deeply what his body could and couldn't do, and how the mental aspect of the strategy was all exemplified by the " All I have to do is fake this little bit, and this guy will be doesn't realize how far off balance he will be. I'll tip him over and do this shot." And I like I. It was lovely to read that kind of stuff.
 
 [00:11:35] Will: It's the thing that I think makes competitive video games and like pick up basketball games and all of the kind of sports you know bowling joining a bowling league. It's the thing that we have as kids, and a lot of times we lose as adults. That I think is actually really help like having competition in your life that is healthy and not destructive. It turns out is really good.
 
@@ -848,7 +848,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:35:51] Adam: she already has powers. Yeah,
 
-[00:35:52] Will: it's not like they're going—signing up to get injected with some business.
+[00:35:52] Will: it's not like they're going - signing up to get injected with some business.
 
 [00:35:56] Adam: No, certain number of people seem to be just born with powers.
 

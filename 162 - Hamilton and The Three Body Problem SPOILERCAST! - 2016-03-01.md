@@ -42,11 +42,11 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:02:54] Norm: If they put in between, yeah.
 
-[00:02:56] Adam: Absolutely. If you did Wicked, you'd miss a lot about the development between Elphaba and Glinda. I love Wicked. This thing is—it's just I can't get enough of it. It's totally killing me. And I'm texting friends of mine, and like my friend Ben last week was like, " I remember this phase," and I was like, " What phase?" And he was like, " Oh, the phase when I had a new favorite song of Hamilton every day."
+[00:02:56] Adam: Absolutely. If you did Wicked, you'd miss a lot about the development between Elphaba and Glinda. I love Wicked. This thing is - it's just I can't get enough of it. It's totally killing me. And I'm texting friends of mine, and like my friend Ben last week was like, " I remember this phase," and I was like, " What phase?" And he was like, " Oh, the phase when I had a new favorite song of Hamilton every day."
 
 [00:03:14] Unknown speaker: Wow.
 
-[00:03:14] Adam: Oh yeah. No different things ring through my head. Maybe the most—I don't want to spend a lot more time on it, but maybe the most important thing is—is when you read histories of the founding fathers, there's two things that are really surprising. One was how much they all hated each other, like really seriously did not get along. The factional factionalization of the founding fathers and how much they disagree, and still, what an amazing document came out of that. Those disagreements.
+[00:03:14] Adam: Oh yeah. No different things ring through my head. Maybe the most - I don't want to spend a lot more time on it, but maybe the most important thing is - is when you read histories of the founding fathers, there's two things that are really surprising. One was how much they all hated each other, like really seriously did not get along. The factional factionalization of the founding fathers and how much they disagree, and still, what an amazing document came out of that. Those disagreements.
 
 [00:03:51] Will: You're talking about Madison, Washington, and Madison, Washington, Jefferson, and Franklin to a lesser extent.
 
@@ -320,7 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:16:57] Norm: yeah.
 
-[00:16:57] Adam: Gravitational effects on each other—it's that's what the three-body problem is. How do you calculate these effects?
+[00:16:57] Adam: Gravitational effects on each other - it's that's what the three-body problem is. How do you calculate these effects?
 
 [00:17:04] Will: And more importantly, though, the video game that he's interacting with has these, this, these people that
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:17:47] Will: just to be clear.
 
-[00:17:48] Norm: And it does jump forward 40 years and becomes a thriller, basically, because this man—you can envision it as a scientist whose crazy things are happening around him. He's seeing numbers in this in his vision. But and he's kind of
+[00:17:48] Norm: And it does jump forward 40 years and becomes a thriller, basically, because this man - you can envision it as a scientist whose crazy things are happening around him. He's seeing numbers in this in his vision. But and he's kind of
 
 [00:18:01] Adam: So it's very destabilizing,
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:26:23] Will: It's. It happened shortly after she betrayed the entire human race. The betraying the human race was not a particularly impactful moment for me. The moment when she makes the decision to kill her husband because she has to kill her boss was incredibly moving to me. And and I don't know. I I thought I I. It was a lovely translation of what I assume is a really good book. I didn't read the original, and
 
-[00:26:45] Norm: I want to go back again to the Sophons and the presentation and the explanation of the Sophons, which I think is a chapter in itself. If you. Have no interest in reading the book, but you want to get what Adam is getting at in terms of how impressive that explanation is. Just read that one chapter where the Trisolarans—it's explained how the Trisolarans develop the computer, the proton
+[00:26:45] Norm: I want to go back again to the Sophons and the presentation and the explanation of the Sophons, which I think is a chapter in itself. If you. Have no interest in reading the book, but you want to get what Adam is getting at in terms of how impressive that explanation is. Just read that one chapter where the Trisolarans - it's explained how the Trisolarans develop the computer, the proton
 
 [00:27:06] Adam: It’s beautiful. It’s such a thrilling chapter.
 

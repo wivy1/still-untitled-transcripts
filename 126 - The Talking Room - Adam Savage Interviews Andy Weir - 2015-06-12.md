@@ -158,13 +158,13 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:09:33] Andy Weir: So I'm interested in that.
 
-[00:09:35] Adam: Yeah, yeah, yeah. It's it's pretty crunchy. His— compared to my other spacesuits.
+[00:09:35] Adam: Yeah, yeah, yeah. It's it's pretty crunchy. His - compared to my other spacesuits.
 
 [00:09:37] Andy Weir: Yeah, well, it sounds awesome. And I want to see it. But the okay, so his spacesuit is is like kind of a next gen spacesuit. One thing that, as a spacesuit buff, I'm sure is that it's practically impossible to put on a spacesuit by yourself.
 
 [00:09:53] Adam: Yeah.
 
-[00:09:53] Andy Weir: Okay, so this is a scenario where they design spacesuits that can be put on by themselves, and I think—figured their reasoning behind it was for just such an occasion. They go like, well, we have a crew of six. They're on Mars. They're not always going to all be together.
+[00:09:53] Andy Weir: Okay, so this is a scenario where they design spacesuits that can be put on by themselves, and I think - figured their reasoning behind it was for just such an occasion. They go like, well, we have a crew of six. They're on Mars. They're not always going to all be together.
 
 [00:10:08] Adam: Right.
 
@@ -374,7 +374,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:24:20] Andy Weir: Right. In fact,
 
-[00:24:21] Adam: Ridley Scott—they're like filming soon.
+[00:24:21] Adam: Ridley Scott - they're like filming soon.
 
 [00:24:23] Andy Weir: Ridley Scott is directing. Matt Damon is starring as Watney. Donald Glover as Rich Purnell, which I'm really excited by. Because I love that guy,
 
@@ -582,7 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:36:07] Adam: that's putting it mildly.
 
-[00:36:07] Andy Weir: Point is, he does end up reducing a certain amount of hydrazine and turning it into water over a certain period of time. And I got an email from a chemist saying like, okay, you did this much hydrazine. You tell me how much hydrazine he changed, how much water he made, which is stoichi— is correct.
+[00:36:07] Andy Weir: Point is, he does end up reducing a certain amount of hydrazine and turning it into water over a certain period of time. And I got an email from a chemist saying like, okay, you did this much hydrazine. You tell me how much hydrazine he changed, how much water he made, which is stoichi- is correct.
 
 [00:36:26] Adam: Right.
 
@@ -648,7 +648,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:39:44] Andy Weir: That was call my dad at seven in the morning. Like as soon as I saw that email, I'm like, yeah, that was exciting.
 
-[00:39:52] Adam: I can imagine. Is anything that you're now that you are conversing with the very engineers who you— you've been representing in the book? Do you have other ideas for another space-themed book?
+[00:39:52] Adam: I can imagine. Is anything that you're now that you are conversing with the very engineers who you - you've been representing in the book? Do you have other ideas for another space-themed book?
 
 [00:40:06] Andy Weir: I have. So I have. I have ideas for a for another hard science fiction book. But the problem is, I have a really good setting, but I don't have a really good story for it. And I pitched it. I had a story, and I pitched it, and the publishers like, " What else you got?" So it's not, which is good. It makes me feel good to know that they're not just going to rubber stamp it.
 
@@ -770,7 +770,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:45:52] Adam: yes,
 
-[00:45:52] Andy Weir: basically the mailbox as it was called, right? That's like one of my favorite scenes of any kind in cinematic history, And so I want—
+[00:45:52] Andy Weir: basically the mailbox as it was called, right? That's like one of my favorite scenes of any kind in cinematic history, And so I want -
 
 [00:45:59] Adam: Mine too,
 

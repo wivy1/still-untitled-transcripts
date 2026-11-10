@@ -384,7 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:14:51] Will: Wow, that's interesting.
 
-[00:15:06] Adam: And I don’t think that— I'm really glad because Benicio del Toro made that role very creepy and upsetting, and I thought that's what it required.
+[00:15:06] Adam: And I don’t think that - I'm really glad because Benicio del Toro made that role very creepy and upsetting, and I thought that's what it required.
 
 [00:15:14] Will: I assume the Collector will show up in the future installments of Guardians of the Galaxy,
 
@@ -600,7 +600,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:22:05] Norm: The stinger was Nick Fury, Sam Jackson walking up and saying, " It says literally, 'Who are you?' I'm I'm Nick Fury." And you're now entering a world. He says, " Literally, you're entering a like a new world of possibility, or something, something like that." And he goes, " And I want to talk to you about the Avengers Initiative."
 
-[00:22:27] Will: And that—cold chills.
+[00:22:27] Will: And that - cold chills.
 
 [00:22:28] Norm: And it was, yeah, yeah, and those four lines and that light exchange which no one knew, even the press didn't know anything about until the release.
 

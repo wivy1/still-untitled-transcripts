@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:00:51] Will: So it was a formative show for you. It was
 
-[00:00:54] Adam: Totally. Gil Gerard. And Erin Gray, I I watched it. It was—
+[00:00:54] Adam: Totally. Gil Gerard. And Erin Gray, I I watched it. It was -
 
 [00:00:54] Will: Who the hell's Gil Gerard?
 
@@ -84,17 +84,17 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:01:52] Norm: It says it all.
 
-[00:01:52] Will: He is an astronaut, much like Steve Austin, but his accident when he goes into space—
+[00:01:52] Will: He is an astronaut, much like Steve Austin, but his accident when he goes into space -
 
 [00:01:57] Norm: You mean the wrestler,
 
-[00:01:57] Adam: or more like Charles—
+[00:01:57] Adam: or more like Charles -
 
-[00:01:58] Will: No, the—
+[00:01:58] Will: No, the -
 
 [00:01:58] Norm: Charles, or
 
-[00:01:59] Adam: the more like Charles— Charlton Heston. Yeah,
+[00:01:59] Adam: the more like Charles - Charlton Heston. Yeah,
 
 [00:02:01] Will: okay, kind of like Charlton Heston. He gets sucked forward into time, but when he lands, the planet's not filled of damn dirty apes. It's a advanced civilization. We've had some apparently it seems like some bad things had happened. Oh, in the interval,
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:03:50] Will: I have. I was thinking about that because I was watching. I realized that I stopped watching, as I do, Battlestar, the reboot of Battlestar Galactica, let's say midway through the third season. So after they got off of New Caprica, I was just like, I'm done. I've had enough.
 
-[00:04:04] Adam: New, that New Caprica season is a rough—
+[00:04:04] Adam: New, that New Caprica season is a rough -
 
 [00:04:04] Will: It sucked.
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:04:11] Will: I'm almost done with the first season again, which is, I think, one of the better seasons of TV ever made.
 
-[00:04:16] Adam: Well, so Bill Prady, who's the creator of Big Bang Theory, is a friend, and he, when he told me that he's the one that got me to watch Battlestar Galactica, and he said, " Do not let anyone tell you anything, and just watch— all I want you to do is watch the two hour pilot. That's it. " And he was totally right. That two hour pilot is like lost. Isn't that?
+[00:04:16] Adam: Well, so Bill Prady, who's the creator of Big Bang Theory, is a friend, and he, when he told me that he's the one that got me to watch Battlestar Galactica, and he said, " Do not let anyone tell you anything, and just watch - all I want you to do is watch the two hour pilot. That's it. " And he was totally right. That two hour pilot is like lost. Isn't that?
 
 [00:04:16] Will: It's amazing.
 
@@ -182,7 +182,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:04:42] Adam: I agree.
 
-[00:04:42] Will: The first episode is 33. Even the second episode is great, but the first episode. Where they have to jump every 33 minutes, and they're just the sh— the living shit has been beaten out of them.
+[00:04:42] Will: The first episode is 33. Even the second episode is great, but the first episode. Where they have to jump every 33 minutes, and they're just the sh- the living shit has been beaten out of them.
 
 [00:04:55] Adam: Totally.
 
@@ -220,9 +220,9 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:05:48] Norm: They'll never reboot.
 
-[00:05:49] Adam: No— that's that makes me very sad.
+[00:05:49] Adam: No - that's that makes me very sad.
 
-[00:05:52] Norm: It was— speaking of original television, though and you mentioned Lost, and when you talk to Damon Lindelof
+[00:05:52] Norm: It was - speaking of original television, though and you mentioned Lost, and when you talk to Damon Lindelof
 
 [00:05:52] Adam: Yeah.
 
@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:06:47] Adam: Well, no. Some of the people who left were like cardinals, and others were serial killers. It was all over the place.
 
-[00:06:53] Will: So, so—
+[00:06:53] Will: So, so -
 
 [00:06:53] Adam: or on death row for being a serial killer.
 
@@ -268,7 +268,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:07:23] Will: That show is so good,
 
-[00:07:24] Adam: so good. It's it's very exciting, but we were going to talk about extravaganza— exercise. Yes. I don't know why the original television thing. You just want.
+[00:07:24] Adam: so good. It's it's very exciting, but we were going to talk about extravaganza - exercise. Yes. I don't know why the original television thing. You just want.
 
 [00:07:32] Will: I stuttered and I thought Tweety. Beep beep beep beep. That's where it came from.
 
@@ -294,7 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:08:07] Will: Yes. Uh,
 
-[00:08:07] Adam: right. Max is so Max wrote the secret. He said the secret, untold history of MythBusters is that Adam keeps losing weight and looking younger and getting more hair as the seasons progress. And I was like, " I love you," and he says, " I'm only if—" He's. I won't tell that joke. Anyway. The fact is, yeah, I've I've managed to lose about 30 pounds over the last two. Is it 2014? Yeah. Two and a half years. What's
+[00:08:07] Adam: right. Max is so Max wrote the secret. He said the secret, untold history of MythBusters is that Adam keeps losing weight and looking younger and getting more hair as the seasons progress. And I was like, " I love you," and he says, " I'm only if -" He's. I won't tell that joke. Anyway. The fact is, yeah, I've I've managed to lose about 30 pounds over the last two. Is it 2014? Yeah. Two and a half years. What's
 
 [00:08:38] Norm: your one secret trick?
 
@@ -308,7 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:08:42] Adam: My simple trick is lunch,
 
-[00:08:45] Norm: lunch, not eating. Or eating only—
+[00:08:45] Norm: lunch, not eating. Or eating only -
 
 [00:08:46] Adam: No, only. Well, so I started out by not eating lunch. I just eliminated lunch from my day.
 
@@ -320,21 +320,21 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:09:11] Adam: Reasonably healthy amount of time, but what I found was after about eight months of not eating lunch, and it wasn't like I never ate lunch on weekends. Of course, there's the social aspect to meals, and I would have brunch, so it was like maybe four or five days a week I would eliminate lunch. And to be clear, I've never eaten breakfast, so it was like between waking up and dinner, I'd have a you know a couple of teas.
 
-[00:09:33] Will: Okay, what—
+[00:09:33] Will: Okay, what -
 
 [00:09:34] Adam: I'm okay.
 
-[00:09:34] Norm: You didn't get like the shakes or the—?
+[00:09:34] Norm: You didn't get like the shakes or the -?
 
-[00:09:36] Adam: I I'm not someone who gets cranky when they get low blood sugar, but that turns out to be a dint of my personality, and you know it's like that's not my wife. You just— she definitely gets cranky when her blood sugar is low.
+[00:09:36] Adam: I I'm not someone who gets cranky when they get low blood sugar, but that turns out to be a dint of my personality, and you know it's like that's not my wife. You just - she definitely gets cranky when her blood sugar is low.
 
 [00:09:45] Will: Yeah, no, you gotta keep the spouses fed and watered.
 
 [00:09:47] Adam: Yes. But I so that works for me, right? It doesn't work for everybody. Also, frankly, it's quite interesting to just wait until you're hungry to eat because you'll find if you actually pay attention that we modern culture almost never wait until we're hungry to eat. We eat because it's time to eat, but
 
-[00:10:05] Will: We’re not— or because it's convenient to eat.
+[00:10:05] Will: We’re not - or because it's convenient to eat.
 
-[00:10:07] Adam: Yeah. So after about eight months of lunch only two or three days a week, I found a couple of problems. One is that yes, if you don't eat anything until you sit down at dinner, I would not only eat my meal, I eat all of everybody's leftovers at the table. I just vacuum it up, And so my body started—
+[00:10:07] Adam: Yeah. So after about eight months of lunch only two or three days a week, I found a couple of problems. One is that yes, if you don't eat anything until you sit down at dinner, I would not only eat my meal, I eat all of everybody's leftovers at the table. I just vacuum it up, And so my body started -
 
 [00:10:07] Will: Oh, hey. You want some cake?
 
@@ -398,11 +398,11 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:14:34] Adam: always butter,
 
-[00:14:34] Will: but—
+[00:14:34] Will: but -
 
 [00:14:34] Adam: and salt, which makes you retain water.
 
-[00:14:38] Will: But what you can do is if you are making your own food, which you should be doing, and you should be shopping around the edge of the grocery store. Like that that's phase one of not being fat is—
+[00:14:38] Will: But what you can do is if you are making your own food, which you should be doing, and you should be shopping around the edge of the grocery store. Like that that's phase one of not being fat is -
 
 [00:14:48] Norm: And saving money?
 
@@ -430,7 +430,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:15:32] Will: I'd rather have that on something that's memorable and special and good than something that's kind of crappy.
 
-[00:15:36] Adam: I have noticed something by weighing myself every day. One is that every study and every meta study about weight loss techniques. Makes it really clear that you, that anyone can lose weight using various techniques. Keeping that weight off requires a fundamental shift in your consciousness, and you will always be thinking about it. Like I'm always thinking about what I'm eating, and because I weigh myself every day, I've noticed that you're always on one of three tracks: you're either stable, or you're in a gaining weight track, or a losing weight track, and they are really, really specific. And you can't go by two or three days because your weight fluctuates by as much as five pounds a day in terms of how much food and water you're taking in, how much exercise is going out even how warm or cold that it is. I could weigh myself at at any rate. I've gotten now down over the past eight months. I'm now at. I'm now at like 168, and I I haven't been this light since I moved to San Francisco, or maybe a year after—
+[00:15:36] Adam: I have noticed something by weighing myself every day. One is that every study and every meta study about weight loss techniques. Makes it really clear that you, that anyone can lose weight using various techniques. Keeping that weight off requires a fundamental shift in your consciousness, and you will always be thinking about it. Like I'm always thinking about what I'm eating, and because I weigh myself every day, I've noticed that you're always on one of three tracks: you're either stable, or you're in a gaining weight track, or a losing weight track, and they are really, really specific. And you can't go by two or three days because your weight fluctuates by as much as five pounds a day in terms of how much food and water you're taking in, how much exercise is going out even how warm or cold that it is. I could weigh myself at at any rate. I've gotten now down over the past eight months. I'm now at. I'm now at like 168, and I I haven't been this light since I moved to San Francisco, or maybe a year after -
 
 [00:16:32] Will: San Francisco is a hard city to stay skinny.
 
@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:19:40] Adam: Totally, yeah. And I've actually started to add some non-alcoholic beers like Clausthaler or Beck's, which
 
-[00:19:40] Will: So—
+[00:19:40] Will: So -
 
 [00:19:46] Norm: you can still enjoy the social aspect.
 
@@ -530,13 +530,13 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:22:03] Adam: And I've now lost. Let's see, from 200 to
 
-[00:22:31] Norm: 15%. One—
+[00:22:31] Norm: 15%. One -
 
 [00:22:31] Adam: seven 168. That's 15% of my body weight. You were right. I heard it. You got it fast.
 
 [00:22:39] Will: He explained the joke before too.
 
-[00:22:40] Adam: And that that so that means my sleep is better as well. And since I'd done a sleep study, I learned that my sleep apnea is the worst when I lie on my back. So in addition to losing the 15% of my body weight, I also taught myself never to sleep on my back and. That has also been a key part of stress management. Eight hours of sleep a night—that's good quality sleep. It's done a tremendous amount for my ability to maintain my mood.
+[00:22:40] Adam: And that that so that means my sleep is better as well. And since I'd done a sleep study, I learned that my sleep apnea is the worst when I lie on my back. So in addition to losing the 15% of my body weight, I also taught myself never to sleep on my back and. That has also been a key part of stress management. Eight hours of sleep a night - that's good quality sleep. It's done a tremendous amount for my ability to maintain my mood.
 
 [00:23:06] Will: It just makes you sharper.
 
@@ -578,7 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:24:04] Adam: Yeah, you have an 8,000 calorie dinner. Your body's only going to store however many it's used to storing just from that.
 
-[00:24:13] Will: Yeah, exactly. There's some side—
+[00:24:13] Will: Yeah, exactly. There's some side -
 
 [00:24:15] Norm: Effects once a week.
 
@@ -630,7 +630,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:25:16] Will: Slash premium and you can see more of the? We'll we'll we'll go record a video of you cleaning out the toilet and post that as a premium. No. We won’t do that.
 
-[00:25:16] Adam: We’re totally— that's not premium content. No, that's not. That's whatever the opposite of premium content is.
+[00:25:16] Adam: We’re totally - that's not premium content. No, that's not. That's whatever the opposite of premium content is.
 
 [00:25:35] Will: Yeah, if you don't pay us, you'll have to watch that.
 

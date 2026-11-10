@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:11:21] Will: Hide crimes.
 
-[00:11:22] Adam: Yes. Two is I do a lot of thinking, and so I encounter lots of problems that I then just stop working while I think about the problem, and so it's not—
+[00:11:22] Adam: Yes. Two is I do a lot of thinking, and so I encounter lots of problems that I then just stop working while I think about the problem, and so it's not -
 
 [00:11:35] Will: that's why the ZF1 has taken 20 years to put together
 
@@ -260,7 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:12:30] Will: Considering that two of them are spherical, yeah,
 
-[00:12:32] Adam: yes, it was ridiculous. I mean, how— What do you want to bet? Five of the first six comments are people guessing what project we're talking about.
+[00:12:32] Adam: yes, it was ridiculous. I mean, how - What do you want to bet? Five of the first six comments are people guessing what project we're talking about.
 
 [00:12:39] Norm: They've guessed.
 
@@ -358,7 +358,7 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:16:24] Adam: Acrylic, harder, more difficult to use. It cracks. It shatters. It doesn't glue very fast. So you end up choosing materials that allow you to do that kind of thing. As far as the hiding of the specific hidings, as far as hiding the specific crimes in each of those materials, it really is like thinking through that build. It's like so much of my building process is now mental.
 
-[00:17:07] Will: So, so when you learned, when you were learning how to do— Yeah. how to do this stuff, and you were starting out, were you picking projects because of? I mean, I know a lot of times you were picking projects because you would get a new tool or yeah, you know, something like that. But I mean, it seems like you were collecting skills at the same time, and you were picking projects based on, or maybe even. Like the thing I was working on, I chose the approach I chose so I could learn a couple of new things.
+[00:17:07] Will: So, so when you learned, when you were learning how to do - Yeah. how to do this stuff, and you were starting out, were you picking projects because of? I mean, I know a lot of times you were picking projects because you would get a new tool or yeah, you know, something like that. But I mean, it seems like you were collecting skills at the same time, and you were picking projects based on, or maybe even. Like the thing I was working on, I chose the approach I chose so I could learn a couple of new things.
 
 [00:17:27] Unknown speaker: Yeah.
 
@@ -482,7 +482,7 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:27:24] Will: Like a nail file. Yeah,
 
-[00:27:24] Adam: yeah. And I'm going. I mean, it's literally like one pass and looking, and then it gets so so subtle. Moving down through that from 80 grit all the way up to 400 grit, and then polishing something, it is—it's a whole set of processes that if you do it wrong, will take you five times as long.
+[00:27:24] Adam: yeah. And I'm going. I mean, it's literally like one pass and looking, and then it gets so so subtle. Moving down through that from 80 grit all the way up to 400 grit, and then polishing something, it is - it's a whole set of processes that if you do it wrong, will take you five times as long.
 
 [00:27:49] Will: Yeah, if you start with 220 instead of 80, it's going to take forever.
 

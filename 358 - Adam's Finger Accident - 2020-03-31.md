@@ -70,7 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=Mwl-uXN-Gy4
 
 [00:03:16] Will: So, last last week would have been the week that traditionally, if I was on my business, I would have gone to get the haircut. So the hair is getting higher by the. I'm going to look like Conan O'Brien in another week or two, and the beard. For a while, I thought I was going to do like a mask trim, so I could just suction the mask onto the air, the clean skin area down the middle. But at this point, I'm just not ever leaving the house again. It seems like so it doesn't matter really what my beard looks like. I've been doing light oil and a brush after a shower, less frizzy, Grizzly Adams beard because it is large. And unfortunately, I don't have the my trimmer doesn't have things big enough for where I'm at now, so I have to freehand it.
 
-[00:04:03] Adam: Excuse me. I was really lucky in that three weeks ago I did an appearance, ah, for one of the cable networks—not Discovery—but I did an appearance on a show. And because I was heading down to LA to be on television for the first time in a while, I actually managed to snake in an appointment with my hairdresser, Marian. And so she gave me a haircut two and a half weeks ago. It's like I got a haircut four days before we all went under.
+[00:04:03] Adam: Excuse me. I was really lucky in that three weeks ago I did an appearance, ah, for one of the cable networks - not Discovery - but I did an appearance on a show. And because I was heading down to LA to be on television for the first time in a while, I actually managed to snake in an appointment with my hairdresser, Marian. And so she gave me a haircut two and a half weeks ago. It's like I got a haircut four days before we all went under.
 
 [00:04:32] Will: That's really good.
 
@@ -320,13 +320,13 @@ Episode URL: https://www.youtube.com/watch?v=Mwl-uXN-Gy4
 
 [00:23:54] Adam: And so this was a cut that was completely addressable with butterfly closures.
 
-[00:24:02] Will: Okay, I mean, it looks—it's bad, but it is not. Yeah,
+[00:24:02] Will: Okay, I mean, it looks - it's bad, but it is not. Yeah,
 
 [00:24:07] Adam: it's bad.
 
 [00:24:08] Will: As long as you watch it, make sure it doesn't get infected. It'll be fine.
 
-[00:24:10] Adam: That's the thing, and there's no infection. It's been every day. It's—it's a little bit better. It's a little more movable. I have no nerve damage, shockingly, anywhere on the finger.
+[00:24:10] Adam: That's the thing, and there's no infection. It's been every day. It's - it's a little bit better. It's a little more movable. I have no nerve damage, shockingly, anywhere on the finger.
 
 [00:24:10] Will: Wow.
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=Mwl-uXN-Gy4
 
 [00:24:47] Adam: Just a tad. Look, I also have sutures here, and I considered suturing myself up.
 
-[00:24:56] Will: The bad idea—it's always unless you're Mark Watney or you're in Australia, Antarctica, or something. That's always a bad idea.
+[00:24:56] Will: The bad idea - it's always unless you're Mark Watney or you're in Australia, Antarctica, or something. That's always a bad idea.
 
 [00:25:02] Adam: The thing is, is that to me, it is the last resort. Like it is the last resort. I just don't know how I'm going to do. I'm going to have to go. I've got hemostats here. I've got everything I need to sterilize and set it up. But in my own skin, I I just couldn't be sure I wasn't going to vomit or throw up, and I'm not sickened by looking at pictures of my injuries. And blood doesn't make me ill, but I just didn't know how I was going to respond. In fact, so I called Tom Sachs that night, and he was like, " Did you stitch it up?" And I'm like, " No, no, I didn't."
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=Mwl-uXN-Gy4
 
 [00:30:26] Will: pan into the
 
-[00:30:26] Adam: fire. Out of the frying pan into the fire. I've been working on the lathe today. Mostly, mostly I I had a second intractable problem, which is on the cross slide was sticking, and it turns out. So, within a cross slide of a lathe or a machine tool, you have a dovetail, and the dovetail keeps everything together, and you have screws that allow you to pressure that dovetail to have as little movement as possible. But there's also this long I'm trying to remember what it's called—the gib arm or the gib. I'm terrible about this stuff, but there's a long tapered piece of metal along one side of the dovetail, and there are two screws on either side of it. And because it's tapered, it allows you to precisely adjust everything about the dovetail, so that as it wears, you can increase the pressure and keep it at a constant pressure. And when I took off took apart the cross slide this morning, I found that one of my old shop assistants, ah, had while working on the lathe, broken that cast iron long tapered piece, and it was floating, and it meant that I couldn't pull my cross slide out all the way. Luckily, he only cracked like the last half inch of it, which means that I figured out a way to actually reintroduce the adjustability that I need, and I literally just solved that problem about five minutes before this podcast. When we're done, I'm putting it all back together, and I'm going to go home and sleep.
+[00:30:26] Adam: fire. Out of the frying pan into the fire. I've been working on the lathe today. Mostly, mostly I I had a second intractable problem, which is on the cross slide was sticking, and it turns out. So, within a cross slide of a lathe or a machine tool, you have a dovetail, and the dovetail keeps everything together, and you have screws that allow you to pressure that dovetail to have as little movement as possible. But there's also this long I'm trying to remember what it's called - the gib arm or the gib. I'm terrible about this stuff, but there's a long tapered piece of metal along one side of the dovetail, and there are two screws on either side of it. And because it's tapered, it allows you to precisely adjust everything about the dovetail, so that as it wears, you can increase the pressure and keep it at a constant pressure. And when I took off took apart the cross slide this morning, I found that one of my old shop assistants, ah, had while working on the lathe, broken that cast iron long tapered piece, and it was floating, and it meant that I couldn't pull my cross slide out all the way. Luckily, he only cracked like the last half inch of it, which means that I figured out a way to actually reintroduce the adjustability that I need, and I literally just solved that problem about five minutes before this podcast. When we're done, I'm putting it all back together, and I'm going to go home and sleep.
 
 [00:32:06] Will: Our lesson, and our lesson is when you're putting it back together, you're even more careful than when you were taking it apart. Wow!
 

@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:03:34] Will: I believe so.
 
-[00:03:35] Adam: And she, there's pre-boarding, and there's no pre-boarding. It's like first-class customers and everybody else. And I turned to her and I go, " What happened to pre-boarding children?" And she was like, " Oh, I'm so sorry." And I was like, " Okay." And I was just—that's what's happening now, right?
+[00:03:35] Adam: And she, there's pre-boarding, and there's no pre-boarding. It's like first-class customers and everybody else. And I turned to her and I go, " What happened to pre-boarding children?" And she was like, " Oh, I'm so sorry." And I was like, " Okay." And I was just - that's what's happening now, right?
 
 [00:03:54] Will: This was before MythBusters, right?
 
@@ -234,9 +234,9 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:06:14] Norm: Exactly.
 
-[00:06:16] Will: Oh, man, that's—
+[00:06:16] Will: Oh, man, that's -
 
-[00:06:17] Adam: So you get the pain of a long family dinner and well, then— fighting with a drunk uncle
+[00:06:17] Adam: So you get the pain of a long family dinner and well, then - fighting with a drunk uncle
 
 [00:06:21] Norm: no no, [unclear: no no,] but someone else is married so
 
@@ -624,7 +624,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:19:55] Will: So Thanksgiving,
 
-[00:19:56] Adam: Thanksgiving in Montreal, and let me just say that Montreal—we've done the Behind the Myths tour show now in over 110 cities. Montreal, the most raucous response we have ever gotten,
+[00:19:56] Adam: Thanksgiving in Montreal, and let me just say that Montreal - we've done the Behind the Myths tour show now in over 110 cities. Montreal, the most raucous response we have ever gotten,
 
 [00:20:10] Will: really
 
@@ -686,7 +686,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:22:10] Will: Tour.com.
 
-[00:22:11] Adam: And there's plenty of tickets still available. You can get VIP tickets, and it's a great show. We've totally—if you've seen it before, you haven't seen it before because we totally changed it up. We've got a brand new set, all new pieces. It's really, really fun.
+[00:22:11] Adam: And there's plenty of tickets still available. You can get VIP tickets, and it's a great show. We've totally - if you've seen it before, you haven't seen it before because we totally changed it up. We've got a brand new set, all new pieces. It's really, really fun.
 
 [00:22:24] Will: Is this the? Did you redo it after Australia, or is this? Were you working on it?
 

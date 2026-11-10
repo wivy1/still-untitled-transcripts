@@ -528,9 +528,9 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:17:46] Adam: right?
 
-[00:17:46] Will: Right. The dog—it's a cute beagle puppy named Daisy. She named it for him. The dog integrates himself in his life in 24 hours, and the next day, some Russian gangsters beat the shit out of him, steal his car, and kill his dog.
+[00:17:46] Will: Right. The dog - it's a cute beagle puppy named Daisy. She named it for him. The dog integrates himself in his life in 24 hours, and the next day, some Russian gangsters beat the shit out of him, steal his car, and kill his dog.
 
-[00:17:59] Norm: Right. Oh, Lily Allen's brother—
+[00:17:59] Norm: Right. Oh, Lily Allen's brother -
 
 [00:18:02] Adam: is that who that is?
 

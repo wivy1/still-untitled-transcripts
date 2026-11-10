@@ -266,13 +266,13 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:11:46] Norm: Yeah,
 
-[00:11:46] Danica: especially because he's such a sweetheart. Like the idea that you would have that kind of satisfaction unexpectedly—that that joy—that's great.
+[00:11:46] Danica: especially because he's such a sweetheart. Like the idea that you would have that kind of satisfaction unexpectedly - that that joy - that's great.
 
 [00:11:55] Adam: You feel this, like yeah, he's lovely, and so we talked a little bit. We talked briefly, the three of us, because I was asking them about how costume informs character, and they talked. Oh, totally! You put on that spacesuit, you put on that gear, and it's the shoes. Yeah,
 
 [00:11:55] Norm: This is true.
 
-[00:12:10] Danica: Aaron Douglas's comment about the shoes—that he had in his closet for. Eight years or whatever, he pulls them out and he's right back in that same character.
+[00:12:10] Danica: Aaron Douglas's comment about the shoes - that he had in his closet for. Eight years or whatever, he pulls them out and he's right back in that same character.
 
 [00:12:19] Adam: Totally,
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:14:35] Adam: Like, and they're all Velcroed to his armor, so he's like, pull one off, and I tore one off. Put it back on. It was great.
 
-[00:14:44] Norm: Yeah, armor—a good theme for not only the panel but also the big incognito you had this year.
+[00:14:44] Norm: Yeah, armor - a good theme for not only the panel but also the big incognito you had this year.
 
 [00:14:50] Adam: Yes. Oh right, we haven't talked about that officially
 
@@ -634,7 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:27:05] Adam: What whatever they spent.
 
-[00:27:07] Norm: Yeah, it would never be—
+[00:27:07] Norm: Yeah, it would never be -
 
 [00:27:07] Adam: most of what they spent was on that model, right? And there, it's somewhere in the ether.
 

@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:02:43] Adam: Well, you know, when I grew up, Batman occasionally had a beard. That's when Alfred would put on the suit and kick some butt on Batman's behalf.
 
-[00:02:51] Norm: Alfred would—
+[00:02:51] Norm: Alfred would -
 
 [00:02:51] Will: wait. What?
 
@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:02:51] Adam: right? Right.
 
-[00:02:51] Norm: And Alfred— oh, he’s Alfred all along. Interesting. Just like Cesar Romero. Oh my god. Joker with the mustache.
+[00:02:51] Norm: And Alfred - oh, he’s Alfred all along. Interesting. Just like Cesar Romero. Oh my god. Joker with the mustache.
 
 [00:03:15] Will: Joker with the mustache works though. Okay, so we posted the video of you walking the floor at Comic Con.
 
@@ -196,7 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:08:46] Will: Well, it's a cool. It's similar to the problem of cooling a PC. Like even the amount of heat generated is like a big gaming PC takes 1,400 watts of power in, sends a lot of that out as waste heat, and the neat thing about The stuff that's come out of gaming PCs is it's very compact because it has to fit inside in a lot of cases, like a little shoebox-sized computer case.
 
-[00:09:05] Adam: Well, so let me just state that there were a bunch of suggestions that were excellent suggestions. I mean, pretty much almost every single suggestion in the comments were things that I've thought about or tried or thrown out. Now, one of the things people said was, " Well, you had a backpack; you could have fit a nice cooling unit in there." That is a nice idea until you've already wired all the lights and you've got other stuff coming in, and the space inside the backpack isn't as big as you think. So it's not like you could take a store bought unit and shove it in there. Further, when you think about a coolant recirculating system, which is what I am talking about, using the cool shirt design and actually circulating cool liquid through and using a heat dump to cool that liquid as it's circulating. Now, that is a watertight system, which means that you need to put on the cool shirt, feed the tubing out through the outside of the costume, and then connect it up to the backpack. Which, frankly, when you are talking about doing Comic Con, it's That amount of systemic things working through other things and having to be put on in order—it's just a layer of complication that I tend to avoid because it's a failure point.
+[00:09:05] Adam: Well, so let me just state that there were a bunch of suggestions that were excellent suggestions. I mean, pretty much almost every single suggestion in the comments were things that I've thought about or tried or thrown out. Now, one of the things people said was, " Well, you had a backpack; you could have fit a nice cooling unit in there." That is a nice idea until you've already wired all the lights and you've got other stuff coming in, and the space inside the backpack isn't as big as you think. So it's not like you could take a store bought unit and shove it in there. Further, when you think about a coolant recirculating system, which is what I am talking about, using the cool shirt design and actually circulating cool liquid through and using a heat dump to cool that liquid as it's circulating. Now, that is a watertight system, which means that you need to put on the cool shirt, feed the tubing out through the outside of the costume, and then connect it up to the backpack. Which, frankly, when you are talking about doing Comic Con, it's That amount of systemic things working through other things and having to be put on in order - it's just a layer of complication that I tend to avoid because it's a failure point.
 
 [00:10:14] Will: It's like you said when you flip the lights on the headlamp on the fan, all the lights turned off.
 
@@ -272,7 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:13:31] Will: which was enough to do it.
 
-[00:13:31] Adam: Well, it actually turns—
+[00:13:31] Adam: Well, it actually turns -
 
 [00:13:31] Will: Sorry, go ahead.
 
@@ -450,7 +450,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:25:06] Adam: Yeah.
 
-[00:25:06] Norm: tchotchkes and—
+[00:25:06] Norm: tchotchkes and -
 
 [00:25:30] Adam: it's. I mean, it's still there's still a huge amount of saturation marketing, but I think the culture felt a little bit the overall Comic Con felt a little bit less. We are marketing at you, and a little more like this is our thing.
 
@@ -458,7 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:25:44] Adam: It was crazy.
 
-[00:25:44] Will: Oh my god, it was—
+[00:25:44] Will: Oh my god, it was -
 
 [00:25:44] Adam: amazing! The amount of reference material there for cosplayers with all the bat suits and all the beautiful custom done art bat suits and the Joker masks was that was insane. I took a couple hundred photos of all that stuff.
 
@@ -500,7 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:27:30] Adam: Oh yes, I took pictures of those guys. Those guys were hilarious.
 
-[00:27:30] Norm: It’s a slope—
+[00:27:30] Norm: It’s a slope -
 
 [00:27:30] Adam: when they took the helmets off and they had the.
 
@@ -538,9 +538,9 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:28:37] Will: I'm just I was asking what it is. I don't know.
 
-[00:28:37] Adam: Oh, it's the it's a silicone Bryan Cranston mask that is hyper realistic. They—
+[00:28:37] Adam: Oh, it's the it's a silicone Bryan Cranston mask that is hyper realistic. They -
 
-[00:28:37] Will: cast—
+[00:28:37] Will: cast -
 
 [00:28:37] Adam: insanely. No, it's a sculpt, but it's a
 

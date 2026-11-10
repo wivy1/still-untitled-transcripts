@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=u53l1Ju6shg
 
 [00:05:25] Adam: Wow. And he does so little in this film, and yet has such a great impact. And everybody in the film is kind of doing that. They're not. They're not. There's not a lot of show. Look at me. There's none of that. It is just ensemble acting of the best kind. I enjoyed the spit out of it.
 
-[00:05:45] Norm: Yeah. And the story they're telling—
+[00:05:45] Norm: Yeah. And the story they're telling -
 
 [00:05:48] Adam: it's the worst story ever
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=u53l1Ju6shg
 
 [00:05:52] Will: Institutionalized child abuse by the Catholic Church,
 
-[00:05:54] Norm: which is something—it's 15 years ago.
+[00:05:54] Norm: which is something - it's 15 years ago.
 
 [00:05:56] Will: Maybe institutional protection of child abusers by the Catholic Church is the more more accurate. Sorry, Norm. Tomato, tomato. I wanted to get. I want to get that right because I know I'm going to hear about it one way or the other. So,
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=u53l1Ju6shg
 
 [00:11:44] Adam: No, and it's not even making it very black and white. Like there's lots of conversations. There are many conversations in Spotlight that aren't that are all subtext. So there's a conversation happening between two people, but what's really being said is not what's being spoken, and that level of subtlety, both in the script. And in the directing and in the acting is an amazing confluence of all those three arts brought together, because there is so much subtlety to the relationships between all the players.
 
-[00:12:14] Norm: And it's one of those cases where the truth, as strange it is, those coincidences that happen, the perfect timing, the finding of the certain people—in reality, these are things that actually happen. And it's why investigation works, is because people are careless and they don't think a long picture. And when people and when journalists investigate, they can find these ties.
+[00:12:14] Norm: And it's one of those cases where the truth, as strange it is, those coincidences that happen, the perfect timing, the finding of the certain people - in reality, these are things that actually happen. And it's why investigation works, is because people are careless and they don't think a long picture. And when people and when journalists investigate, they can find these ties.
 
 [00:12:33] Will: If you keep hammering at it long enough, you can the story gets knocked loose. You find the right person.
 
@@ -380,7 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=u53l1Ju6shg
 
 [00:15:43] Norm: and these aren't the people who caused the financial crisis. And there are some of the people, like in all levels, from Standard and Poor’s, some rating agencies, to the people giving out rating loans. All those people and banks.
 
-[00:15:55] Will: The guy who wrote the software that made the swaps actually happen—
+[00:15:55] Will: The guy who wrote the software that made the swaps actually happen -
 
 [00:15:57] Norm: they're all portrayed to some extent. But the protagonists of The Big Short are kind of the people who saw it happening, and they all made money from it. And really, the story is about why didn't people see it happen? Why didn't the system acknowledge that it was happening? And the thesis of The Big Short is two: one, greed, stupidity, and just blindness to it allowed this to happen. And two, they knew they would get away with it.
 

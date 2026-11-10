@@ -142,7 +142,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:05:25] Adam: It's the reason. It is the reason that I never ever bought a pickup truck.
 
-[00:05:30] Unknown [Adam / Will]: You—
+[00:05:30] Unknown [Adam / Will]: You -
 
 [00:05:30] Norm: want to be that?
 
@@ -410,7 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:13:44] Will: Yeah.
 
-[00:13:45] Adam: Speaking of things that I have thought I experienced many of like romantic comedies and yet never one quite like this, we went to a con this weekend. That was—
+[00:13:45] Adam: Speaking of things that I have thought I experienced many of like romantic comedies and yet never one quite like this, we went to a con this weekend. That was -
 
 [00:13:45] Will: A Klan?
 
@@ -616,7 +616,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:22:00] Will: Well, of course.
 
-[00:22:00] Adam: But I didn't realize that there was another kind, and so when I couldn't find it anywhere, I finally did eBay.co.uk, and bang, I found two of them, and bought them, and had them shipped out here. And then, because the ones that I bought weren't the same wood and finish as the one that Kubrick used, I had them refinished. Only then to discover, once I built the boxes that go into the sides, that the chair that Kubrick—so this is the chair that Kubrick used for the last two films, for * Eyes Wide Shut* and for * Full Metal Jacket*. That I can guarantee because I have pictures of him in that chair on both sets. Which is in and of itself an interesting factoid. Kubrick owned everything on his set. That he could and rented it to his own production.
+[00:22:00] Adam: But I didn't realize that there was another kind, and so when I couldn't find it anywhere, I finally did eBay.co.uk, and bang, I found two of them, and bought them, and had them shipped out here. And then, because the ones that I bought weren't the same wood and finish as the one that Kubrick used, I had them refinished. Only then to discover, once I built the boxes that go into the sides, that the chair that Kubrick - so this is the chair that Kubrick used for the last two films, for * Eyes Wide Shut* and for * Full Metal Jacket*. That I can guarantee because I have pictures of him in that chair on both sets. Which is in and of itself an interesting factoid. Kubrick owned everything on his set. That he could and rented it to his own production.
 
 [00:23:05] Will: It's a good trick. It's a smart businessman. I strongly recommend it.
 

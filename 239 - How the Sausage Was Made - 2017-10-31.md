@@ -98,7 +98,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:05:18] Kishore: I was wondering if there's a wrestling connection.
 
-[00:05:19] Adam: Totally the same Albano family. Yeah, Lou Albano was famously Andre the Giant's manager, and shows up in a lot of Cyndi Lauper's early '80s videos. Anyway, Lou Albano's brother Vinny was my first inspirational art teacher, and Vinny was like, " Today we're going to have a contest. We're going to have a drawing contest. Everyone's going to draw something." And I was like, " I have no idea what to draw. All right, I'm just not even going to care about this contest. I'm just going to draw that wall." And I literally drew the wall, but I drew everything on the wall—the art and the coats and the coat hangers—and I won. Now, this is not to say that like that it doesn't matter that I won. What was interesting to me was that I did something that was just completely present. I wasn't thinking about a contest and something. Honest came out of that, and the same thing happened with the chair talk. Was that the audience got really quiet, and I was thinking I expected maybe some more laughs for this. Seriously, and then I realize it's because they're all there wow, he goes deep, man. That is. Even Simone came up afterwards and said, " I really, even knowing you, I didn't know that level of."
+[00:05:19] Adam: Totally the same Albano family. Yeah, Lou Albano was famously Andre the Giant's manager, and shows up in a lot of Cyndi Lauper's early '80s videos. Anyway, Lou Albano's brother Vinny was my first inspirational art teacher, and Vinny was like, " Today we're going to have a contest. We're going to have a drawing contest. Everyone's going to draw something." And I was like, " I have no idea what to draw. All right, I'm just not even going to care about this contest. I'm just going to draw that wall." And I literally drew the wall, but I drew everything on the wall - the art and the coats and the coat hangers - and I won. Now, this is not to say that like that it doesn't matter that I won. What was interesting to me was that I did something that was just completely present. I wasn't thinking about a contest and something. Honest came out of that, and the same thing happened with the chair talk. Was that the audience got really quiet, and I was thinking I expected maybe some more laughs for this. Seriously, and then I realize it's because they're all there wow, he goes deep, man. That is. Even Simone came up afterwards and said, " I really, even knowing you, I didn't know that level of."
 
 [00:06:29] Norm: The talk always, as it happened, people were whispering. I think Physics Girl Danielle and we were all looking at each other, like nodding. This is happening. Yes, yes.
 
@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:07:49] Norm: That's right. Yeah,
 
-[00:07:49] Kishore: but you—it was so funny. The second
+[00:07:49] Kishore: but you - it was so funny. The second
 
 [00:07:56] Adam: one covered Margie with sausage.
 
@@ -252,13 +252,13 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:13:59] Norm: Walking around the cave, I see multiple shields. One must be expendable.
 
-[00:14:02] Kishore: One last shout out about the live show. It was great seeing all the members that came and everyone that said hello. It's wonderful to see you all, but. My last shout out—the one thing that I didn't expect—that was just blew me away. Simone is a hell of an MC. Holy cow!
+[00:14:02] Kishore: One last shout out about the live show. It was great seeing all the members that came and everyone that said hello. It's wonderful to see you all, but. My last shout out - the one thing that I didn't expect - that was just blew me away. Simone is a hell of an MC. Holy cow!
 
 [00:14:02] Adam: Yeah.
 
 [00:14:02] Kishore: like she should do that more. She was incredible up there.
 
-[00:14:22] Adam: I was—I thought the same exact thing, and I went up afterwards, and she and I shared this back and forth. I said, " I hadn't seen you speak in public before, and you're a natural. That was really, really impressive." And she said, " I have not seen you speak in public before,
+[00:14:22] Adam: I was - I thought the same exact thing, and I went up afterwards, and she and I shared this back and forth. I said, " I hadn't seen you speak in public before, and you're a natural. That was really, really impressive." And she said, " I have not seen you speak in public before,
 
 [00:14:33] Kishore: and I'm horrified." Now
 

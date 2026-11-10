@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:06:16] Will: maybe I don't know.
 
-[00:06:17] Norm: And it totally agree that you know there's a lot of there are groups of people who are very, very adamant in their belief of a certain thing, and for whatever reason or not. But the to believe with conviction and not just as a troll that the Earth is flat, I couldn't wrap my head around that. And there are maps that these the flat earther society has drawn up. Have you—do you know why this is coming up?
+[00:06:17] Norm: And it totally agree that you know there's a lot of there are groups of people who are very, very adamant in their belief of a certain thing, and for whatever reason or not. But the to believe with conviction and not just as a troll that the Earth is flat, I couldn't wrap my head around that. And there are maps that these the flat earther society has drawn up. Have you - do you know why this is coming up?
 
 [00:06:43] Will: No, I have no idea why this is coming up.
 
@@ -246,9 +246,9 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:08:05] Will: [unclear: if / That’s Tony, that’s Discworld]
 
-[00:08:05] Norm: [unclear: you flatten / —]
+[00:08:05] Norm: [unclear: you flatten / -]
 
-[00:08:06] Will: [unclear: the Earth / —]
+[00:08:06] Will: [unclear: the Earth / -]
 
 [00:08:07] Norm: and you have just a disc, there. That's not a real. There’s no belief system.
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:08:40] Adam: Wow.
 
-[00:08:40] Will: I mean, this is like the pre Copernican idea that the Earth was at the center of the world, and we had all these different concentric rings that things rotated on to explain astronomy. You can explain anything, but I mean, we have people that are literally able to see the roundness of the Earth. We've we've sent people—
+[00:08:40] Will: I mean, this is like the pre Copernican idea that the Earth was at the center of the world, and we had all these different concentric rings that things rotated on to explain astronomy. You can explain anything, but I mean, we have people that are literally able to see the roundness of the Earth. We've we've sent people -
 
 [00:09:00] Adam: I have seen it.
 
@@ -318,9 +318,9 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:11:00] Adam: Okay, I think it's a really reasonable discussion because I my first place my brain goes is, what is the human need to believe that you understand. Something that no one else can see. It is the same driver of conspiracy theorists: chemtrails, the Kennedy assassination, the moon landing.
 
-[00:11:16] Will: The Kennedy things totally—. I've been there. That's a hell of a shot.
+[00:11:16] Will: The Kennedy things totally -. I've been there. That's a hell of a shot.
 
-[00:11:21] Adam: And there is a human need. It is the same, I think, personally, that it has a similar impetus as people believing that the world's about to end. We want to believe we're that that that that famous what do you call it wish that you can give to someone: may you live in interesting times, right? I think that that—
+[00:11:21] Adam: And there is a human need. It is the same, I think, personally, that it has a similar impetus as people believing that the world's about to end. We want to believe we're that that that that famous what do you call it wish that you can give to someone: may you live in interesting times, right? I think that that -
 
 [00:11:47] Norm: that the 50 to 100 years that we occupy is a special significance in the history of not only mankind but of Earth and the universe on a cosmic scale.
 
@@ -398,7 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:14:57] Adam: I have all the cognitive biases,
 
-[00:14:59] Norm: cognitive biases, and a lot of these fall under cognitive biases, right? And it's tough to step out of that. If you look at the list, there are so many that you can look at and say—
+[00:14:59] Norm: cognitive biases, and a lot of these fall under cognitive biases, right? And it's tough to step out of that. If you look at the list, there are so many that you can look at and say -
 
 [00:15:07] Adam: Oh God, I can't read more than 10 of them before I'm so depressed. I have to move on.
 
@@ -462,13 +462,13 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:18:11] Will: Because it. Yeah. Either they're playing well or they're playing badly, and either one, I'm going to keep keep thinking that my initial aha was correct.
 
-[00:18:19] Norm: I mean, this is the kind of critical thinking that you hope you get taught in school—the cognitive biases—but it really isn't part of curriculum.
+[00:18:19] Norm: I mean, this is the kind of critical thinking that you hope you get taught in school - the cognitive biases - but it really isn't part of curriculum.
 
 [00:18:26] Adam: No.
 
 [00:18:27] Will: Well, the curriculum is about memorizing things and learning how to do basic math.
 
-[00:18:29] Adam: And let's go back. Let's pull back one more notch to the shaming thing, because this is what when you're shaming someone for a belief that is inarguably dumb, you aren't helping them, or you're not helping people who believe what they believe, or people who believe what you believe. I. You're not necessarily [unclear: good / —] It's not the place. All you have to do is read a Reddit thread to see how toxic that can be. And I'm sorry for singling out Reddit. Any comment section of any website.
+[00:18:29] Adam: And let's go back. Let's pull back one more notch to the shaming thing, because this is what when you're shaming someone for a belief that is inarguably dumb, you aren't helping them, or you're not helping people who believe what they believe, or people who believe what you believe. I. You're not necessarily [unclear: good / -] It's not the place. All you have to do is read a Reddit thread to see how toxic that can be. And I'm sorry for singling out Reddit. Any comment section of any website.
 
 [00:19:04] Will: It's the arguments we’ve been having in message boards since the dawn of the internet.
 

@@ -296,7 +296,7 @@ Episode URL: https://www.youtube.com/watch?v=Nmy3uFU-7t4
 
 [00:23:38] Norm: People should be surprised by their own reactions because as much as you might love characters from Sesame Street or the Muppets, or even things like Dark Crystal, I don't think the reaction that you feel is you can realize that until you're in that moment walking into the room and make eye contact with those puppets. It, There is a deep connection there that brings something out of you that that's difficult to explain.
 
-[00:24:03] Will: I saw a travel—
+[00:24:03] Will: I saw a travel-
 
 [00:24:04] Adam: I totally agree.
 

@@ -152,7 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=gTb6-Tu6bGk
 
 [00:14:54] Will: Tony Scott
 
-[00:14:54] Norm: Tony Scott absolutely and not like you know Terrence you know because every one of his movies but if they're very far apart like there are some filmmakers In the late '80s, early '90s, mid '90s, who just every year, amazing pieces of [— / our]
+[00:14:54] Norm: Tony Scott absolutely and not like you know Terrence you know because every one of his movies but if they're very far apart like there are some filmmakers In the late '80s, early '90s, mid '90s, who just every year, amazing pieces of [- / our]
 
 [00:15:08] Adam: turning out something incredible.
 
@@ -332,7 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=gTb6-Tu6bGk
 
 [00:24:17] Will: Well, it's like a respirator. It's like the way your respirator goes on. So you hook it around your like my respirator. I hook it around my neck and then pull it up over the top of my head, and it kind of hooks the top of my head.
 
-[00:24:26] Norm: So easy snap, and then the top part just whips up, and it doesn't go because manipulating with your ear—that's the worst part.
+[00:24:26] Norm: So easy snap, and then the top part just whips up, and it doesn't go because manipulating with your ear - that's the worst part.
 
 [00:24:34] Adam: I've been so the design that I followed for Mary Robinette Kowal modification is that it's a single shoelace that comes up one side around the back of your head and down the other way. So I put it on and do a little, and then tie it, and it's really pretty comfortable.
 
@@ -448,11 +448,11 @@ Episode URL: https://www.youtube.com/watch?v=gTb6-Tu6bGk
 
 [00:30:58] Adam: Oh, that's awesome!
 
-[00:31:00] Will: Yeah, it was a fun one. I think we're going to do Apu's shop next, but it like just as a thing when somebody needs a moment, we have the bags there. You grab a set of bags out, you build for an hour, and every, it helps helps you know. Idle hands, or the devil's plaything, or something—I can't remember what the saying is.
+[00:31:00] Will: Yeah, it was a fun one. I think we're going to do Apu's shop next, but it like just as a thing when somebody needs a moment, we have the bags there. You grab a set of bags out, you build for an hour, and every, it helps helps you know. Idle hands, or the devil's plaything, or something - I can't remember what the saying is.
 
 [00:31:17] Norm: We should do a spoiler cast next week. We should find a movie that we can all watch between now and next next week. Uh, maybe one we'll revisit, or a new one. But we can come up with one that you've been itching to talk about, or itching to watch.
 
-[00:31:32] Will: Trolls World Tour is just really, really just—you are gonna Trolls World Tour is gonna change your life, guys.
+[00:31:32] Will: Trolls World Tour is just really, really just - you are gonna Trolls World Tour is gonna change your life, guys.
 
 [00:31:38] Adam: Will you send a list? I'd love to.
 

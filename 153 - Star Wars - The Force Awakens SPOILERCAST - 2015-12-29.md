@@ -48,7 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:01:00] Adam: by all means,
 
-[00:01:01] Will: and just—I, I mean—I just think we should say that hey, the movie is really good. It's not perfect by any means, but nothing ever is. I think it's definitely worth watching in the theater. The thing that I was most taken by in a non-spoilery way is that in that first teaser trailer, the tracking shot of the Millennium Falcon flying right by the old busted-up Star Destroyer that's on the planet surface.
+[00:01:01] Will: and just - I, I mean - I just think we should say that hey, the movie is really good. It's not perfect by any means, but nothing ever is. I think it's definitely worth watching in the theater. The thing that I was most taken by in a non-spoilery way is that in that first teaser trailer, the tracking shot of the Millennium Falcon flying right by the old busted-up Star Destroyer that's on the planet surface.
 
 [00:01:01] Adam: That's right.
 
@@ -60,7 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:01:31] Norm: And I'll tell you, if you're going to watch in theaters, I've seen it twice in IMAX now, and one in a Sony 4K cinema. IMAX is the way to go. And the scene that Will is specifically referring to is actually one of the only IMAX scenes in the movie.
 
-[00:01:48] Adam: Oh, really? So this—oh, I didn't realize that.
+[00:01:48] Adam: Oh, really? So this - oh, I didn't realize that.
 
 [00:01:50] Will: This was, and it wasn't shot. They they're showing it in 3D. Almost all of the screenings here are in 3D. It wasn't. It's post 3D, right?
 
@@ -84,7 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:02:53] Will: Some hyper local Star Wars.
 
-[00:02:54] Adam: Hyper local, wonderful movie theater, with a full bar and full restaurant—restaurant menu with good food, good people. Five different movie theaters, one 90 seat, several between 30 and 40 seats, and then one. I guess it's like 300.
+[00:02:54] Adam: Hyper local, wonderful movie theater, with a full bar and full restaurant - restaurant menu with good food, good people. Five different movie theaters, one 90 seat, several between 30 and 40 seats, and then one. I guess it's like 300.
 
 [00:03:11] Norm: Yeah, the 300 one. That's the one actually playing 2D Star Wars.
 
@@ -122,7 +122,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:04:20] Will: Yeah, look,
 
-[00:04:21] Norm: I, so—
+[00:04:21] Norm: I, so -
 
 [00:04:22] Will: Jedi is a good movie.
 
@@ -140,7 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:04:38] Adam: Wow, interesting. Yeah, yeah, yeah.
 
-[00:04:38] Norm: It’s all low—low
+[00:04:38] Norm: It’s all low - low
 
 [00:04:38] Adam: terrestrial
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:05:11] Adam: And by the way, if your life requires you to like change your username for something to a spoiler, that's just like yeah.
 
-[00:05:29] Will: I got spoiled by BuzzFeed—BuzzFeed.
+[00:05:29] Will: I got spoiled by BuzzFeed - BuzzFeed.
 
 [00:05:29] Norm: Really?
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:05:32] Norm: By the comments?
 
-[00:05:32] Will: No, by Katie Notop—Notopoulos.
+[00:05:32] Will: No, by Katie Notop-Notopoulos.
 
 [00:05:36] Norm: How so? What did she write?
 
@@ -188,7 +188,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:05:44] Will: She put a picture, and then the image was in the pop up on the. It doesn't matter.
 
-[00:05:44] Norm: Yeah, but you can still—
+[00:05:44] Norm: Yeah, but you can still -
 
 [00:05:44] Will: I don't. I don't care about. I'm the least spoilery caring person in the world
 
@@ -250,7 +250,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:07:38] Norm: So the characters were great, Adam. [unclear: Go in / unknown] circles.
 
-[00:07:41] Adam: Okay, I loved that he went. I loved that he. How do I put this? Julia turned to me about 20 minutes into the film, and she went, " Isn't this the plot of Star Wars?" And I said, " Yeah, pretty much." But let's be clear. [unclear: I do / I don’t]—I think it's pretty much. It's hard to argue that James Cameron might be the best sequel writer ever.
+[00:07:41] Adam: Okay, I loved that he went. I loved that he. How do I put this? Julia turned to me about 20 minutes into the film, and she went, " Isn't this the plot of Star Wars?" And I said, " Yeah, pretty much." But let's be clear. [unclear: I do / I don’t] - I think it's pretty much. It's hard to argue that James Cameron might be the best sequel writer ever.
 
 [00:08:04] Norm: Absolutely. James Cameron understands audiences.
 
@@ -332,7 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:11:42] Will: yeah, the narrative exactly. Thanks, John Scalzi.
 
-[00:11:44] Adam: I just like with the hero with a thousand faces and all that, notwithstanding, I don't think anyone ever held up. The screenplays of Star Wars and Empire for being masterful—masterpieces of clever cinema writing. They are to me. It's different. It's more visceral. It's more emotional, and like it's satisfying on a different level than a Fincher film or something like that.
+[00:11:44] Adam: I just like with the hero with a thousand faces and all that, notwithstanding, I don't think anyone ever held up. The screenplays of Star Wars and Empire for being masterful - masterpieces of clever cinema writing. They are to me. It's different. It's more visceral. It's more emotional, and like it's satisfying on a different level than a Fincher film or something like that.
 
 [00:12:11] Norm: The dual challenges of
 
@@ -404,7 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:16:31] Will: The fewer toys to sell.
 
-[00:16:32] Adam: But I also say that like I didn’t get to—Star Wars is full of master shots of ships, the full frigate, the medical frigate, the blockade runner.
+[00:16:32] Adam: But I also say that like I didn’t get to - Star Wars is full of master shots of ships, the full frigate, the medical frigate, the blockade runner.
 
 [00:16:41] Norm: Return of the Jedi when the Millennium Falcon is weaving through the capital ships on the final assault on Death Star II.
 
@@ -516,15 +516,15 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:21:31] Norm: and it made him menacing. And so when he took the helmet, that's when he's interrogating Rey.
 
-[00:21:46] Adam: And the interrogation of Rey, I submit, might be my favorite scene in any Star Wars movie. I thought that the shift in power that occurs during that scene, where she finds the force, and you watch her fear turn to confidence, and his confidence turn to fear—two actors really, really selling that moment so subtly and lovely—I, I'm going to see the movie again this week. By the way, I'm taking my mom. I'm probably going to see it a fourth time. I'm just—I'm enjoying the spit out of sitting through it.
+[00:21:46] Adam: And the interrogation of Rey, I submit, might be my favorite scene in any Star Wars movie. I thought that the shift in power that occurs during that scene, where she finds the force, and you watch her fear turn to confidence, and his confidence turn to fear - two actors really, really selling that moment so subtly and lovely - I, I'm going to see the movie again this week. By the way, I'm taking my mom. I'm probably going to see it a fourth time. I'm just - I'm enjoying the spit out of sitting through it.
 
-[00:22:19] Will: And it's never—just to be clear, I don't think this is going to show well at home.
+[00:22:19] Will: And it's never - just to be clear, I don't think this is going to show well at home.
 
 [00:22:19] Adam: You don't think so?
 
-[00:22:19] Will: No, this shot—it's too big.
+[00:22:19] Will: No, this shot - it's too big.
 
-[00:22:25] Norm: And there—I mean,
+[00:22:25] Norm: And there - I mean,
 
 [00:22:27] Will: It’s got the Pacific Rim problem.
 
@@ -534,7 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:22:41] Will: I thought that was the pivot for the movie, right?
 
-[00:22:44] Adam: Totally. Yeah, totally. And it's where you know—I've read all of the complaints about how the plot is goofy, and I submit to you any any one of your childhood action adventure films also has a plot similarly as goofy, but.
+[00:22:44] Adam: Totally. Yeah, totally. And it's where you know - I've read all of the complaints about how the plot is goofy, and I submit to you any any one of your childhood action adventure films also has a plot similarly as goofy, but.
 
 [00:22:58] Will: I loved the arc that Rey had.
 
@@ -654,7 +654,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:27:18] Will: Adam Driver.
 
-[00:27:19] Norm: Adam—no, no, it's not. The Kylo Ren built it because he's not a real Jedi.
+[00:27:19] Norm: Adam - no, no, it's not. The Kylo Ren built it because he's not a real Jedi.
 
 [00:27:23] Will: Well, because the Jedi's all built their own lightsabers. That's the story.
 
@@ -912,7 +912,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:35:20] Will: the practical.
 
-[00:35:20] Norm: The practical. When you have when Rey hunts Finn down with a stick and says he's a thief, BB-8 is growling off the side. That is a real puppet being moved around. When BB-8 rolls down the staircase in Maz's castle, when Rey finds lightsaber, and he's in the background, or he or she, I don’t know—BB-8—but he dips down, looks down, and then walks down the stairs.
+[00:35:20] Norm: The practical. When you have when Rey hunts Finn down with a stick and says he's a thief, BB-8 is growling off the side. That is a real puppet being moved around. When BB-8 rolls down the staircase in Maz's castle, when Rey finds lightsaber, and he's in the background, or he or she, I don’t know - BB-8 - but he dips down, looks down, and then walks down the stairs.
 
 [00:35:59] Adam: But he's also using he's using the momentum of his head's center weight to change his center of gravity. I've rolled big things downstairs, and that was. Dead perfect. Not like all of a sudden I have rockets in my life.
 
@@ -1032,7 +1032,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:41:09] Will: It wasn't uncanny enough. Yeah,
 
-[00:41:11] Norm: yeah, and like she didn’t have—hair is tough to do on those faces. That was Andy Serkis as Snoke.
+[00:41:11] Norm: yeah, and like she didn’t have - hair is tough to do on those faces. That was Andy Serkis as Snoke.
 
 [00:41:17] Will: Really, where's Max von Sydow?
 
@@ -1272,7 +1272,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:48:33] Will: Well, they said there's clones. They introduced clones in this film.
 
-[00:48:36] Norm: Clones were introduced, but the idea—
+[00:48:36] Norm: Clones were introduced, but the idea -
 
 [00:48:37] Adam: Right, but the clones weren’t good enough or something.
 
@@ -1282,7 +1282,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:48:40] Will: Well, I think the idea is that clones don't last long. They have like a 10-year lifespan or something.
 
-[00:48:43] Norm: Since—since Empire.
+[00:48:43] Norm: Since - since Empire.
 
 [00:48:44] Adam: four-year lifespan,
 

@@ -374,13 +374,13 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:11:55] Adam: Yep.
 
-[00:11:55] Will: The Dyson sphere around the star that's 100, 1,100, 1,500 light years away—
+[00:11:55] Will: The Dyson sphere around the star that's 100, 1,100, 1,500 light years away -
 
 [00:12:01] Adam: the potential Dyson sphere.
 
-[00:12:02] Will: Is there a Dyson sphere? Like you know, this is small scale because millions of people couldn't see it at the same time. Yeah. But for the people who read that news, the idea that Kepler found a star that randomly 20% of its light is blocked—
+[00:12:02] Will: Is there a Dyson sphere? Like you know, this is small scale because millions of people couldn't see it at the same time. Yeah. But for the people who read that news, the idea that Kepler found a star that randomly 20% of its light is blocked -
 
-[00:12:14] Adam: yeah—
+[00:12:14] Adam: yeah -
 
 [00:12:15] Will: people are like, " Huh?
 

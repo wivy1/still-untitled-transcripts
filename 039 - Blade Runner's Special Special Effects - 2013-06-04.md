@@ -30,21 +30,21 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:00:30] Will: It's a fantastic picture.
 
-[00:00:31] Adam: It's a picture of the—this beautiful installation at LACMA in LA.
+[00:00:31] Adam: It's a picture of the - this beautiful installation at LACMA in LA.
 
 [00:00:35] Will: Okay.
 
-[00:00:36] Adam: And then—
+[00:00:36] Adam: And then -
 
-[00:00:36] Will: Is that one new? Or is that—
+[00:00:36] Will: Is that one new? Or is that -
 
 [00:00:38] Adam: No. That's also pretty old.
 
 [00:00:39] Will: Okay.
 
-[00:00:40] Adam: I have just been. We've been getting our photos and art in line here at the house, pulling stuff out and having more stuff framed. There's never. It's never. It's—nothing's ever done.
+[00:00:40] Adam: I have just been. We've been getting our photos and art in line here at the house, pulling stuff out and having more stuff framed. There's never. It's never. It's - nothing's ever done.
 
-[00:00:50] Will: When you do the pictures of the big—the prints of the big pictures, do you print them yourself? Or do you send them out someplace?
+[00:00:50] Will: When you do the pictures of the big - the prints of the big pictures, do you print them yourself? Or do you send them out someplace?
 
 [00:00:55] Adam: No, I, I print them myself. I have a Canon PIXMA 9000.
 
@@ -54,15 +54,15 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:01:12] Will: Oh yeah, and it expires after X number of years, so you have to really burn through it.
 
-[00:01:16] Adam: I, yeah, I haven't burned through it, but actually I found that its ink stays pretty reasonable. I've had other printers where the stuff just dies on the vine, but this one—and the prints are gorgeous and archival.
+[00:01:16] Adam: I, yeah, I haven't burned through it, but actually I found that its ink stays pretty reasonable. I've had other printers where the stuff just dies on the vine, but this one - and the prints are gorgeous and archival.
 
 [00:01:27] Will: Okay.
 
-[00:01:28] Adam: So both of those prints of my boys up there—
+[00:01:28] Adam: So both of those prints of my boys up there -
 
 [00:01:30] Will: Okay.
 
-[00:01:31] Adam: Are on that, and it's—they're gorgeous. I am about to add some UV protective coating to the windows here in the office.
+[00:01:31] Adam: Are on that, and it's - they're gorgeous. I am about to add some UV protective coating to the windows here in the office.
 
 [00:01:36] Will: Ah, yeah, you have good stuff in here. You don't want it to fade.
 
@@ -70,17 +70,17 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:01:41] Will: The thing that we're never going to talk about.
 
-[00:01:43] Adam: We really—I don't think so.
+[00:01:43] Adam: We really - I don't think so.
 
-[00:01:44] Will: Maybe, maybe, maybe one day—
+[00:01:44] Will: Maybe, maybe, maybe one day -
 
 [00:01:46] Adam: That is so tantalizing.
 
-[00:01:48] Will: It is. It is like, I came—it's not even right to talk about it. It's too good to talk about it and not be able to. Yeah. But you know, what we are going to talk to is spiritually connected.
+[00:01:48] Will: It is. It is like, I came - it's not even right to talk about it. It's too good to talk about it and not be able to. Yeah. But you know, what we are going to talk to is spiritually connected.
 
 [00:01:59] Adam: Yes, absolutely, absolutely. I thought we should talk about Blade Runner today.
 
-[00:02:03] Will: I—absolutely. I'm always game to talk about Blade Runner. So we should—hold on. First, we should say Norm is out.
+[00:02:03] Will: I - absolutely. I'm always game to talk about Blade Runner. So we should - hold on. First, we should say Norm is out.
 
 [00:02:07] Adam: Norm is out.
 
@@ -92,15 +92,15 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:02:13] Adam: He's in Europe, right? That's where that shit is.
 
-[00:02:17] Will: Yeah, so he's in Europe. He, I got an email from him this morning that sounded grumpier than normal, and I was like, oh, how was your flight? As a response, he was like, I didn't sleep the entire way. It's a 14-hour flight. And I was like, dude, did you not take the—anyway, we talked about how to do this.
+[00:02:17] Will: Yeah, so he's in Europe. He, I got an email from him this morning that sounded grumpier than normal, and I was like, oh, how was your flight? As a response, he was like, I didn't sleep the entire way. It's a 14-hour flight. And I was like, dude, did you not take the - anyway, we talked about how to do this.
 
 [00:02:33] Adam: Yeah, Ambien.
 
-[00:02:34] Will: But he apparently didn't. He, I—
+[00:02:34] Will: But he apparently didn't. He, I -
 
 [00:02:37] Adam: You've got no one to blame but yourself.
 
-[00:02:38] Will: I think he was way in the back, in the middle of the aisle, on the middle of the five seat, like the nightmare seat by the bathroom that doesn't recline. And anyway—
+[00:02:38] Will: I think he was way in the back, in the middle of the aisle, on the middle of the five seat, like the nightmare seat by the bathroom that doesn't recline. And anyway -
 
 [00:02:46] Adam: That's pretty much the worst.
 
@@ -108,19 +108,19 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:02:49] Adam: Yeah.
 
-[00:02:50] Will: But again, I feel no sympathy whatsoever. Just to be clear—
+[00:02:50] Will: But again, I feel no sympathy whatsoever. Just to be clear -
 
 [00:02:55] Adam: When everyone finds out what he's doing, yeah, you won't have his sympathy either.
 
 [00:02:58] Will: Yeah, well, there's two parts. There's one part that's less cool, and then there's one part that's like, wow. Super jealous.
 
-[00:03:03] Adam: Traveling Joey, traveling with Joey—that's less cool.
+[00:03:03] Adam: Traveling Joey, traveling with Joey - that's less cool.
 
 [00:03:05] Will: Joey's great. Joey's, Joey's one of my all-time favorite traveling companions.
 
 [00:03:09] Adam: I would imagine he is relatively unflappable.
 
-[00:03:11] Will: He is the guy that like, he's the one that always texts you when you're in the hotel and you've been in the hotel for like 30 minutes. It's like, hey, I'm going to go to the bar down the street. You want to come get a beer? And it's great because it's like he literally means let's go have a beer or two, maybe have a hamburger or something, yeah, and have a kind of low-key—
+[00:03:11] Will: He is the guy that like, he's the one that always texts you when you're in the hotel and you've been in the hotel for like 30 minutes. It's like, hey, I'm going to go to the bar down the street. You want to come get a beer? And it's great because it's like he literally means let's go have a beer or two, maybe have a hamburger or something, yeah, and have a kind of low-key -
 
 [00:03:26] Adam: Get the hell out and go to sleep.
 
@@ -132,25 +132,25 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:03:33] Adam: I almost never leave my hotel room now when I go on location.
 
-[00:03:36] Will: I—well, but when you guys go to the desert, there's a lot of times you go someplace, places that there's nothing to do. Yeah.
+[00:03:36] Will: I - well, but when you guys go to the desert, there's a lot of times you go someplace, places that there's nothing to do. Yeah.
 
-[00:03:43] Adam: Well, even then, even when there's places where there's stuff to do or nothing to do, I tend to relish. I—in my daily existence, I'm never alone.
+[00:03:43] Adam: Well, even then, even when there's places where there's stuff to do or nothing to do, I tend to relish. I - in my daily existence, I'm never alone.
 
 [00:03:52] Will: Yeah.
 
-[00:03:52] Adam: And it's really quite nice to find some—
+[00:03:52] Adam: And it's really quite nice to find some -
 
 [00:03:52] Unknown speaker: Yeah.
 
 [00:03:52] Adam: Super downtime, and I, I'll take it and use it with great abandon.
 
-[00:03:59] Will: The quiet time to yourself is—
+[00:03:59] Will: The quiet time to yourself is -
 
 [00:04:01] Adam: The quiet reflective time.
 
 [00:04:03] Will: Yes.
 
-[00:04:04] Adam: For meditation. But yeah, I wanted to talk about. I thought we've been talking about special effects movies—
+[00:04:04] Adam: For meditation. But yeah, I wanted to talk about. I thought we've been talking about special effects movies -
 
 [00:04:10] Unknown speaker: Yeah.
 
@@ -166,7 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:04:49] Will: Yeah.
 
-[00:04:49] Adam: And I, I was—I worked on A.I. I was—I got to work on A.I., and I had actually been following A.I. since the early '90s. I had heard the first rumors that Kubrick was working on another science fiction film—
+[00:04:49] Adam: And I, I was - I worked on A.I. I was - I got to work on A.I., and I had actually been following A.I. since the early '90s. I had heard the first rumors that Kubrick was working on another science fiction film -
 
 [00:05:03] Will: And it came out in what, like 96?
 
@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:05:54] Will: Oh wow!
 
-[00:05:55] Adam: And so yeah, these—this one team, I think my friend Aaron Haye was in charge of that team making the buildings, and then they give them to me, and my job with my team was to destroy them. Oh. Like snap them in half.
+[00:05:55] Adam: And so yeah, these - this one team, I think my friend Aaron Haye was in charge of that team making the buildings, and then they give them to me, and my job with my team was to destroy them. Oh. Like snap them in half.
 
 [00:06:09] Will: And weathering, weathering has had to be like super exciting for you.
 
@@ -196,17 +196,17 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:06:35] Adam: Literally, just unbelievable stuff. And then I was also watching this building being built, commuting every day, and we thought, I swear, we all thought we were working on another Blade Runner.
 
-[00:06:45] Will: So, so I saw that movie, and I remember being unimpressed with it at the time. Has it—have you watched it recently? Has it aged well?
+[00:06:45] Will: So, so I saw that movie, and I remember being unimpressed with it at the time. Has it - have you watched it recently? Has it aged well?
 
 [00:06:50] Adam: I have heard, and I haven't gone and tested this. I have actually heard that A.I. weathers incredibly well.
 
-[00:06:56] Will: I—like I don't remember. It wasn't. It isn't a movie that I remember for the effects.
+[00:06:56] Will: I - like I don't remember. It wasn't. It isn't a movie that I remember for the effects.
 
 [00:07:00] Adam: Right?
 
 [00:07:01] Will: Well, which is probably a good sign.
 
-[00:07:02] Adam: Yeah, that is probably a good sign. I—so what I've heard, I've been reading some recent defenses of A.I. as a really important and terrific movie. That the themes are really impressive and exciting. I have my problems with its pacing and the level of involvement I felt with the characters, but it has some really transformatively difficult moments, like when you ask your toy what should we do and your toy says run. That is messed up. Like I was thinking, good god, that's so beautiful. A script that gets you to a point where you say to your toy, "What do we do?" and your toy says, "Now we run."
+[00:07:02] Adam: Yeah, that is probably a good sign. I - so what I've heard, I've been reading some recent defenses of A.I. as a really important and terrific movie. That the themes are really impressive and exciting. I have my problems with its pacing and the level of involvement I felt with the characters, but it has some really transformatively difficult moments, like when you ask your toy what should we do and your toy says run. That is messed up. Like I was thinking, good god, that's so beautiful. A script that gets you to a point where you say to your toy, "What do we do?" and your toy says, "Now we run."
 
 [00:07:42] Will: Yeah, it's great.
 
@@ -214,7 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:07:44] Will: Yeah.
 
-[00:07:45] Adam: But when it first came out, I went and saw it, and I called up my best friend David, and I said, "What'd you think?" And he was like, "Ah, yeah, everyone should hide their head in the sands. No one's made a movie that looks as good as Blade Runner, and it's been 20 years." And I was like, "Wow, he's totally right. He's actually completely right." and I just wanted to talk a little bit about some of those factors because it's hard to, you know, a film is—a film can go right or wrong for a million reasons, and it's not necessarily true that any one person or any group of people can control whether it goes north or south.
+[00:07:45] Adam: But when it first came out, I went and saw it, and I called up my best friend David, and I said, "What'd you think?" And he was like, "Ah, yeah, everyone should hide their head in the sands. No one's made a movie that looks as good as Blade Runner, and it's been 20 years." And I was like, "Wow, he's totally right. He's actually completely right." and I just wanted to talk a little bit about some of those factors because it's hard to, you know, a film is - a film can go right or wrong for a million reasons, and it's not necessarily true that any one person or any group of people can control whether it goes north or south.
 
 [00:08:19] Will: It's like unlike music and novels and anything else other than video games, really. Like nobody sets out to make a bad movie. Nobody sets out to make a bad video.
 
@@ -252,19 +252,19 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:10:20] Adam: And I'm thinking about this because I just went and saw the Stanley Kubrick exhibit at LACMA. And if you get a chance to see the Stanley Kubrick exhibit, it's unbelievable.
 
-[00:10:28] Will: But LACMA is the—
+[00:10:28] Will: But LACMA is the -
 
 [00:10:29] Adam: The L.A. County Museum of Art.
 
 [00:10:31] Will: Okay.
 
-[00:10:32] Adam: And it's all his films. It's—we spent two and a half hours there. I bought the book. It's amazing. But so there's this lovely matte of Rome, and you can see that they've cut out this portion of a city square. And so they put the glass matte close to the camera, but they're filming through the hole in the glass to the city square where they've got a bunch of extras. And when they expose that film, it looks like those people are in ancient Rome—
+[00:10:32] Adam: And it's all his films. It's - we spent two and a half hours there. I bought the book. It's amazing. But so there's this lovely matte of Rome, and you can see that they've cut out this portion of a city square. And so they put the glass matte close to the camera, but they're filming through the hole in the glass to the city square where they've got a bunch of extras. And when they expose that film, it looks like those people are in ancient Rome -
 
-[00:10:59] Will: And it looks like a high—
+[00:10:59] Will: And it looks like a high -
 
 [00:11:00] Adam: High shot.
 
-[00:11:01] Will: Down onto—yeah, that's crazy.
+[00:11:01] Will: Down onto - yeah, that's crazy.
 
 [00:11:03] Adam: But so understand that all of the elements of that special effects shot are being exposed on the same piece of film.
 
@@ -272,7 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:11:17] Adam: Well, let's talk about what that is, right? Yeah. So the other way to do it is to film people against blue screen, or green screen, or even against black, but filming against something you can key them out against, right? Which means you can basically use a process to matte in a background behind them that you shoot separately.
 
-[00:11:35] Will: Right? And that's—that is a technology that has gotten cheap to the point that iMovie includes it at this point.
+[00:11:35] Will: Right? And that's - that is a technology that has gotten cheap to the point that iMovie includes it at this point.
 
 [00:11:40] Adam: Right? And it's called compositing. Now the problem with compositing is that because you've exposed the film once and then you're either projecting it or reburning it onto the already exposed blue screen, you end up with a generational loss. You often end up with a generational loss that the audience can kind of see. And for a good example of a composite that is very exciting but still doesn't quite perfectly work, think about Bishop running from the exploding landing craft in Aliens.
 
@@ -280,19 +280,19 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:12:14] Adam: You can see that he's in front of a screen that they're projecting the thing on, and it doesn't quite match. His crispness doesn't match the projection.
 
-[00:12:23] Will: Well, and, and the other thing that happens is you see slight changes in things like lighting and shadows that, that you don't maybe consciously notice, right, but your brain looks at that and says, "Oh, it's fake." It's the same way that in the old days, when, when they'd shoot a car driving scene, and instead of driving—taking a car out on the road, mounting a camera on the hood of the car and driving down the street, they'd just project the video or the film of a car.
+[00:12:23] Will: Well, and, and the other thing that happens is you see slight changes in things like lighting and shadows that, that you don't maybe consciously notice, right, but your brain looks at that and says, "Oh, it's fake." It's the same way that in the old days, when, when they'd shoot a car driving scene, and instead of driving - taking a car out on the road, mounting a camera on the hood of the car and driving down the street, they'd just project the video or the film of a car.
 
 [00:12:44] Adam: Precisely. So you see all those people in the old movies driving in the projection behind them.
 
 [00:12:48] Will: Right. The wheel's turning one way and the car is going the other, and the whole thing's off.
 
-[00:12:50] Adam: Rear projector. That's a rear projection, and that's—that also has a generational loss because not—it's, you're—it's not as crisp. It can never be as crisp because you're looking through a screen.
+[00:12:50] Adam: Rear projector. That's a rear projection, and that's - that also has a generational loss because not - it's, you're - it's not as crisp. It can never be as crisp because you're looking through a screen.
 
 [00:13:03] Will: Right.
 
 [00:13:04] Adam: Stanley Kubrick actually solved that with front projection on 2001, but that's a whole other story about how brilliant that process is, and really we should spend some time talking about it because it's amazing. Suffice to say. All of the shots of the ape men in 2001 were shot on a soundstage.
 
-[00:13:23] Will: Is it—but didn't he just build the—the frames of the rocks up around the ape men so you couldn't see the—the walls of the soundstage?
+[00:13:23] Will: Is it - but didn't he just build the - the frames of the rocks up around the ape men so you couldn't see the - the walls of the soundstage?
 
 [00:13:29] Adam: Yeah, but and he front projected the African veldt. He front projected instead of rear projected against 3M Scotchlite material, so the bounce-back light is 300 times brighter.
 
@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:13:56] Will: And we've had blue screen stuff since the '70s pretty much, right?
 
-[00:13:58] Adam: Absolutely, for a long—even longer than that. And Star Wars made extensive use of blue screen for the spaceship stuff. And the thing is, is that it's just a fact that if you can expose everything at once in camera. It's going to look better. It's really going to look better. It's going to look deeper. It's going to look crisper. It's going to have more texture to it. And Blade Runner is one of the very few science fiction films in which almost all of the shots in Blade Runner are in-camera effects.
+[00:13:58] Adam: Absolutely, for a long - even longer than that. And Star Wars made extensive use of blue screen for the spaceship stuff. And the thing is, is that it's just a fact that if you can expose everything at once in camera. It's going to look better. It's really going to look better. It's going to look deeper. It's going to look crisper. It's going to have more texture to it. And Blade Runner is one of the very few science fiction films in which almost all of the shots in Blade Runner are in-camera effects.
 
 [00:14:32] Will: Really?
 
@@ -318,11 +318,11 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:14:39] Will: Wow.
 
-[00:14:39] Adam: Yes. So let me explain how these were done. So if you take an average cityscape like the blimp heading over the city, you're looking up through buildings. You see the blimp. You see the screen on the blimp. So there's a bazillion elements going on, and they don't expose them all at once. Especially since the blimp is going to be on rods on movers, right? That moves it through the frame. So the—these shots are filmed with what's called a motion control rig. It's effectively a robot with a film camera attached to it.
+[00:14:39] Adam: Yes. So let me explain how these were done. So if you take an average cityscape like the blimp heading over the city, you're looking up through buildings. You see the blimp. You see the screen on the blimp. So there's a bazillion elements going on, and they don't expose them all at once. Especially since the blimp is going to be on rods on movers, right? That moves it through the frame. So the - these shots are filmed with what's called a motion control rig. It's effectively a robot with a film camera attached to it.
 
 [00:15:07] Will: This is the thing that they invented for Star Wars, basically?
 
-[00:15:10] Adam: Yes, yeah. John Dykstra was one of the people that developed it, and Lucasfilm brought that to a completely high art form. And it's a robot with a camera strapped to it that effectively can repeat its moves perfectly every single time. So they would plot out a camera shot, like the camera is moving slightly, looking up at buildings, and you see the blimp also moving across the skyscape. So what they would do is they would set up the shot so the blimp move across and the blimp's moving and the camera is taking its shots one at a time—
+[00:15:10] Adam: Yes, yeah. John Dykstra was one of the people that developed it, and Lucasfilm brought that to a completely high art form. And it's a robot with a camera strapped to it that effectively can repeat its moves perfectly every single time. So they would plot out a camera shot, like the camera is moving slightly, looking up at buildings, and you see the blimp also moving across the skyscape. So what they would do is they would set up the shot so the blimp move across and the blimp's moving and the camera is taking its shots one at a time -
 
 [00:15:44] Will: Very slowly.
 
@@ -340,7 +340,7 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:16:12] Adam: Then they rewind the film and put the robot back to zero, and then they turn on all the little blinky lights on the blimp. And they pass it again. Now, recognize they're actually re-exposing the blinky lights right onto the same piece of film that they exposed the blimp and the cityscape on, so that it's just matting directly on top of the same piece of film.
 
-[00:16:32] Will: So instead of taking multiple, multiple pieces of film and mashing them together in post, you're—
+[00:16:32] Will: So instead of taking multiple, multiple pieces of film and mashing them together in post, you're -
 
 [00:16:36] Adam: You're doing what's called in-camera compositing.
 
@@ -360,17 +360,17 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:17:18] Adam: Exactly.
 
-[00:17:18] Will: It's literally like, yeah, I mean it's the same thing. It's just—
+[00:17:18] Will: It's literally like, yeah, I mean it's the same thing. It's just -
 
-[00:17:21] Adam: And I submit, if you look at—Cinefex did a contest, a questionnaire years ago, and I think that the shot of the police spinner turning clockwise as the camera is turning counterclockwise as the spinner is landing on the roof of the Los Angeles Police Department is considered one of the like two or three most beautiful effects sequences in all of film. I mean, it. And I totally agree.
+[00:17:21] Adam: And I submit, if you look at - Cinefex did a contest, a questionnaire years ago, and I think that the shot of the police spinner turning clockwise as the camera is turning counterclockwise as the spinner is landing on the roof of the Los Angeles Police Department is considered one of the like two or three most beautiful effects sequences in all of film. I mean, it. And I totally agree.
 
-[00:17:45] Will: It's so—I watched after, after we started working with you last year, and we started talking about Blade Runner again. I hadn't watched the movie since it probably came out on DVD 10 years ago, and I went back and I got the Blu-ray and I sat down and I, I guess I got the Blu-ray. Maybe I just watched the DVD. I get—it doesn't matter. The upshot is, I sat down and watched the movie again for the first time since, since I was probably 25 or 26, and the effects in that movie hold up in a level at which nothing other than maybe Aliens and Alien and Star Wars from that era—
+[00:17:45] Will: It's so - I watched after, after we started working with you last year, and we started talking about Blade Runner again. I hadn't watched the movie since it probably came out on DVD 10 years ago, and I went back and I got the Blu-ray and I sat down and I, I guess I got the Blu-ray. Maybe I just watched the DVD. I get - it doesn't matter. The upshot is, I sat down and watched the movie again for the first time since, since I was probably 25 or 26, and the effects in that movie hold up in a level at which nothing other than maybe Aliens and Alien and Star Wars from that era -
 
 [00:18:16] Adam: Yeah.
 
-[00:18:16] Will: It has aged better than anything that happened between the mid-'80s and say, let's say. Post Jurassic Park, maybe—
+[00:18:16] Will: It has aged better than anything that happened between the mid-'80s and say, let's say. Post Jurassic Park, maybe -
 
-[00:18:25] Adam: It's shocking. It's shocking how beautiful the film is, and the—that to give you another example of in-camera effects versus composites, I will point out. I will point you to another movie that came out close to that time. I think in '85, '86, a pair of movies, Brazil and Batman.
+[00:18:25] Adam: It's shocking. It's shocking how beautiful the film is, and the - that to give you another example of in-camera effects versus composites, I will point out. I will point you to another movie that came out close to that time. I think in '85, '86, a pair of movies, Brazil and Batman.
 
 [00:18:46] Will: Oh, Batman was in-camera as well.
 
@@ -378,17 +378,17 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:18:49] Will: It was all mattes and composites.
 
-[00:18:50] Adam: All mattes and composites. And man, if you—so Brazil is almost all models and all in-camera effects. Again, forced perspective where you've got a model really close to the guy, and you know you are changing people's perspective. When Jonathan Pryce is—this is great. This is great. When Jonathan Pryce is flying in the beginning of Brazil, that is not animation.
+[00:18:50] Adam: All mattes and composites. And man, if you - so Brazil is almost all models and all in-camera effects. Again, forced perspective where you've got a model really close to the guy, and you know you are changing people's perspective. When Jonathan Pryce is - this is great. This is great. When Jonathan Pryce is flying in the beginning of Brazil, that is not animation.
 
 [00:19:16] Will: Really?
 
-[00:19:17] Adam: Really, what they did was they took a puppet that was about this long, and they put a motor in it so the wings flapped. They made them flap really fast and then they made his arms out of lead, so the wings had to actually—
+[00:19:17] Adam: Really, what they did was they took a puppet that was about this long, and they put a motor in it so the wings flapped. They made them flap really fast and then they made his arms out of lead, so the wings had to actually -
 
 [00:19:35] Will: Fight against it.
 
-[00:19:35] Adam: Fight against the weight of the arms, and then they overcranked the camera, so that—
+[00:19:35] Adam: Fight against the weight of the arms, and then they overcranked the camera, so that -
 
-[00:19:40] Will: Oh, okay, so—
+[00:19:40] Will: Oh, okay, so -
 
 [00:19:41] Adam: It looked like a person was really struggling against the wings to flap.
 
@@ -410,7 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:20:08] Will: I know.
 
-[00:20:08] Adam: I really don't. When the Joker pulls out that dumb gun—
+[00:20:08] Adam: I really don't. When the Joker pulls out that dumb gun -
 
 [00:20:11] Will: The pants gun.
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:20:50] Adam: I love Hellboy. I can't talk about Hellboy. I can't accept that there's any parity. Somewhere, someone might think that. I submit that they might be wrong.
 
-[00:20:57] Will: He shoots down the Batwing—
+[00:20:57] Will: He shoots down the Batwing -
 
 [00:20:59] Adam: That's ridiculous.
 
@@ -458,19 +458,19 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:21:01] Will: But he's the Joker. It's what he should do.
 
-[00:21:03] Adam: Feh. It's—it plays for [unclear]. I never wanted slapstick out of Batman.
+[00:21:03] Adam: Feh. It's - it plays for [unclear]. I never wanted slapstick out of Batman.
 
-[00:21:10] Will: I—but Batman never plays slapstick. It's the stuff around Batman. Batman is the object of the slapstick.
+[00:21:10] Will: I - but Batman never plays slapstick. It's the stuff around Batman. Batman is the object of the slapstick.
 
 [00:21:15] Adam: Yeah, see, but it's a movie. Yeah.
 
-[00:21:18] Will: So you like the Nolan Batman movies? You prefer—
+[00:21:18] Will: So you like the Nolan Batman movies? You prefer -
 
 [00:21:20] Adam: I do like the Nolan Batman movies much better.
 
-[00:21:22] Will: So. I actually—
+[00:21:22] Will: So. I actually -
 
-[00:21:23] Adam: I also think actually, Batman, the second Batman movie, the second—
+[00:21:23] Adam: I also think actually, Batman, the second Batman movie, the second -
 
 [00:21:25] Will: One is my favorite.
 
@@ -480,21 +480,21 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:21:28] Adam: Danny DeVito is one of the best Batman villains ever.
 
-[00:21:30] Will: The flippers are really disturbing. Ugh. Still, the—well, and it has a little more like there's, there's a—anyway, loss and tragedy. And we, we're talking about Blade Runner.
+[00:21:30] Will: The flippers are really disturbing. Ugh. Still, the - well, and it has a little more like there's, there's a - anyway, loss and tragedy. And we, we're talking about Blade Runner.
 
-[00:21:40] Adam: We should. So Blade Runner. So I exhort you out there—
+[00:21:40] Adam: We should. So Blade Runner. So I exhort you out there -
 
 [00:21:45] Will: On the internet.
 
-[00:21:46] Adam: On the internet to look up the original Cinefex issue of Blade Runner. If you don't know about Cinefex, C-I-N-E-F-E-X, it is—it comes out quarterly and it has since 1980, I believe.
+[00:21:46] Adam: On the internet to look up the original Cinefex issue of Blade Runner. If you don't know about Cinefex, C-I-N-E-F-E-X, it is - it comes out quarterly and it has since 1980, I believe.
 
 [00:22:00] Will: It's the publication of record for the effects industry, basically, right?
 
-[00:22:03] Adam: Yeah, and if you, I swear, if you want a PhD in 20th century film special effects—
+[00:22:03] Adam: Yeah, and if you, I swear, if you want a PhD in 20th century film special effects -
 
 [00:22:10] Will: Yeah.
 
-[00:22:11] Adam: Just read all 137 issues of Cinefex and you will have it. I've read them all. I love them. I—it's a great magazine. It was one of my sad—I—I've done okay. So you don't have to feel sorry for me, but I was a little sad that I finished my tenure at Industrial Light and Magic, and I had never gotten my picture in Cinefex.
+[00:22:11] Adam: Just read all 137 issues of Cinefex and you will have it. I've read them all. I love them. I - it's a great magazine. It was one of my sad - I - I've done okay. So you don't have to feel sorry for me, but I was a little sad that I finished my tenure at Industrial Light and Magic, and I had never gotten my picture in Cinefex.
 
 [00:22:31] Will: Well there's still time.
 
@@ -502,13 +502,13 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:22:38] Will: Right, and the door at the end of Matrix Revolutions.
 
-[00:22:41] Adam: But, but the—the issue about Blade Runner goes into incredible detail about the process of the in-camera effects, and when you look at it, the proof is in the pudding. There's just nothing that quite looks that fantastic.
+[00:22:41] Adam: But, but the - the issue about Blade Runner goes into incredible detail about the process of the in-camera effects, and when you look at it, the proof is in the pudding. There's just nothing that quite looks that fantastic.
 
-[00:22:55] Will: Was this something that they—clearly people had been doing in-camera effects with multiple exposures for a long time?
+[00:22:55] Will: Was this something that they - clearly people had been doing in-camera effects with multiple exposures for a long time?
 
 [00:23:00] Adam: Absolutely.
 
-[00:23:01] Will: But I assume that the motion control camera was the thing that, that came along that made the multiple—doing more than one or two layers possible.
+[00:23:01] Will: But I assume that the motion control camera was the thing that, that came along that made the multiple - doing more than one or two layers possible.
 
 [00:23:09] Adam: Indeed, indeed. Before that, sometimes they would do multiple exposures where they would have half of the frame matted out black, and they'd shoot on sticks, and then they would. They would carefully take the camera and move it to another location using a guide piece of film as reference to their matte, and then re-expose on that film.
 
@@ -520,7 +520,7 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:23:39] Adam: Some of his, I believe that large portions of the skeleton fight are exposed right alongside the guys fighting the skeletons.
 
-[00:23:49] Will: Well, I mean that makes sense because with animation you have fine control over the camera, fine control over the models—
+[00:23:49] Will: Well, I mean that makes sense because with animation you have fine control over the camera, fine control over the models -
 
 [00:23:55] Adam: Right?
 
@@ -528,25 +528,25 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:23:58] Unknown speaker: Invented.
 
-[00:23:59] Adam: No, not only, I mean, yeah—
+[00:23:59] Adam: No, not only, I mean, yeah -
 
-[00:24:01] Will: Look, no, but I mean actually, in addition to inventing it himself—
+[00:24:01] Will: Look, no, but I mean actually, in addition to inventing it himself -
 
-[00:24:03] Adam: Doing it all alone. No, no, no. John Landis and I did an interview on the L.A. radio. It's on—
+[00:24:03] Adam: Doing it all alone. No, no, no. John Landis and I did an interview on the L.A. radio. It's on -
 
 [00:24:09] Will: You can find it on the site.
 
-[00:24:10] Adam: Yeah. Oh yeah, yeah. And I mean, John does, does not overstate it when he says that Ray Harryhausen is perhaps the most important. Influence on film—
+[00:24:10] Adam: Yeah. Oh yeah, yeah. And I mean, John does, does not overstate it when he says that Ray Harryhausen is perhaps the most important. Influence on film -
 
 [00:24:21] Will: In effect, yeah.
 
 [00:24:22] Adam: Yeah.
 
-[00:24:22] Will: His—
+[00:24:22] Will: His -
 
-[00:24:23] Adam: His stuff is just incredible, and all the different processes he invented. And Blade Runner takes—makes some use of those, and so it is a—it's amazing to me that it uses some techniques that are absolutely ancient with some of the most modern equipment, and we are now 33 years later. Is that really true?
+[00:24:23] Adam: His stuff is just incredible, and all the different processes he invented. And Blade Runner takes - makes some use of those, and so it is a - it's amazing to me that it uses some techniques that are absolutely ancient with some of the most modern equipment, and we are now 33 years later. Is that really true?
 
-[00:24:47] Will: From Blade Runner was 80—
+[00:24:47] Will: From Blade Runner was 80 -
 
 [00:24:48] Adam: 80, 81.
 
@@ -560,9 +560,9 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:24:55] Will: Right. Think about that for a minute. Oh, 36. Sorry, 35 was last year.
 
-[00:24:59] Adam: That's cray cray. Yeah and it's still not only just—not only does it hold up; it's an exemplary example of film special effects. Still, it is something to be compared.
+[00:24:59] Adam: That's cray cray. Yeah and it's still not only just - not only does it hold up; it's an exemplary example of film special effects. Still, it is something to be compared.
 
-[00:25:12] Will: Well, it's—it is [unclear] the test of time.
+[00:25:12] Will: Well, it's - it is [unclear] the test of time.
 
 [00:25:14] Adam: Yeah.
 
@@ -598,7 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:26:00] Adam: Yeah, but I mean there's some people who literally think that and go, "Mom, I'm adding entropy. That's what I want to do." If you're doing that, you're a dick.
 
-[00:26:07] Will: Yeah, basically, like—
+[00:26:07] Will: Yeah, basically, like -
 
 [00:26:09] Adam: They see me trolling, I be hatin'.
 

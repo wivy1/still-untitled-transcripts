@@ -50,7 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0jkWHU8PM
 
 [00:01:45] Norm: yeah.
 
-[00:01:46] Will: So we'll see Mothra and King, King—
+[00:01:46] Will: So we'll see Mothra and King, King -
 
 [00:01:49] Norm: Mothra is the best.
 
@@ -302,7 +302,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0jkWHU8PM
 
 [00:15:57] Adam: agreed.
 
-[00:15:57] Will: And all the set design, the production design, all that stuff is just—it's just he's a wonderful, weird, awesome view on the world, and it comes through in the movies more so in Brazil than I think anything else he's done, probably.
+[00:15:57] Will: And all the set design, the production design, all that stuff is just - it's just he's a wonderful, weird, awesome view on the world, and it comes through in the movies more so in Brazil than I think anything else he's done, probably.
 
 [00:16:09] Adam: Yeah. But back to creatures.
 

@@ -304,9 +304,9 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:14:08] Will: yeah,
 
-[00:14:08] Norm: fantastic. I love movie scores. I think they don't get enough appreciation. The one thing I wish composer—I don't know who decides this—if it's composer,
+[00:14:08] Norm: fantastic. I love movie scores. I think they don't get enough appreciation. The one thing I wish composer - I don't know who decides this - if it's composer,
 
-[00:14:08] Will: yeah—
+[00:14:08] Will: yeah -
 
 [00:14:08] Norm: who names the songs, because
 

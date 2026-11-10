@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:09:00] Will: Yeah,
 
-[00:09:00] Adam: in the art. So on the big wall that that Michelangelo painted in his 60s, on the back wall, there's a figure over top. That literally looks like it's carved and sitting out from the wall. And as you look up and you see the nine panels of the three different God creating the Earth, Adam and Eve, and then Noah and the flood—the three panels for each. As you stand at each crossover, if you are directly underneath it, the perspective works for you right there and only there. Wow. And the other stuff looks slightly farther away. But then, as you get underneath each one, the perspective has this effect of kind of making all the colors pop because the shadows are all in the right place.
+[00:09:00] Adam: in the art. So on the big wall that that Michelangelo painted in his 60s, on the back wall, there's a figure over top. That literally looks like it's carved and sitting out from the wall. And as you look up and you see the nine panels of the three different God creating the Earth, Adam and Eve, and then Noah and the flood - the three panels for each. As you stand at each crossover, if you are directly underneath it, the perspective works for you right there and only there. Wow. And the other stuff looks slightly farther away. But then, as you get underneath each one, the perspective has this effect of kind of making all the colors pop because the shadows are all in the right place.
 
 [00:09:46] Unknown speaker: Wow.
 
@@ -182,7 +182,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:10:48] Adam: It was really really nice.
 
-[00:10:50] Unknown speaker: [unclear: It was really nice. It's really—]
+[00:10:50] Unknown speaker: [unclear: It was really nice. It's really -]
 
 [00:10:50] Norm: Murmuring of information.
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:12:55] Will: America.
 
-[00:12:56] Adam: Yeah it's at one point Julia spotted a group of drunk Spaniards see my hat, and she was like, " Take your hat off right now." And I, so I also I always travel with the red NASA baseball cap as well, so I wore that for a while, and then in Seville, I went to the fancy hat store where you go for your church hats, and I bought a beautiful—I don't have it here, but I bought a beautiful, very, very classic Spanish, the brim flat as a razor.
+[00:12:56] Adam: Yeah it's at one point Julia spotted a group of drunk Spaniards see my hat, and she was like, " Take your hat off right now." And I, so I also I always travel with the red NASA baseball cap as well, so I wore that for a while, and then in Seville, I went to the fancy hat store where you go for your church hats, and I bought a beautiful - I don't have it here, but I bought a beautiful, very, very classic Spanish, the brim flat as a razor.
 
 [00:13:31] Will: Oh wow!
 

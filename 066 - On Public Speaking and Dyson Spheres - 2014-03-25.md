@@ -154,7 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ky7Qz9Mt_o
 
 [00:03:46] Adam: Yes.
 
-[00:03:46] Norm: Stimulus. And that is a very—
+[00:03:46] Norm: Stimulus. And that is a very -
 
 [00:03:46] Adam: That makes all, that makes tons of sense.
 
@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ky7Qz9Mt_o
 
 [00:04:59] Will: Did you ever?
 
-[00:05:01] Adam: Uh, not that I so no, not that I can remember. I started doing public speaking. I mean, first I was an actor. I spent time as an actor as a kid and as a, in my late teens. When I was working at Industrial Light and Magic in '98 '99, I realized that sometimes they sent employees out to do public speaking events, and I threw my hat into that ring and actually got several gigs from them, including going to the [unclear: Broadway]— I went to the Breckenridge Film Festival in Colorado and representing ILM for a two hour talk.
+[00:05:01] Adam: Uh, not that I so no, not that I can remember. I started doing public speaking. I mean, first I was an actor. I spent time as an actor as a kid and as a, in my late teens. When I was working at Industrial Light and Magic in '98 '99, I realized that sometimes they sent employees out to do public speaking events, and I threw my hat into that ring and actually got several gigs from them, including going to the [unclear: Broadway] - I went to the Breckenridge Film Festival in Colorado and representing ILM for a two hour talk.
 
 [00:05:32] Will: So, what are those? Are those talks like? Are those like sharing expertise and techniques and stuff like that, or is it?
 
@@ -350,7 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ky7Qz9Mt_o
 
 [00:12:00] Adam: Well, I had given a. I said when we were at South by, I said I had done a version of the talk for a corporate client a few weeks before to kind of see how things were laying out. It's funny; I don't tend to give talks. I tend to. Workshop them to a goal, and then once I speak at that thing, I'll just park it. I could give it again, or I could even refine it and make it much better. But for some reason, there is a part of me that always feels like that's cheating, which is totally ridiculous, right? Because the first time I gave my Maltese Falcon talk was at a, an event that IDEO had, and Kevin Kelly came up from Cool Tools, from Wired, from everything. Kevin came up and said, " That's a nice little talk you worked on there. It's very personal and very engaging."
 
-[00:12:00] Will: Did you know Kevin at the South by talk— at this point?
+[00:12:00] Will: Did you know Kevin at the South by talk - at this point?
 
 [00:12:52] Adam: I did. I did. Okay, yeah, we were friends, and he said you should work on that. You could turn it into a really nice talk, and it had never occurred to me to workshop something. Yeah. So then I went and did it at Porchlight at Cafe du Nord, and I did it like two more times at other events to kind of refine and cajole it into something.
 
@@ -482,7 +482,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ky7Qz9Mt_o
 
 [00:21:21] Adam: sorry.
 
-[00:21:21] Unknown speaker: I’m—
+[00:21:21] Unknown speaker: I’m -
 
 [00:21:21] Will: There's a giraffe outside waiting for you.
 

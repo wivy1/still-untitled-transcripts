@@ -336,11 +336,11 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:12:05] Will: That’s right.
 
-[00:12:01] Adam: I was—I've been—I just got back into town on Friday after two weeks away.
+[00:12:01] Adam: I was - I've been - I just got back into town on Friday after two weeks away.
 
 [00:12:09] Unknown speaker: Yeah,
 
-[00:12:09] Adam: a long time. So I was in San Antonio for a corporate appearance that went really well. Then I flew to New York, where Tom—I happened to arrive the night Tom Sachs was having a big retrospective opening. Not just retrospective, a brand new, wonderful show at the Noguchi Museum in New York, and there was that was the opening night. So I went to that and went to the dinner, and then we were in New York for a few days, my wife and I.
+[00:12:09] Adam: a long time. So I was in San Antonio for a corporate appearance that went really well. Then I flew to New York, where Tom - I happened to arrive the night Tom Sachs was having a big retrospective opening. Not just retrospective, a brand new, wonderful show at the Noguchi Museum in New York, and there was that was the opening night. So I went to that and went to the dinner, and then we were in New York for a few days, my wife and I.
 
 [00:12:34] Norm: What were some of the things at the show? That caught your eye.
 

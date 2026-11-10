@@ -660,7 +660,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:32:47] Will: Like I, I had to go out and take a call this morning right before, and I was like, I gotta get back in time for the lightsabers.
 
-[00:32:52] Adam: Oh my god, the Snoke's Snoke's samurai red guard—Ah, that is a costume. That is an amazing costume. I can't wait to see a whole crap ton of those at Comic Con,
+[00:32:52] Adam: Oh my god, the Snoke's Snoke's samurai red guard - Ah, that is a costume. That is an amazing costume. I can't wait to see a whole crap ton of those at Comic Con,
 
 [00:33:02] Will: and they all have different, clearly like martial arts-inspired types of weapons. Is the chain sword?
 
@@ -674,7 +674,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:33:13] Adam: Fabulous!
 
-[00:33:13] Will: It's so good. And like that turn—the moment when Rey and Kylo are looking at each other after Snoke's dead. She's gotten her. She's grabbed the lightsaber, and you are looking at them and like, are they gonna start fighting now, or are they gonna like, what's gonna happen? Like, you don't know what's gonna happen. It's a really intense moment, and then they turn back to back and they start fighting all the Snoke's guard.
+[00:33:13] Will: It's so good. And like that turn - the moment when Rey and Kylo are looking at each other after Snoke's dead. She's gotten her. She's grabbed the lightsaber, and you are looking at them and like, are they gonna start fighting now, or are they gonna like, what's gonna happen? Like, you don't know what's gonna happen. It's a really intense moment, and then they turn back to back and they start fighting all the Snoke's guard.
 
 [00:33:38] Adam: Really surprising and wonderful,
 

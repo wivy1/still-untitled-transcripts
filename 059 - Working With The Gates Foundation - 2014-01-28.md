@@ -84,7 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:01:47] Adam: Is that a band?
 
-[00:01:48] Norm: It’s a band that—
+[00:01:48] Norm: It’s a band that -
 
 [00:01:49] Adam: sounds like it could be a movie by Wong Kar-wai.
 
@@ -174,11 +174,11 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:05:30] Will: Making a note,
 
-[00:05:31] Adam: but so it not only did we want to do it, but amazingly, their timeline was very tight, and it worked perfectly with our ability to do it because after our planning week, we had a few days off before getting into shooting, so to give our researchers and associate producers time to set up locations, set up materials, and get us some things so that we could jump in and start filming MythBusters. During that time off was when the Gates Foundation wanted us to come up to Seattle, so they flew us up. We, uh—right, it was yesterday, or no, it was day before yesterday. So they flew us up to Seattle in the morning. We went to the Gates Foundation, which is an unbelievable building.
+[00:05:31] Adam: but so it not only did we want to do it, but amazingly, their timeline was very tight, and it worked perfectly with our ability to do it because after our planning week, we had a few days off before getting into shooting, so to give our researchers and associate producers time to set up locations, set up materials, and get us some things so that we could jump in and start filming MythBusters. During that time off was when the Gates Foundation wanted us to come up to Seattle, so they flew us up. We, uh - right, it was yesterday, or no, it was day before yesterday. So they flew us up to Seattle in the morning. We went to the Gates Foundation, which is an unbelievable building.
 
 [00:06:12] Norm: Describe it.
 
-[00:06:13] Adam: It's, uh—
+[00:06:13] Adam: It's, uh -
 
 [00:06:14] Norm: where in Seattle?
 
@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:06:54] Will: Do they do like electrical generation and stuff like that?
 
-[00:06:56] Adam: I don't know. I—it’s one of the greenest buildings in Washington, if not the West Coast.
+[00:06:56] Adam: I don't know. I - it’s one of the greenest buildings in Washington, if not the West Coast.
 
 [00:07:02] Norm: Not difficult for Seattle, and yeah,
 
@@ -234,7 +234,7 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:08:49] Will: are really really engaged, and it's a it is a like walking around Microsoft in the early 2000s, you had a very specific vibe that I don't think I've really felt other places, maybe Apple.
 
-[00:09:00] Adam: Right. Right. Right. So I will also say one of the things I noticed walking around, and we were walking around for a while with this wonderful guy who is Melinda's chief of staff and his kids. And I was saying, I, first of all, I noticed, " Wow, is that a genuine Banksy over there?" And he said, " Yeah." And I said, " I noticed something unusual about the art all over the walls here." And he said, " What?" And I said, " It's actually good. This is this is something." And he said, " That's really driven by Melinda, but that, you know, the—I normally hate public art, and I love art, but I think that most public art is total shit."
+[00:09:00] Adam: Right. Right. Right. So I will also say one of the things I noticed walking around, and we were walking around for a while with this wonderful guy who is Melinda's chief of staff and his kids. And I was saying, I, first of all, I noticed, " Wow, is that a genuine Banksy over there?" And he said, " Yeah." And I said, " I noticed something unusual about the art all over the walls here." And he said, " What?" And I said, " It's actually good. This is this is something." And he said, " That's really driven by Melinda, but that, you know, the - I normally hate public art, and I love art, but I think that most public art is total shit."
 
 [00:09:38] Will: You mean the stuff that people pay for because they have to put it in the lobby of their building in San Francisco?
 

@@ -96,7 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:03:20] Unknown speaker: He's an ambivalent hero.
 
-[00:03:29] Will: I saw that movie in theaters and walked out just weeping, like openly weeping. Yeah, most of the theater was. I kind of looked around. I was like, anybody who's not really—
+[00:03:29] Will: I saw that movie in theaters and walked out just weeping, like openly weeping. Yeah, most of the theater was. I kind of looked around. I was like, anybody who's not really -
 
 [00:03:36] Adam: it's not that bad. The second time,
 
@@ -564,7 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:29:01] Adam: right?
 
-[00:29:01] Norm: That in terms of like Autonomous or human humanoid robots performing human tasks—they're one-year-olds. They're equivalent of one-year-olds,
+[00:29:01] Norm: That in terms of like Autonomous or human humanoid robots performing human tasks - they're one-year-olds. They're equivalent of one-year-olds,
 
 [00:29:09] Will: less than that. The first-hand experience of a one-year-old. There, these would be some really amazing.
 
@@ -572,7 +572,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:29:20] Adam: Yeah.
 
-[00:29:20] Norm: When you just take away the variability needed for an autonomous robot, lock it down like we've had in factories, those robots—the amount of precision and control that we get with those—is already it's amazing.
+[00:29:20] Norm: When you just take away the variability needed for an autonomous robot, lock it down like we've had in factories, those robots - the amount of precision and control that we get with those - is already it's amazing.
 
 [00:29:32] Adam: Right, as evidenced by the wonderful katana swinging robot versus that wonderful Japanese samurai.
 
@@ -586,7 +586,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:30:01] Will: apocalypse. Exactly. I feel like
 
-[00:30:04] Adam: as long as Will Smith is on the case, I'll feel okay about it—the other Will Smith.
+[00:30:04] Adam: as long as Will Smith is on the case, I'll feel okay about it - the other Will Smith.
 
 [00:30:08] Will: Oh,
 

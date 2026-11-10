@@ -116,7 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:03:41] Adam: No, no, no, no, no. If you’re driving across the middle of Australia
 
-[00:03:45] Norm: Through the—sounds like a good challenge.
+[00:03:45] Norm: Through the - sounds like a good challenge.
 
 [00:03:47] Adam: Through the deserted part, you actually have to bring extra fuel.
 
@@ -148,7 +148,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:05:30] Will: I think you did a show there, Norm.
 
-[00:05:31] Adam: Actually, no, no, no. Oh, I landed. We landed in Sydney, where the rest of the crew went off to—was it Melbourne or. I'm having trouble remembering the order, but oh, that's the shop next door.
+[00:05:31] Adam: Actually, no, no, no. Oh, I landed. We landed in Sydney, where the rest of the crew went off to - was it Melbourne or. I'm having trouble remembering the order, but oh, that's the shop next door.
 
 [00:05:47] Will: Your next door neighbor has a table saw. It sounds like.
 
@@ -236,7 +236,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:09:22] Adam: laser etched into stainless steel.
 
-[00:09:29] Will: So we were on a flight this morning from. My wife and I were on a flight with our daughter this morning from Portland, and saw a friend on the plane who was like, " Hey, I'm going to tell you something that's going to really destroy your world." He was like, " One day she's going to get on a plane without you." Oh man, you are a bad person. So what did you tell them before? Is this the first time they've flown inter— I mean, I know they've flown unsupervised before. Oh, first time they flew
+[00:09:29] Will: So we were on a flight this morning from. My wife and I were on a flight with our daughter this morning from Portland, and saw a friend on the plane who was like, " Hey, I'm going to tell you something that's going to really destroy your world." He was like, " One day she's going to get on a plane without you." Oh man, you are a bad person. So what did you tell them before? Is this the first time they've flown inter- I mean, I know they've flown unsupervised before. Oh, first time they flew
 
 [00:09:51] Adam: internationally alone, but they have flown by themselves many, many, many times.
 
@@ -272,7 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:10:30] Adam: But this flying alone on Southwest from San Francisco to Seattle they were it was in that was intense for them.
 
-[00:10:37] Will: So did you make sure that they knew not to make jokes going through customs or to talk about the drugs that they ingested—
+[00:10:37] Will: So did you make sure that they knew not to make jokes going through customs or to talk about the drugs that they ingested -
 
 [00:10:37] Adam: On this trip?
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:16:27] Adam: Small cars, but it's also really rough on the passenger.
 
-[00:16:30] Will: Oh, because I'm sure you're—
+[00:16:30] Will: Oh, because I'm sure you're -
 
 [00:16:31] Adam: Driver. Yeah. When you're hugging the middle lane, it's your inclination to kind of be able to see the line, but that puts the driver into the verge, as it were.
 
@@ -648,7 +648,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:30:58] Will: Oh, I can't imagine for a month and a half.
 
-[00:30:59] Adam: Norm was a total mensch, an uber mensch, and Norm and—can I say her name?
+[00:30:59] Adam: Norm was a total mensch, an uber mensch, and Norm and - can I say her name?
 
 [00:30:59] Norm: Yeah, sure.
 
@@ -896,7 +896,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:41:24] Adam: there's no cheating.
 
-[00:41:25] Will: Did Hadfield agree? Had he—
+[00:41:25] Will: Did Hadfield agree? Had he -
 
 [00:41:26] Adam: He totally agreed. He was like, " I want to know who that guy spoke to at NASA because he clearly knows stuff in a deep, deep way." Hadfield wrote one of the blurbs on the back.
 

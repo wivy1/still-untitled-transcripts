@@ -278,7 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:08:36] Adam: the one that did me as a panda dressed as.
 
-[00:08:39] Norm: Oh, I don't know. Hmm, maybe I don't know. And then I met—I was looking for kits and stuff, and I found one guy who day job is a 3D modeler working for like Hasbro or some toy company, and just started doing his own line of tiny, like Warhammer style miniatures. Oh,
+[00:08:39] Norm: Oh, I don't know. Hmm, maybe I don't know. And then I met - I was looking for kits and stuff, and I found one guy who day job is a 3D modeler working for like Hasbro or some toy company, and just started doing his own line of tiny, like Warhammer style miniatures. Oh,
 
 [00:08:56] Will: okay. Like sixteenth scale or something, sixty fourth
 
@@ -974,7 +974,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:38:22] Will: Let me know that that’s wrong in the comments, I guess. I did not know that. This is rambled on. This is the longest quote ever.
 
-[00:38:25] Adam: [unclear: Yeah / This is not any—].
+[00:38:25] Adam: [unclear: Yeah / This is not any -].
 
 [00:38:26] Will: [unclear: this is not getting anxious / Getting anxious].
 

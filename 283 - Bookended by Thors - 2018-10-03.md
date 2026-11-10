@@ -508,7 +508,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:20:29] Norm: Oh, wow.
 
-[00:20:29] Adam: because we were being killed by recasters—people purchasing the garage kit, throwing it into resin, and selling it cheaper on eBay and Etsy. And there's a lot of discussion on the RPF about what recasting is. Like, could I buy a part and then make a mold of it in my house to make three more for a costume I'm doing? Personally, I don't have any problem with that, unless you're taking money out of the mouth of the creator when you could be supporting them. But this one, where people are literally building a business by stealing other people's work and underselling them and making shittier versions of it, it's just—I don't know.
+[00:20:29] Adam: because we were being killed by recasters - people purchasing the garage kit, throwing it into resin, and selling it cheaper on eBay and Etsy. And there's a lot of discussion on the RPF about what recasting is. Like, could I buy a part and then make a mold of it in my house to make three more for a costume I'm doing? Personally, I don't have any problem with that, unless you're taking money out of the mouth of the creator when you could be supporting them. But this one, where people are literally building a business by stealing other people's work and underselling them and making shittier versions of it, it's just - I don't know.
 
 [00:21:35] Will: I mean, we talked about this a couple weeks ago, and this is exactly the kind of thing that we said, " Hey, don't know, don't do it. Steal from Disney, go nuts.
 
@@ -532,7 +532,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:23:08] Adam: Is that pretty much what you wanted me to say?
 
-[00:23:11] Norm: Totally. Yeah. Yeah, and I think people—it's shocking, like the fact that you had to put little cards and in every kit. No, no recasting, and it's people just don't think about it.
+[00:23:11] Norm: Totally. Yeah. Yeah, and I think people - it's shocking, like the fact that you had to put little cards and in every kit. No, no recasting, and it's people just don't think about it.
 
 [00:23:23] Adam: Yeah, I mean, look, this is why I prefer to buy my garage kits and that kind of stuff on in Etsy over eBay. And don't get me wrong; there are still some shitbirds on Etsy who are cheating and stealing, but for the most part, you can reach out and contact the seller directly on Etsy, and that means you can build a relationship and you can be confident of that relationship.
 

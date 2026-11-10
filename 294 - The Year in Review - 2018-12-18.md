@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:00:24] Norm: and that's just because Will had a hard out, but also because this is our last day with you, Adam, essentially for this year. You're traveling,
 
-[00:00:30] Adam: yeah, absolutely. My wife and I are going on a Christmas trip starting early next week. Where we're going is my business. We’re gonna—this is a family trip, but yeah, today is crowded. We've just shot some of my favorite things for the year, and the reason Kayte is here is because you're shooting your favorite things, and we did a compend a video. It's a shame we didn't cover this entire build, but we're gonna. We have a bunch of shots. We have a ton of build photos of this incredible thing which you just completed. The blimp from Blade Runner, a nearly irreplicable. Is that a word? Irreplicable. A nearly irreplicable prop that we replicated with help from incredible model maker extraordinaire Jason Eaton. He put together this kit. I bought it from him a couple of years ago, and then you and I were talking earlier this year, and I realized, Kayte, do you want to do this put together the blimp?
+[00:00:30] Adam: yeah, absolutely. My wife and I are going on a Christmas trip starting early next week. Where we're going is my business. We’re gonna - this is a family trip, but yeah, today is crowded. We've just shot some of my favorite things for the year, and the reason Kayte is here is because you're shooting your favorite things, and we did a compend a video. It's a shame we didn't cover this entire build, but we're gonna. We have a bunch of shots. We have a ton of build photos of this incredible thing which you just completed. The blimp from Blade Runner, a nearly irreplicable. Is that a word? Irreplicable. A nearly irreplicable prop that we replicated with help from incredible model maker extraordinaire Jason Eaton. He put together this kit. I bought it from him a couple of years ago, and then you and I were talking earlier this year, and I realized, Kayte, do you want to do this put together the blimp?
 
 [00:01:27] Norm: I mean, you both had just finished the Star Child from 2001: Space Odyssey, and you guys had so much fun. I could tell working on that. That this, and I had seen this sitting on your shelf, Adam, for years, taunting, kind of taunting you,
 
@@ -290,7 +290,7 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:22:21] Adam: Yeah, exactly.
 
-[00:22:22] Norm: I've seen that somewhere, but I don't know exactly—
+[00:22:22] Norm: I've seen that somewhere, but I don't know exactly -
 
 [00:22:24] Adam: What is that?
 

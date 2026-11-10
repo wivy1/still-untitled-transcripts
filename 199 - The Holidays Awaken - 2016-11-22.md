@@ -462,7 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:15:00] Adam: No,
 
-[00:15:00] Will: I on the—
+[00:15:00] Will: I on the -
 
 [00:15:01] Adam: Hallmark Holidays. I miss a good romantic comedy.
 
@@ -792,7 +792,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:22:54] Norm: You'll never forget.
 
-[00:22:55] Adam: No, so I, I put that in my—
+[00:22:55] Adam: No, so I, I put that in my -
 
 [00:22:55] Norm: describe it in excruciating detail.
 

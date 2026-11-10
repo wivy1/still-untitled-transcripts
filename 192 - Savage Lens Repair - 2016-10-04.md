@@ -6,7 +6,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:00:53] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
-[00:00:56] Unknown: [unclear: Adam: “I’m Adam” / unnamed speaker: “I’m Adam”—Will: “I’m”—Adam: “Adam”].
+[00:00:56] Unknown: [unclear: Adam: “I’m Adam” / unnamed speaker: “I’m Adam” - Will: “I’m” - Adam: “Adam”].
 
 [00:00:57] Norm: And I'm Norm.
 
@@ -84,7 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:03:42] Norm: And what you were referencing to Adam earlier was one of the first comments you read that now stuck in your head is that people said you kept on using the word " actually," and not intending to be a dick. It's just
 
-[00:03:53] Adam: I am not intending to be a dick. [unclear: I— / cutoff absent in Q/M]. It was a complaint that I said it too much on MythBusters, and it's true I did,
+[00:03:53] Adam: I am not intending to be a dick. [unclear: I - / cutoff absent in Q/M]. It was a complaint that I said it too much on MythBusters, and it's true I did,
 
 [00:04:00] Norm: or you were cut to say it too much.
 
@@ -132,9 +132,9 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:06:23] Norm: all the time, and there are words I know that
 
-[00:06:27] Unknown: [unclear: Norm: “At the end of phases”—Adam: “The” / Adam: “At the end of somebody” / unnamed speaker: “At the end of somebody”] interviewing someone from New Orleans, he'd be like, " Oh, Cher."
+[00:06:27] Unknown: [unclear: Norm: “At the end of phases” - Adam: “The” / Adam: “At the end of somebody” / unnamed speaker: “At the end of somebody”] interviewing someone from New Orleans, he'd be like, " Oh, Cher."
 
-[00:06:29] Will: [unclear: He’d say— / onset absent in Q/W]. He sounds like Gambit, basically.
+[00:06:29] Will: [unclear: He’d say - / onset absent in Q/W]. He sounds like Gambit, basically.
 
 [00:06:33] Adam: Zelig Zelig is a very powerful force.
 
@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:10:46] Norm: It fulfills that itch.
 
-[00:10:48] Adam: It's, it is. What is it? Yeah, I put my glasses up like this. Yeah, I don't know. I and my TED talk that I did back in January, that was one where I listened to myself, and that gave me that last bit of. Understanding of where I was potentially overselling it—that's my proclivity.
+[00:10:48] Adam: It's, it is. What is it? Yeah, I put my glasses up like this. Yeah, I don't know. I and my TED talk that I did back in January, that was one where I listened to myself, and that gave me that last bit of. Understanding of where I was potentially overselling it - that's my proclivity.
 
 [00:11:07] Will: Getting the cadence and the rhythm right is the difference between something that people enjoy and is good, and people are like, " Wow, that was an amazing talk."
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:11:38] Norm: and I turned a corner and I caught my hand on something, and the whole camera fell on the ground. With the lens, the 5D Mark Four.
 
-[00:11:49] Unknown: [unclear: Will: “Oh no!” / Adam: “Oh no!” / Norm: “Oh”—Will: “no!”].
+[00:11:49] Unknown: [unclear: Will: “Oh no!” / Adam: “Oh no!” / Norm: “Oh” - Will: “no!”].
 
 [00:11:49] Norm: The camera's okay, but the [unclear: two thousand dollar / two thousand, one thousand dollar] lens I was attached to it picked it up. Okay, camera's okay. Look at the lens, spider webs. Whoa, spider living in there.
 
@@ -280,13 +280,13 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:12:18] Norm: 24-70. Yeah.
 
-[00:12:19] Unknown: [unclear: Will: “Oh”—Adam: “wow” / Will: “Oh, wow” / onset absent in M].
+[00:12:19] Unknown: [unclear: Will: “Oh” - Adam: “wow” / Will: “Oh, wow” / onset absent in M].
 
-[00:12:21] Unknown: [unclear: Adam: “Wow. He was very stressed” / unnamed speaker: “And so, wow”—Adam: “It’s very stressed” / Norm: “And so, wow. Very sad”].
+[00:12:21] Unknown: [unclear: Adam: “Wow. He was very stressed” / unnamed speaker: “And so, wow” - Adam: “It’s very stressed” / Norm: “And so, wow. Very sad”].
 
 [00:12:21] Adam: You know what stress Norm looks like?
 
-[00:12:24] Unknown: [unclear: Adam: “Oh”—Norm: “yep. Yeah, everyone. It”—Will: “looks just like this. Actually”—Adam: “it gets very gentle. I notice” / Norm: “Yep. Yep”—Will: “It looks just like this, actually”—Adam: “It gets very gentle. I notice” / Adam: “Oh”—Will: “yeah, everyone’s just like this actually gets”—Adam: “very gentle. I noticed”].
+[00:12:24] Unknown: [unclear: Adam: “Oh” - Norm: “yep. Yeah, everyone. It” - Will: “looks just like this. Actually” - Adam: “it gets very gentle. I notice” / Norm: “Yep. Yep” - Will: “It looks just like this, actually” - Adam: “It gets very gentle. I notice” / Adam: “Oh” - Will: “yeah, everyone’s just like this actually gets” - Adam: “very gentle. I noticed”].
 
 [00:12:28] Norm: I know. I'm going through the. I go through the 12 stages real quickly. Yeah, I just go right to the end. So [unclear: it's got to zoom].
 
@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:15:06] Adam: I broke all the so I turned it upside down and with a tiny little hammer, I tapped until one piece of glass came out, and then I used
 
-[00:15:12] Unknown: [unclear: Will: “some jeweler’s”—Adam: “pliers” / Will: “Pulled the rest of it out”—Adam: “Jeweler’s pliers”]
+[00:15:12] Unknown: [unclear: Will: “some jeweler’s” - Adam: “pliers” / Will: “Pulled the rest of it out” - Adam: “Jeweler’s pliers”]
 
 [00:15:13] Adam: to pull all the rest of the glass out in order to be able to determine that Norm's the actual lens completely undamaged and perfect.
 
@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:24:21] Norm: Oh no, no, no, no!
 
-[00:24:22] Unknown: [unclear: Norm: “Donald Glover”—Adam: “replaced the cousin of a”—Will: “of a rapper” / Adam: “Glover plays the cousin of a rapper named Paperboy” / Norm: “Donald Glover plays”—Adam: “the cousin of a of”—Norm: “a”—Will: “rapper”].
+[00:24:22] Unknown: [unclear: Norm: “Donald Glover” - Adam: “replaced the cousin of a” - Will: “of a rapper” / Adam: “Glover plays the cousin of a rapper named Paperboy” / Norm: “Donald Glover plays” - Adam: “the cousin of a of” - Norm: “a” - Will: “rapper”].
 
 [00:24:22] Unknown: [unclear: Got it. Got it / reply absent in Q/M].
 
@@ -650,7 +650,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:26:48] Norm: Comedians are almost they're the most honest.
 
-[00:26:52] Adam: [unclear: I— / cutoff absent in Q/W] [speaker unclear: Norm / Adam] I think exactly the same thing, Norm. I think you're totally right.
+[00:26:52] Adam: [unclear: I - / cutoff absent in Q/W] [speaker unclear: Norm / Adam] I think exactly the same thing, Norm. I think you're totally right.
 
 [00:26:55] Norm: And it's Master of None and Louie, like this show I want to watch.
 
@@ -684,7 +684,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:28:25] Norm: and the fact that he
 
-[00:28:25] Adam: [unclear: Adam: “didn’t let us” / Will: “didn’t”—unnamed speaker: “And he didn’t let us”—Adam: “Yeah”]—that’s the thing. And look, I'm not going to go on and on and on. I mean the hagiography of Washington is a national pastime. And [unclear: Chernow wrote this book / Chernow wrote. He wrote a book] to humanize him and really look through his letters. And there's been great scholarship over the last couple of hundred years, chronicling all of his letters and people's letters to him to really unpack a very complex and amazing man. The book is astounding when you realize what he achieved, what he did, handing over the army to the Continental Congress, reluctantly coming and taking the presidency twice, leaving the office of president, even though he was terrified of the Republicans. An amazing page turning, thrilling book. [speaker unclear: Will / Adam] [unclear: I highly / So highly] recommend.
+[00:28:25] Adam: [unclear: Adam: “didn’t let us” / Will: “didn’t” - unnamed speaker: “And he didn’t let us” - Adam: “Yeah”] - that’s the thing. And look, I'm not going to go on and on and on. I mean the hagiography of Washington is a national pastime. And [unclear: Chernow wrote this book / Chernow wrote. He wrote a book] to humanize him and really look through his letters. And there's been great scholarship over the last couple of hundred years, chronicling all of his letters and people's letters to him to really unpack a very complex and amazing man. The book is astounding when you realize what he achieved, what he did, handing over the army to the Continental Congress, reluctantly coming and taking the presidency twice, leaving the office of president, even though he was terrified of the Republicans. An amazing page turning, thrilling book. [speaker unclear: Will / Adam] [unclear: I highly / So highly] recommend.
 
 [00:29:16] Will: [speaker unclear: Adam / Will] I’m gonna add [speaker unclear: Adam / Will] it.
 

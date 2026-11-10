@@ -686,7 +686,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:24:37] Eric Cheng: It's perfect. I mean, if you watch it, that's the only way you can can get that kind of launch.
 
-[00:24:41] Adam: I know, and can see the comments section filling up with suggestions. Oh, you've you've shown up just for long enough, Eric, to make me feel really jealous about what you're doing because it sounds amazing. Sounds totally like flying for 12 hours, driving for fifteen, filming, driving for fifteen more, and flying for twelve more does not sound like too much of a price to pay. That sounds. I would do that in a—
+[00:24:41] Adam: I know, and can see the comments section filling up with suggestions. Oh, you've you've shown up just for long enough, Eric, to make me feel really jealous about what you're doing because it sounds amazing. Sounds totally like flying for 12 hours, driving for fifteen, filming, driving for fifteen more, and flying for twelve more does not sound like too much of a price to pay. That sounds. I would do that in a -
 
 [00:25:02] Will: how long were you shooting? 20 hours, you said.
 

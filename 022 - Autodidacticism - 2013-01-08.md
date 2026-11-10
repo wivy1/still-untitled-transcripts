@@ -12,7 +12,7 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:00:05] Adam: Norm is in Vegas.
 
-[00:00:06] Will: So he's eating great Thai food and getting pizza every night and running around like a maniac at CES. But—
+[00:00:06] Will: So he's eating great Thai food and getting pizza every night and running around like a maniac at CES. But -
 
 [00:00:13] Adam: I hear there's a flu decimating the ranks at CES.
 
@@ -60,7 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:01:42] Adam: Right.
 
-[00:01:43] Will: And I wanted I was just curious about you know what your— like if you have a usual approach or if it kind of changes on a product on a project-by-project basis.
+[00:01:43] Will: And I wanted I was just curious about you know what your - like if you have a usual approach or if it kind of changes on a product on a project-by-project basis.
 
 [00:01:50] Adam: Well, of course there are particulars that change on a project-by-project basis, but the way you phrase that there is is kind of telling. I think from a cultural standpoint. Because you listed out the things that anybody would, anybody reasonable would put on a list of ways to learn something. You read, you ask people, you ask for advice, you seek out videos, et cetera. And then at the end, you said, "And I made some mistakes, and I learned something." But the the that last part that makes some mistakes that's that's that's 90% of it. I mean, that's so. To me, I can't learn. I can learn about things in the abstract, but to learn things themselves, I need a project and I need to apply myself to getting something done that I want in order to learn that thing.
 
@@ -82,7 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:03:49] Unknown speaker: Yeah. Yeah. Yeah.
 
-[00:03:50] Adam: But when you are there in the shop, it's easy to lose your momentum because you don't have the right router bit to make something happen. You don't want to set up a jig to do two cuts when you could do one if you had only the right bit. So, I mean, for me, the— Maggie.
+[00:03:50] Adam: But when you are there in the shop, it's easy to lose your momentum because you don't have the right router bit to make something happen. You don't want to set up a jig to do two cuts when you could do one if you had only the right bit. So, I mean, for me, the - Maggie.
 
 [00:04:06] Will: Should we introduce our guests here?
 
@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:04:29] Will: Oh, I'm getting a lot of love here right now.
 
-[00:04:30] Adam: They are both incredibly, incredibly sweet. Maggie tends to bark at new people, but you've been here a couple of times, and—
+[00:04:30] Adam: They are both incredibly, incredibly sweet. Maggie tends to bark at new people, but you've been here a couple of times, and -
 
 [00:04:37] Will: Yeah, she's got me now. I think she smells Chloe too.
 
@@ -102,13 +102,13 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:04:43] Will: I'm well. I'm a well well-known dog petter. It turns out so. Hi, Maggie. Hi, Maggie.
 
-[00:04:48] Adam: So I— in terms of learning something, it is it often feels risky to start trying to make something you want with a skill you are just learning while you're doing it.
+[00:04:48] Adam: So I - in terms of learning something, it is it often feels risky to start trying to make something you want with a skill you are just learning while you're doing it.
 
 [00:05:02] Will: Yeah.
 
 [00:05:03] Adam: And it is. I often build two things when I want to learn how to do something. I plan to build two, or I'll buy enough parts to build two or three, so I can screw lots of things up while I'm going as I settle into the groove of what I want to get.
 
-[00:05:20] Will: And would you buy? So if you're buying, if you want to do so, if you know you want something that's finished at a certain level, do you buy the same just enough to do three of the high quality one, or do you kind of do a rough one and then kind of figure it out? Or—
+[00:05:20] Will: And would you buy? So if you're buying, if you want to do so, if you know you want something that's finished at a certain level, do you buy the same just enough to do three of the high quality one, or do you kind of do a rough one and then kind of figure it out? Or -
 
 [00:05:31] Adam: That depends. But like, if I was going to build some specific shelves out of a certain kind of wood, I'd certainly, and I knew I needed like 20 board feet, I'd buy 60.
 
@@ -116,9 +116,9 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:05:40] Adam: That's also because I mean, you should always at least double your materials order. You can never go wrong that way. At one point. What?
 
-[00:05:54] Will: Well, I was just going to say my wife might disagree, but you know—
+[00:05:54] Will: Well, I was just going to say my wife might disagree, but you know -
 
-[00:05:57] Adam: I just, I— there's a key moment that happened between Jamie and I at one point. We're out on a site, and he's like, "Oh, I need to screw this little thing in. Can you get me six 8-32 machine screws with a round head?" And the assistant runs away, and I said, "Get eight." And Jamie goes, "No, no, no, get six." And he had six holes to fill, and the assistant brought them back, and he good and immediately dropped one.
+[00:05:57] Adam: I just, I - there's a key moment that happened between Jamie and I at one point. We're out on a site, and he's like, "Oh, I need to screw this little thing in. Can you get me six 8-32 machine screws with a round head?" And the assistant runs away, and I said, "Get eight." And Jamie goes, "No, no, no, get six." And he had six holes to fill, and the assistant brought them back, and he good and immediately dropped one.
 
 [00:06:21] Will: And it's gone.
 
@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:06:23] Adam: And it's like that's what's going to happen. You're going to lose things while you go. You're going to break things. You're going to strip things.
 
-[00:06:29] Will: Well, it definitely adds stress if you know you have you know maybe maybe 30% more material than you need, and you have one day to do whatever cutting or whatever work. You rent a tool, you borrow something from someone, you have a limited amount of time to do stuff, and then you reach the end of that, and you're like, "Oh shit, I cut this one a quarter inch short. I'm going to have to do it over." Yeah, and then you have to play some sort of mental jigsaw puzzle to figure out where you can get the extra piece from without messing up your whole project. Or having to spend more time and more money, and—
+[00:06:29] Will: Well, it definitely adds stress if you know you have you know maybe maybe 30% more material than you need, and you have one day to do whatever cutting or whatever work. You rent a tool, you borrow something from someone, you have a limited amount of time to do stuff, and then you reach the end of that, and you're like, "Oh shit, I cut this one a quarter inch short. I'm going to have to do it over." Yeah, and then you have to play some sort of mental jigsaw puzzle to figure out where you can get the extra piece from without messing up your whole project. Or having to spend more time and more money, and -
 
 [00:06:56] Adam: Yeah, or you've made a wrong cut. You have to figure out how to scab two pieces together to be the one piece you need, which I've done countless.
 
@@ -166,7 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:09:26] Will: You're not going to open at the Holiday Inn Laugh Factory in Peoria.
 
-[00:09:29] Adam: No, and you know that takes thousands and thousands of hours and hundreds of thousands of miles of travel, and you know—
+[00:09:29] Adam: No, and you know that takes thousands and thousands of hours and hundreds of thousands of miles of travel, and you know -
 
 [00:09:36] Will: And it's kind of a shit job until you reach a certain level too.
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:09:41] Will: Yeah.
 
-[00:09:42] Adam: But I am by placing myself outside my by, excuse me, by placing myself outside my comfort zone in that field. I do. I am able to learn something about it that's useful to me in the other things that I do. And that's what I'm interested in. With every there are two types of ways of learning a skill. There's an a real— there's learning the skill as a real craftsman, which takes your standard thousands of hours of training and real mentorship and apprenticeship in order to secure that. And then there's learning things on a DIY, I would like to do this kind of project level.
+[00:09:42] Adam: But I am by placing myself outside my by, excuse me, by placing myself outside my comfort zone in that field. I do. I am able to learn something about it that's useful to me in the other things that I do. And that's what I'm interested in. With every there are two types of ways of learning a skill. There's an a real - there's learning the skill as a real craftsman, which takes your standard thousands of hours of training and real mentorship and apprenticeship in order to secure that. And then there's learning things on a DIY, I would like to do this kind of project level.
 
 [00:10:20] Will: I don't want to say faking it because you're not faking it.
 
@@ -182,25 +182,25 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:10:23] Will: But you learn the bits that are important to you.
 
-[00:10:25] Adam: You are learning the bits that are important to you, and where you know where it comes to like a guild-level crafts person, that's not what your aim is there. Your aim is the completion of the project, not the craft. And so the trick is to learn what you can along the way, and that's what I'm an expert at. I'm I'm I— as I've often said, I'm not an expert in any of the skills I have, but each of them becomes like an arrow in my quiver that I can apply.
+[00:10:25] Adam: You are learning the bits that are important to you, and where you know where it comes to like a guild-level crafts person, that's not what your aim is there. Your aim is the completion of the project, not the craft. And so the trick is to learn what you can along the way, and that's what I'm an expert at. I'm I'm I - as I've often said, I'm not an expert in any of the skills I have, but each of them becomes like an arrow in my quiver that I can apply.
 
 [00:10:50] Will: A skilled generalist.
 
 [00:10:51] Adam: Yes, a skilled polymath.
 
-[00:10:53] Will: Okay. So—
+[00:10:53] Will: Okay. So -
 
 [00:10:56] Adam: So to me, the most key aspect is the project.
 
 [00:11:00] Will: Okay.
 
-[00:11:00] Adam: Is is the— oh Huxley, you're not gonna— okay. All right, come on up. Is that you're not going to learn anything unless you have— you're not going to complete something unless you've given yourself something to be invested in. And for me, it's the end product. I want a thing, and now I'm invested in the thing. It's not like it's interesting. The video we did about dovetailing was a little bit misrepresentative of the way I learned because it's rare that I'll take a skill and just try it a bunch of times until I get it right. I'll usually all just jump right into a project, but dovetailing is difficult enough and finicky enough, and to be honest, hard enough to picture in your head.
+[00:11:00] Adam: Is is the - oh Huxley, you're not gonna - okay. All right, come on up. Is that you're not going to learn anything unless you have - you're not going to complete something unless you've given yourself something to be invested in. And for me, it's the end product. I want a thing, and now I'm invested in the thing. It's not like it's interesting. The video we did about dovetailing was a little bit misrepresentative of the way I learned because it's rare that I'll take a skill and just try it a bunch of times until I get it right. I'll usually all just jump right into a project, but dovetailing is difficult enough and finicky enough, and to be honest, hard enough to picture in your head.
 
 [00:11:43] Will: Yeah, it's spatially. It doesn't make sense spatially.
 
 [00:11:45] Adam: Right.
 
-[00:11:47] Will: So okay, so normally you sit down, do a little bit of research, go get some materials, just kind of start trying stuff out. Probably just grab something off the back wall at the shop. Frankly—
+[00:11:47] Will: So okay, so normally you sit down, do a little bit of research, go get some materials, just kind of start trying stuff out. Probably just grab something off the back wall at the shop. Frankly -
 
 [00:11:55] Adam: Yeah.
 
@@ -210,11 +210,11 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:12:04] Will: What's next? YouTube and internet and talking to people.
 
-[00:12:08] Adam: Yeah. Well, so my experience whip making was is is a is a good example. I realized. I realized I'd never seen a good whip. I'd seen them in the movies, but I'd never seen one in person, and I wanted to make one. And I was at— so I went down to Tandy Leather down there in San Carlos, I think it is, and they had a book on whip making, this little paper pamphlet, and it was how to make it out of something like a eight-ounce latigo, which is terrible leather for making whips. But the— I followed those directions as exactly as I could. Now, when you're whip making, a whip is tapered from one end to the other, and that's a key aspect of its energy transfer. In order to do that, what you do is you actually braid. You cut the laces on a taper, a very long taper, and then you braid them, and they naturally braid in a gradated thickness.
+[00:12:08] Adam: Yeah. Well, so my experience whip making was is is a is a good example. I realized. I realized I'd never seen a good whip. I'd seen them in the movies, but I'd never seen one in person, and I wanted to make one. And I was at - so I went down to Tandy Leather down there in San Carlos, I think it is, and they had a book on whip making, this little paper pamphlet, and it was how to make it out of something like a eight-ounce latigo, which is terrible leather for making whips. But the - I followed those directions as exactly as I could. Now, when you're whip making, a whip is tapered from one end to the other, and that's a key aspect of its energy transfer. In order to do that, what you do is you actually braid. You cut the laces on a taper, a very long taper, and then you braid them, and they naturally braid in a gradated thickness.
 
-[00:12:59] Will: And so you're— it was almost like a spiral.
+[00:12:59] Will: And so you're - it was almost like a spiral.
 
-[00:13:02] Adam: Yeah, in order to cut it out, yeah, you have to actually cut them out of a single hide. They need to be the laces need to be a single piece. So cowhide is fairly large, but you still need to cut in a spiral. So I cut out the what's called the, what is it? Wow, I'm losing my memory. The belly of the whip—
+[00:13:02] Adam: Yeah, in order to cut it out, yeah, you have to actually cut them out of a single hide. They need to be the laces need to be a single piece. So cowhide is fairly large, but you still need to cut in a spiral. So I cut out the what's called the, what is it? Wow, I'm losing my memory. The belly of the whip -
 
 [00:13:21] Will: Which is?
 
@@ -222,11 +222,11 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:13:51] Will: So you had dissonance between what you expected and what you'd actually done.
 
-[00:13:54] Adam: So in that case, I took some wax twine that leather makers use, and I wrapped it around the bolster to hold it onto the belly, and then I braided over that. And I thought, oh, that worked really great. The whip itself was okay; it looked pretty good. I could crack it; it made some noise. And then, about six months later, I wanted to make a really good Raiders whip, and I found out that David Morgan, who's the preeminent teacher of whip making, and we talked about this in the video about it. I found out that I could reach him, and so I called him up, and he gave me about an hour of advice over the phone. And one of the things he said was, "Oh, yeah, wrapping the bolster in twine— that's absolutely something that some whip makers do." So, in solving this problem, I had stumbled upon a technique that was common, even though the book didn't write about it. And the main thing that did was it was one of those things that gave me the confidence of my intuition. Like, oh, if the book doesn't say exactly what to do, and I'm confused, but this makes it easier, it's okay for me to try that.
+[00:13:54] Adam: So in that case, I took some wax twine that leather makers use, and I wrapped it around the bolster to hold it onto the belly, and then I braided over that. And I thought, oh, that worked really great. The whip itself was okay; it looked pretty good. I could crack it; it made some noise. And then, about six months later, I wanted to make a really good Raiders whip, and I found out that David Morgan, who's the preeminent teacher of whip making, and we talked about this in the video about it. I found out that I could reach him, and so I called him up, and he gave me about an hour of advice over the phone. And one of the things he said was, "Oh, yeah, wrapping the bolster in twine - that's absolutely something that some whip makers do." So, in solving this problem, I had stumbled upon a technique that was common, even though the book didn't write about it. And the main thing that did was it was one of those things that gave me the confidence of my intuition. Like, oh, if the book doesn't say exactly what to do, and I'm confused, but this makes it easier, it's okay for me to try that.
 
 [00:14:56] Will: Frequently, what seems right is the right answer.
 
-[00:14:58] Adam: Exactly, exactly. And so then, I, with the advice from him, I made the 12-plait, two-belly kangaroo-hide bolster whip, and I'm really, really pleased with it. I'm not a whip maker. I don't want to be a whip maker. It's the guys that do it for real do beautiful, beautiful work. And you know, my Raiders whip is a nice piece, but any whip maker would look at it and see the sloppy things about it and the ways in which it could totally be improved. And so can I. But—
+[00:14:58] Adam: Exactly, exactly. And so then, I, with the advice from him, I made the 12-plait, two-belly kangaroo-hide bolster whip, and I'm really, really pleased with it. I'm not a whip maker. I don't want to be a whip maker. It's the guys that do it for real do beautiful, beautiful work. And you know, my Raiders whip is a nice piece, but any whip maker would look at it and see the sloppy things about it and the ways in which it could totally be improved. And so can I. But -
 
 [00:15:29] Will: But it's the whip you wanted.
 
@@ -238,11 +238,11 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:15:51] Will: Um.
 
-[00:15:52] Adam: Yeah, I mean, those are any any pamphlet or anything that's going to talk to you about using any tools whatsoever is going to recommend— and safety precautions, and you should be aware of what they are all of the time. Every company in the world that makes every tool requires you to wear safety glasses with it, and that's a little bit absurd for certain things. Like you don't really need it for every operation there is in the shop.
+[00:15:52] Adam: Yeah, I mean, those are any any pamphlet or anything that's going to talk to you about using any tools whatsoever is going to recommend - and safety precautions, and you should be aware of what they are all of the time. Every company in the world that makes every tool requires you to wear safety glasses with it, and that's a little bit absurd for certain things. Like you don't really need it for every operation there is in the shop.
 
 [00:16:16] Will: A drill, you're probably okay.
 
-[00:16:18] Adam: But you can't go wrong—
+[00:16:18] Adam: But you can't go wrong -
 
 [00:16:20] Will: Right.
 
@@ -260,15 +260,15 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:17:27] Adam: Yeah.
 
-[00:17:28] Will: And it's a garage that's you know it's not full full, but there's lots of shelves and lots of little nooks and crannies, and everything has a, just a lovely little layer of—
+[00:17:28] Will: And it's a garage that's you know it's not full full, but there's lots of shelves and lots of little nooks and crannies, and everything has a, just a lovely little layer of -
 
 [00:17:36] Adam: Try a blower.
 
-[00:17:37] Will: I, that was my first thought, but she rightly suggested that that was probably just going to spoil it— spread the problem around rather than necessarily solve it. I have purchased a duster with a vacuum hose attachment to it.
+[00:17:37] Will: I, that was my first thought, but she rightly suggested that that was probably just going to spoil it - spread the problem around rather than necessarily solve it. I have purchased a duster with a vacuum hose attachment to it.
 
 [00:17:48] Adam: There you go.
 
-[00:17:49] Will: So I think that's probably my saving grace. But—
+[00:17:49] Will: So I think that's probably my saving grace. But -
 
 [00:17:52] Adam: Sanding is something that I was surprised when I taught at the Academy of Art. I taught advanced model making over there, and one of the courses I had, among the courses I had, people had assignments to do for other classes, and they would do them in my class. So my main job was just putting out fires and suggesting more efficient ways to do things. That was a fantastic lesson in something I didn't know, other people didn't know, which is sanding is a great one because most people will take a piece of 100-grit sandpaper and just work at something and after like really eight minutes, that piece of sandpaper is smooth.
 
@@ -280,11 +280,11 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:18:55] Adam: Exactly.
 
-[00:18:55] Will: Exactly. Using the— I'm using an orbital sander because I'm doing lots of plain surfaces.
+[00:18:55] Will: Exactly. Using the - I'm using an orbital sander because I'm doing lots of plain surfaces.
 
 [00:18:59] Adam: Oh, that makes lots of dust. Oh, don't you have a vacuum attachment for that orbital sander?
 
-[00:19:02] Will: Yeah I didn't buy the adapter because it was an extra $5. Oops. The and now it's a, you know, the sander's 10 years old, so I don't think I can get the right adapter anymore. And then I have to go out and buy a new sander. At this point, it's just easier to move the whole thing outside and do it in the backyard. But yeah, I mean, it made me realize the first batch of sandpaper I bought the four sheets because I was like, this is a little bit cheaper. I can cut—
+[00:19:02] Will: Yeah I didn't buy the adapter because it was an extra $5. Oops. The and now it's a, you know, the sander's 10 years old, so I don't think I can get the right adapter anymore. And then I have to go out and buy a new sander. At this point, it's just easier to move the whole thing outside and do it in the backyard. But yeah, I mean, it made me realize the first batch of sandpaper I bought the four sheets because I was like, this is a little bit cheaper. I can cut -
 
 [00:19:26] Adam: Right.
 
@@ -298,7 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:19:58] Will: Yeah.
 
-[00:19:59] Adam: And you've just broken— and that last eighth-inch drill bit you had, and you don't have another one. That's where. Making sure you've got enough saw blades, enough sandpaper, and you know honestly bought the good quality sandpaper.
+[00:19:59] Adam: And you've just broken - and that last eighth-inch drill bit you had, and you don't have another one. That's where. Making sure you've got enough saw blades, enough sandpaper, and you know honestly bought the good quality sandpaper.
 
 [00:20:10] Unknown speaker: Mm-hmm.
 
@@ -324,7 +324,7 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:22:05] Adam: Exactly, exactly.
 
-[00:22:06] Will: And that kind of that that is, I mean, that's something you miss in the early. If you're just learning guitar chords, especially, there's nothing worse in the world than you make your finger like this, and then you make your finger like this, and you make— yeah.
+[00:22:06] Will: And that kind of that that is, I mean, that's something you miss in the early. If you're just learning guitar chords, especially, there's nothing worse in the world than you make your finger like this, and then you make your finger like this, and you make - yeah.
 
 [00:22:16] Adam: Without any purpose to it. Yeah, and so I think that a lot of people get they get stopped along the line of wanting to learn a skill because it seems daunting to figure out all of these parameters. But if you figure out something you really, really, and if you don't have something you really, really want to learn that skill with, maybe it's not time to learn that skill.
 
@@ -340,13 +340,13 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:22:59] Adam: The why train. That's great.
 
-[00:23:00] Will: Then all of a sudden, you, in order to explain it to them, you have to under— you develop a better understanding of whatever it is you're talking about.
+[00:23:00] Will: Then all of a sudden, you, in order to explain it to them, you have to under- you develop a better understanding of whatever it is you're talking about.
 
 [00:23:08] Adam: Right.
 
 [00:23:08] Will: And that you can't under underestimate the value of that.
 
-[00:23:12] Adam: Also, the other thing that I would say is it's never about intelligence. There are lots of things that are difficult to learn, depending upon your ability to understand something like complex mathematics or quantum physics or you know—
+[00:23:12] Adam: Also, the other thing that I would say is it's never about intelligence. There are lots of things that are difficult to learn, depending upon your ability to understand something like complex mathematics or quantum physics or you know -
 
 [00:23:25] Will: String theory, yeah.
 
@@ -358,7 +358,7 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:24:29] Will: It's harder to find out where to go buy metal tubing than it is to learn how to weld.
 
-[00:24:32] Adam: Yes, and I don't mean to denigrate welders here. Really good welding is incredibly hard to do, but entry-level welding for a coat rack in your house—
+[00:24:32] Adam: Yes, and I don't mean to denigrate welders here. Really good welding is incredibly hard to do, but entry-level welding for a coat rack in your house -
 
 [00:24:40] Unknown speaker: Yeah. Yeah.
 
@@ -376,7 +376,7 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:25:01] Adam: And they're everywhere.
 
-[00:25:02] Will: I mean, we did a story about a hackerspace in New York, one of the early ones, NYC Resistor—
+[00:25:02] Will: I mean, we did a story about a hackerspace in New York, one of the early ones, NYC Resistor -
 
 [00:25:06] Adam: Yeah.
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:25:31] Will: Yeah.
 
-[00:25:31] Adam: That's it. That's— how great is that?
+[00:25:31] Adam: That's it. That's - how great is that?
 
 [00:25:34] Will: Yeah. It's the best thing in the world. So, I guess that'll do it for us, Mr. Savage. Thank you as always.
 

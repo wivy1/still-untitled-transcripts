@@ -88,7 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:02:32] Frank: Yeah, yeah, pretty much. Like a lot of times, you have to be more frugal. Like I'm sure that I know that on Star Trek, they had to reuse pieces a lot of times. Like reuse a big cowl, and then they would just put a new face piece on.
 
-[00:02:32] Adam: Ah. Whereas in the movies, they—
+[00:02:32] Adam: Ah. Whereas in the movies, they -
 
 [00:02:44] Frank: just use a
 
@@ -426,7 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:16:42] Frank: Yeah,
 
-[00:16:43] Adam: I mean, really, the model making industry. is—
+[00:16:43] Adam: I mean, really, the model making industry. is -
 
 [00:16:45] Frank: You could say the same thing for big giant remote control creatures.
 

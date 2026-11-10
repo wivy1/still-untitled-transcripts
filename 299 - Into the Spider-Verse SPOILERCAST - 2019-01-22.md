@@ -578,7 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:18:52] Ben: How did? It's Miller and Lord, right?
 
-[00:18:53] Will: Well, yeah, but still, I mean, they—they're the 20 21 Jump Street.
+[00:18:53] Will: Well, yeah, but still, I mean, they - they're the 20 21 Jump Street.
 
 [00:18:56] Norm: I think it's because it's animated. Because they feel like with animation, the risk is lower.
 
@@ -800,7 +800,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:27:16] Unknown speaker (Adam or Norm): It would.
 
-[00:27:17] Will: I really—it's the first movie in a really long time I walked out of was like, " Man, I kind of wish I'd seen that in 3D."
+[00:27:17] Will: I really - it's the first movie in a really long time I walked out of was like, " Man, I kind of wish I'd seen that in 3D."
 
 [00:27:23] Unknown speaker: I don't think we needed it.
 

@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:00:53] Will: Three fencing foils, épées, or.
 
-[00:00:56] Adam: I actually—that's not all the fencing foils I have. I have another half dozen in storage.
+[00:00:56] Adam: I actually - that's not all the fencing foils I have. I have another half dozen in storage.
 
 [00:01:01] Will: Have you ever fenced?
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:06:17] Adam: What? No, she wasn't in Melrose Place.
 
-[00:06:17] Will: She was on—
+[00:06:17] Will: She was on -
 
 [00:06:17] Norm: 100%. She was in Melrose. Oh,
 
@@ -314,7 +314,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:07:55] Norm: Well, I was gonna go further with Bond.
 
-[00:07:58] Adam: Back in the '80s when we were kids, HBO—you know what it stood for?
+[00:07:58] Adam: Back in the '80s when we were kids, HBO - you know what it stood for?
 
 [00:08:03] Will: Norm was a fetus.
 
@@ -326,7 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:08:21] Will: Okay.
 
-[00:08:22] Norm: I've only—I know there was a syndicated TV show Beastmaster in the '90s.
+[00:08:22] Norm: I've only - I know there was a syndicated TV show Beastmaster in the '90s.
 
 [00:08:25] Adam: No, no, no. Beastmaster, the movie starring Marc Singer and Tanya Roberts
 
@@ -360,7 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:09:07] Adam: because we I eagerly watched the first two episodes, and I have to say, it felt like Girls dropped off a cliff to me.
 
-[00:09:13] Will: I kind of thought that towards—
+[00:09:13] Will: I kind of thought that towards -
 
 [00:09:13] Adam: Pedaling in place.
 
@@ -436,7 +436,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:11:00] Will: They took the Super Bowl off.
 
-[00:11:10] Adam: Sellouts and the Super Bowl—that's the game with the pointy ball.
+[00:11:10] Adam: Sellouts and the Super Bowl - that's the game with the pointy ball.
 
 [00:11:15] Norm: Jamie made that exact same joke.
 
@@ -528,7 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:14:05] Norm: Oh no! And you're talking about the guy with the gas mask.
 
-[00:14:08] Adam: Oh shit! Really? I watched—
+[00:14:08] Adam: Oh shit! Really? I watched -
 
 [00:14:08] Norm: You watch. Oh no, Adam!
 
@@ -550,7 +550,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:14:33] Adam: Yes.
 
-[00:14:33] Norm: Watching—
+[00:14:33] Norm: Watching -
 
 [00:14:33] Adam: oh, I had no problem jumping in.
 
@@ -674,7 +674,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:17:33] Will: And he has this moment where you see what's his name from Dazed and Confused come back, like the
 
-[00:17:39] Adam: yeah yeah yeah, which is a— They stay the same age?
+[00:17:39] Adam: yeah yeah yeah, which is a - They stay the same age?
 
 [00:17:43] Will: He says it's afternoon on a Thursday, which means it's time for me to start drinking. And he sends him out to get beer, in the police interview. And then you like as that whole episode develops, you realize that there's more to the interview that's happening with them than otherwise. And there's southern corruption and the whole thing. It's really good.
 
@@ -942,4 +942,4 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:27:50] Norm: Podcast was too short.
 
-[00:27:50] Unknown speaker: You—
+[00:27:50] Unknown speaker: You -

@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=qohSVC27JZc
 
 [00:00:51] Will: How'd you do that?
 
-[00:00:52] Adam: Well, I was machining some steel. And that would seem to be all—all the explanation that would be necessary.
+[00:00:52] Adam: Well, I was machining some steel. And that would seem to be all - all the explanation that would be necessary.
 
 [00:01:01] Will: Yeah, I got it. What kind of safety protection gear were you wearing, Adam?
 
@@ -48,7 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=qohSVC27JZc
 
 [00:01:15] Will: Oh shit!
 
-[00:01:16] Adam: And—
+[00:01:16] Adam: And -
 
 [00:01:16] Will: Are you okay?
 
@@ -66,9 +66,9 @@ Episode URL: https://www.youtube.com/watch?v=qohSVC27JZc
 
 [00:02:51] Adam: I know it felt like. It felt like what the doctor going to the doctor is like in a romantic comedy. That's what it felt like.
 
-[00:02:59] Will: It's funny. My ophthalmologist—the—I needed emergency appointments a couple of times, and it's usually for something like an eye infection or like a one time I tore a contact taking it out, and it like half of it got stuck and rolled back in. And they were like, " Yeah, just come on in." And it was like the difference. Whereas when you call to get an appointment, it's like, " Hey, yeah, come by in three months." it—it's nice that they have those emergency appointments. I'm glad that your eye work is okay.
+[00:02:59] Will: It's funny. My ophthalmologist - the - I needed emergency appointments a couple of times, and it's usually for something like an eye infection or like a one time I tore a contact taking it out, and it like half of it got stuck and rolled back in. And they were like, " Yeah, just come on in." And it was like the difference. Whereas when you call to get an appointment, it's like, " Hey, yeah, come by in three months." it - it's nice that they have those emergency appointments. I'm glad that your eye work is okay.
 
-[00:03:28] Norm: What— Was this the first time you've had something like this happen to your eye? I've never had. What walk us through what that's like? Like you hear, do you feel it. Like what's the when as it happened?
+[00:03:28] Norm: What - Was this the first time you've had something like this happen to your eye? I've never had. What walk us through what that's like? Like you hear, do you feel it. Like what's the when as it happened?
 
 [00:03:38] Adam: Okay, so I've gotten a lot of stuff in my eyes over the years. I have had I have, and for all the people who are going to tweet at me, like wear eye protection, and I do for the heavy stuff, and I don't enough. That being said, I have gone to the doctor twice in 40 years of making stuff.
 
@@ -92,11 +92,11 @@ Episode URL: https://www.youtube.com/watch?v=qohSVC27JZc
 
 [00:05:15] Will: It's like the ultimate popping video right there.
 
-[00:05:17] Adam: Unbelievable! I don't know if I have the wherewithal to do it. Look, I also have a—I have a full complement of saline here at the shop and eye wash cups and all that stuff, and I did all that right afterwards to try and get it, and I just didn't. And Julia took a close look; she couldn't see anything. But the eye, you know, it requires a slit, one of those little slit scanners to see up close.
+[00:05:17] Adam: Unbelievable! I don't know if I have the wherewithal to do it. Look, I also have a - I have a full complement of saline here at the shop and eye wash cups and all that stuff, and I did all that right afterwards to try and get it, and I just didn't. And Julia took a close look; she couldn't see anything. But the eye, you know, it requires a slit, one of those little slit scanners to see up close.
 
 [00:05:38] Will: Yeah. Wow, that's intense. I um, uh, yeah, no, I that's always my fear is like I don't, I'm okay with like bodily injury, but eyeball wounds are just. Ugh.
 
-[00:05:49] Adam: Yeah. Well—
+[00:05:49] Adam: Yeah. Well -
 
 [00:05:49] Norm: That’s why you read one of those? The people who have the contact lenses stuck or tear,
 
@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=qohSVC27JZc
 
 [00:09:25] Will: yeah.
 
-[00:09:26] Adam: So it turns out there's this fascinating story about do whips break the speed of sound, and it is it comes from World War One, where post World War One there were no trucks in Europe. Every truck had been used for the war effort, and everything was destroyed. And delivery still needed to happen. So, for the first time in a couple of decades, people saddled up their horses and started using them for deliveries again. This is immediately post World War One. But the problem they had is they lost a lot of institutional knowledge during the 20 years everyone was driving, and they didn't know how to saddle up horse teams, etc. But they also didn't know they weren't enough whips. There weren't enough whips to keep the horses going, and they discovered that grounding straps from factories—the braided copper grounding straps—made terrific whips.
+[00:09:26] Adam: So it turns out there's this fascinating story about do whips break the speed of sound, and it is it comes from World War One, where post World War One there were no trucks in Europe. Every truck had been used for the war effort, and everything was destroyed. And delivery still needed to happen. So, for the first time in a couple of decades, people saddled up their horses and started using them for deliveries again. This is immediately post World War One. But the problem they had is they lost a lot of institutional knowledge during the 20 years everyone was driving, and they didn't know how to saddle up horse teams, etc. But they also didn't know they weren't enough whips. There weren't enough whips to keep the horses going, and they discovered that grounding straps from factories - the braided copper grounding straps - made terrific whips.
 
 [00:10:27] Will: Oh my god!
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=qohSVC27JZc
 
 [00:12:39] Will: Yeah.
 
-[00:12:39] Adam: Right. And consequently, it took them a couple of years to find the. The original process, which involves galling up a [end?]—a die grinder bit with aluminum, taking a steel die grinder bit and galling it up with aluminum, and then rubbing that aluminum on a steel pipe, makes the steel and aluminum both able to be grabbed by the same soldering compound.
+[00:12:39] Adam: Right. And consequently, it took them a couple of years to find the. The original process, which involves galling up a [end?] - a die grinder bit with aluminum, taking a steel die grinder bit and galling it up with aluminum, and then rubbing that aluminum on a steel pipe, makes the steel and aluminum both able to be grabbed by the same soldering compound.
 
 [00:13:07] Will: Wow.
 
@@ -316,7 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=qohSVC27JZc
 
 [00:25:09] Norm: The Vast of Night.
 
-[00:25:10] Will: I watched all of Space Force the other day. Oh, how the Netflix Steve Carell thing? Yeah Steve Carell is awesome. Lisa Kudrow is hilarious. Like, it it's—the show is real all over the like. It doesn't feel Greg Daniels-y in the way that like King of the Hill or something like that. That is usually the humor is like sometimes like the tone is all over the place. Like, there's there's they're definitely it's constantly dragging on Trump. You know, the—so the setup is the president makes an executive order to create this new Branch of the military, and the guy who thinks he's going to be in charge of the air force is suddenly in charge of this, and has to move to some podunk town in Colorado to be the leader of the people that get there. And John Malkovich is his unhinged in the most delightful possible way because he plays like the rock. He plays like this the you know Carell plays the military guy, and Malkovich plays the science you know the scientist the rocket scientist.
+[00:25:10] Will: I watched all of Space Force the other day. Oh, how the Netflix Steve Carell thing? Yeah Steve Carell is awesome. Lisa Kudrow is hilarious. Like, it it's - the show is real all over the like. It doesn't feel Greg Daniels-y in the way that like King of the Hill or something like that. That is usually the humor is like sometimes like the tone is all over the place. Like, there's there's they're definitely it's constantly dragging on Trump. You know, the - so the setup is the president makes an executive order to create this new Branch of the military, and the guy who thinks he's going to be in charge of the air force is suddenly in charge of this, and has to move to some podunk town in Colorado to be the leader of the people that get there. And John Malkovich is his unhinged in the most delightful possible way because he plays like the rock. He plays like this the you know Carell plays the military guy, and Malkovich plays the science you know the scientist the rocket scientist.
 
 [00:26:13] Adam: Oh, I didn't realize Malkovich was in it. That's awesome.
 

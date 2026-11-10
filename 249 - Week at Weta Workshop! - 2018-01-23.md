@@ -86,7 +86,7 @@ Episode URL: https://www.youtube.com/watch?v=MlXcV8ZQbR4
 
 [00:12:45] Unknown speaker (Adam or Norm): Wow.
 
-[00:12:45] Richard: And that—that's very much the mindset that goes into these things.
+[00:12:45] Richard: And that - that's very much the mindset that goes into these things.
 
 [00:14:08] Adam: I, we were we visited the scale of our war this morning.
 

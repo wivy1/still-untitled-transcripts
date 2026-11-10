@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:05:44] Will: Yeah.
 
-[00:05:45] Norm: It’s a long—.
+[00:05:45] Norm: It’s a long -.
 
 [00:05:45] Will: I started trying to watch it. It was. It looked. It was. It didn't grab me.
 
@@ -394,7 +394,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:11:26] Norm: So, how do we want to talk about this?
 
-[00:11:32] Will: Can we— okay, well, we're going to spoil stuff from the previous two movies.
+[00:11:32] Will: Can we - okay, well, we're going to spoil stuff from the previous two movies.
 
 [00:11:35] Norm: Yes,
 
@@ -630,7 +630,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:18:01] Will: Luke style Empire Strikes Back style.
 
-[00:18:02] Norm: Yeah, and then she flips, and presumably, [unclear: no—]
+[00:18:02] Norm: Yeah, and then she flips, and presumably, [unclear: no -]
 
 [00:18:06] Jeremy: no, you skipped the bad part. So she she what she does is she like she she gets in running stance right, and then she looks back over her shoulder.
 
@@ -750,7 +750,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:21:12] Norm: Yeah, you have Poe Dameron
 
-[00:21:14] Will: Not to be— taken lightly.
+[00:21:14] Will: Not to be - taken lightly.
 
 [00:21:15] Norm: Now also he is a full on Nathan Drake with a scarf. That's
 
@@ -1178,7 +1178,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:33:39] Will: Wow.
 
-[00:33:39] Jeremy: Not—
+[00:33:39] Jeremy: Not -
 
 [00:33:42] Norm: imperial imperial BB-8
 
@@ -1222,7 +1222,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:34:52] Jeremy: Me too. It looks good. Is it first person or third? Third. It's going to be third.
 
-[00:34:55] Norm: Third person, wall running. Yeah, And then the other—
+[00:34:55] Norm: Third person, wall running. Yeah, And then the other -
 
 [00:34:59] Will: The Jedi does wall run.
 

@@ -22,7 +22,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:00:52] Will: It's true.
 
-[00:00:54] Norm: No, it's just—it's a robot.
+[00:00:54] Norm: No, it's just - it's a robot.
 
 [00:00:56] Will: Yeah, that food robot.
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:20:31] Will: I don’t think
 
-[00:20:32] Adam: the shot of him but the shot of him. Outside the door, when you saw how much equipment he'd brought to try and get into the bridge, it made me deeply sad, and I really felt for that character of like, yeah, screw it, I am going to try every last thing, and all the tools laid out there, the mess—I mean, I've like was brilliantly laid out, and that was the one time I felt real.
+[00:20:32] Adam: the shot of him but the shot of him. Outside the door, when you saw how much equipment he'd brought to try and get into the bridge, it made me deeply sad, and I really felt for that character of like, yeah, screw it, I am going to try every last thing, and all the tools laid out there, the mess - I mean, I've like was brilliantly laid out, and that was the one time I felt real.
 
 [00:20:52] Will: And that was the show with the takeout food, [unclear: right? / Right. Right.]
 

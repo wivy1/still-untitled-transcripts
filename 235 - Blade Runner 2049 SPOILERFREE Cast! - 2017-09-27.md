@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:16:29] Mark: If I had hair, it would be standing on end.
 
-[00:16:31] Adam: Just watching how they shot that scene, I thought, oh, this film is in good hands. They, I could see, just in the lighting of that scene, I could see at least two different bits from the original that they were calling back to with the lighting and how the lighting moved, and that was me on set one day, like watching them filming the key movie in just a few hours, and everything I've seen since then has. Continued to convince me that this film is in the right hands. The trailers—I didn't watch the second trailer until after I'd seen the film. I've been really good about trailers for movies I'm eagerly anticipating. I'll watch the very first teaser, and then I won't watch anything else.
+[00:16:31] Adam: Just watching how they shot that scene, I thought, oh, this film is in good hands. They, I could see, just in the lighting of that scene, I could see at least two different bits from the original that they were calling back to with the lighting and how the lighting moved, and that was me on set one day, like watching them filming the key movie in just a few hours, and everything I've seen since then has. Continued to convince me that this film is in the right hands. The trailers - I didn't watch the second trailer until after I'd seen the film. I've been really good about trailers for movies I'm eagerly anticipating. I'll watch the very first teaser, and then I won't watch anything else.
 
 [00:17:19] Norm: And the short films.
 

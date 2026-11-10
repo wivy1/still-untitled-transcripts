@@ -142,7 +142,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:08:15] Norm: One simple trick. Yeah, yeah.
 
-[00:08:20] Will: I did do the Dalgona coffee, the Instagram coffee, the with the you use a espresso powder or instant coffee powder, equal parts coffee powder, like two tablespoons of each coffee powder, sugar, and water, and then you beat it with like a hand mixer, a stick blender, whip it for four or five minutes, and it with it froths up like whipped cream almost. Yeah, and then you put that on top of either steamed milk if you want it warm or iced milk if you want it cold, and it kind of does something. But I I feel like maybe my instant coffee had had... Look, I use the instant coffee when I make one particular chocolate cake, so it hasn't been touched in probably three years. And it was—I would describe it as prettier than it tasted.
+[00:08:20] Will: I did do the Dalgona coffee, the Instagram coffee, the with the you use a espresso powder or instant coffee powder, equal parts coffee powder, like two tablespoons of each coffee powder, sugar, and water, and then you beat it with like a hand mixer, a stick blender, whip it for four or five minutes, and it with it froths up like whipped cream almost. Yeah, and then you put that on top of either steamed milk if you want it warm or iced milk if you want it cold, and it kind of does something. But I I feel like maybe my instant coffee had had... Look, I use the instant coffee when I make one particular chocolate cake, so it hasn't been touched in probably three years. And it was - I would describe it as prettier than it tasted.
 
 [00:09:09] Adam: Interesting.
 
@@ -166,7 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:09:57] Adam: Right?
 
-[00:09:57] Norm: It's—it's a hard—it's a—it's a very precise, narrow sanding, but hard bit.
+[00:09:57] Norm: It's - it's a hard - it's a - it's a very precise, narrow sanding, but hard bit.
 
 [00:10:02] Adam: And yeah, and I I came across this on Clickspring because Chris the clockmaker uses it for. It's like after he's worked out all the mechanics of the clock, they do it. There's something it's called cutting out, crossing out. I can't remember how it's what it's called, but it's when you cut all the negative space out of a gear so it's as light as possible, right?
 
@@ -184,11 +184,11 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:13:06] Norm: Yeah, and for people listening to the audio, the vise is it's on a screw, and every part of it, from the clamp part to the mount on the screw to the handle, is something you machined.
 
-[00:13:16] Adam: Yeah, every—everything on it was just a raw chunk of metal when I began. And now it will be a hold down vise for a cool little tool I'm about to make. Awesome.
+[00:13:16] Adam: Yeah, every-everything on it was just a raw chunk of metal when I began. And now it will be a hold down vise for a cool little tool I'm about to make. Awesome.
 
 [00:13:26] Will: That's awesome. Hey, Adam, do you have opinions? I saw there was a conversation in one of the discords I'm in the other day about like desk lathes, like little like they're not like desk wood lathes, but a desk metal lathe for making small, but not like clock small parts, but for like in between stuff. Yeah, like is that yeah?
 
-[00:13:48] Adam: There are a lot of options. I have played with a couple of them. Sherline is the big player in this space, and The benefit of Sherline, Sherline, I think that's how you pronounce it, is that it's a—there's a ton of supporting material. Like if you buy the lathe, you can buy an attachment and put a mill on top of it. You can there are extra parts you can buy to make it CNC. They've just done a tremendous amount of work to support the to support it. So it's a whole system you're kind of buying into. However, for like real precision from the Sherline, from what I understand, you got to have some real machining chops. Like, and this is true of a lot of entry level machine tools, like those three in one lathe mill combos.
+[00:13:48] Adam: There are a lot of options. I have played with a couple of them. Sherline is the big player in this space, and The benefit of Sherline, Sherline, I think that's how you pronounce it, is that it's a - there's a ton of supporting material. Like if you buy the lathe, you can buy an attachment and put a mill on top of it. You can there are extra parts you can buy to make it CNC. They've just done a tremendous amount of work to support the to support it. So it's a whole system you're kind of buying into. However, for like real precision from the Sherline, from what I understand, you got to have some real machining chops. Like, and this is true of a lot of entry level machine tools, like those three in one lathe mill combos.
 
 [00:14:41] Unknown speaker (Will or Norm): Yeah.
 
@@ -224,7 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:17:01] Adam: And that one also took a lot of work to get it up to snuff, to get it to be really rigid and square and perfect.
 
-[00:17:10] Will: I I feel like when when we first started coming into your shop, there were a lot of machine tools that you didn't use that much because you—
+[00:17:10] Will: I I feel like when when we first started coming into your shop, there were a lot of machine tools that you didn't use that much because you -
 
 [00:17:17] Adam: oh yeah, well there was that series. There was a series two Bridgeport that someone was trying to give me for a long time that was like set up for CNC, and I I ended up giving it back. I didn't. That was more more machine than I needed or wanted to deal with.
 
@@ -286,13 +286,13 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:20:20] Will: Yeah, we'll ruin the market tomorrow.
 
-[00:20:24] Adam: I remember I bought my first Curta organ grinder coffee grinder calculator. I hadn't bought one. I've been ogling them for years, and then Wired asked me to do a column on things that I'd always wanted that I hadn't yet obtained, and I wrote 1,000 words on the Curta. And before it came out, I was like. Ah, I'm gonna bump the eBay price a few bucks. I better. I'm just gonna buy one now. I don't know what's my—. I don't know what the long tail of this is gonna be, but just in case this makes the this increases the market value, I'm I'm gonna buy one.
+[00:20:24] Adam: I remember I bought my first Curta organ grinder coffee grinder calculator. I hadn't bought one. I've been ogling them for years, and then Wired asked me to do a column on things that I'd always wanted that I hadn't yet obtained, and I wrote 1,000 words on the Curta. And before it came out, I was like. Ah, I'm gonna bump the eBay price a few bucks. I better. I'm just gonna buy one now. I don't know what's my -. I don't know what the long tail of this is gonna be, but just in case this makes the this increases the market value, I'm I'm gonna buy one.
 
 [00:21:00] Will: It's funny that stuff happens in such unexpected places. I remember there was, like every once in a while there'll be a video game that will let you root a console or something like that, and it's almost always some terrible like movie license tie-in like some kids title like Barbie Horse Adventures or something like that, and then the news of the hack gets released, and all of a sudden you know whether it's a Blu-ray disc that lets you hack a Blu-ray player or drive or whatever those things they go off the you know they get really expensive really fast. So
 
 [00:21:31] Adam: yeah. Um.
 
-[00:21:34] Norm: Not we're not doing a Mikey and Nicky spoiler cast this week. So I want to—
+[00:21:34] Norm: Not we're not doing a Mikey and Nicky spoiler cast this week. So I want to -
 
 [00:21:38] Adam: because I can't get with the program. I'm so sorry.
 
@@ -312,7 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:22:04] Norm: I'm all caught up. I'm there's only one episode left in the third season, which is next Sunday, and that's I'm I'm all caught up. So let's go in reverse. Let's go. Will you're just into it, right?
 
-[00:22:16] Will: Yeah, yeah. So I'm on like I'm. I probably have one episode left in the maybe two episodes left in the first season. Some the man and things have come to light with Man in Black this is the first time I've watched this because I I made it. I got honestly I got to the Maeve—the first Maeve episode the first watch through and it was so horrifically violent over and over and over again. I just I tapped out. And I'm glad I pushed through this time because it's there's a. There's a lot to think about. I'm kind of bummed that I didn't that I wasn't paying attention when it first came out when people were talking about it because I think it would have been fun to be part of that zeitgeist. But it's just it's funny. The thing that I realize as I get further into the first season, you guys are going to laugh because you know what happens. But it seems like the opening credits tell the whole story, right? Like the with the player piano and the whole thing.
+[00:22:16] Will: Yeah, yeah. So I'm on like I'm. I probably have one episode left in the maybe two episodes left in the first season. Some the man and things have come to light with Man in Black this is the first time I've watched this because I I made it. I got honestly I got to the Maeve - the first Maeve episode the first watch through and it was so horrifically violent over and over and over again. I just I tapped out. And I'm glad I pushed through this time because it's there's a. There's a lot to think about. I'm kind of bummed that I didn't that I wasn't paying attention when it first came out when people were talking about it because I think it would have been fun to be part of that zeitgeist. But it's just it's funny. The thing that I realize as I get further into the first season, you guys are going to laugh because you know what happens. But it seems like the opening credits tell the whole story, right? Like the with the player piano and the whole thing.
 
 [00:23:06] Adam: This is and the symbology of what the player piano is representing changes because the opening. I was thinking of this just last night. I was I'm on like episode seven or eight of season two, and I was watching three episodes late last night. I was thinking the same thing. The opening credits kind of beat you through the whole story.
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:26:45] Norm: I will say that the third season is departure thematically as well, where those themes are not explored, and it's more plot driven as to what happens as a consequence of the things that happen in season one and season two. And that is one of the reasons why I think season one, season two are better because it's it explores those philosophical ideas more thoroughly, and also with Anthony Hopkins and all of his like poetic exposition, you don't get that in the third season.
 
-[00:27:14] Adam: There's a type of—there's a wonderful online breakdown of Hopkins' performance of one of his scenes in the first season, and they really are able to show how Hopkins works every emotional beat of the scene into his acting. Like the great actors do, you know. They're not just servicing a character; they're weaving a whole narrative of that character for you as you're watching. And Hopkins is amazing at it.
+[00:27:14] Adam: There's a type of - there's a wonderful online breakdown of Hopkins' performance of one of his scenes in the first season, and they really are able to show how Hopkins works every emotional beat of the scene into his acting. Like the great actors do, you know. They're not just servicing a character; they're weaving a whole narrative of that character for you as you're watching. And Hopkins is amazing at it.
 
 [00:27:48] Norm: Ed Harris.
 
@@ -454,7 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:32:13] Adam: Oh my God, I'm so excited.
 
-[00:32:15] Norm: I did watch Philadelphia Story first, but His Girl Friday, which is itself is a remake, and I don't want to go too far into it if we're gonna do a spoiler cast about it. But it is—it's perfect for right now.
+[00:32:15] Norm: I did watch Philadelphia Story first, but His Girl Friday, which is itself is a remake, and I don't want to go too far into it if we're gonna do a spoiler cast about it. But it is - it's perfect for right now.
 
 [00:32:25] Will: Excellent. Have you on the weird Cary Grant made a boatload of movies, but one of my favorite obscure weird ones is called Walk, Don't Run, which is like a pure. It's a Kind of farcical comedy where he plays a speed walker who's in the I think 1960 Tokyo Olympics.
 

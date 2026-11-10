@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:10:12] Will: It it was there's a very very much a very bad things it's it's I think it's less dark than very bad things it's more cartoony
 
-[00:10:18] Norm: and she was also in a very similar movie called The Babysitter yeah where she—although she's one of the murderers but also very tongue in cheek horror comedy
+[00:10:18] Norm: and she was also in a very similar movie called The Babysitter yeah where she - although she's one of the murderers but also very tongue in cheek horror comedy
 
 [00:10:26] Adam: so I'll say that while I found the film entertaining it has a late third act turn in which somebody who's been unassailably good up till that moment turns immediately bad on a dime
 
@@ -596,7 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:19:28] Adam: and lining them up. So, but there is always something you don't expect. Like you'll turn off the water, and you think it's only going to be for 10 minutes. But as you are trying to undo the spigot that you are about to replace on the system, the nipple holding it on cracks, and all of a sudden you have to pull out the welder and weld the thing to that, and then spray some Kroil on there and let it soak for an hour, and then you can hit it with a mallet and slowly you start to like I've been there with all of that stuff, and that's what you pay an expert for. They can see those mistakes before, before you cause them, and they also go to the hardware store once, whereas every home plumber goes to the hardware store like seven times for any repair, no matter how small.
 
-[00:20:09] Will: Well, so my all-time worst—I've made a bad mistake plumbing error was the night before Thanksgiving. We had. I think 20 people coming that year, so we had a table set up in the backyard for a bazillion people, and we, an unnamed person in our family, ran a bunch of potato peels down the garbage disposal, and the potato.
+[00:20:09] Will: Well, so my all-time worst - I've made a bad mistake plumbing error was the night before Thanksgiving. We had. I think 20 people coming that year, so we had a table set up in the backyard for a bazillion people, and we, an unnamed person in our family, ran a bunch of potato peels down the garbage disposal, and the potato.
 
 [00:20:30] Adam: Is that bad?
 
@@ -702,7 +702,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:24:28] Adam: and I think we went through 40 to pick up all the water.
 
-[00:24:31] Will: 2,000 square feet of two inches of water—that is an unbelievable amount of water.
+[00:24:31] Will: 2,000 square feet of two inches of water - that is an unbelievable amount of water.
 
 [00:24:34] Adam: And running into the like, I'm shoving rags to keep it from running down the hole into the clothing. And they're banging on the door, and we're like, " We're sorry." Oh, that was
 
@@ -872,7 +872,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:31:29] Adam: Yeah, because what have we been doing the last few years, but just covering wonderful innovations by all sorts of different people working in their shops across the country. It's time to like codify more and more of that sharing of information.
 
-[00:31:42] Norm: I love that. Yeah. Before we wrap, I want to give one more shout out. We were there in Wellington for a full week, and we only got basically one day—the last day before we left—to do a little bit of walking around. And we stayed at a hotel that's very close to the Te Papa Museum, and the Te Papa Museum is highly recommended, as always. They have the scale of our War Gallipoli exhibit, which is, I believe, running at least through 2023.
+[00:31:42] Norm: I love that. Yeah. Before we wrap, I want to give one more shout out. We were there in Wellington for a full week, and we only got basically one day - the last day before we left - to do a little bit of walking around. And we stayed at a hotel that's very close to the Te Papa Museum, and the Te Papa Museum is highly recommended, as always. They have the scale of our War Gallipoli exhibit, which is, I believe, running at least through 2023.
 
 [00:32:03] Unknown speaker (Adam or Will): Yep.
 

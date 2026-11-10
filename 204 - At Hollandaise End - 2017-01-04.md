@@ -640,7 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:25:40] Will: Well, there's a difference between melodrama and drama, right?
 
-[00:25:40] Norm: Yeah, I really also liked that at the end of the documentary, they didn't go and say, " Okay, this thing happened 20 years ago, and this is all everything that built up in L.A. and look, it's happening again." Like they didn't need to explicitly say that. It was about at the end about the case and about OJ Simpson, and you can the parallels that you can draw today—they're there, but they don't need to be explicitly said.
+[00:25:40] Norm: Yeah, I really also liked that at the end of the documentary, they didn't go and say, " Okay, this thing happened 20 years ago, and this is all everything that built up in L.A. and look, it's happening again." Like they didn't need to explicitly say that. It was about at the end about the case and about OJ Simpson, and you can the parallels that you can draw today - they're there, but they don't need to be explicitly said.
 
 [00:26:04] Adam: No, they don't. And in fact, post the denouement of OJ's final conviction for armed robbery and kidnapping,
 

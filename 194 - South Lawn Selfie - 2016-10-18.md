@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=F0gwCt2YBbk
 
 [00:04:53] Norm: All right,
 
-[00:04:53] Adam: Grand Central. And no longer can you do that. Post 9/11, my ex-wife and I—that was one of the ways we would do stuff because you, if you take a red eye, anyway,
+[00:04:53] Adam: Grand Central. And no longer can you do that. Post 9/11, my ex-wife and I - that was one of the ways we would do stuff because you, if you take a red eye, anyway,
 
 [00:05:03] Will: we've done that. Norm and I had to call a friend one morning at seven o'clock in the morning and say, " Hey, uh, we got into our red. We got here early on the red eye. Oh, you weren't there, Norm. It was Joey and me.
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=F0gwCt2YBbk
 
 [00:14:01] Norm: Yeah,
 
-[00:14:01] Adam: so the Kids being freaked out by me being there—that disappeared very quickly and just became this wonderful group effort of stapling and sanding and gluing and painting and eating pizza. I mean, it was incredible.
+[00:14:01] Adam: so the Kids being freaked out by me being there - that disappeared very quickly and just became this wonderful group effort of stapling and sanding and gluing and painting and eating pizza. I mean, it was incredible.
 
 [00:14:13] Norm: It was like a pop-up makerspace.
 
@@ -396,7 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=F0gwCt2YBbk
 
 [00:20:32] Will: Because I I could definitely use a sewing machine twice a year,
 
-[00:20:36] Adam: absolutely. And to me, that kind of giving the citizenry the ability to expand a little bit without having to use up their own space—it's that public space where they can go expand their minds and expand their abilities—is just brilliant.
+[00:20:36] Adam: absolutely. And to me, that kind of giving the citizenry the ability to expand a little bit without having to use up their own space - it's that public space where they can go expand their minds and expand their abilities - is just brilliant.
 
 [00:20:51] Norm: Instead of coin checks, library card checks.
 

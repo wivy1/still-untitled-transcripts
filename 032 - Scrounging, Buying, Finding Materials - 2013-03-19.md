@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=4NmM7zGhLuk
 
 [00:03:43] Will: And it turns out you'll find garage sales.
 
-[00:03:45] Adam: Yeah. And—
+[00:03:45] Adam: Yeah. And -
 
 [00:03:46] Will: especially in the summer,
 
@@ -216,7 +216,7 @@ Episode URL: https://www.youtube.com/watch?v=4NmM7zGhLuk
 
 [00:08:28] Will: Oh, like a like go to the junkyard.
 
-[00:08:31] Adam: Yeah. You so so I, again, I'm not sure how many there are in other cities, but in San Francisco there's a couple in San Francisco. There's a couple out in the East Bay out on Hegenberger Road. And when I had my Volvo, that's where I was buying new window motors and stuff. But when you're making robots, R2-D2 here is pow—was powered at one point by a couple of window motors in his feet.
+[00:08:31] Adam: Yeah. You so so I, again, I'm not sure how many there are in other cities, but in San Francisco there's a couple in San Francisco. There's a couple out in the East Bay out on Hegenberger Road. And when I had my Volvo, that's where I was buying new window motors and stuff. But when you're making robots, R2-D2 here is pow- was powered at one point by a couple of window motors in his feet.
 
 [00:08:45] Unknown speaker: Yeah.
 
@@ -526,11 +526,11 @@ Episode URL: https://www.youtube.com/watch?v=4NmM7zGhLuk
 
 [00:23:36] Will: Radio Shack is up and down depending on the one you have.
 
-[00:23:41] Adam: Radio Shack, my my whole. I want to—no, I want to love Radio Shack. I have a troubled relationship with them. It's like, I need, you go to their website, "Oh, okay, they say SP 105. That's what I need." You go to you go to Radio Shack. "I got the SP 104. We got the SP 106. We don't have the SP 105," or, "We do have the SP 105. How many do you need?" "I need four." "Well, we've got three."
+[00:23:41] Adam: Radio Shack, my my whole. I want to - no, I want to love Radio Shack. I have a troubled relationship with them. It's like, I need, you go to their website, "Oh, okay, they say SP 105. That's what I need." You go to you go to Radio Shack. "I got the SP 104. We got the SP 106. We don't have the SP 105," or, "We do have the SP 105. How many do you need?" "I need four." "Well, we've got three."
 
 [00:24:04] Will: The thing about Radio Shack, though, is if you need an Arduino and you need it tomorrow, you can probably find a Radio Shack in your area that will have an Arduino now.
 
-[00:24:14] Adam: I did not realize they—
+[00:24:14] Adam: I did not realize they -
 
 [00:24:15] Will: So yeah, they like they took all that stuff out for a while and then they kind of brought a little bit of circuit stuff and LEDs and Arduino stuff back.
 

@@ -62,7 +62,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:01:46] Joe: Yeah, absolutely. I mean, I I admire the scientists that can really drill down and work on one little thing for 40 years. I mean, there's an important place for those kind of people, but I just get interested in a lot of different things. You know, if someone sends me a dead corvid. I'm gonna work on it.
 
-[00:02:02] Adam: That's exactly my thing. I love dead cor— I actually i love live corvids, but if I can find an old dead one, I certainly will remount it.
+[00:02:02] Adam: That's exactly my thing. I love dead cor- I actually i love live corvids, but if I can find an old dead one, I certainly will remount it.
 
 [00:02:08] Will: It's really funny you say that because the common wisdom. I'm a little younger than you guys, I think. But when I was an undergraduate, I got a biochemistry degree, and my advisor was like, " Hey, what are you gonna do with this? I was like, maybe I'll go to med school. I don't know. Maybe I'll get a master’s. He's like, " Well, look, you have to decide now because if you're gonna go, if you don't bother with a master's, you're just gonna end up sucking pipettes someplace." I was like, " This is incredibly frank advice from a college professor," and I was like, " I really like learning a lot, a little bit about a lot of stuff." He's like, " Well, then don't go into hard science. You need to go go to business school, get an MBA or something like that." What
 
@@ -120,7 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:06:14] Adam: It makes them the audience member of an air supply concert.
 
-[00:06:16] Joe: And to be technical—
+[00:06:16] Joe: And to be technical -
 
 [00:06:16] Will: I was gonna say fish, but okay.
 
@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:07:04] Will: Okay,
 
-[00:07:05] Joe: that’s going to get you all kinds of—
+[00:07:05] Joe: that’s going to get you all kinds of -
 
 [00:07:05] Will: we don't want any IBD videos. No.
 
@@ -322,13 +322,13 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:13:35] Joe: Unless it's bad. So. Yeah, it's and we
 
-[00:13:38] Adam: [at the brain is fairly / the moment at the brain is very—wording uncertain].
+[00:13:38] Adam: [at the brain is fairly / the moment at the brain is very - wording uncertain].
 
 [00:13:40] Will: Your brain biome is pretty should be pretty pretty minimal.
 
 [00:13:44] Joe: Absolutely, you know, that's a really important point. There's arguments over this right now. So there's a microbiome in your gut. There's a microbiome in your lungs, on your skin. There's no damn microbiome in your central nervous system.
 
-[00:13:53] Will: Or—
+[00:13:53] Will: Or -
 
 [00:13:54] Joe: No, we've looked.
 
@@ -420,7 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:17:08] Joe: Yeah.
 
-[00:17:08] Will: Then the doctor looks at the rash and they're like, " Ah, this one—it's probably not lupus.
+[00:17:08] Will: Then the doctor looks at the rash and they're like, " Ah, this one - it's probably not lupus.
 
 [00:17:12] Joe: Or I guess it's this.
 
@@ -510,7 +510,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:21:03] Will: Oh,
 
-[00:21:03] Joe: which is pretty cool. We bought them just because they're—
+[00:21:03] Joe: which is pretty cool. We bought them just because they're -
 
 [00:21:06] Unknown (Adam or Will): One penny.
 
@@ -554,7 +554,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:22:31] Joe: Yeah, it's a really cool study in architecture and how you do those things. So we got a bunch of these boas and pythons and tested them to make sure they were clean, and then went over there to inject them with virus. Do you know how you inject virus in a boa?
 
-[00:22:46] Will: I like—do you have to hit the CSF?
+[00:22:46] Will: I like - do you have to hit the CSF?
 
 [00:22:47] Joe: Not hypodermically. Probably hasn’t come up on this podcast.
 
@@ -810,7 +810,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:30:50] Will: I don't. Doesn't sound like much like science fiction.
 
-[00:30:52] Unknown (Adam or Joe): My answer to fault—[unclear: attention], John Scalzi.
+[00:30:52] Unknown (Adam or Joe): My answer to fault - [unclear: attention], John Scalzi.
 
 [00:30:55] Joe: My answer to fault scenario five was Run.
 
@@ -822,7 +822,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:31:03] Adam: Well, how about we get cages with no holes?
 
-[00:31:05] Joe: Okay, I think —
+[00:31:05] Joe: Okay, I think -
 
 [00:31:06] Will: You apply for a job at the CDC.
 
@@ -924,7 +924,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:33:55] Adam: Hey, so if you're a tested listener and you have snake breeding farm, stop it. I'm just gonna go on and say cut that shit out
 
-[00:34:02] Joe: Or Test your snakes for IBD, arenavirus, and [unclear: call or cull] the ones— So,
+[00:34:02] Joe: Or Test your snakes for IBD, arenavirus, and [unclear: call or cull] the ones - So,
 
 [00:34:05] Will: so then, sorry, Adam.
 
@@ -1204,7 +1204,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:46:17] Adam: Yeah.
 
-[00:46:17] Joe: This guy was a construction worker, immigrated from Nicaragua, works in construction, and came into our clinics here in general again, San Francisco, with double vision and headache. So, double vision is always a concern because you know your cranial nerves are the things that control your motion, the eyeball motion. And if you have meningitis, so infection infection of the covering of the brain, it can knock out cranial nerves, and then your eyes don't turn the right way. So that was a concern there. They did a lumbar puncture, take a little CSF, cerebral spinal fluid, and count how many cells are in there. Usually, it's zero to five. This guy has hundreds of cells, so there's something inflammatory going on in there. And based on his history and his MRIs and everything, they're like, all right, there's got to be TB. So they put him on TB drugs for tuberculosis. They all come with steroids. That's important to manage the inflammation. But steroids, anybody who takes steroids like prednisone feels better. For a while, and this guy feels better for a while, and they wean him off the steroids, and he gets much worse. He starts vomiting, and his face is numb, and he starts ringing the ears. So they put him back on steroids, and put him back on the TB meds. And you must be not taking your meds—that's what's wrong. You're non-compliant. So they make him come in after work and take his meds in front of a nurse every day.
+[00:46:17] Joe: This guy was a construction worker, immigrated from Nicaragua, works in construction, and came into our clinics here in general again, San Francisco, with double vision and headache. So, double vision is always a concern because you know your cranial nerves are the things that control your motion, the eyeball motion. And if you have meningitis, so infection infection of the covering of the brain, it can knock out cranial nerves, and then your eyes don't turn the right way. So that was a concern there. They did a lumbar puncture, take a little CSF, cerebral spinal fluid, and count how many cells are in there. Usually, it's zero to five. This guy has hundreds of cells, so there's something inflammatory going on in there. And based on his history and his MRIs and everything, they're like, all right, there's got to be TB. So they put him on TB drugs for tuberculosis. They all come with steroids. That's important to manage the inflammation. But steroids, anybody who takes steroids like prednisone feels better. For a while, and this guy feels better for a while, and they wean him off the steroids, and he gets much worse. He starts vomiting, and his face is numb, and he starts ringing the ears. So they put him back on steroids, and put him back on the TB meds. And you must be not taking your meds - that's what's wrong. You're non-compliant. So they make him come in after work and take his meds in front of a nurse every day.
 
 [00:47:33] Adam: Wow,
 
@@ -1212,7 +1212,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:47:35] Adam: Yeah, yeah, yeah.
 
-[00:47:35] Joe: But he doesn't get better, and he gets worse and worse. And now his brainstem is inflamed, and by the time that the sample got to us, he was in super bad shape. Glucose and proteins—another measure of health in the CSF. High protein means bad things are happening, and low glucose means bad things are happening. Usually, low glucose because something else is eating it besides your brain.
+[00:47:35] Joe: But he doesn't get better, and he gets worse and worse. And now his brainstem is inflamed, and by the time that the sample got to us, he was in super bad shape. Glucose and proteins - another measure of health in the CSF. High protein means bad things are happening, and low glucose means bad things are happening. Usually, low glucose because something else is eating it besides your brain.
 
 [00:47:58] Adam: Oh wow!
 
@@ -1222,7 +1222,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:48:22] Will: So where was he? Where was he before?
 
-[00:48:23] Unknown (Joe or Will): [He’s from Nicaragua / He’s got a microcancer degree—wording uncertain].
+[00:48:23] Unknown (Joe or Will): [He’s from Nicaragua / He’s got a microcancer degree - wording uncertain].
 
 [00:48:23] Will: Yeah, but it's 20 years old. It's useless.
 
@@ -1308,7 +1308,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:50:38] Joe: against tapeworm. So it's actually treatable.
 
-[00:50:40] Will: Well, that's good. Didn’t you—
+[00:50:40] Will: Well, that's good. Didn’t you -
 
 [00:50:41] Joe: absolutely treatable. And so imagine the discussion with the patient, and I wasn't there, but I can imagine it too. I've got good news and bad news. Which do you want first?
 
@@ -1380,7 +1380,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:53:23] Will: Right.
 
-[00:53:23] Joe: And so, you know, the science fiction story of the 1 million-year-old virus thawing and then immediately being able to infect a human—I'm not so sure about that.
+[00:53:23] Joe: And so, you know, the science fiction story of the 1 million-year-old virus thawing and then immediately being able to infect a human - I'm not so sure about that.
 
 [00:53:33] Adam: After, after, so this is the big philosophical question. Do you end up feeling? I look at the tenacity of these organisms, and that fascinates me. And it joins this other part of fascination I have for extremophiles that you look at the most hostile places on Earth, and you're going to find it teeming with life.
 
@@ -1424,7 +1424,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:55:09] Adam: What is your latest obsession, Joe?
 
-[00:55:11] Joe: So you know this idea of using an unbiased approach, a data-driven approach to capture things—that's great. You live in you know California or the United States, you can send a sample there. I mean, that's well and fine. And it's kind of a you know, it is an expensive test. It's not going to be a cheap diagnostic that can go around the world. But
+[00:55:11] Joe: So you know this idea of using an unbiased approach, a data-driven approach to capture things - that's great. You live in you know California or the United States, you can send a sample there. I mean, that's well and fine. And it's kind of a you know, it is an expensive test. It's not going to be a cheap diagnostic that can go around the world. But
 
 [00:55:28] Will: like, I had a face rash a few years ago, and we spent $10,000.
 
@@ -1536,7 +1536,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:58:40] Will: Oh, because it makes girls sterile, right?
 
-[00:58:41] Joe: Well, so— congenital birth defects.
+[00:58:41] Joe: Well, so - congenital birth defects.
 
 [00:58:43] Will: Okay.
 
@@ -1554,7 +1554,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:59:16] Will: That's exciting.
 
-[00:59:17] Joe: Oh, but wait—is that true or not? I mean, that's kind of an outrageous proposition. You're saying that the virus was replicating for 21 years in this guy's eyeball. Well, it turns out we can actually prove it. So we took the virus out, we sequenced his whole genome, and because those viruses that you know the replication machinery for those viruses make errors with a predefined frequency.
+[00:59:17] Joe: Oh, but wait - is that true or not? I mean, that's kind of an outrageous proposition. You're saying that the virus was replicating for 21 years in this guy's eyeball. Well, it turns out we can actually prove it. So we took the virus out, we sequenced his whole genome, and because those viruses that you know the replication machinery for those viruses make errors with a predefined frequency.
 
 [00:59:37] Will: Oh, yeah. How long they've been there?
 
@@ -1652,7 +1652,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [01:05:16] Will: Right, right, right,
 
-[01:05:18] Joe: right. That's the interesting part. We can get at that really quick without any interpretation. Balamuthia in the brain—that's pretty clear.
+[01:05:18] Joe: right. That's the interesting part. We can get at that really quick without any interpretation. Balamuthia in the brain - that's pretty clear.
 
 [01:05:22] Will: No privacy implications from scanning the Balamuthia in the brain, right?
 
@@ -1742,7 +1742,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [01:09:00] Will: That's really really cool, Joe.
 
-[01:09:02] Joe: So that's the big—
+[01:09:02] Joe: So that's the big -
 
 [01:09:03] Adam: Joe, I thank you for being.
 

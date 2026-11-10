@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:10:26] Norm: Thread closed.
 
-[00:10:27] Adam: I will tell you that there is one thing I have not yet been able to solve via YouTube, which is the house we bought here in the Mission District had been renovated by a wonderful designer, and he had used these super advanced Grohe faucets in the showers, and these are single hands and they temperature controls and they're beautiful, but [unclear: they’re so / they’re not. they’re so] they're ludicrously complex. And at some point about. Probably five six years ago, we had some issue with our water heater, and a plumber came by and said, " Oh, you know, I could do a power flush of this water heater, and then you won't have to replace it." And he did this sort of—I don't know what he did—but some sort of concussive water hammer thing to it. And what it ended up doing was sending rust particles out to the screen traps of every goddamn faucet in my house. And it didn't affect most of the faucets, but it absolutely slayed the two Grohe faucets. And so now, I—he tried to fix it. He made it so much worse because this is a crazy complex system where you literally should be using a temperature probe and adjusting a screw in order to get the differential. And so then I went onto YouTube and I looked at a here is a professional taking apart a Grohe, putting it back together, and it still didn't work. And I am still in the throes. I eventually had to set the hottest heat of my water heater to just what I can stand in a bath.
+[00:10:27] Adam: I will tell you that there is one thing I have not yet been able to solve via YouTube, which is the house we bought here in the Mission District had been renovated by a wonderful designer, and he had used these super advanced Grohe faucets in the showers, and these are single hands and they temperature controls and they're beautiful, but [unclear: they’re so / they’re not. they’re so] they're ludicrously complex. And at some point about. Probably five six years ago, we had some issue with our water heater, and a plumber came by and said, " Oh, you know, I could do a power flush of this water heater, and then you won't have to replace it." And he did this sort of - I don't know what he did - but some sort of concussive water hammer thing to it. And what it ended up doing was sending rust particles out to the screen traps of every goddamn faucet in my house. And it didn't affect most of the faucets, but it absolutely slayed the two Grohe faucets. And so now, I - he tried to fix it. He made it so much worse because this is a crazy complex system where you literally should be using a temperature probe and adjusting a screw in order to get the differential. And so then I went onto YouTube and I looked at a here is a professional taking apart a Grohe, putting it back together, and it still didn't work. And I am still in the throes. I eventually had to set the hottest heat of my water heater to just what I can stand in a bath.
 
 [00:11:52] Kevin: [unclear: Right. Right. Right / Right. Right],
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:28:46] Kevin: Yeah, that’s really good. So, will you be talking? You know what you're going to talk about? at Maker Faire.
 
-[00:28:50] Adam: I I don't. And this is—I've given lots of different talks, and actually, I don't know if I've credited you with this on this podcast, but you are my gateway drug to giving talks, Kevin. For the longest time, I would do public speaking. I did it for ILM, and then I was doing it for MythBusters. But it was mostly as a—you know—oh, here we go. This is a gig. I'll do this kind of talk. [unclear: And then / Yeah. Yeah. Yeah] we were at an IDEO quickie where people give quick eight-minute presentations, and I gave one [unclear: in / of] the Maltese Falcon. And I came down, and you said that was great. You should workshop that.
+[00:28:50] Adam: I I don't. And this is - I've given lots of different talks, and actually, I don't know if I've credited you with this on this podcast, but you are my gateway drug to giving talks, Kevin. For the longest time, I would do public speaking. I did it for ILM, and then I was doing it for MythBusters. But it was mostly as a - you know - oh, here we go. This is a gig. I'll do this kind of talk. [unclear: And then / Yeah. Yeah. Yeah] we were at an IDEO quickie where people give quick eight-minute presentations, and I gave one [unclear: in / of] the Maltese Falcon. And I came down, and you said that was great. You should workshop that.
 
 [00:29:23] Kevin: Right.
 
@@ -486,7 +486,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:31:53] Norm: Yeah, there's there's one corner there.
 
-[00:31:53] Kevin: Yeah, yeah, Soft goods are—
+[00:31:53] Kevin: Yeah, yeah, Soft goods are -
 
 [00:32:00] Norm: felting,
 

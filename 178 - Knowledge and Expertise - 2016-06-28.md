@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:07:47] Adam: Exactly, and even down to in the U.S., there's a cultural thing that we do when someone says, " I've never seen Blade Runner," and you you go like this: " Really? Oh, yeah." And you go, " You've never seen Blade Runner." You make them say it again, which is in and of itself a little bit aggressive, right? You're actually, you know what it's like when someone says, " Let me put it this way." You're doing a project, and you tell someone, " We're going to do this this way," and they go, " Okay." Do you really want to do it this way? And you're like, " Really? You're going to make me say it again?" And that's that's it's that it's aggressive.
 
-[00:08:22] Simone: It is, and I think like—
+[00:08:22] Simone: It is, and I think like -
 
 [00:08:23] Adam: to make you say it again.
 
@@ -568,7 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:27:59] Simone: Yeah, it's going to feel weird. It's not going to feel like a real character,
 
-[00:28:01] Adam: right? But in television, you do have that in long form format—12 hours to tell a story. You do have the luxury of doing that. Like a great example of that are the, wow, the Helen Mirren series where she plays a detective on the BBC
+[00:28:01] Adam: right? But in television, you do have that in long form format - 12 hours to tell a story. You do have the luxury of doing that. Like a great example of that are the, wow, the Helen Mirren series where she plays a detective on the BBC
 
 [00:28:17] Norm: I haven’t seen it.
 

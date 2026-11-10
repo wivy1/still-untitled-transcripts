@@ -442,7 +442,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:21:13] Norm: Yeah.
 
-[00:21:13] Adam: That shot of Martin Sheen coming out of the water is literally—I can tell you—it's the shot that made me fall in love with film as an art form at 17. I was like, " What is happening?"
+[00:21:13] Adam: That shot of Martin Sheen coming out of the water is literally - I can tell you - it's the shot that made me fall in love with film as an art form at 17. I was like, " What is happening?"
 
 [00:21:25] Jeremy Williams: For me, that was Dream a Little Dream, a Corey Haim, Corey Feldman flick.
 
@@ -452,7 +452,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:21:34] Adam: Wow.
 
-[00:21:34] Jeremy Williams: Yeah, they just had artsy artsy scenes in that film. You know, when they did the Redux of Apocalypse Now, I I thought, how in the world can they make an old film look this good? But the smoke that they, the color of the smoke that they made from—I don't know how they could recreate that from the negatives. But wow, does that film look good now?
+[00:21:34] Jeremy Williams: Yeah, they just had artsy artsy scenes in that film. You know, when they did the Redux of Apocalypse Now, I I thought, how in the world can they make an old film look this good? But the smoke that they, the color of the smoke that they made from - I don't know how they could recreate that from the negatives. But wow, does that film look good now?
 
 [00:21:55] Adam: The new master is we watched not the Redux but the color of what we were watching was incredible.
 
@@ -600,7 +600,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:28:03] Adam: Very exciting,
 
-[00:28:03] Norm: and. For our premium members, we are building a model kit this week—a papercraft model kit from a Studio Ghibli film. So you can check that out. Also,
+[00:28:03] Norm: and. For our premium members, we are building a model kit this week - a papercraft model kit from a Studio Ghibli film. So you can check that out. Also,
 
 [00:28:13] Adam: so exciting!
 

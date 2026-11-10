@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:14:18] Norm: He does.
 
-[00:14:18] Will: Like that—that amount of filmmaking in the first 40 seconds of that movie, like it's like, hey, here's some story. Some shit's gone down for Hawkeye, man. Clint's had a bad couple of months,
+[00:14:18] Will: Like that - that amount of filmmaking in the first 40 seconds of that movie, like it's like, hey, here's some story. Some shit's gone down for Hawkeye, man. Clint's had a bad couple of months,
 
 [00:14:29] Norm: but already immediately, tonally, it's grounded.
 
@@ -1018,7 +1018,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:36:42] Will: Fortnite. They're out of pizza rolls.
 
-[00:36:44] Adam: They’re yelling at the—.
+[00:36:44] Adam: They’re yelling at the -.
 
 [00:36:44] Will: The Cinemax is out. Do you have the is the like you get that he has not taken the loss to the end.
 
@@ -1092,7 +1092,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:38:41] Will: I love that they say Back to the Future rules are bullshit, and then they completely do the Back to the Future thing and put all the people in their pasts where they have to like avoid interacting with their past selves. It's absolutely lovely.
 
-[00:38:53] Adam: I thought it was hilarious. Again, this is part of what we were talking about—the walk down memory lane of all the Marvel films. I thought it was hilarious to go spend so much time with. Cap in what I think is my least favorite of Captain America's uniforms, the Avengers uniform,
+[00:38:53] Adam: I thought it was hilarious. Again, this is part of what we were talking about - the walk down memory lane of all the Marvel films. I thought it was hilarious to go spend so much time with. Cap in what I think is my least favorite of Captain America's uniforms, the Avengers uniform,
 
 [00:39:06] Norm: yeah,
 
@@ -1238,7 +1238,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:43:00] Will: This, yeah, like so up until this point, surprisingly not very punchy movie. Like we used to. I remember when.
 
-[00:43:07] Adam: Yeah. No, a lot of stor—, a lot of groundwork being laid
+[00:43:07] Adam: Yeah. No, a lot of stor-, a lot of groundwork being laid
 
 [00:43:10] Will: and people talking.
 

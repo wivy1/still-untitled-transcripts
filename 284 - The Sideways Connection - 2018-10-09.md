@@ -24,7 +24,7 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:00:26] Adam: Like last night, we were on the same plane with Charlie Jane Anders and Annalee Newitz, which was awesome. Although I felt like I'd wasted my extra hour in the airport, not knowing that they were that you guys were all there, we could have been hanging out.
 
-[00:00:39] Norm: I had no idea you were on the flight either. And Annalee and I were we didn't get a chance to see each other at the con, so it was of course at the airport we were both flying back to San Francisco. All three of us were. Where she was telling me a history of Gojira, Godzilla in film, and like it was, I was just listening for like 20 minutes intensely because I had no idea about all these stories, and then suddenly you walk up. And the thing that goes off my head—that looks like Adam's hat.
+[00:00:39] Norm: I had no idea you were on the flight either. And Annalee and I were we didn't get a chance to see each other at the con, so it was of course at the airport we were both flying back to San Francisco. All three of us were. Where she was telling me a history of Gojira, Godzilla in film, and like it was, I was just listening for like 20 minutes intensely because I had no idea about all these stories, and then suddenly you walk up. And the thing that goes off my head - that looks like Adam's hat.
 
 [00:01:09] Adam: Hilarious.
 
@@ -116,7 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:08:55] Adam: Oh, then I'm really curious about your experience of it.
 
-[00:08:58] Kishore: My experience—I think it was mixed in the sense that it's an overwhelming experience. It took me a day to figure out where everything was.
+[00:08:58] Kishore: My experience - I think it was mixed in the sense that it's an overwhelming experience. It took me a day to figure out where everything was.
 
 [00:09:11] Adam: Yeah,
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:13:43] Kishore: Does any part of you get jaded after going to so many Comic Cons about just like the wealth of costumes?
 
-[00:13:49] Adam: No, in fact, at one point, well, as we were walking away, and we covered this on my Twitter feed, I ran into a Doctor Strange. And his partner, and she was his cloak. She wore the cloak. It was amazing, and we sat and talked about it for a while. I wanted to know where he had gotten his cloak because I have a Doctor Strange I've been putting together for a while. And then later on at the con, I saw another Doctor Strange like rushing somewhere. And you see this all the time: someone in a super elaborate costume with makeup, but they're not paying attention at all to the fact that they're in costume. They're on their way to deal with some bit of their life, and they're a little stressed. And stress and heat and sweat—it's all part and parcel to the process. And every time I see it kind of makes me happy. And it's not like I'm happy about someone's stress. I'm just happy that there's a way in which they're all the way in the beast, and I get that. And I kind of love, like I've said this before, I love looking at like the people picking at their costumes because it's uncomfortable to costume. There's nothing that's like relaxing about it, really. It's the transformation is delightful and important and all of that, but it takes a real commitment.
+[00:13:49] Adam: No, in fact, at one point, well, as we were walking away, and we covered this on my Twitter feed, I ran into a Doctor Strange. And his partner, and she was his cloak. She wore the cloak. It was amazing, and we sat and talked about it for a while. I wanted to know where he had gotten his cloak because I have a Doctor Strange I've been putting together for a while. And then later on at the con, I saw another Doctor Strange like rushing somewhere. And you see this all the time: someone in a super elaborate costume with makeup, but they're not paying attention at all to the fact that they're in costume. They're on their way to deal with some bit of their life, and they're a little stressed. And stress and heat and sweat - it's all part and parcel to the process. And every time I see it kind of makes me happy. And it's not like I'm happy about someone's stress. I'm just happy that there's a way in which they're all the way in the beast, and I get that. And I kind of love, like I've said this before, I love looking at like the people picking at their costumes because it's uncomfortable to costume. There's nothing that's like relaxing about it, really. It's the transformation is delightful and important and all of that, but it takes a real commitment.
 
 [00:14:55] Kishore: I asked partially because I caught myself getting a little jaded oh.
 
@@ -268,11 +268,11 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:22:55] Adam: and with top-notch styrene construction, the same styrene type of construction that I did the one-day build recently on Tested. She did this for a whole Metal Gear giant headpiece, which is, I mean, she's young, so she'll recover. But it's really hard on your neck and your body to have a large thing. I discovered that with No-Face behind me,
 
-[00:23:16] Norm: and it was awesome because there was a moment when I was going to take a photo of her in costume, and it looked great already. But she was still adjusting the tiny things because those are the tiny things that matter—the placement of the scarf, the gloves.
+[00:23:16] Norm: and it was awesome because there was a moment when I was going to take a photo of her in costume, and it looked great already. But she was still adjusting the tiny things because those are the tiny things that matter - the placement of the scarf, the gloves.
 
 [00:23:28] Kishore: You pointed out the scarf was really well thought through and draped,
 
-[00:23:32] Adam: and actually every last bit of her costume—from the bullet belt to the leather jacket and the way it was tucked in—you're absolutely right. She had crawled over every last detail, and that that just it never gets old. I met Jane. I met one of my favorite humans. I met Jenny Slate. In the green room upstairs, you might know Jenny Slate from Marcel the Shell. My wife and I are big fans of a film she made a few years ago called Obvious Child. A really amazing. If you want, if you think the romantic comedy is dead because, well, we haven't had a good one in a long time, I I would exhort you to watch Obvious Child. It is a an affecting, and intense, and beautiful, and really sweet romantic comedy. And I got to see her and say, " I love you. I think you're amazing. All success to you. Okay, bye." I didn't even ask for a selfie.
+[00:23:32] Adam: and actually every last bit of her costume - from the bullet belt to the leather jacket and the way it was tucked in - you're absolutely right. She had crawled over every last detail, and that that just it never gets old. I met Jane. I met one of my favorite humans. I met Jenny Slate. In the green room upstairs, you might know Jenny Slate from Marcel the Shell. My wife and I are big fans of a film she made a few years ago called Obvious Child. A really amazing. If you want, if you think the romantic comedy is dead because, well, we haven't had a good one in a long time, I I would exhort you to watch Obvious Child. It is a an affecting, and intense, and beautiful, and really sweet romantic comedy. And I got to see her and say, " I love you. I think you're amazing. All success to you. Okay, bye." I didn't even ask for a selfie.
 
 [00:24:24] Kishore: I wonder, does she have like a project that's like in the Comic Con realm?
 

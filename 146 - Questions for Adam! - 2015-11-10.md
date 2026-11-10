@@ -58,7 +58,7 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:02:52] Norm: Flight.
 
-[00:02:53] Adam: So then you just. Think of—I start to think about all the things about what it's like to be a different kind of animal, right? Like we move around the world, we understand the topology, topography of our world. We have proprioception and situational awareness, and so does a shark. But in the open ocean, it's a completely different awareness than we have. There's warmth, there's cold, there's currents, and all of this is information to it that is a landscape,
+[00:02:53] Adam: So then you just. Think of - I start to think about all the things about what it's like to be a different kind of animal, right? Like we move around the world, we understand the topology, topography of our world. We have proprioception and situational awareness, and so does a shark. But in the open ocean, it's a completely different awareness than we have. There's warmth, there's cold, there's currents, and all of this is information to it that is a landscape,
 
 [00:03:16] Will: yeah,
 
@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:03:42] Adam: How does he control whales? They're mammals.
 
-[00:03:44] Will: Yeah, he, he's—
+[00:03:44] Will: Yeah, he, he's -
 
 [00:03:45] Norm: it's not just fish. I mean, it's through the currents.
 

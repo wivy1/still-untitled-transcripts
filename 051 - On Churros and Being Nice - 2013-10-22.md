@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=-PUN4kjq8RQ
 
 [00:07:25] Will: But, on people's understanding of the original.
 
-[00:07:27] Norm: But only on people who already have—had a bias.
+[00:07:27] Norm: But only on people who already have - had a bias.
 
 [00:07:30] Will: So it makes the people who are arguing in the comments more likely to think that they're right.
 
@@ -356,11 +356,11 @@ Episode URL: https://www.youtube.com/watch?v=-PUN4kjq8RQ
 
 [00:12:36] Adam: I and there are plenty of places on the web that it is managed, and people aren't foaming at the mouth about having their comments deleted, or those who are get outed and you know. Taken care of.
 
-[00:12:48] Norm: This was a—
+[00:12:48] Norm: This was a -
 
 [00:12:49] Adam: I don't mean taken out to the back.
 
-[00:12:50] Norm: No, no. This was a—
+[00:12:50] Norm: No, no. This was a -
 
 [00:12:51] Will: Yeah, that's the right approach.
 
@@ -510,7 +510,7 @@ Episode URL: https://www.youtube.com/watch?v=-PUN4kjq8RQ
 
 [00:19:47] Adam: right?
 
-[00:19:47] Will: The tools that they need to moderate that community. So there is the popularity vote, popularity contest aspect of Reddit that's great—the upvotes and downvotes—and then there is also another layer of people on top of of each subreddit that say, " Hey, we're the ones who are keeping this conversation, the directing this conversation, so it goes the way we want to go." And I think that's really important.
+[00:19:47] Will: The tools that they need to moderate that community. So there is the popularity vote, popularity contest aspect of Reddit that's great - the upvotes and downvotes - and then there is also another layer of people on top of of each subreddit that say, " Hey, we're the ones who are keeping this conversation, the directing this conversation, so it goes the way we want to go." And I think that's really important.
 
 [00:20:07] Norm: And there have been studies that say that you reach a snowball where you know people see an upvote and they click an upvote because
 
@@ -522,7 +522,7 @@ Episode URL: https://www.youtube.com/watch?v=-PUN4kjq8RQ
 
 [00:20:23] Norm: the most intelligent comment could be buried there because it's not reached that.
 
-[00:20:27] Will: If I get—
+[00:20:27] Will: If I get -
 
 [00:20:28] Adam: if you are going to go read through the comments, you are going to go read through them. I don't think that. I think there are a lot of different ways to sort, and giving the user a power to sort them in the way that they choose is really good. But I don't think you should. I think what is going to be the most useful comment is going to change. To whoever happens to be reading them, but I do think one of the moderators on Metafilter Cortex. I just remember her posting something in a very passionate discussion, and the passionate discussions on Metafilter happen to be are often things like the gender issues tend to be a very passionately debated subject, and also a place where humor might not be recognized as humor.
 
@@ -586,7 +586,7 @@ Episode URL: https://www.youtube.com/watch?v=-PUN4kjq8RQ
 
 [00:23:45] Adam: I agree with that. I agree with that in theory.
 
-[00:23:46] Norm: Now, it—
+[00:23:46] Norm: Now, it -
 
 [00:23:46] Will: but you have to maintain it.
 
@@ -598,7 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=-PUN4kjq8RQ
 
 [00:24:00] Norm: well, yes, the that type of gaming. system.
 
-[00:24:02] Adam: I think that is absolutely—gaming the system is absolutely something that is worth getting worked up over because yeah, it's worth getting worked over.
+[00:24:02] Adam: I think that is absolutely - gaming the system is absolutely something that is worth getting worked up over because yeah, it's worth getting worked over.
 
 [00:24:10] Will: Well,
 
@@ -644,7 +644,7 @@ Episode URL: https://www.youtube.com/watch?v=-PUN4kjq8RQ
 
 [00:26:40] Will: When was the last time you said " actually" at the start of a sentence?
 
-[00:26:43] Adam: Actually, uh—
+[00:26:43] Adam: Actually, uh -
 
 [00:26:45] Norm: Well, it's good that you don't because that would be really annoying.
 
@@ -682,7 +682,7 @@ Episode URL: https://www.youtube.com/watch?v=-PUN4kjq8RQ
 
 [00:29:07] Adam: Always welcome constructive criticism.
 
-[00:29:08] Will: even even if you're rude with it. I'm okay if the—because we are not we make mistakes all the time.
+[00:29:08] Will: even even if you're rude with it. I'm okay if the - because we are not we make mistakes all the time.
 
 [00:29:14] Adam: 100%,
 

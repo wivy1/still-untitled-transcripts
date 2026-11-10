@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:02:03] Will: Well, they in my house they do a compost pass, a recycling pass, and a trash pass all in the same night.
 
-[00:02:09] Adam: Yeah, they do. But here in my neighborhood, I think that the trash pass—how does this work? I think one of them happens at like six a.m.
+[00:02:09] Adam: Yeah, they do. But here in my neighborhood, I think that the trash pass - how does this work? I think one of them happens at like six a.m.
 
 [00:02:09] Will: Okay,
 
@@ -482,7 +482,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:22:33] Norm: Well, the reduced barrier to entry creates a really false sense of security.
 
-[00:22:38] Adam: Yes, it's—that's a great way to put it. Yeah,
+[00:22:38] Adam: Yes, it's - that's a great way to put it. Yeah,
 
 [00:22:39] Norm: that you are just as capable as someone who's been doing it for 10, 15 years.
 
@@ -588,7 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:28:20] Will: Yeah,
 
-[00:28:20] Adam: right. The UAS is so much fun, and it's just—it's been occurring to me more and more. We should be talking about [unclear: keep safe].
+[00:28:20] Adam: right. The UAS is so much fun, and it's just - it's been occurring to me more and more. We should be talking about [unclear: keep safe].
 
 [00:28:35] Will: Just out of curiosity, did you buy one of those micro nano quads to practice flying before you got the Inspire?
 

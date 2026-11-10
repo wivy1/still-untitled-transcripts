@@ -12,7 +12,7 @@ Episode URL: https://www.youtube.com/watch?v=3sVWJThNzrI
 
 [00:00:05] Adam: Joey, welcome back for a second week in a row.
 
-[00:00:09] Norm: Oh, we had to do this. This was—it was one of those things where, yes, last last week we, I think we attempted to do a spoiler cast.
+[00:00:09] Norm: Oh, we had to do this. This was - it was one of those things where, yes, last last week we, I think we attempted to do a spoiler cast.
 
 [00:00:18] Adam: I know, it didn't quite work.
 
@@ -146,7 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=3sVWJThNzrI
 
 [00:15:22] Norm: Such a funny moment.
 
-[00:15:25] Adam: I thought, do you have to have a special permit to have a seven year old on set and just yell at them a whole bunch of times? Um, yeah, you're totally right. He's a wonderful. He's a what's his name again? I'm—
+[00:15:25] Adam: I thought, do you have to have a special permit to have a seven year old on set and just yell at them a whole bunch of times? Um, yeah, you're totally right. He's a wonderful. He's a what's his name again? I'm -
 
 [00:15:37] Norm: The character is Roy Kent.
 
@@ -212,7 +212,7 @@ Episode URL: https://www.youtube.com/watch?v=3sVWJThNzrI
 
 [00:22:47] Adam: Nice,
 
-[00:22:48] Norm: but he's yeah, I I love him because he starts off as a character and he has like these wildly just like offbeat comedic moments. You know when Rebecca sees him, goes to his house at the end and he grows his like his bass playing beard or whatever it is. The trump—he plays the instrument, but yeah. But when they form that, the
+[00:22:48] Norm: but he's yeah, I I love him because he starts off as a character and he has like these wildly just like offbeat comedic moments. You know when Rebecca sees him, goes to his house at the end and he grows his like his bass playing beard or whatever it is. The trump- he plays the instrument, but yeah. But when they form that, the
 
 [00:23:10] Adam: the diamond dogs,
 

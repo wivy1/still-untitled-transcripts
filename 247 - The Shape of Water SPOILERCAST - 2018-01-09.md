@@ -692,7 +692,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:25:29] Will: Oh boy,
 
-[00:25:29] Adam: and it's beautiful. It's a beautiful pantomime, and the look on her face as she's doing this while thinking about it—it is one of these really gorgeously honest moments. And it's it's almost what you're looking at is her. I mean, I guess you are. You're watching her coming of age as a woman.
+[00:25:29] Adam: and it's beautiful. It's a beautiful pantomime, and the look on her face as she's doing this while thinking about it - it is one of these really gorgeously honest moments. And it's it's almost what you're looking at is her. I mean, I guess you are. You're watching her coming of age as a woman.
 
 [00:25:46] Norm: See, I think that's a little different than I think the film succeeds in not infantilizing her.
 

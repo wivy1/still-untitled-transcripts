@@ -470,7 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:14:22] Will: oh yeah, everything's cool. Okay, so
 
-[00:14:24] Adam: so we did all of those national parks, and I said this on Twitter, and I really want to say it was not pandering at all to our national park system. I have never met a group of people more enthused about their jobs than the employees of the national parks. Every gatekeeper, every every ranger, every person I talked to was so awesome, so informational, so helpful, and Mount Rushmore is an architectural masterpiece—not just the carved faces, but also the mid-century modern archway you walk through with all the flags of the world and the cafeteria. It's gorgeous, just totally.
+[00:14:24] Adam: so we did all of those national parks, and I said this on Twitter, and I really want to say it was not pandering at all to our national park system. I have never met a group of people more enthused about their jobs than the employees of the national parks. Every gatekeeper, every every ranger, every person I talked to was so awesome, so informational, so helpful, and Mount Rushmore is an architectural masterpiece - not just the carved faces, but also the mid-century modern archway you walk through with all the flags of the world and the cafeteria. It's gorgeous, just totally.
 
 [00:15:01] Will: I've never so I've only been on the South Road. I've only gone across 40 because I'm usually coming or going to Tennessee.
 
@@ -738,9 +738,9 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:28:30] Adam: And that's also going to show up on Tested later on. I don't want to spoil anything, but I just had the best time. That so not only is that we did a podcast about the Expanse. We had watched episodes one through four. The thing I am here to tell you is that episodes five through
 
-[00:28:54] Will: 12, or something—I don't know,
+[00:28:54] Will: 12, or something - I don't know,
 
-[00:28:55] Adam: 12 or 10—I
+[00:28:55] Adam: 12 or 10 - I
 
 [00:28:56] Norm: It’s less than 10.
 

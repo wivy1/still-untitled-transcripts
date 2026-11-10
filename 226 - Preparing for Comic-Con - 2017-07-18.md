@@ -430,7 +430,7 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:15:51] Norm: I will bring a camera.
 
-[00:15:52] Will: Back in the day, when we first started doing that, which it's been almost—10, you did it for what eight years, probably seven years.
+[00:15:52] Will: Back in the day, when we first started doing that, which it's been almost - 10, you did it for what eight years, probably seven years.
 
 [00:15:59] Norm: This will be my 12th year at Comic Con.
 

@@ -44,7 +44,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:01:31] Norm: Oh, that's wonderful!
 
-[00:01:32] Adam: Which was very—
+[00:01:32] Adam: Which was very -
 
 [00:01:33] Norm: RiffTrax, I didn't see the actual, the performance.
 
@@ -70,7 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:02:57] Will: Dry cleaning stuff isn't that far off.
 
-[00:02:59] Norm: And this is old—
+[00:02:59] Norm: And this is old -
 
 [00:03:00] Will: Like gasoline. It's all super flammable.
 
@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:03:23] Will: I mean, I guess we should. Prelinger is a, it's this guy who collected a, tons of footage. It's all sorts of stuff. It's like educational film strips. There's a lot of ads. There's '40s stag films.
 
-[00:03:34] Adam: To be honest, actually the RiffTrax guys they also buy their own on eBay, and they buy hundreds to find maybe 10 or 15 good ones. They, it's a very low percentage. It's—
+[00:03:34] Adam: To be honest, actually the RiffTrax guys they also buy their own on eBay, and they buy hundreds to find maybe 10 or 15 good ones. They, it's a very low percentage. It's -
 
 [00:03:46] Will: It's, there's a lot of really bad film, but I mean, there's stuff like the story of the atomic bomb.
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:04:07] Unknown speaker: Yeah.
 
-[00:04:07] Norm: Pure and—
+[00:04:07] Norm: Pure and -
 
 [00:04:09] Will: Marketing. No, no, it's marketing. It was made by the marketing departments before they had marketing departments.
 
@@ -134,7 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:05:07] Will: Only about the picture I posted. You mean just in general?
 
-[00:05:11] Norm: About the baby or about the beard or about—
+[00:05:11] Norm: About the baby or about the beard or about -
 
 [00:05:13] Adam: I find people. I found when I had babies that people were just, couldn't wait to be judgmental. "Oh, what a cute baby! Where's his hat?" Things like that.
 
@@ -146,7 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:05:42] Adam: Right.
 
-[00:05:42] Will: But I, I mean, I have it kind of easy because Gina's breastfeeding the baby, so that means that like I just keep Gina alive and cha— change diapers.
+[00:05:42] Will: But I, I mean, I have it kind of easy because Gina's breastfeeding the baby, so that means that like I just keep Gina alive and cha-change diapers.
 
 [00:05:52] Adam: Yeah, yeah.
 
@@ -158,13 +158,13 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:06:00] Adam: When I, when my boys were born, which was '99 and I lived over on 23rd between Mission and Valencia and there's a Walgreens right there on 23rd and Mission, and I'd go there all the time for the diapers. You know, that, that was the emergency diapers.
 
-[00:06:14] Will: Yeah. You get them cheaper—
+[00:06:14] Will: Yeah. You get them cheaper -
 
 [00:06:15] Adam: Over at the, yeah, yeah. You get them cheaper over at the Safeway. But the thing is, is back in '99 it seemed like everybody, everybody had children. It was, there was like a glut, and you could never find the Huggies in the size you specifically needed when you needed them.
 
 [00:06:30] Norm: I'm gonna go Amazon.
 
-[00:06:32] Adam: Yeah, that was, yeah—
+[00:06:32] Adam: Yeah, that was, yeah -
 
 [00:06:33] Will: Before they did diapers, yeah.
 
@@ -188,7 +188,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:06:58] Will: Yeah.
 
-[00:06:58] Adam: Right. Like this is like I can have pancakes at—
+[00:06:58] Adam: Right. Like this is like I can have pancakes at -
 
 [00:07:01] Unknown speaker: Right.
 
@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:07:10] Will: Yeah, scramble.
 
-[00:07:11] Adam: I remember at one point, you know, when you have young children, there's just a million ways it can be exhausting. Like I remember for at least two years there's always a chance that they'd throw up in the car, which was just, wow, that—
+[00:07:11] Adam: I remember at one point, you know, when you have young children, there's just a million ways it can be exhausting. Like I remember for at least two years there's always a chance that they'd throw up in the car, which was just, wow, that -
 
 [00:07:23] Will: Awesome.
 
@@ -240,7 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:08:40] Adam: You did.
 
-[00:08:42] Will: F, F the—
+[00:08:42] Will: F, F the -
 
 [00:08:44] Adam: Technology is your friend in this department.
 
@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:08:53] Adam: Oh, okay.
 
-[00:08:54] Will: If you are making breakfast food, the go-to—
+[00:08:54] Will: If you are making breakfast food, the go-to -
 
 [00:08:56] Adam: Yeah.
 
@@ -258,11 +258,11 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:08:59] Will: Omelet, okay.
 
-[00:09:00] Adam: Omelets and scrambled eggs. Those are the—
+[00:09:00] Adam: Omelets and scrambled eggs. Those are the -
 
 [00:09:02] Norm: Because eggs are your specialty.
 
-[00:09:03] Adam: Eggs are my specialty, so I can do the over easy. I can do the fried eggs. I can—
+[00:09:03] Adam: Eggs are my specialty, so I can do the over easy. I can do the fried eggs. I can -
 
 [00:09:06] Will: Do a poached?
 
@@ -280,7 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:09:28] Adam: Oh, interesting. No.
 
-[00:09:29] Will: So you don't get the cool swirly patterns, but—
+[00:09:29] Will: So you don't get the cool swirly patterns, but -
 
 [00:09:31] Unknown speaker: Yeah.
 
@@ -288,11 +288,11 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:09:43] Will: Yeah, the 30-minute slow scramble.
 
-[00:09:45] Adam: It's about 10 minutes. I do it in a frying pan. I've got it down to as good as I feel like. Darnly, darn, darnly, darnly—
+[00:09:45] Adam: It's about 10 minutes. I do it in a frying pan. I've got it down to as good as I feel like. Darnly, darn, darnly, darnly -
 
 [00:09:54] Will: Darnly. We're making up words today.
 
-[00:09:55] Adam: Darn is darn near as good as in a saucepan, and a thick-bottom saucepan, and I do it in a nonstick frying pan. Because when you do that slow scramble, those eggs can be the hardest things to clean out of a pan—
+[00:09:55] Adam: Darn is darn near as good as in a saucepan, and a thick-bottom saucepan, and I do it in a nonstick frying pan. Because when you do that slow scramble, those eggs can be the hardest things to clean out of a pan -
 
 [00:10:08] Will: Oh, yeah.
 
@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:11:47] Norm: Breakfast? I don't eat breakfast. Oh, for dinner? No, I don't like breakfast for dinner that much. I'll, I'll eat the waffle or bacon. Bacon.
 
-[00:11:54] Adam: So if I'm in a diner though, and it's time to have breakfast for dinner, it's waffles. I—
+[00:11:54] Adam: So if I'm in a diner though, and it's time to have breakfast for dinner, it's waffles. I -
 
 [00:11:58] Will: Oh, really? See, I go for greasy eggs then.
 
@@ -332,7 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:12:03] Adam: Yeah.
 
-[00:12:03] Will: With some—
+[00:12:03] Will: With some -
 
 [00:12:04] Adam: Grilled cheese sandwich, which is also kind of breakfasty to me.
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:12:18] Will: Uh-huh.
 
-[00:12:19] Adam: Which is honestly one of the—
+[00:12:19] Adam: Which is honestly one of the -
 
 [00:12:20] Will: That sounds like about a 3,000-calorie sandwich.
 
@@ -354,7 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:12:29] Adam: Oh, yeah.
 
-[00:12:30] Will: I do, the thing I found is if you take mushrooms and you chop them up incredibly fine—
+[00:12:30] Will: I do, the thing I found is if you take mushrooms and you chop them up incredibly fine -
 
 [00:12:35] Adam: Yeah.
 
@@ -374,13 +374,13 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:13:40] Adam: But this is one of our go-to family dishes.
 
-[00:13:43] Will: Well, the, I mean, the thing is, the mushrooms, when you can concentrate that mushroom flavor, it makes everything better. And—
+[00:13:43] Will: Well, the, I mean, the thing is, the mushrooms, when you can concentrate that mushroom flavor, it makes everything better. And -
 
 [00:13:48] Adam: The fresher, honestly, the fresher the mushrooms, the better.
 
 [00:13:50] Unknown speaker: Oh, absolutely.
 
-[00:13:50] Adam: You gotta go over to Bryan's to get the real, or I mean, luckily we have Bi-Rite to get really, the first time we—
+[00:13:50] Adam: You gotta go over to Bryan's to get the real, or I mean, luckily we have Bi-Rite to get really, the first time we -
 
 [00:13:55] Will: Unless you want some gold star mushrooms over there.
 
@@ -392,7 +392,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:14:13] Will: Well, they taste meaty and wonderful, especially though I love the oyster mushrooms.
 
-[00:14:16] Adam: We weren't going to talk about—
+[00:14:16] Adam: We weren't going to talk about -
 
 [00:14:17] Will: No, no, no. Sorry, I got, I am a little hungry.
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:14:29] Adam: My mushroom's name was Colin, and he was glad to give his life for my benefit.
 
-[00:14:34] Will: We were going to talk about design influences 15 or 16 minutes ago. So, real quick now—
+[00:14:34] Will: We were going to talk about design influences 15 or 16 minutes ago. So, real quick now -
 
 [00:14:39] Adam: No, no, we'll take that. Do we have a time limit?
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:14:50] Unknown speaker: Uh, yeah, yeah.
 
-[00:14:51] Adam: Um, design—
+[00:14:51] Adam: Um, design -
 
 [00:14:52] Will: Influences.
 
@@ -426,11 +426,11 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:15:43] Will: Yeah.
 
-[00:15:43] Adam: That was something. That was the first job I had. That is—
+[00:15:43] Adam: That was something. That was the first job I had. That is -
 
 [00:15:45] Unknown speaker: Oh my goodness.
 
-[00:15:46] Adam: So you'd have to figure out exactly how many, given the font you were going to use—
+[00:15:46] Adam: So you'd have to figure out exactly how many, given the font you were going to use -
 
 [00:15:50] Unknown speaker: Yeah.
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:17:26] Norm: Paper and color and everything.
 
-[00:17:27] Adam: Yeah. I mean, I find myself when I'm doing design on the computer, I like, I zoom out a lot, I zoom back in, I print it out, I see how it feels, I make notes on my prints, and then I go back into the computer to work, to rework it. But there's—
+[00:17:27] Adam: Yeah. I mean, I find myself when I'm doing design on the computer, I like, I zoom out a lot, I zoom back in, I print it out, I see how it feels, I make notes on my prints, and then I go back into the computer to work, to rework it. But there's -
 
 [00:17:43] Will: Design influences.
 
@@ -472,11 +472,11 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:19:26] Will: And if you look at some of the stuff from the late '50s, early '60s, I think a lot of those designs have aged much better than any of the stuff that came after and that replaced those designs.
 
-[00:19:34] Adam: Well, and it's also because we we've spent the last 20 years. I mean, remember when desktop publishing first became really big, which is like—
+[00:19:34] Adam: Well, and it's also because we we've spent the last 20 years. I mean, remember when desktop publishing first became really big, which is like -
 
 [00:19:44] Will: QuarkXPress.
 
-[00:19:45] Adam: '91—
+[00:19:45] Adam: '91 -
 
 [00:19:45] Unknown speaker: Yeah.
 
@@ -502,9 +502,9 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:20:48] Adam: Yeah, and I mean this couch was made by an American company named Vioski down in Los Angeles. This is the Chicago. We bought it from my friend Deanna at Inside Modern here in the city. We have a teddy bear chair, you know, the classic teddy bear chair, which is one of the most comfortable chairs ever in the world to sit on. We love that design aesthetic.
 
-[00:21:07] Will: All the Eames—
+[00:21:07] Will: All the Eames -
 
-[00:21:07] Adam: The bent with—
+[00:21:07] Adam: The bent with -
 
 [00:21:09] Will: Bent curved wood and all that.
 
@@ -518,7 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:21:47] Norm: Do you shop online or do you have instead of walking around town?
 
-[00:21:52] Adam: Both, both, both, both. My wife does a lot of searching on 1stDibs, which is a great place to look for what's coming into town. A lot of designers and interior designers are looking at the same items. Oftentimes you can see something you're interested in and get it for a better deal than you might just through straight retail because there are some retailers who sell the stuff we like at a reasonable cost and some who sell it at a ridiculous—
+[00:21:52] Adam: Both, both, both, both. My wife does a lot of searching on 1stDibs, which is a great place to look for what's coming into town. A lot of designers and interior designers are looking at the same items. Oftentimes you can see something you're interested in and get it for a better deal than you might just through straight retail because there are some retailers who sell the stuff we like at a reasonable cost and some who sell it at a ridiculous -
 
 [00:22:17] Norm: Have you been to shop HD Buttercup down?
 
@@ -526,7 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:22:20] Norm: Oh, it's a massive like three-story store that's all full of this stuff, furniture.
 
-[00:22:24] Adam: That's probably my wife has almost definitely been there. I have not. And I also am very influenced by early comic book artists like Jack Kirby. There's a lot of that in that—
+[00:22:24] Adam: That's probably my wife has almost definitely been there. I have not. And I also am very influenced by early comic book artists like Jack Kirby. There's a lot of that in that -
 
 [00:22:41] Norm: Some of the pop art.
 
@@ -542,9 +542,9 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:23:03] Will: All right, I'll, I'll, I'll fact check.
 
-[00:23:05] Adam: Hold on, fact check me while we're talking here. And sorry, Marcel Duchamp, perhaps my favorite artist of the 20th century. Marcel Duchamp is the—
+[00:23:05] Adam: Hold on, fact check me while we're talking here. And sorry, Marcel Duchamp, perhaps my favorite artist of the 20th century. Marcel Duchamp is the -
 
-[00:23:19] Unknown speaker: So—
+[00:23:19] Unknown speaker: So -
 
 [00:23:20] Adam: Whenever, sorry, yeah.
 
@@ -596,7 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:26:32] Norm: It's okay to be self-conscious about that. You're changing yourself a little bit.
 
-[00:26:36] Adam: It is, but that's why I don't read any other comments. Well—
+[00:26:36] Adam: It is, but that's why I don't read any other comments. Well -
 
 [00:26:40] Norm: Don't Google yourself.
 

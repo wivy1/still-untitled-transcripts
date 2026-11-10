@@ -120,7 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:04:41] Norm: Well, the solution there would have been to bring the bag.
 
-[00:04:46] Adam: I guess it would have. I barely missed coming out of both ends at the same time. I managed to make it work. I didn't create a terrible mess. I did clean up after myself, and luckily, the bathroom had 15 minutes to recirculate the air before another human had to use it, which is a real grace because that would have been awful. And then I told that story on stage at the very first w00tstock. And at the very first w00tstock, in the middle of that story, someone in the back was—I'm halfway through it—and I'm I'm I'm miming with my body which end of myself to present to the toilet, and someone yells, " Great story!" And then at the autograph line afterwards, someone said, " You know, there's a term for when it comes out of both ends at the same time, and it's called the rooster tail." Ah, wow! There, that is the roughest start to a podcast we have yet had. Hi, mom. My mom just texted me. She saw Hamilton today.
+[00:04:46] Adam: I guess it would have. I barely missed coming out of both ends at the same time. I managed to make it work. I didn't create a terrible mess. I did clean up after myself, and luckily, the bathroom had 15 minutes to recirculate the air before another human had to use it, which is a real grace because that would have been awful. And then I told that story on stage at the very first w00tstock. And at the very first w00tstock, in the middle of that story, someone in the back was - I'm halfway through it - and I'm I'm I'm miming with my body which end of myself to present to the toilet, and someone yells, " Great story!" And then at the autograph line afterwards, someone said, " You know, there's a term for when it comes out of both ends at the same time, and it's called the rooster tail." Ah, wow! There, that is the roughest start to a podcast we have yet had. Hi, mom. My mom just texted me. She saw Hamilton today.
 
 [00:05:51] Bill: Wow!
 
@@ -370,7 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:14:39] Adam: Really,
 
-[00:14:39] Bill: he made the pickup truck from Squidbillies. It was maybe seven feet long, and his head was the squid. It was a silicone casting of the squid in the driver's seat, and he flew it to TwitchCon to be in the contest. And then he was—he didn't want to bring it back. It's a massive pain,
+[00:14:39] Bill: he made the pickup truck from Squidbillies. It was maybe seven feet long, and his head was the squid. It was a silicone casting of the squid in the driver's seat, and he flew it to TwitchCon to be in the contest. And then he was - he didn't want to bring it back. It's a massive pain,
 
 [00:14:58] Adam: right?
 
@@ -512,7 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:24:14] Norm: Yeah.
 
-[00:24:14] Bill: Figuring out what your day rate should be—that was something it took me forever to learn. Was that any project takes at least one day, even the simplest thing, and you might say this prop is like a $100 prop, but it's going to take me a day, and I can't survive on $100 a day. No. I can't pay for my shop. I can't pay for the supplies, so I have to charge at least X amount.
+[00:24:14] Bill: Figuring out what your day rate should be - that was something it took me forever to learn. Was that any project takes at least one day, even the simplest thing, and you might say this prop is like a $100 prop, but it's going to take me a day, and I can't survive on $100 a day. No. I can't pay for my shop. I can't pay for the supplies, so I have to charge at least X amount.
 
 [00:24:41] Adam: Yeah.
 

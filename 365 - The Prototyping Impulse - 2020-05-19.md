@@ -100,7 +100,7 @@ Episode URL: https://www.youtube.com/watch?v=BDM_sI8g6nQ
 
 [00:05:33] Adam: I A/B tested a number of solutions for sweet potato fries.
 
-[00:05:39] Will: They're harder, I think, because there's—
+[00:05:39] Will: They're harder, I think, because there's -
 
 [00:05:41] Adam: I figured it out.
 
@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=BDM_sI8g6nQ
 
 [00:09:47] Adam: Wow,
 
-[00:09:47] Norm: all this is so relevant. to— I, I watched the documentary last week. It just was released. It's called Spaceship Earth. It's about Biosphere Two.
+[00:09:47] Norm: all this is so relevant. to - I, I watched the documentary last week. It just was released. It's called Spaceship Earth. It's about Biosphere Two.
 
 [00:09:56] Adam: Oh, right, and apparently it wasn't as much of a clusterfuck as it supposedly was.
 
@@ -184,7 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=BDM_sI8g6nQ
 
 [00:11:18] Unknown speaker (Will or Adam): Yeah,
 
-[00:11:19] Adam: dude, what a freaking delight! Like the thing is, is that I I have met a few of those folks and. I know them to be exactly as they are represented, and so it just—I mean, in every way, it sounds like Mandalorian is just such a delightful ragtag group of wonderful artisans telling great stories without, in the way that they want to tell them, and that's really, really lovely and very loving in a way.
+[00:11:19] Adam: dude, what a freaking delight! Like the thing is, is that I I have met a few of those folks and. I know them to be exactly as they are represented, and so it just - I mean, in every way, it sounds like Mandalorian is just such a delightful ragtag group of wonderful artisans telling great stories without, in the way that they want to tell them, and that's really, really lovely and very loving in a way.
 
 [00:11:55] Norm: And you can tell the subtext, like I said last week, is that they're building this confidence in the audience of the creative teams behind this very successful show, and they can afford to do that because it's been very well reviewed and been very successful. But they're very proud of that, of course, and then so they're projecting, " This is our vision for Star Wars, this corner of Star Wars."
 
@@ -228,17 +228,17 @@ Episode URL: https://www.youtube.com/watch?v=BDM_sI8g6nQ
 
 [00:16:39] Adam: The sunset, and you see everything reflected on his helmet, blew my freaking mind.
 
-[00:16:43] Norm: And the evolution of that technology—it's been used for past 10 years in lots of ways. You know, the Tom Cruise movie * Oblivion*, where they had these cities above the clouds, and there was a ring, right? They've used them in * Star Wars*.
+[00:16:43] Norm: And the evolution of that technology - it's been used for past 10 years in lots of ways. You know, the Tom Cruise movie * Oblivion*, where they had these cities above the clouds, and there was a ring, right? They've used them in * Star Wars*.
 
 [00:16:57] Will: Well, that was motion control.
 
 [00:16:59] Adam: That was front projection in * Oblivion*.
 
-[00:17:01] Norm: Yeah. Right, right. But the idea is the same—that you get real reflections, real light. You know?
+[00:17:01] Norm: Yeah. Right, right. But the idea is the same - that you get real reflections, real light. You know?
 
 [00:17:04] Adam: Oh, yeah. But the idea of what the yeah, it's just amazing.
 
-[00:17:10] Norm: But it's also none of it works if you don't have a good performance. And I don't know if you guys saw the latest episode, but the fact that the director is Deborah Chow, who talked about the stillness, is something—it's so important that the character of the Mandalorian is still because that makes every small gesture have purpose and have meaning. So it's not about yes, everyone says physicality, physicality, physicality, but physicality and absence of physicality for the right moments is also just as important. I really love that.
+[00:17:10] Norm: But it's also none of it works if you don't have a good performance. And I don't know if you guys saw the latest episode, but the fact that the director is Deborah Chow, who talked about the stillness, is something - it's so important that the character of the Mandalorian is still because that makes every small gesture have purpose and have meaning. So it's not about yes, everyone says physicality, physicality, physicality, but physicality and absence of physicality for the right moments is also just as important. I really love that.
 
 [00:17:41] Will: It adds intentionality to the whole thing, right?
 
@@ -308,7 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=BDM_sI8g6nQ
 
 [00:23:04] Norm: You're doing. I mean, the design work you use your sketch pad, and one of the things I'm always curious about is sketch is getting all your ideas. Like you want to have it from what I understand. You want to have it like fully realized in your head. Get it on paper and then start making. But do you iterate?
 
-[00:23:23] Adam: Well, it's funny because on Saturday I ended up with an extra like I ended up with like four hours of time over here. Julia had something to do and I didn't, so I just came over here and I knocked out this first proto— I didn't realize it was the first prototype. I was just like, oh, I've got yeah two more hours. I think I could actually try this thing I've been thinking about. And when I finished it was so beautiful. That again, like I said, I've been like with certain things. I've been mooning over photos of it, and then realizing, you know what? I built it without filming something. It's the first thing I built without filming in weeks, and that felt kind of nice, right? Because it's just I get to not concentrate on the storytelling, just on the build. But as soon as I finish it, I was like, " This is so cool! I got to film it." And then once I decided that, I realized this is a first prototype. So I don't iterate as much as I actually often recommend other people do.
+[00:23:23] Adam: Well, it's funny because on Saturday I ended up with an extra like I ended up with like four hours of time over here. Julia had something to do and I didn't, so I just came over here and I knocked out this first proto- I didn't realize it was the first prototype. I was just like, oh, I've got yeah two more hours. I think I could actually try this thing I've been thinking about. And when I finished it was so beautiful. That again, like I said, I've been like with certain things. I've been mooning over photos of it, and then realizing, you know what? I built it without filming something. It's the first thing I built without filming in weeks, and that felt kind of nice, right? Because it's just I get to not concentrate on the storytelling, just on the build. But as soon as I finish it, I was like, " This is so cool! I got to film it." And then once I decided that, I realized this is a first prototype. So I don't iterate as much as I actually often recommend other people do.
 
 [00:24:20] Norm: I was just getting to that point. I'm feeling the exact same thing, and I almost feel that more digitally. Even though when you design like a vector or something, you can iterate quickly. I find there's a lot of satisfaction in getting it close to right the first time. Of course, after you make something and you look at it, you have the physical object, you're going to notice things. But there's a really nice satisfaction of having something that you've designed either in paper or digitally. And then fabricate, and everything fitting perfectly.
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=BDM_sI8g6nQ
 
 [00:26:06] Adam: Yeah, me too.
 
-[00:26:07] Will: I mean, and then I take when the thing looks right there, then I take it out and I scale it in the Glowforge app to get it to be the right size that I want the thing to end up, and then I usually do a little bit of sanding. And it's not an ideal workflow. It won't work for this because I need like I'm I'm putting servos and motors and stuff on that I precise mounting holes. And I I'm trying what I'm doing. I'll show you. I have the piece right here. So I'm building a robot to play this board game that we played at ORD Camp called Wave— Wavelength. And the robot needs to spin this wheel, and it needs to actuate that, and it needs to turn this dial, and like I have the design on paper. I have that. I have well, now I messed up focus. But I have the design on paper. But getting to the point that my that I'm confident enough to do the cuts on the amount of materials that I have here isn't very much right now. is is I'm not feeling great about it. So I'm gonna redo redo the design tomorrow. I think, and I'm gonna try either Inkscape or maybe like I I did some stuff in SketchUp, and I feel like SketchUp is not maybe used to be for that, but now it's for like 3D modeling for 3D printing stuff.
+[00:26:07] Will: I mean, and then I take when the thing looks right there, then I take it out and I scale it in the Glowforge app to get it to be the right size that I want the thing to end up, and then I usually do a little bit of sanding. And it's not an ideal workflow. It won't work for this because I need like I'm I'm putting servos and motors and stuff on that I precise mounting holes. And I I'm trying what I'm doing. I'll show you. I have the piece right here. So I'm building a robot to play this board game that we played at ORD Camp called Wave-Wavelength. And the robot needs to spin this wheel, and it needs to actuate that, and it needs to turn this dial, and like I have the design on paper. I have that. I have well, now I messed up focus. But I have the design on paper. But getting to the point that my that I'm confident enough to do the cuts on the amount of materials that I have here isn't very much right now. is is I'm not feeling great about it. So I'm gonna redo redo the design tomorrow. I think, and I'm gonna try either Inkscape or maybe like I I did some stuff in SketchUp, and I feel like SketchUp is not maybe used to be for that, but now it's for like 3D modeling for 3D printing stuff.
 
 [00:27:12] Adam: So in 2D, even in 2D, SketchUp allows you to move your to draw your line to a precise number, and you could enter it in, and it makes me endlessly crazy that Illustrator doesn't do that, and it's one of the reasons I can't ever use Illustrator because I wanted I just I want to use numbers to do that stuff.
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=BDM_sI8g6nQ
 
 [00:29:02] Adam: I can do this all natural language. I mean, Iron Man.
 
-[00:29:05] Will: It's so frustrating taking something that you know how to do really well in one context, and then trying to spending it three hours—not three hours, but an hour—trying to figure out something that would take five minutes in the tool you already used. It's—I mean, I know this is no surprise to anybody who's listening to this.
+[00:29:05] Will: It's so frustrating taking something that you know how to do really well in one context, and then trying to spending it three hours - not three hours, but an hour - trying to figure out something that would take five minutes in the tool you already used. It's - I mean, I know this is no surprise to anybody who's listening to this.
 
 [00:29:21] Norm: Will, I'm going to recommend Tinkercad for you,
 
@@ -464,7 +464,7 @@ Episode URL: https://www.youtube.com/watch?v=BDM_sI8g6nQ
 
 [00:33:23] Norm: Asian action movie in the raid.
 
-[00:33:26] Adam: I'll, I'll consider both. I'll, I'll— let me. I'll get. Will you send me an email with those?
+[00:33:26] Adam: I'll, I'll consider both. I'll, I'll - let me. I'll get. Will you send me an email with those?
 
 [00:33:30] Norm: I will send you an email and links to them as well.
 
@@ -472,7 +472,7 @@ Episode URL: https://www.youtube.com/watch?v=BDM_sI8g6nQ
 
 [00:33:37] Adam: It's so much like that.
 
-[00:33:38] Will: Yeah, completely, it completely evaporated the moment I finished. Turned off the television. I—
+[00:33:38] Will: Yeah, completely, it completely evaporated the moment I finished. Turned off the television. I -
 
 [00:33:43] Adam: Oh, yeah.
 

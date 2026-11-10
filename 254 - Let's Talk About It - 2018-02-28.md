@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=WVa9oEJ0jTA
 
 [00:13:03] Will: they get five shots and five targets, or six shots and five targets. My father-in-law was a deer hunter for decades, right? And his two favorite things to do were to bow hunt and to muzzle load, which is a you know, a front-loaded single-shot rifle. You get one shot at that one, and then you get to run through the woods for an hour chasing chasing the animal you just shot down.
 
-[00:13:24] Adam: Look, we've just been up till now. It seems quite clear, given how much traction that the incredible students—I don't want to call them kids because I don't think of them as kids—the students at Stoneman High School. We live in a country for where for too long the debate about guns has been completely controlled by the National Rifle Association through its influence, and we end up having these ludicrous discussions. Where I kept on saying on Twitter last week, even to discuss arming teachers. We have already lost this debate.
+[00:13:24] Adam: Look, we've just been up till now. It seems quite clear, given how much traction that the incredible students - I don't want to call them kids because I don't think of them as kids - the students at Stoneman High School. We live in a country for where for too long the debate about guns has been completely controlled by the National Rifle Association through its influence, and we end up having these ludicrous discussions. Where I kept on saying on Twitter last week, even to discuss arming teachers. We have already lost this debate.
 
 [00:13:24] Will: Yeah.
 
@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=WVa9oEJ0jTA
 
 [00:24:51] Adam: it's just as I was saying that down in Australia, New Zealand, where the Asian food feels totally tastes totally different. There are all sorts of different tastes. Their proximity to Asia. I mean, they have a much wider variety of Asian tastes. Even like, I didn't know Northern Chinese food was a specific subset, and had a radically different meal than I've ever had.
 
-[00:25:13] Norm: Oh, right! Like, you know, that country is—it's like a continent. Every province is as big as a country in Europe.
+[00:25:13] Norm: Oh, right! Like, you know, that country is - it's like a continent. Every province is as big as a country in Europe.
 
 [00:25:13] Adam: Yeah.
 

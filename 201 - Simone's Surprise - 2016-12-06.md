@@ -380,11 +380,11 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:14:12] Adam: Temple Grandin. She. So do you know Temple Grandin? Temple Grandin is very. She's very much on the spectrum, Asperger's.
 
-[00:14:12] Simone: Balls deep in the—
+[00:14:12] Simone: Balls deep in the -
 
 [00:14:12] Adam: Yeah. She's a legendary hero. There was an amazing HBO film, I believe, starring Claire Danes. Yes. So Temple Grandin re changed the entire meat slaughtering industry by realizing the problem with it at the time she was becoming, that she was building her career, was that cows could see other cows getting killed and they were getting stressed out [unclear: and they were freaking out / And they were freaking. And they were freaking out] and dumping all this adrenaline into their system, so she invented this machine that hugs cows just before they get killed, and she actually got an award from the PETA for humane treatment of animals under these conditions. And she's basically spent her whole life alleviating suffering. And I interviewed her on stage the night before that episode, and she turned out to be a huge MythBusters fan. She didn't know I was going to be her interviewer until she showed up, and she was incredibly, amazingly gracious. And then when I invited her out for an episode, she was like, " Oh yes!" She totally came out. And then I got to watch her almost flirt with Jamie. I can see that. So she like met Jamie, was like, " Whoa, Jamie!" And she like seemed to like catch her breath. It was really cute. And then we spent that whole day. Yeah, she's incredible.
 
-[00:15:35] Will: Like we were like, I don't remember what we talked about, but I remember like we were— Norm and Joey and I were in there, and she was there with her assistant.
+[00:15:35] Will: Like we were like, I don't remember what we talked about, but I remember like we were - Norm and Joey and I were in there, and she was there with her assistant.
 
 [00:15:45] Adam: Or she's a good friend of hers in the East Bay. Yeah,
 
@@ -428,7 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:16:46] Will: $50 to you or [unclear: 50 bucks to them / 50 bucks to them. It’s 50 bucks to them], and they're going to defer it to you.
 
-[00:16:46] Simone: It’s just—
+[00:16:46] Simone: It’s just -
 
 [00:16:46] Will: Yeah. I'm a small businessman. I know how this works. Here, let me send you a chit.
 

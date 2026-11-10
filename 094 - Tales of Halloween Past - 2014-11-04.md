@@ -18,7 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:00:13] Adam: Good morning. All contractions today.
 
-[00:00:15] Will: I know. Well, we've returned back to the original formula—the one that happened by accident, the very first time we did the podcast. This is so. If you're listening, we're almost caught up. We're recording this the Tuesday morning after the live show.
+[00:00:15] Will: I know. Well, we've returned back to the original formula - the one that happened by accident, the very first time we did the podcast. This is so. If you're listening, we're almost caught up. We're recording this the Tuesday morning after the live show.
 
 [00:00:29] Adam: That's true.
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:15:12] Adam: Wow.
 
-[00:15:12] Will: Yeah, it's but it kind of makes you—
+[00:15:12] Will: Yeah, it's but it kind of makes you -
 
 [00:16:17] Adam: Both comforting, and yet it ruins the illusion.
 
@@ -640,7 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:22:03] Will: Of course,
 
-[00:22:03] Adam: it didn't take much. So my kids these days with their dads making. Full foam stormtrooper costumes—they're spoiled.
+[00:22:03] Adam: it didn't take much. So my kids these days with their dads making. Full foam stormtrooper costumes - they're spoiled.
 
 [00:22:31] Norm: Getting Adam Savage to make a duck costume
 
@@ -650,7 +650,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:22:43] Adam: Did she?
 
-[00:22:43] Will: So she'd ask what we wanted to be a couple weeks out, and then she'd sew something together. And or, I mean, just as often, like they had—I think they had weird parties probably before I was born or just after, because there was always a big trunk full of like feather boas and costumes and stuff like that. Because they always went to—they went to a lot of costume parties when I was a child.
+[00:22:43] Will: So she'd ask what we wanted to be a couple weeks out, and then she'd sew something together. And or, I mean, just as often, like they had - I think they had weird parties probably before I was born or just after, because there was always a big trunk full of like feather boas and costumes and stuff like that. Because they always went to - they went to a lot of costume parties when I was a child.
 
 [00:22:43] Adam: Your parents’ secret history.
 
@@ -806,7 +806,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:28:28] Will: Did you have the helmet on the whole day? Like had you taken?
 
-[00:28:30] Adam: No, no, I taken the helmet off, but I still—
+[00:28:30] Adam: No, no, I taken the helmet off, but I still -
 
 [00:28:30] Will: It was just that hot?
 

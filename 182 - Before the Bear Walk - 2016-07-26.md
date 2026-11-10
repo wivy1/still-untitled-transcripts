@@ -14,7 +14,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:00:44] Simone: I am Simone.
 
-[00:00:45] Norm: I was gonna say, is that a Don LaFontaine impression, or is your voice just gone after two days of—?
+[00:00:45] Norm: I was gonna say, is that a Don LaFontaine impression, or is your voice just gone after two days of -?
 
 [00:00:50] Adam: It is both of those things. I've actually taken very good care of my voice. I don't know if you remember, but last year at this podcast, I was talking like this.
 
@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:01:30] Adam: Oh, right.
 
-[00:01:30] Norm: there's no holding back. Adam, this has been your—you've been going to Comic Con since 2008, I believe.
+[00:01:30] Norm: there's no holding back. Adam, this has been your - you've been going to Comic Con since 2008, I believe.
 
 [00:01:39] Adam: Yeah, I think this is my eighth or ninth
 
@@ -130,7 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:07:04] Norm: Yeah, we walked around. Simone and I walked around and did a little tour of the show, and we saw like. Just in like the statues and figurines. This is the most impractical costume.
 
-[00:07:14] Adam: Impractical is a—
+[00:07:14] Adam: Impractical is a -
 
 [00:07:15] Simone: Yeah, that's. I was going on a rant about it.
 
@@ -142,7 +142,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:07:32] Simone: Yeah, she just doesn't have any pocket space.
 
-[00:07:35] Norm: No, no, you— Yes, I love that. This was very. There's no storage in that costume.
+[00:07:35] Norm: No, no, you - Yes, I love that. This was very. There's no storage in that costume.
 
 [00:07:40] Adam: Well, you know, this is what I think whenever I see the naked guy up in the Castro in San Francisco. Is where's your wallet?
 
@@ -160,15 +160,15 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:08:03] Norm: And also for Suicide Squad, and you had like the actors like milled out versions of their. Their mannequins in them.
 
-[00:08:12] Adam: I aspire to the kind of display that I've been seeing—the Star Wars booth, all the Force Awakens and Rogue One costumes on display, beautifully laid out, like just fantastic reference materials. The way I think about it, but gorgeous display.
+[00:08:12] Adam: I aspire to the kind of display that I've been seeing - the Star Wars booth, all the Force Awakens and Rogue One costumes on display, beautifully laid out, like just fantastic reference materials. The way I think about it, but gorgeous display.
 
-[00:08:28] Norm: Yeah, and remember when we saw that Rogue One, the lead character played by Felicity Jones in the center there, and it's like a—it was a great costume that wasn't like skimpy or anything. It was practical.
+[00:08:28] Norm: Yeah, and remember when we saw that Rogue One, the lead character played by Felicity Jones in the center there, and it's like a - it was a great costume that wasn't like skimpy or anything. It was practical.
 
 [00:08:39] Adam: Speaking of great costumes, so I wore Kylo Ren yesterday
 
 [00:08:43] Norm: Yes.
 
-[00:08:43] Adam: out on the floor—the Anovos Kylo Ren, which is, from what I understand, it's patterned right off the original that Adam Driver wore. I did a test fit with the Anovos of the suit that was cut to Driver to discover that turns out my shoulders are less broad than his, but I think we knew that. But the costume itself was an amazing costume to wear. I think, I mean, the pictures came out incredibly. But also Deborah Nadoolman Landis talks about how a good costume puts you into the character, literally, physically pours you into a character. How a British naval uniform from the 18th century will pull your shoulders back, that a captain can't even raise his arm above this because it's supposed to look regal. And Kylo's costume does that. It's like four heavy layers of fabric around your midsection and this tight belt. And there's a way in which it just wearing the costume makes you stand like an angry Sith.
+[00:08:43] Adam: out on the floor - the Anovos Kylo Ren, which is, from what I understand, it's patterned right off the original that Adam Driver wore. I did a test fit with the Anovos of the suit that was cut to Driver to discover that turns out my shoulders are less broad than his, but I think we knew that. But the costume itself was an amazing costume to wear. I think, I mean, the pictures came out incredibly. But also Deborah Nadoolman Landis talks about how a good costume puts you into the character, literally, physically pours you into a character. How a British naval uniform from the 18th century will pull your shoulders back, that a captain can't even raise his arm above this because it's supposed to look regal. And Kylo's costume does that. It's like four heavy layers of fabric around your midsection and this tight belt. And there's a way in which it just wearing the costume makes you stand like an angry Sith.
 
 [00:09:41] Norm: Now that's a really good point because Simone asked a good question. What's the difference between cosplay and like just costuming for Halloween? And since we podcasted last, your TED Talk has come out in which you talk about your lifelong love of cosplay, and that's exactly what you're talking about. I think it's struggled to explain it, but like when you cosplay, you embody the character more.
 
@@ -184,7 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:11:08] Norm: Yes,
 
-[00:11:09] Simone: but it is—it's interesting how how clothes and costumes and things like that affect you. I mean, I just feel I just have something like I can't work if I don't put on pants. Like if I'm in my pajamas all day, I'm not going to get any work done. Like I have to actually put a bra and a pant or pair of pants on, and then it's like, okay, now I'm like work, Simone. Yeah,
+[00:11:09] Simone: but it is - it's interesting how how clothes and costumes and things like that affect you. I mean, I just feel I just have something like I can't work if I don't put on pants. Like if I'm in my pajamas all day, I'm not going to get any work done. Like I have to actually put a bra and a pant or pair of pants on, and then it's like, okay, now I'm like work, Simone. Yeah,
 
 [00:11:28] Adam: yeah, absolutely.
 
@@ -204,15 +204,15 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:11:58] Norm: Because.
 
-[00:11:58] Adam: The little hint of beard, of the gorgeous, or my hair in the back—
+[00:11:58] Adam: The little hint of beard, of the gorgeous, or my hair in the back -
 
-[00:12:02] Simone: the way his neck creases—isn't that Adam Savage?
+[00:12:02] Simone: the way his neck creases - isn't that Adam Savage?
 
 [00:12:06] Adam: I told you this yesterday, and you were like, " Is it your walk?"
 
 [00:12:11] Norm: The gait, yeah.
 
-[00:12:11] Adam: And so I saw this cosplay Jamie—and I went up and I said, " Can I take a picture?" And he said, " Yeah." And then he took a picture. And then after we took the pictures, I said, " I'm Adam Savage." He was like, " No way!" I was like, " Yep." And then he found out for real because he sat in my autograph line yesterday, and we signed autographs and we took some pictures, which is—I actually hit the front page of Imgur yesterday.
+[00:12:11] Adam: And so I saw this cosplay Jamie - and I went up and I said, " Can I take a picture?" And he said, " Yeah." And then he took a picture. And then after we took the pictures, I said, " I'm Adam Savage." He was like, " No way!" I was like, " Yep." And then he found out for real because he sat in my autograph line yesterday, and we signed autographs and we took some pictures, which is - I actually hit the front page of Imgur yesterday.
 
 [00:12:33] Norm: Oh, that's great!
 
@@ -308,7 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:17:45] Norm: Wow.
 
-[00:17:45] Adam: I took pictures with a bunch of the choir members. They were lovely, but the whole cast was there. It was. It was. Really fun and really exciting. It was also elegiac. I actually sat right behind Anton Yelchin's parents. That was very intense and emotional. J.J. Abrams gave an impassioned, lovely speech and held a moment of silence for Anton, the actor who played Chekhov, who died under just the worst circumstances recently. And it was clear that had cast a pall over the release of this film for the cast and crew. One of the things I can tell you from having been around the cast and crew a bunch during the release of this film is that it really is a family. These guys have been making these movies now for almost 10 years. The actors all love each other. The crew love each other. The directors—I mean—it is a deep, abiding family unit. And the loss of one of them, and under any circumstances, would be a tragedy. And in this, it's particularly keenly felt.
+[00:17:45] Adam: I took pictures with a bunch of the choir members. They were lovely, but the whole cast was there. It was. It was. Really fun and really exciting. It was also elegiac. I actually sat right behind Anton Yelchin's parents. That was very intense and emotional. J.J. Abrams gave an impassioned, lovely speech and held a moment of silence for Anton, the actor who played Chekhov, who died under just the worst circumstances recently. And it was clear that had cast a pall over the release of this film for the cast and crew. One of the things I can tell you from having been around the cast and crew a bunch during the release of this film is that it really is a family. These guys have been making these movies now for almost 10 years. The actors all love each other. The crew love each other. The directors - I mean - it is a deep, abiding family unit. And the loss of one of them, and under any circumstances, would be a tragedy. And in this, it's particularly keenly felt.
 
 [00:18:47] Norm: The film is just out, so we're going to save our spoiler cast for another time.
 

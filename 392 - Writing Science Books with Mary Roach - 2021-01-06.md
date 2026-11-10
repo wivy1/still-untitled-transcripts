@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=xDvqlJGjh-w
 
 [00:05:00] Mary Roach: Yeah, exactly. So, yeah, a little update, epilogue, sort of bringing stuff up to date for Stiff. So, I had things to do to keep myself busy because I don't have hobbies. I don't have a like. I'm not like you. I don't have a cave and a like Ed's got a studio in the backyard, the basement, the he's got a workshop. He's just my husband Ed can occupy himself easily. He likes to cook, whereas I'm just I'm a one burner gal. I don't have four burners ever going. So it's good that I had something to do.
 
-[00:05:40] Adam: I do so the—given the oscillation of projects, lots of research and travel, then the hunkering down to write. Does this mean that there's a new book coming out?
+[00:05:40] Adam: I do so the - given the oscillation of projects, lots of research and travel, then the hunkering down to write. Does this mean that there's a new book coming out?
 
 [00:05:49] Mary Roach: It does.
 
@@ -96,11 +96,11 @@ Episode URL: https://www.youtube.com/watch?v=xDvqlJGjh-w
 
 [00:06:46] Mary Roach: Of course,
 
-[00:06:47] Adam: yeah. I've been researching her for a thing I'm working on, and she's more amazing the deeper you get into her mind. Because she translated this French article about the analytical engine, and she'd been working with Babbage for years already. But in this translation, she included translator's notes, which are twice as long as the actual article she translated. And they're the first notes of, and this is—it's basically all a footnote that that presages the entire computer age because she realizes because she points out the difference between affecting numbers and affecting operations upon numbers.
+[00:06:47] Adam: yeah. I've been researching her for a thing I'm working on, and she's more amazing the deeper you get into her mind. Because she translated this French article about the analytical engine, and she'd been working with Babbage for years already. But in this translation, she included translator's notes, which are twice as long as the actual article she translated. And they're the first notes of, and this is - it's basically all a footnote that that presages the entire computer age because she realizes because she points out the difference between affecting numbers and affecting operations upon numbers.
 
 [00:07:26] Mary Roach: Wow!
 
-[00:07:26] Adam: And in that difference, she's like, " Wow, we may be able to actually compute things that aren't mathematical at all because we can symbolize everything." And you’re like, she saw this 100 and some—140 years ago.
+[00:07:26] Adam: And in that difference, she's like, " Wow, we may be able to actually compute things that aren't mathematical at all because we can symbolize everything." And you’re like, she saw this 100 and some - 140 years ago.
 
 [00:07:40] Mary Roach: It's amazing.
 
@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=xDvqlJGjh-w
 
 [00:07:43] Mary Roach: Very cool.
 
-[00:07:43] Adam: Anyway, that's a—I love long footnotes, and I can’t wait, oh my gosh. Well, we'll have you back on the podcast when there's an actual book tour to talk about. We'd love to hear about it.
+[00:07:43] Adam: Anyway, that's a - I love long footnotes, and I can’t wait, oh my gosh. Well, we'll have you back on the podcast when there's an actual book tour to talk about. We'd love to hear about it.
 
 [00:07:54] Mary Roach: Cool, cool. That sounds good.
 
@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=xDvqlJGjh-w
 
 [00:09:10] Adam: I'm curious in the last nine months. I mean, there's been such a battleground about science and truth, but specifically since so much of what's been talked about the last eight months has been about the body and things that are within your realm. I'm curious if your body of knowledge from writing your books gave you a different perspective on what's been going on.
 
-[00:09:37] Mary Roach: Well, it took me back to I did a one of the I think it was the first feature story I ever reported, first major feature story. where they sent me to—it was a magazine piece, and they sent me to the common cold unit in the UK, which is this place where British people would sign up as a holiday. To go and it's in Wiltshire up in the fields outside. It's a lovely place to go for a walk. And you'd have a roommate, and you would have a virus dripped up your nose and they would see like you know who. I mean, not everybody would get the virus, and some of them were coronavirus. So they did some studies. I think when I was there, it was a coronavirus trial, and you and this, they would literally drip it up your nose, and then you'd sit around and. But things you got three lovely home cooked meals a day, like shepherd's pie would arrive in one of those stackable like I don't know what they call them. There's a word for them.
+[00:09:37] Mary Roach: Well, it took me back to I did a one of the I think it was the first feature story I ever reported, first major feature story. where they sent me to - it was a magazine piece, and they sent me to the common cold unit in the UK, which is this place where British people would sign up as a holiday. To go and it's in Wiltshire up in the fields outside. It's a lovely place to go for a walk. And you'd have a roommate, and you would have a virus dripped up your nose and they would see like you know who. I mean, not everybody would get the virus, and some of them were coronavirus. So they did some studies. I think when I was there, it was a coronavirus trial, and you and this, they would literally drip it up your nose, and then you'd sit around and. But things you got three lovely home cooked meals a day, like shepherd's pie would arrive in one of those stackable like I don't know what they call them. There's a word for them.
 
 [00:10:34] Adam: Like the lunchbox, the miners' lunchbox. Yeah,
 
@@ -326,13 +326,13 @@ Episode URL: https://www.youtube.com/watch?v=xDvqlJGjh-w
 
 [00:32:30] Adam: No,
 
-[00:32:31] Mary Roach: it's a popular podcast that has to do with medicine. It's I forget their names now. Shit, that's bad. I should say their names anyway. Sawbones, but they did. It's po—it's popular enough that they did a book based on Sawbones. It's me—it's medical history basically, and these two people do it. They're funny, and one is an MD, and one isn't. I think they're a couple but. The book, beautiful hardcover book, but they left in the dummy index. So the index, and get this, the index is for some weird fringe deep dive into knives. So it's like, oh, milit—there's like weird names of military knives. There's polishing stones, and it's like an entire six-page index about knives. Which, and then, what the publisher did is said, " Well, we can't, we can't redo the book, so we're going to hand, we're going to glue together the pages of the index, so people won't see them."
+[00:32:31] Mary Roach: it's a popular podcast that has to do with medicine. It's I forget their names now. Shit, that's bad. I should say their names anyway. Sawbones, but they did. It's po- it's popular enough that they did a book based on Sawbones. It's me- it's medical history basically, and these two people do it. They're funny, and one is an MD, and one isn't. I think they're a couple but. The book, beautiful hardcover book, but they left in the dummy index. So the index, and get this, the index is for some weird fringe deep dive into knives. So it's like, oh, milit- there's like weird names of military knives. There's polishing stones, and it's like an entire six-page index about knives. Which, and then, what the publisher did is said, " Well, we can't, we can't redo the book, so we're going to hand, we're going to glue together the pages of the index, so people won't see them."
 
 [00:33:32] Adam: Oh my god! What a solution!
 
 [00:33:33] Mary Roach: Yeah, how did they even think of that? But they took so long to glue the pages together that the book wasn't available at the time they were publicizing it. Just one thing led to it. It was just a horrible, anyway. So the paperback's coming out, and I'm like. the good, it has another chance. The index is now correct, but anyway, holy! Can you imagine?
 
-[00:33:56] Adam: No, I mean, I used to work in graphic design, where when we put an image on a layout, we'd write in sharpie on it " FPO" for position only, so the printer would know to swap it out. And the number of times I'd open up a catalog and see FPO over a photo—that happened all the time back before computers.
+[00:33:56] Adam: No, I mean, I used to work in graphic design, where when we put an image on a layout, we'd write in sharpie on it " FPO" for position only, so the printer would know to swap it out. And the number of times I'd open up a catalog and see FPO over a photo - that happened all the time back before computers.
 
 [00:34:16] Mary Roach: Oh yeah, no, I can't even. I mean, it just, but it was a very interesting index. I kind of lost myself in the
 
@@ -376,7 +376,7 @@ Episode URL: https://www.youtube.com/watch?v=xDvqlJGjh-w
 
 [00:36:46] Mary Roach: Wow! Cool.
 
-[00:36:47] Adam: and. I never freaking used it. I mean, I billed them, but I—I just like I got this and totally forgot I had somebody else's credit card to spend with in my wallet.
+[00:36:47] Adam: and. I never freaking used it. I mean, I billed them, but I - I just like I got this and totally forgot I had somebody else's credit card to spend with in my wallet.
 
 [00:36:57] Mary Roach: You idiot!
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=xDvqlJGjh-w
 
 [00:37:22] Adam: Is there something that you are super craving to go back to once we are potentially somewhat back to normal?
 
-[00:37:29] Mary Roach: Yeah, I want, well, first I need another book idea, but once I have one, just going out there into the world, into other people's worlds—the thing that I do and I love to do. You know, I was just looking for. I have to do a. Podcast has to do with Gulp later. Somebody else's podcast, and I was reading. I was reading the chapter in the Netherlands at Food Valley, the Oral Processing Lab, and I was like, God, I miss being in a lab where people study chewing using comfort putty that this like looks like a silicone, looks like a pencil eraser, and you chew it. And I was like, these these little universes that I I get to visit. I haven't been there in a year, and I'm like a I'm kind of a hollowed out husk of myself now. I'm like, I miss that. When will that come back?
+[00:37:29] Mary Roach: Yeah, I want, well, first I need another book idea, but once I have one, just going out there into the world, into other people's worlds - the thing that I do and I love to do. You know, I was just looking for. I have to do a. Podcast has to do with Gulp later. Somebody else's podcast, and I was reading. I was reading the chapter in the Netherlands at Food Valley, the Oral Processing Lab, and I was like, God, I miss being in a lab where people study chewing using comfort putty that this like looks like a silicone, looks like a pencil eraser, and you chew it. And I was like, these these little universes that I I get to visit. I haven't been there in a year, and I'm like a I'm kind of a hollowed out husk of myself now. I'm like, I miss that. When will that come back?
 
 [00:38:21] Adam: Yeah, me too. We drove across country, my wife and I in late September, early October, for about two and a half weeks, and that was that sustained us for a couple of months. It was really really nice to have such a break in the routine.
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=xDvqlJGjh-w
 
 [00:40:55] Adam: And it was. I miss. I miss like you. I miss travel. I I flew 100,000 miles a year every year for the last 20 years, and.
 
-[00:41:04] Mary Roach: yeah, no, I, I, there were years when I was on the road for like four months, w—reporting.
+[00:41:04] Mary Roach: yeah, no, I, I, there were years when I was on the road for like four months, w- reporting.
 
 [00:41:09] Adam: Oh my god!
 
@@ -454,7 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=xDvqlJGjh-w
 
 [00:41:44] Adam: Oh no, I remember you saying that one of your favorite things to do is to look out the window of a plane and go, " What is that? Oh my god, I want to go there!"
 
-[00:41:51] Mary Roach: Yes, yes, just fly. Yeah, exactly. The more desolate and weird, the better. Like flying, I remember flying over. The Arctic, just like there's just nothing there, just like weird lakes and shit. And I would, I that that's the kind of place. It—didn't they someone ended up doing the show you and I talked about.
+[00:41:51] Mary Roach: Yes, yes, just fly. Yeah, exactly. The more desolate and weird, the better. Like flying, I remember flying over. The Arctic, just like there's just nothing there, just like weird lakes and shit. And I would, I that that's the kind of place. It - didn't they someone ended up doing the show you and I talked about.
 
 [00:42:08] Adam: Did they really?
 

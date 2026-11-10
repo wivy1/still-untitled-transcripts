@@ -122,7 +122,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:05:33] Will: Oh well, you know who doesn't?
 
-[00:05:34] Adam: Um—
+[00:05:34] Adam: Um -
 
 [00:05:34] Norm: He was hanging out there with Eric Roberts,
 

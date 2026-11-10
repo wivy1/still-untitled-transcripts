@@ -86,7 +86,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:03:55] Norm: Cool pictures, but I can't read it.
 
-[00:03:58] Adam: Well, and there's actually the literature in—includes all this very cool stuff of people doing other things with them, like attaching motors or making them activate in other ways or making them motion sensitive, etc.
+[00:03:58] Adam: Well, and there's actually the literature in-includes all this very cool stuff of people doing other things with them, like attaching motors or making them activate in other ways or making them motion sensitive, etc.
 
 [00:04:07] Norm: Yeah, I bought a kit at a Maker Faire because Make Magazine also sells some of these kits on their website, and I got one. and they're ever they're evergreen. Like this one, I don't like this one's new, but they have kits that were built or sold several years ago. They still sell them because it's still relevant. Right. And I got a synthesizer, which was very neat.
 
@@ -266,7 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:11:37] Norm: Okay.
 
-[00:11:38] Adam: But I started out the first one, and the whole first three rows was a musical theater group that had just had its opening night and were drunk and psyched, and when I started nailing this song, they became the greatest. Audience, ever, and it was like a feedback loop. Every performer knows this. You get a great audience, and all of a sudden, things can go really to a high level. And we had so—I mean, we just had the whole crowd just like freaking out towards the end. It was awesome.
+[00:11:38] Adam: But I started out the first one, and the whole first three rows was a musical theater group that had just had its opening night and were drunk and psyched, and when I started nailing this song, they became the greatest. Audience, ever, and it was like a feedback loop. Every performer knows this. You get a great audience, and all of a sudden, things can go really to a high level. And we had so - I mean, we just had the whole crowd just like freaking out towards the end. It was awesome.
 
 [00:12:07] Norm: Adam Savage karaoke.
 

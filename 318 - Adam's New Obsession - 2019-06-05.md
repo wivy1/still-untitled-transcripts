@@ -360,7 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:13:15] Adam: But I don't. I don't.
 
-[00:13:16] Will: He has a Millipede machine. in the—.
+[00:13:16] Will: He has a Millipede machine. in the -.
 
 [00:13:17] Adam: That's it. That's the only. Millipede is the only game I've ever played.
 

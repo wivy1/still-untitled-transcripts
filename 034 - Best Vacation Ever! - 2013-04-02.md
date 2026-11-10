@@ -96,7 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=xVq_vJkqzaY
 
 [00:02:22] Norm: with three feet in the ground.
 
-[00:02:23] Adam: If anybody, so it's clearly a manufactured item. They didn't just make this for the movie. So if anyone knows where we can get this movie was shot in. Sorry, tho—those scenes weren't shot in Switzerland. I can't remember where they were exactly filmed,
+[00:02:23] Adam: If anybody, so it's clearly a manufactured item. They didn't just make this for the movie. So if anyone knows where we can get this movie was shot in. Sorry, tho-those scenes weren't shot in Switzerland. I can't remember where they were exactly filmed,
 
 [00:02:35] Will: but it was shot in like 2000, 2002?
 
@@ -130,7 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=xVq_vJkqzaY
 
 [00:03:27] Norm: Great American road trip.
 
-[00:03:28] Will: Wow. We would. My father owned his own business, so we were able to kind of make the, va—make the vacation was a business trip, and he would pick some place that he wanted to go sell, and then we'd stop and do a bunch of cool stuff along the way.
+[00:03:28] Will: Wow. We would. My father owned his own business, so we were able to kind of make the, va- make the vacation was a business trip, and he would pick some place that he wanted to go sell, and then we'd stop and do a bunch of cool stuff along the way.
 
 [00:03:40] Adam: That's really cool.
 
@@ -374,7 +374,7 @@ Episode URL: https://www.youtube.com/watch?v=xVq_vJkqzaY
 
 [00:16:19] Will: yeah, the valets and the bellman. The concierges have to play it safe, is the thing I think, because the concierge, if you recommend something bad in your concierge, you're going to be in trouble. If you maybe recommend something challenging, you might be in trouble. But the valets don't give a shit because you know they're like, hey, what's up?
 
-[00:16:34] Adam: But again, the smartphone. It can't be overstated how many gems you can find, and I swear you absolutely, and I'll state this unequivocally, cannot go wrong eating anywhere that Tony Bourdain has gone. Yeah, I we have had my wife and I some of the best meals of our lives going to places like. The Pied de Cochon in Montreal, which is just a phenomenal meat lover's paradise. Eating the bo ssäm at Momofuku in New York. You know that I—that was the first time I heard of David Chang was from Bourdain.
+[00:16:34] Adam: But again, the smartphone. It can't be overstated how many gems you can find, and I swear you absolutely, and I'll state this unequivocally, cannot go wrong eating anywhere that Tony Bourdain has gone. Yeah, I we have had my wife and I some of the best meals of our lives going to places like. The Pied de Cochon in Montreal, which is just a phenomenal meat lover's paradise. Eating the bo ssäm at Momofuku in New York. You know that I - that was the first time I heard of David Chang was from Bourdain.
 
 [00:17:08] Will: So, so how do you? Is there a list of David Chang approved restaurants someplace?
 

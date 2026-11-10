@@ -24,7 +24,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:00:47] Simone: really, can I level up to co-host, please? Stop being guest.
 
-[00:00:52] Norm: Yeah, it always feels—it's always because it feels special when you're in the office.
+[00:00:52] Norm: Yeah, it always feels - it's always because it feels special when you're in the office.
 
 [00:00:55] Simone: Is it because I'm a foreigner? No, is that it?
 

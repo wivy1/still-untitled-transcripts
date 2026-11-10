@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:09:14] Norm: Oh, and it's an old, I think, elementary or middle school, but it's a beautiful hotel. Danica loves, and we stayed there once.
 
-[00:09:25] Adam: Oh, I'm going to ask you about the next time I go there. We stayed at the Kimpton Vintage. Again, I love Kimptons. Yeah, and unbelievably great hotel. We love the Kimptons because they're dog friendly, as you pointed out. But this one, like we're there over Christmas, and that staff working Christmas—I mean, that's a tough gig doing that service industry over the big holidays. And the staff was amazing; like every one of them was sunny and delightful and just fabulous. It was a great stay. It was really lovely.
+[00:09:25] Adam: Oh, I'm going to ask you about the next time I go there. We stayed at the Kimpton Vintage. Again, I love Kimptons. Yeah, and unbelievably great hotel. We love the Kimptons because they're dog friendly, as you pointed out. But this one, like we're there over Christmas, and that staff working Christmas - I mean, that's a tough gig doing that service industry over the big holidays. And the staff was amazing; like every one of them was sunny and delightful and just fabulous. It was a great stay. It was really lovely.
 
 [00:09:54] Will: I and it's yeah, it's a good walking town too because there's a bunch of good stuff to walk to right around there. You're like near the cart pods, the whole thing. Portland's so good.
 

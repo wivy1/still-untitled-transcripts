@@ -10,7 +10,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:01:28] Norm: and I'm Norm.
 
-[00:01:30] Adam: Oh, wait a second. Okay, cool. I’m—sorry, I just got some text.
+[00:01:30] Adam: Oh, wait a second. Okay, cool. I’m - sorry, I just got some text.
 
 [00:01:35] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
@@ -30,9 +30,9 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:01:53] Adam: So One of my favorite X Files episodes ever is the one where Mulder finds a genie who grants three wishes. Oh. Have you ever seen this one?
 
-[00:02:01] Will: I— it’s familiar, but I don't remember what happened.
+[00:02:01] Will: I - it’s familiar, but I don't remember what happened.
 
-[00:02:03] Adam: So the episode starts with these idiots who find the genie, and one of them's like, " I want to be invisible," and she's like, " Great, boom, you're invisible." And he's wearing clothes, and he's like, " Why aren't my clothes invisible?" She's like, " You didn't specify that your clothes." So he takes off his clothes, and he's like, " I'm cold," and she's like, " Yeah, well, that's goes to the territory." And then he runs into traffic and gets hit by a car, right? It’s a very—so there's this great scene where Scully is invited to do an autopsy on a body that's invisible, and she like, there's a table and there's a dent in the table, but she takes powder and it falls on a human form.
+[00:02:03] Adam: So the episode starts with these idiots who find the genie, and one of them's like, " I want to be invisible," and she's like, " Great, boom, you're invisible." And he's wearing clothes, and he's like, " Why aren't my clothes invisible?" She's like, " You didn't specify that your clothes." So he takes off his clothes, and he's like, " I'm cold," and she's like, " Yeah, well, that's goes to the territory." And then he runs into traffic and gets hit by a car, right? It’s a very - so there's this great scene where Scully is invited to do an autopsy on a body that's invisible, and she like, there's a table and there's a dent in the table, but she takes powder and it falls on a human form.
 
 [00:02:36] Will: Wow, that is amazing effects for like 1990, yeah, four or five probably.
 
@@ -92,7 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:04:52] Adam: It's a wonderful one.
 
-[00:04:53] Will: Mine is the cerulean blue episode. Where it's the guy with the brain tumor, and he can convince people to do things just by saying things and repeating them, and the guy drives out into traffic, and it gets—
+[00:04:53] Will: Mine is the cerulean blue episode. Where it's the guy with the brain tumor, and he can convince people to do things just by saying things and repeating them, and the guy drives out into traffic, and it gets -
 
 [00:05:03] Adam: yes, yes, yes,
 
@@ -320,7 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:12:02] Will: Oh, sorry, my bad. The thing. This is like this is
 
-[00:12:06] Adam: like You’re— scratching my balls. Such a great bit.
+[00:12:06] Adam: like You’re - scratching my balls. Such a great bit.
 
 [00:12:09] Will: Oh yeah.
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:16:09] Will: The American James Bonds have traditionally been among the crappiest. The one with Jackie Gleason as the sheriff from Smokey and the Bandit. It seemed like that was a real low point. Live and let die.
 
-[00:16:25] Norm: James Bond is a globe—
+[00:16:25] Norm: James Bond is a globe-
 
 [00:16:26] Will: It’s Jane Seymour, right?
 
@@ -520,7 +520,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:18:42] Adam: It’s a lot better. And so, if this one was disappointing, I have no doubt that they will respond and. Take some of the criticism on the chin and do something about it, because it seems right now lately it's been a very responsive franchise.
 
-[00:18:55] Norm: It's also a movie series that, in the history—
+[00:18:55] Norm: It's also a movie series that, in the history -
 
 [00:18:58] Adam: You don't see a lot of Wolverine gestures.
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:19:14] Norm: Well, but on the how cat how how you know with someone with claws would.
 
-[00:19:17] Will: They came out of the top in the cartoon. They didn't come out between his knuckles in the cartoon. They came out of the top of his hand in the cartoon. They were thinner, whippier. It was a little bit of a lighter blade. A little more. Could be—
+[00:19:17] Will: They came out of the top in the cartoon. They didn't come out between his knuckles in the cartoon. They came out of the top of his hand in the cartoon. They were thinner, whippier. It was a little bit of a lighter blade. A little more. Could be -
 
 [00:19:29] Norm: Bond is a franchise that people expect reboots. They expect new actors to come in. Yes. And that's okay. We can complain about oh they're rebooting Spider-Man again. Oh, they're going to reboot this again. Bond, that's part of the story.
 
@@ -564,7 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:20:03] Will: I think on that note, anything else we want to you know talk about?
 
-[00:20:09] Adam: Spy movies hold a very important place in my makeup. The very first prop I ever built, and I've talked about this, was a James Bond, Mission Impossible type briefcase with a bomb detonator built into it. That type of adventure of the secretive, lonely agent in the middle of nowhere, and all the machinations—actually,
+[00:20:09] Adam: Spy movies hold a very important place in my makeup. The very first prop I ever built, and I've talked about this, was a James Bond, Mission Impossible type briefcase with a bomb detonator built into it. That type of adventure of the secretive, lonely agent in the middle of nowhere, and all the machinations - actually,
 
 [00:20:33] Will: exotic places.
 
@@ -636,7 +636,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:24:06] Will: So good.
 
-[00:24:06] Norm: It's. It's a—
+[00:24:06] Norm: It's. It's a -
 
 [00:24:07] Adam: Is the villain not scary in
 

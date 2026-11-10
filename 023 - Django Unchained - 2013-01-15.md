@@ -18,7 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:00:18] Adam: I'm wearing my coat because it's freezing cold in the cave right now.
 
-[00:00:21] Will: That was really smart. I— mine's sitting right over there. I really wish I I'd gotten it before we started this because it's brisk. It's San Francisco cold, which is a whole different kind of cold.
+[00:00:21] Will: That was really smart. I - mine's sitting right over there. I really wish I I'd gotten it before we started this because it's brisk. It's San Francisco cold, which is a whole different kind of cold.
 
 [00:00:29] Adam: It is. It's a wussy cold according to the rest of the world, but in San Francisco we're very upset about these 40-degree days.
 
@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:01:00] Norm: Well, you got to use a Nest.
 
-[00:01:02] Adam: I'll— I have a Nest.
+[00:01:02] Adam: I'll - I have a Nest.
 
 [00:01:03] Norm: Exactly.
 
@@ -62,7 +62,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:01:47] Adam: It is an intentional parenting choice. Yes.
 
-[00:01:50] Will: So had—
+[00:01:50] Will: So had -
 
 [00:01:51] Adam: One others might not agree with.
 
@@ -122,19 +122,19 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:03:51] Will: Well, and frequently at a time when there's something that's horrific or incredibly racist or racially charged or profoundly uncomfortable, he'll also put something funny in the background.
 
-[00:04:00] Adam: Well, that's— I mean— that's one of the things that he does. He uses that fear and violence to make— cut the comedy extra funny, and he often gives you a laugh breath at the same time as he's giving you a moment. And it's actually— it's a feeling. Look, I know that there are those out there who feel like that's a gimmick on his part, that it's a almost like a tic. But stylistically, I find I really enjoy that feeling as the moviegoer, and I think that the way he exploits, in a way, I think of Django as a maturation of that form because what he's doing with that, to me, speaking as a speaking as me is he's engendering a conversation in my head about the things that I find funny, the things that I find horrific, and the things that I find awful to look at.
+[00:04:00] Adam: Well, that's - I mean - that's one of the things that he does. He uses that fear and violence to make - cut the comedy extra funny, and he often gives you a laugh breath at the same time as he's giving you a moment. And it's actually - it's a feeling. Look, I know that there are those out there who feel like that's a gimmick on his part, that it's a almost like a tic. But stylistically, I find I really enjoy that feeling as the moviegoer, and I think that the way he exploits, in a way, I think of Django as a maturation of that form because what he's doing with that, to me, speaking as a speaking as me is he's engendering a conversation in my head about the things that I find funny, the things that I find horrific, and the things that I find awful to look at.
 
 [00:04:57] Will: Yeah.
 
 [00:04:57] Adam: And that's a really important conversation.
 
-[00:05:00] Will: For example—
+[00:05:00] Will: For example -
 
 [00:05:01] Adam: Well. I mean, almost all of the big laughs in the film come at the expense of some horrifying violence. Except, and we're going to be talking spoilers here.
 
 [00:05:13] Norm: Absolutely.
 
-[00:05:14] Will: Yeah. So—
+[00:05:14] Will: Yeah. So -
 
 [00:05:15] Norm: It is a spoiler-filled conversation.
 
@@ -154,7 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:05:42] Norm: As opposed to in the movie, he goes, "Oh, I get to choose my costume." And then the joke is that it's a, this is the costume he would have chosen.
 
-[00:05:49] Will: And—
+[00:05:49] Will: And -
 
 [00:05:50] Adam: It's a beautiful. It's just a. It makes you feel the character is so human.
 
@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:07:13] Will: Yeah, well, Nash Bridges is some fine work. Don't, don't talk smack about Nash Bridges, Chan.
 
-[00:07:17] Adam: So I, I have to say I'm, I'm, I'm fascinated by the film. I'm fascinated by the conversation it engenders internally among the view, in the viewer about race and America's history. I am wary of, I'm wary of talking about it from the position of a privileged white dude from freaking White Plains, New York. Not really. I'm from Tarrytown, but—
+[00:07:17] Adam: So I, I have to say I'm, I'm, I'm fascinated by the film. I'm fascinated by the conversation it engenders internally among the view, in the viewer about race and America's history. I am wary of, I'm wary of talking about it from the position of a privileged white dude from freaking White Plains, New York. Not really. I'm from Tarrytown, but -
 
 [00:07:45] Will: White Plains is much funnier in this context. Yeah.
 
@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:08:24] Adam: Quite critical.
 
-[00:08:25] Norm: Or maybe think that he's overrated. Maybe—
+[00:08:25] Norm: Or maybe think that he's overrated. Maybe -
 
 [00:08:27] Adam: Overrated is, yeah.
 
@@ -216,7 +216,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:08:33] Adam: It is, but, and then there's a smaller cadre that actually wants to dismiss him. And like him or not, you can't dismiss what he's doing. And I'm not even sure what he's doing. You know, that this conversation that he's having about violence and American culture. I think that one of the reasons he rejected that reporter's question when he says, "I'm not going to talk about violence in my films and how it affects people," is because the film is exactly an answer to that question. The film is talking about our culture of violence and it's talking about the American culture and what formed that, what formed the way we think, how we're not so removed from the Romans.
 
-[00:09:15] Norm: Talking about the movies that it's paying tribute to—
+[00:09:15] Norm: Talking about the movies that it's paying tribute to -
 
 [00:09:18] Adam: Exactly.
 
@@ -224,7 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:09:21] Adam: Absolutely, absolutely. I mean, I know a lot of filmmakers too who aren't very impressed with Tarantino, and I understand some of their complaints. Sometimes to a filmmaker who really, really understands the history of all the films that Tarantino is pulling from, sometimes it feels like he's literally just grabbing screenshots from all his favorite movies and assembling them. But as a viewer sitting through it, I'm totally transported.
 
-[00:09:46] Norm: So when you watch Django, when I watch it, was very close to Inglourious Basterds. I felt like he was using a lot of the same. Like he kind of mastered his craft in Inglourious Basterds and kind of just refining it now. Yeah. They're different movies—
+[00:09:46] Norm: So when you watch Django, when I watch it, was very close to Inglourious Basterds. I felt like he was using a lot of the same. Like he kind of mastered his craft in Inglourious Basterds and kind of just refining it now. Yeah. They're different movies -
 
 [00:10:00] Adam: Totally.
 
@@ -240,9 +240,9 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:11:31] Norm: Let's go back to the characters because you talked about earlier.
 
-[00:11:32] Adam: Well, I guess what I think is, I think of, I think that Tarantino is merely finding locations to put. He's a character-driven—
+[00:11:32] Adam: Well, I guess what I think is, I think of, I think that Tarantino is merely finding locations to put. He's a character-driven -
 
-[00:11:40] Norm: His—
+[00:11:40] Norm: His -
 
 [00:11:40] Adam: He wants a character. He loves. He thinks Django. I want a badass. I want to place him in the worst position possible. I want to watch him triumph.
 
@@ -250,7 +250,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:11:53] Adam: They start winding, and I don't even think he's thinking, "I'm going to engender a deep conversation about race," but I think he thinks about it in a way that's novel and interesting and different than most people do, and on a deeper level. I think he has said in the past that the post-analysis of his scripts where he sees the meta-analysis often happens long after he's shot the movie.
 
-[00:12:13] Norm: Mm-hmm. And there was an interview when—
+[00:12:13] Norm: Mm-hmm. And there was an interview when -
 
 [00:12:16] Adam: For him.
 
@@ -274,11 +274,11 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:12:54] Adam: He's terrifying, but at that moment, he's so smart. You're like, wow, you like smart people. You like watching them figure stuff out.
 
-[00:13:00] Will: The things that you like on, in characters in film, yeah. So how, how, I mean, how does this apply to the other movies? Like, if you look at Pulp Fiction, there's no meta-narrative about, about. There's no truths about human nature or history. It's just, just, it's a—
+[00:13:00] Will: The things that you like on, in characters in film, yeah. So how, how, I mean, how does this apply to the other movies? Like, if you look at Pulp Fiction, there's no meta-narrative about, about. There's no truths about human nature or history. It's just, just, it's a -
 
-[00:13:14] Adam: No, but so Tarantino said that he wanted violence to be. He wanted to make a film in which violence was one of the characters, right? So in Pulp Fiction, you have the super brutal opening scene, and then very little that's super difficult to watch happens until Butch and Ving sorry—
+[00:13:14] Adam: No, but so Tarantino said that he wanted violence to be. He wanted to make a film in which violence was one of the characters, right? So in Pulp Fiction, you have the super brutal opening scene, and then very little that's super difficult to watch happens until Butch and Ving sorry -
 
-[00:13:35] Will: Until they get into, until they're in the—
+[00:13:35] Will: Until they get into, until they're in the -
 
 [00:13:38] Adam: Into Zed's basement, yeah.
 
@@ -304,7 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:15:11] Norm: The trackers group.
 
-[00:15:12] Will: Okay. Um—
+[00:15:12] Will: Okay. Um -
 
 [00:15:12] Norm: And then she's killed. But right before she's killed, she's looking at some photographs, right, of like Athens or something. You have some hint of a story. And I think in an interview they said that originally in Quentin Tarantino's mind the scarf revealed a woman with no jaw.
 
@@ -316,7 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:15:32] Norm: Why would she be with these other horrible people? But these characters have stories.
 
-[00:15:37] Will: Well, she was notable because she was a woman. She's looking at the stereogram, so she's thinking about something beyond what the other buffoons are thinking about. —
+[00:15:37] Will: Well, she was notable because she was a woman. She's looking at the stereogram, so she's thinking about something beyond what the other buffoons are thinking about. -
 
 [00:15:44] Norm: Django also, it's almost, it's. I think it's his first origin story because if you go to a movie like Kill Bill, Uma Thurman has that whole history. Right. The Viper Assassination Squad has that history. In Inglourious Basterds Brad Pitt has a history.
 
@@ -340,7 +340,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:16:14] Will: So there's a tie together, is what you're saying.
 
-[00:16:16] Adam: And Django Unchained, I mean, Django's wife's—
+[00:16:16] Adam: And Django Unchained, I mean, Django's wife's -
 
 [00:16:20] Norm: Last name.
 
@@ -360,7 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:18:25] Will: And that's all. Right. I'm disappointed it's not in the movie.
 
-[00:18:27] Adam: But it is. It's in my head. Well—
+[00:18:27] Adam: But it is. It's in my head. Well -
 
 [00:18:28] Will: The, fair enough.
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:19:38] Adam: I think it totally grids right on top.
 
-[00:19:42] Will: It's been so long since I read Romeo and Juliet. Well, and then the scene in the Miami airport with the drug dog, yeah, is the going to the apothecary. Right, and—
+[00:19:42] Will: It's been so long since I read Romeo and Juliet. Well, and then the scene in the Miami airport with the drug dog, yeah, is the going to the apothecary. Right, and -
 
 [00:19:54] Adam: Well, I mean he actually said that he thought that Mélanie Laurent and the guy that played the Captain Zoller in Inglourious Basterds, he thought of them as Romeo and Juliet.
 
@@ -402,11 +402,11 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:20:15] Adam: Yes.
 
-[00:20:15] Will: Yeah. Interesting. —
+[00:20:15] Will: Yeah. Interesting. -
 
-[00:20:18] Norm: We got to talk about Samuel L. Jackson in Django, and that character really, really—
+[00:20:18] Norm: We got to talk about Samuel L. Jackson in Django, and that character really, really -
 
-[00:20:23] Adam: Yes, very difficult—
+[00:20:23] Adam: Yes, very difficult -
 
 [00:20:25] Norm: Yes.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:20:26] Will: There's a lot of different. I mean, there's a. As, I'm not an actor, I've never been an actor. I got to think that as you're reading the script, some of you, some part of you, is thinking, "Wow, is this going to be the last thing I ever do? Is this it?"
 
-[00:20:36] Norm: No, but it's Sam Jackson, and—
+[00:20:36] Norm: No, but it's Sam Jackson, and -
 
 [00:20:39] Will: No, I understand.
 
@@ -428,7 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:21:58] Adam: It's very impressive.
 
-[00:22:00] Will: It's, it, I was gonna say that, and the, and when he's watching Broom Broomhilda, when he's watching her—
+[00:22:00] Will: It's, it, I was gonna say that, and the, and when he's watching Broom Broomhilda, when he's watching her -
 
 [00:22:07] Norm: Yeah, the sneer.
 
@@ -436,13 +436,13 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:22:12] Norm: But then he also has one of the best comedic beats. When Candie dies, and he's the first one who screams no.
 
-[00:22:18] Will: Well, I, I thought the funny, the funnier part of that scene was when he's kind of in the line of fire, but not exactly, and he just kind of real, like the scene's dead still. Everybody's super intense. All—
+[00:22:18] Will: Well, I, I thought the funny, the funnier part of that scene was when he's kind of in the line of fire, but not exactly, and he just kind of real, like the scene's dead still. Everybody's super intense. All -
 
-[00:22:28] Adam: Right, and he back—
+[00:22:28] Adam: Right, and he back -
 
 [00:22:29] Will: Triggers, and he's just backing up ever so slowly.
 
-[00:22:32] Adam: That made me laugh. I am, I—
+[00:22:32] Adam: That made me laugh. I am, I -
 
 [00:22:34] Will: I was the only person in the theater laughing at that one.
 
@@ -452,7 +452,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:23:01] Adam: I couldn't help myself.
 
-[00:23:01] Norm: So— Roger Ebert had a really good theory about the Schultz character, and that he is, he's kind of like a magician in that world. He's deus ex machina because he kind of wanders in. You know, the movie starts off, and it's a great description of the chain of slaves walking because they're like a human locomotive because they're breathing. It's like the steam.
+[00:23:01] Norm: So - Roger Ebert had a really good theory about the Schultz character, and that he is, he's kind of like a magician in that world. He's deus ex machina because he kind of wanders in. You know, the movie starts off, and it's a great description of the chain of slaves walking because they're like a human locomotive because they're breathing. It's like the steam.
 
 [00:23:21] Adam: Yeah.
 
@@ -474,7 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:24:12] Adam: Django is, yes, it is worth seeing. It's important. It's really difficult to watch in many places. It is concerning and confusing. And I, I, I think it's, I think we're better that it exists.
 
-[00:24:23] Norm: But I'm, I'm so glad that Jamie Foxx, who I was skeptical of the role because originally it was—
+[00:24:23] Norm: But I'm, I'm so glad that Jamie Foxx, who I was skeptical of the role because originally it was -
 
 [00:24:26] Adam: Will Smith.
 
@@ -484,7 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:24:34] Norm: And it got to Jamie Foxx, a guy who's done good work. Ray, Collateral.
 
-[00:24:39] Adam: I'm a big fan of Jamie Foxx, and I have been for a long time. I and one of the things is I've, I'm one of the few people that didn't love Ray. I felt like it was almost a little too much of. Too—
+[00:24:39] Adam: I'm a big fan of Jamie Foxx, and I have been for a long time. I and one of the things is I've, I'm one of the few people that didn't love Ray. I felt like it was almost a little too much of. Too -
 
 [00:24:51] Will: He wasn't exactly a nice man by all reports.
 
@@ -502,11 +502,11 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:25:37] Will: Wow. I think the teleprompter might have been it seemed like the teleprompter broke like three times.
 
-[00:25:41] Adam: But I'm, I'm a big fan of Foxx, and I have been for a long time. I think—
+[00:25:41] Adam: But I'm, I'm a big fan of Foxx, and I have been for a long time. I think -
 
 [00:25:44] Norm: He really owns the role.
 
-[00:25:45] Adam: Absolutely, and he's got a tremendous amount of charisma. —
+[00:25:45] Adam: Absolutely, and he's got a tremendous amount of charisma. -
 
 [00:25:49] Norm: The music in this movie was also tremendous. The second time, notice it's so good. The songs he chooses for every scene.
 

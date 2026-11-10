@@ -370,7 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=M_XYZSHz6DI
 
 [00:25:32] Adam: Yeah.
 
-[00:25:32] Norm: And then you know the dark troopers come back, fly back in, and it could have been a cliff—again. There's so many moments. I would have forgiven them if they made that a cliffhanger. Right.
+[00:25:32] Norm: And then you know the dark troopers come back, fly back in, and it could have been a cliff- again. There's so many moments. I would have forgiven them if they made that a cliffhanger. Right.
 
 [00:25:42] Adam: I'm really glad they didn't.
 

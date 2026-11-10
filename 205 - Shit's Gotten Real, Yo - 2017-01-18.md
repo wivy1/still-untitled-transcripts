@@ -84,7 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:06:32] Will: Well, the Laugh Factory in Amarillo is really it's a the special the it's a great place. It's amazing. I mean,
 
-[00:06:39] Janet Varney: I just couldn't do it, right? I couldn't. I did nothing about. I feel sort of sometimes lazy, or I feel speaking of feeling like you’re a spy in the House of Love. I feel being in that comedy community when I was kind of doing sketch sort of playfully, and I was doing the festival. It had become more of a. David Owen and Cole Stratton and I are—we're all performers, and we've sort of varied on the levels of performing that we've continued to do over the years. But there was a point at which the festival was so overwhelming as a festival that I just didn't even feel like I could perform on it at all, and I started to sort of step back and go like, " Well, maybe I'm just a producer of comedy now, and maybe that's okay." And I don't know, maybe I like that, and I think we've all again had various degrees of that. And for Dave, my partner, he really does love producing, and it isn't—he doesn't have that bug to perform, and I totally understand that. Sure. Because I am closer to him than I am to the person who is like, " I'm I'm going to be a road comic. I got to get out there, or I got to do these open mics." I don't. I want the San Francisco experience of like just bring all those smart, savvy people that have already fallen in love with all my heroes, and I can just piggyback on the hard work they did.
+[00:06:39] Janet Varney: I just couldn't do it, right? I couldn't. I did nothing about. I feel sort of sometimes lazy, or I feel speaking of feeling like you’re a spy in the House of Love. I feel being in that comedy community when I was kind of doing sketch sort of playfully, and I was doing the festival. It had become more of a. David Owen and Cole Stratton and I are - we're all performers, and we've sort of varied on the levels of performing that we've continued to do over the years. But there was a point at which the festival was so overwhelming as a festival that I just didn't even feel like I could perform on it at all, and I started to sort of step back and go like, " Well, maybe I'm just a producer of comedy now, and maybe that's okay." And I don't know, maybe I like that, and I think we've all again had various degrees of that. And for Dave, my partner, he really does love producing, and it isn't - he doesn't have that bug to perform, and I totally understand that. Sure. Because I am closer to him than I am to the person who is like, " I'm I'm going to be a road comic. I got to get out there, or I got to do these open mics." I don't. I want the San Francisco experience of like just bring all those smart, savvy people that have already fallen in love with all my heroes, and I can just piggyback on the hard work they did.
 
 [00:07:49] Adam: Exactly.
 
@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:17:01] Janet Varney: I don't even know what you’re talking about.
 
-[00:17:01] Will: You’re best— you’re better off.
+[00:17:01] Will: You’re best - you’re better off.
 
 [00:17:04] Janet Varney: I mean, those that that name is. I don't like perk up excitedly.
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:18:18] Adam: the rest of time.
 
-[00:18:19] Janet Varney: That's correct. That's correct. And that's—I mean—that's the experience. That's because I had nothing to do with that. I mean, when I started to hear rumblings about it, I just thought I—I was like, I can't. I don't. I go out of my way to not have to hear certain names because I—I just don't care, and I don't. It doesn't feel like it affects me. There, as a—you know—I don't. The Apprentice doesn't mean anything to me. I don't care. I don't. I also don't. I kind of know what one of the Kardashians looks like, but I don't. I honestly, because just by virtue of like I am in the checkout lane again, and here it is, but I just. I could that was on a very sort of cellular, but also like it's this is not the most important part level, but that was the most baffling part of it was, I'm just hearing this name all the time now in a way that
+[00:18:19] Janet Varney: That's correct. That's correct. And that's - I mean - that's the experience. That's because I had nothing to do with that. I mean, when I started to hear rumblings about it, I just thought I - I was like, I can't. I don't. I go out of my way to not have to hear certain names because I - I just don't care, and I don't. It doesn't feel like it affects me. There, as a - you know - I don't. The Apprentice doesn't mean anything to me. I don't care. I don't. I also don't. I kind of know what one of the Kardashians looks like, but I don't. I honestly, because just by virtue of like I am in the checkout lane again, and here it is, but I just. I could that was on a very sort of cellular, but also like it's this is not the most important part level, but that was the most baffling part of it was, I'm just hearing this name all the time now in a way that
 
 [00:19:15] Will: most said word on media
 
@@ -514,7 +514,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:32:18] Unknown speaker: Legacy.
 
-[00:32:18] Will: You’re really— was it okay? 
+[00:32:18] Will: You’re really - was it okay? 
 
 [00:32:21] Adam: It was really messing with my Zen thing, man.
 

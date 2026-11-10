@@ -434,7 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:16:44] Rebecca: The friendship. between the kids.
 
-[00:16:45] Adam: Oh, the friendships between the kids was really lovely, and specifically, I thought the opening Dungeons and Dragons scenes—one of the most efficient bits of storytelling I have ever seen—was like, " Oh, your goal as a screenwriter is in two and a half minutes show me everything that's good about being 12 and playing D and D. Go!" Yeah, and they really did,
+[00:16:45] Adam: Oh, the friendships between the kids was really lovely, and specifically, I thought the opening Dungeons and Dragons scenes - one of the most efficient bits of storytelling I have ever seen - was like, " Oh, your goal as a screenwriter is in two and a half minutes show me everything that's good about being 12 and playing D and D. Go!" Yeah, and they really did,
 
 [00:17:03] Norm: and then still use those that those elements to then tell the story. It's the overture. It is. Yeah,
 
@@ -640,7 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:25:27] Norm: But I think that's the one where they don't actually get to the level of the thing.
 
-[00:25:31] Adam: No, they don't. But the idea of one body part splitting and apart and being a mouth—they're literally showing the scene in which that's about to happen when he does the paddles, the electrified paddles. What are those called? Anyway, I'm old and I'm dying from the neck from the head down. Oh my god, I can't believe I can't remember what that machine is called.
+[00:25:31] Adam: No, they don't. But the idea of one body part splitting and apart and being a mouth - they're literally showing the scene in which that's about to happen when he does the paddles, the electrified paddles. What are those called? Anyway, I'm old and I'm dying from the neck from the head down. Oh my god, I can't believe I can't remember what that machine is called.
 
 [00:25:52] Rebecca: I was about to say EKG.
 
@@ -666,7 +666,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:26:32] Norm: When he puts his hand over Eleven's hands, his hands are so much bigger, and like the way he cradles her, really, really creepy.
 
-[00:26:39] Rebecca: Yeah, and he's not—he doesn't have a huge physical presence. He's a slight man, as far as men go, I guess. He's not like a hulking man, but he exudes that that sort of presence when he's next to her, like this dominating force, which I just think is really well done.
+[00:26:39] Rebecca: Yeah, and he's not - he doesn't have a huge physical presence. He's a slight man, as far as men go, I guess. He's not like a hulking man, but he exudes that that sort of presence when he's next to her, like this dominating force, which I just think is really well done.
 
 [00:26:57] Norm: And you get the sense that it's not just her that he can manipulate. When one of his subordinates walks into the Upside Down, and then he looks at him almost for approval. Yeah. Like you get that he has that kind of control over everyone.
 
@@ -762,7 +762,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:30:03] Norm: I was waiting for it. Yeah.
 
-[00:30:04] Unknown: [unclear speaker: What a piece of—]
+[00:30:04] Unknown: [unclear speaker: What a piece of -]
 
 [00:30:04] Adam: he's too removed from the plot to end up getting chopped up.
 

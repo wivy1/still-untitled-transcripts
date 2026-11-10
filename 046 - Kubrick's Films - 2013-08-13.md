@@ -276,13 +276,13 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:07:27] Norm: You guys have never talked about Pulp Fiction before.
 
-[00:07:29] Adam: We had never talked about Pulp Fiction before, so we were just talking about being astonished by it and everything. And then John says—
+[00:07:29] Adam: We had never talked about Pulp Fiction before, so we were just talking about being astonished by it and everything. And then John says -
 
 [00:07:34] Will: I think somebody got tased out there.
 
 [00:07:35] Adam: Really? It
 
-[00:07:36] Will: It seems like it's kind of intense. I think she—
+[00:07:36] Will: It seems like it's kind of intense. I think she -
 
 [00:07:39] Adam: I, I'm, I, I.
 

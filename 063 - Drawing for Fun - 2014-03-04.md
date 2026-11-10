@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=fwM1wYjqiDw
 
 [00:08:01] Will: that's it. Show's over. We're not doing this podcast anymore.
 
-[00:08:01] Unknown speaker: We will say—
+[00:08:01] Unknown speaker: We will say -
 
 [00:08:01] Norm: Animated films.
 
@@ -380,7 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=fwM1wYjqiDw
 
 [00:11:05] Will: I mean that's the, that's a key,
 
-[00:11:07] Adam: right? Yeah, that is totally [unclear: your]—
+[00:11:07] Adam: right? Yeah, that is totally [unclear: your] -
 
 [00:11:08] Will: because you don't you're not as intimately familiar with that as you are with the thing that we're not talking about.
 
@@ -388,7 +388,7 @@ Episode URL: https://www.youtube.com/watch?v=fwM1wYjqiDw
 
 [00:11:11] Will: I'm sorry, I just paid for my parking meter. I just apologize using the phone during this.
 
-[00:11:11] Adam: [unclear: stream]— Wow, from the internet,
+[00:11:11] Adam: [unclear: stream] - Wow, from the internet,
 
 [00:11:11] Will: it's the future.
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=fwM1wYjqiDw
 
 [00:11:50] Adam: Along with this, because we can't just do this and show nothing. I think.
 
-[00:12:29] Will: Why don't we show the—
+[00:12:29] Will: Why don't we show the -
 
 [00:12:30] Norm: Talking about the visual element,
 
@@ -434,11 +434,11 @@ Episode URL: https://www.youtube.com/watch?v=fwM1wYjqiDw
 
 [00:13:24] Adam: Staedtler is one. And I got another. I am still playing around with what brand I love the most.
 
-[00:13:24] Will: I, I'm partial to the Uniball, but they’re only they’re 0.3—two eight or 0.38.
+[00:13:24] Will: I, I'm partial to the Uniball, but they’re only they’re 0.3 - two eight or 0.38.
 
 [00:13:57] Adam: Yeah, so I am going. I am going so crazy
 
-[00:13:57] Unknown speaker: Easy—
+[00:13:57] Unknown speaker: Easy -
 
 [00:13:57] Adam: small with some of these details. I am literally like taking off my glasses and like. And I'm going to eventually scan these and also add to them digitally. I've got places where you know I've got an exploded diagram where I want to do the screw paths in red, so that you see where everything goes all over.
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=fwM1wYjqiDw
 
 [00:14:26] Will: Like I have to imagine, like R2D2 is a project that is of similar or greater complexity than this.
 
-[00:14:32] Adam: Yeah, I didn't do very, very many sketches of R2. It was more like pictures with callouts. It was more like so. Yeah, [unclear: it might]—
+[00:14:32] Adam: Yeah, I didn't do very, very many sketches of R2. It was more like pictures with callouts. It was more like so. Yeah, [unclear: it might] -
 
 [00:14:32] Will: So you took frame grabs and pictures.
 

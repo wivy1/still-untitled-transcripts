@@ -18,7 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=OwC-kuox71A
 
 [00:00:13] Will: Yeah, Adam, I like your new mask. Is this part of your prophylactic measures for the time in which we live?
 
-[00:00:19] Adam: It is. It turns out that the N95 masks that I had with the valve in the center—they do a fine job of protecting me, but nobody around me, because air is just evacuated through the valve.
+[00:00:19] Adam: It is. It turns out that the N95 masks that I had with the valve in the center - they do a fine job of protecting me, but nobody around me, because air is just evacuated through the valve.
 
 [00:00:32] Will: Makes a funnel, probably.
 

@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:06:20] Adam: You can mail a letter to the clutch, and the clutch will respond.
 
-[00:06:23] Norm: But the momentum of a car—we're talking about rolling and how electric cars don't roll like
+[00:06:23] Norm: But the momentum of a car - we're talking about rolling and how electric cars don't roll like
 
 [00:06:27] Adam: yeah, yeah,
 

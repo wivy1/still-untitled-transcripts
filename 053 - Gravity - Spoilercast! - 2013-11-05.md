@@ -558,11 +558,11 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:23:06] Will: Emmanuel Lubinsky.
 
-[00:23:07] Adam: Lubinsky. Cuarón and Lubeski are absolutely—I mean, they're like doing Harryhausen-level groundbreaking. You know what Harryhausen was doing with Sinbad and Jason and the Argonauts? These guys are doing, and just as he was using the latest technology and really cool ways to solve problems, like how to make an actor fight a skeleton, these guys are using relatively available technology and repurposing it and doing radical, radical stuff.
+[00:23:07] Adam: Lubinsky. Cuarón and Lubeski are absolutely - I mean, they're like doing Harryhausen-level groundbreaking. You know what Harryhausen was doing with Sinbad and Jason and the Argonauts? These guys are doing, and just as he was using the latest technology and really cool ways to solve problems, like how to make an actor fight a skeleton, these guys are using relatively available technology and repurposing it and doing radical, radical stuff.
 
 [00:23:34] Will: Taking the pieces apart, putting them back together in a different way.
 
-[00:23:36] Adam: I cannot wait to get the Cinefex about this movie. I'm going to read it twice. I was—I just want to say one other thing is that apparently Sandra Bullock, who, if you know her, apparently says, " Call me Sandy," and is every bit as nice and sweet as you could imagine. I know a couple people who know her. Was a machine and would sit in that chair in the box for nine hours at a stretch to get her stuff in. I mean, you only ever see two people on two people in this movie. It is her and Clooney, and Clooney's gone halfway through the movie. This whole movie is her in every single shot, and she just kills it. I
+[00:23:36] Adam: I cannot wait to get the Cinefex about this movie. I'm going to read it twice. I was - I just want to say one other thing is that apparently Sandra Bullock, who, if you know her, apparently says, " Call me Sandy," and is every bit as nice and sweet as you could imagine. I know a couple people who know her. Was a machine and would sit in that chair in the box for nine hours at a stretch to get her stuff in. I mean, you only ever see two people on two people in this movie. It is her and Clooney, and Clooney's gone halfway through the movie. This whole movie is her in every single shot, and she just kills it. I
 
 [00:24:16] Will: yeah
 
@@ -620,11 +620,11 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:26:01] Will: and you're like, oh Jesus, really? I just felt like at some point somebody had to have a conversation. And yeah, we'll we'll yeah we'll do a Sigourney Weaver taking her out of the spacesuit scene. It'll be good. It'll be real sexy. And the Hollywood producer guy was like, " Oh, okay. Well, in that case, here's another $20 million."
 
-[00:26:15] Adam: Right, and I will actually. That's a great example of the difference. I mean, the whole thing of Sigourney Weaver in her underpants at the end of Alien is—that's absolutely titillating and terrifying, and exemplifies her vulnerability.
+[00:26:15] Adam: Right, and I will actually. That's a great example of the difference. I mean, the whole thing of Sigourney Weaver in her underpants at the end of Alien is - that's absolutely titillating and terrifying, and exemplifies her vulnerability.
 
 [00:26:30] Norm: Okay, you're right. It's it's not necessary because it's vulnerability,
 
-[00:26:33] Adam: right? There's vulnerability, but it's also—I mean, she's a gorgeous woman, and she's in her tighty whities, and the contrast between that and Sandra Bullock in her athletic gear—it's a real contrast. It was much less of that kind of.
+[00:26:33] Adam: right? There's vulnerability, but it's also - I mean, she's a gorgeous woman, and she's in her tighty whities, and the contrast between that and Sandra Bullock in her athletic gear - it's a real contrast. It was much less of that kind of.
 
 [00:26:48] Norm: But it was also it functioned as showing her vulnerability in that, in even in a breathable, oxygen-rich atmosphere.
 
@@ -786,7 +786,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:32:34] Will: Yeah. So, so, and that stuff also falls in the if you think about it too much, you are not going to have fun.
 
-[00:32:40] Adam: And you don't need to think about it too much. The physics of using a jet to control yourself—if you had something that had that much power—you would have the same problems that they showed her having.
+[00:32:40] Adam: And you don't need to think about it too much. The physics of using a jet to control yourself - if you had something that had that much power - you would have the same problems that they showed her having.
 
 [00:32:52] Will: I doubt I. If you are going to question something in that movie, the thing to question is how much grip can you get in those crazy tight, incredibly uncomfortable gloves after you've already been working for five or six hours?
 
@@ -838,7 +838,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:34:49] Will: because surface tension is stronger than the other forces working on the water.
 
-[00:34:52] Adam: Hadfield had something else—the same thing—happen, and it turned out to be. It was oh, it turned out to be a droplet of the antifog he had used in his suit, and he had vigorously put antifog in the inside of. This is in his book.
+[00:34:52] Adam: Hadfield had something else - the same thing - happen, and it turned out to be. It was oh, it turned out to be a droplet of the antifog he had used in his suit, and he had vigorously put antifog in the inside of. This is in his book.
 
 [00:35:07] Will: Yeah.
 
@@ -866,7 +866,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:35:52] Norm: Space exploration.
 
-[00:35:53] Adam: I guess the thing that that sold the danger of space to me was the. We talked about the Indian astronaut, who you only hear his voice, you never actually see him alive on screen. When you do see him, he has been killed. And it's a Jaws reveal. It's just like the reveal of what's his name from the movie Jaws when they—Dreyfuss is down in the boat and the head appears. In this case, the astronaut, a piece of space debris flying at 20,000 miles an hour, has gone right through his face, and you can see the Earth through the hole in his head,
+[00:35:53] Adam: I guess the thing that that sold the danger of space to me was the. We talked about the Indian astronaut, who you only hear his voice, you never actually see him alive on screen. When you do see him, he has been killed. And it's a Jaws reveal. It's just like the reveal of what's his name from the movie Jaws when they - Dreyfuss is down in the boat and the head appears. In this case, the astronaut, a piece of space debris flying at 20,000 miles an hour, has gone right through his face, and you can see the Earth through the hole in his head,
 
 [00:36:25] Will: You can see the shape of the thing that went through.  his face.
 

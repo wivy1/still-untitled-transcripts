@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:08:51] Adam: And I'm never interested in watching someone have a breakdown for fake reasons. Like, I find that stressful.
 
-[00:08:58] Mark Rober: Yeah, yeah, yeah. And same with me. That's not my mo. I mean, even with the glitter bomb, you get a lot of people like, " Oh, you should put like." paint in that or acid—I mean, obviously that's extreme—but it's like that's just not what I want to do. And even these people that do take it, like in general, I don't press charges. Like we come to an understanding. It's like, all right.
+[00:08:58] Mark Rober: Yeah, yeah, yeah. And same with me. That's not my mo. I mean, even with the glitter bomb, you get a lot of people like, " Oh, you should put like." paint in that or acid - I mean, obviously that's extreme - but it's like that's just not what I want to do. And even these people that do take it, like in general, I don't press charges. Like we come to an understanding. It's like, all right.
 
 [00:09:17] Norm: Well, they got glitter in their house. Yeah, yeah,
 
@@ -220,7 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:09:28] Mark Rober: So if you see their faces unblurred, so in this one, I actually sent some of the footage beforehand to Jimmy, and he's like, " Dude, you need to get the the facial expressions on these are so great." He's like, " You you can't blur those." So one of his producers called them up and worked his magic. And somehow.
 
-[00:09:45] Adam: So years ago there was an article. I can't remember where what publication it was in, but it was by someone whose job was to get appearance releases for cops for the show, right? And they said specifically never hard. It was really not a hard part of their job because everyone looked at it as a silver lining in a shit deal—
+[00:09:45] Adam: So years ago there was an article. I can't remember where what publication it was in, but it was by someone whose job was to get appearance releases for cops for the show, right? And they said specifically never hard. It was really not a hard part of their job because everyone looked at it as a silver lining in a shit deal -
 
 [00:10:07] Norm: situation, right, right, right.
 
@@ -574,7 +574,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:26:18] Mark Rober: less than that, and the precision you need, and like loading it, like how do you load it? That's a huge problem in and of itself.
 
-[00:26:24] Adam: Numberphile, Matt Parker was here, and he'll be back again in January. But he was talking about flipping a coin 10,000 times, which he did to his family's great consternation one week. But we were talking about building a machine that could flip a coin 100,000 times, and I spent several days diagramming it out, only to conclude this is a gigantic problem. This is really hard to solve. Something that could flip a coin and then read its value and then recirculate and flip that coin again. Just that, is a—
+[00:26:24] Adam: Numberphile, Matt Parker was here, and he'll be back again in January. But he was talking about flipping a coin 10,000 times, which he did to his family's great consternation one week. But we were talking about building a machine that could flip a coin 100,000 times, and I spent several days diagramming it out, only to conclude this is a gigantic problem. This is really hard to solve. Something that could flip a coin and then read its value and then recirculate and flip that coin again. Just that, is a -
 
 [00:26:53] Mark Rober: yeah, yeah, that's interesting. You'd almost want to do it. Like, is it cheating to have it like colored so like optically you could see? Hey, that's red or blue.
 
@@ -726,7 +726,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:33:34] Adam: Oh, it was a good hit, a good solid hit. No, no, no, he really laid into it. I mean, he did not as hard as Jamie. Jamie's smack was much harder.
 
-[00:33:42] Mark Rober: That's amazing. Yeah, he is he's exactly as advert— Like I don't know. You have experience meeting people like that a lot more than I do, and I'm sure some are like as advertised, and some are like, oh yeah, he's kind of a jerk.
+[00:33:42] Mark Rober: That's amazing. Yeah, he is he's exactly as advert- Like I don't know. You have experience meeting people like that a lot more than I do, and I'm sure some are like as advertised, and some are like, oh yeah, he's kind of a jerk.
 
 [00:33:55] Adam: it's a mixed bag.
 
@@ -856,7 +856,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:38:55] Adam: there was a lot of room to perfect the model.
 
-[00:38:58] Mark Rober: Can I just say, by the way, and I know you hear this all the time, and so it like stops moving the needle, but yeah, that show is certainly what I. What I. The point I want to drive home is like you inspired so many people, myself included. Like a lot of what I do is kind of has a MythBusters angle to it, and what I think is so interesting is like you're not like what you did there wasn't just inspiring people like one to one, but now I'm turning around, and I'm inspiring like the next generation, right? So it's like this concept of like you never know, like to me, like success. The definition of success to me is like what is your— what's the net delta of like how much the bet— the world is better because of your influence, right? And there's people who are really rich who by the world's definition are successful, but they're like by my definition absolute, right?
+[00:38:58] Mark Rober: Can I just say, by the way, and I know you hear this all the time, and so it like stops moving the needle, but yeah, that show is certainly what I. What I. The point I want to drive home is like you inspired so many people, myself included. Like a lot of what I do is kind of has a MythBusters angle to it, and what I think is so interesting is like you're not like what you did there wasn't just inspiring people like one to one, but now I'm turning around, and I'm inspiring like the next generation, right? So it's like this concept of like you never know, like to me, like success. The definition of success to me is like what is your - what's the net delta of like how much the bet- the world is better because of your influence, right? And there's people who are really rich who by the world's definition are successful, but they're like by my definition absolute, right?
 
 [00:39:44] Adam: Oh my God, no. Totally.
 
@@ -866,7 +866,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:40:07] Mark Rober: But yeah, so anyways that's a long way of saying like I think what you've done is really cool. You'll never really know the true impact, but like it could go on for generations and like hundreds of years.
 
-[00:40:16] Adam: It always moves the needle. Yeah, you never, when you're doing your thing at your best, you're not thinking about how it will land. You're thinking about the story you want to tell and the structure of that, but you're never trying to like get a— elicit a specific response out of people. So when you get a really good one, as you know yourself, every single time someone tells you that it it moved the needle for them, it's powerful and it's it's humbling.
+[00:40:16] Adam: It always moves the needle. Yeah, you never, when you're doing your thing at your best, you're not thinking about how it will land. You're thinking about the story you want to tell and the structure of that, but you're never trying to like get a - elicit a specific response out of people. So when you get a really good one, as you know yourself, every single time someone tells you that it it moved the needle for them, it's powerful and it's it's humbling.
 
 [00:40:41] Mark Rober: Yeah, yeah.
 

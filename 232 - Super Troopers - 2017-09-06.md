@@ -22,7 +22,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:00:25] Norm: Yes, um.
 
-[00:00:26] Adam: you are the production manager. You keep all the elements of Tested—the editors and the shooters and the talent and the folks and the details—running smoothly.
+[00:00:26] Adam: you are the production manager. You keep all the elements of Tested - the editors and the shooters and the talent and the folks and the details - running smoothly.
 
 [00:00:35] Norm: Talent is the most difficult.
 
@@ -574,7 +574,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:27:49] Norm: Yes, official's out there now. First AD.
 
-[00:27:53] Adam: That story, by the way, of Kathy Kennedy walking in as I did—that is totally true. And by the way, we didn't leave early that day.
+[00:27:53] Adam: That story, by the way, of Kathy Kennedy walking in as I did - that is totally true. And by the way, we didn't leave early that day.
 
 [00:28:02] Norm: Oh,
 

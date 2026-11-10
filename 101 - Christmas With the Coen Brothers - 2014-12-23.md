@@ -104,7 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:02:58] Will: Are you going to build a Carmen?
 
-[00:02:59] Adam: I have—your guess about this is as good as mine. I remember two things: one, I needed fish; two, I was going to wear it on my head. I have no idea why or for what.
+[00:02:59] Adam: I have - your guess about this is as good as mine. I remember two things: one, I needed fish; two, I was going to wear it on my head. I have no idea why or for what.
 
 [00:03:08] Will: I got it.
 
@@ -120,7 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:03:19] Norm: Do you recall? And you must have in your records when you bought these on eBay. So maybe you can look up.
 
-[00:03:25] Adam: I could look at my browsing history and see what—
+[00:03:25] Adam: I could look at my browsing history and see what -
 
 [00:03:27] Will: Are you trying to recapture your mental state.
 
@@ -512,7 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:14:08] Adam: Oh wow.
 
-[00:14:08] Will: Like his real mom, not—
+[00:14:08] Will: Like his real mom, not -
 
 [00:14:08] Adam: Frances McDormand. The one in which he does the full stairway to heaven scene.
 
@@ -604,7 +604,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:17:39] Will: Oh boy, that's great. Oh wow, that is totally a grandpa joke.
 
-[00:17:42] Norm: In terms of experiences, I think a lot of people might they might want instead of objects, they want the thing that can get the story they can tell. They want a story, and the story I want, and it's also experiences. I want to wake up on Christmas morning and go out, and someone has put a big giant red bow on my car—
+[00:17:42] Norm: In terms of experiences, I think a lot of people might they might want instead of objects, they want the thing that can get the story they can tell. They want a story, and the story I want, and it's also experiences. I want to wake up on Christmas morning and go out, and someone has put a big giant red bow on my car -
 
 [00:17:59] Will: the one that you already own
 
@@ -666,7 +666,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:20:24] Adam: Oh, totally, totally. So I'm very glad I was able to keep my cool because that is this kind of thing that can unhinge you as a dad,
 
-[00:20:31] Will: right? The the things that should be working that are not working is the thing that is the, the— I don't go unhinged very often, but that will do it almost every time. Like Gina, Gina will come into the office. She'll hear me banging around on something. She's like, " Something broken?" I'll be like, " Yeah, just leave me alone." And she just, " I'll see you in a few hours."
+[00:20:31] Will: right? The the things that should be working that are not working is the thing that is the, the - I don't go unhinged very often, but that will do it almost every time. Like Gina, Gina will come into the office. She'll hear me banging around on something. She's like, " Something broken?" I'll be like, " Yeah, just leave me alone." And she just, " I'll see you in a few hours."
 
 [00:20:31] Adam: Yeah,
 

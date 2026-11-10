@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=OOU8yadI2sY
 
 [00:02:39] Adam: Well, I want to dive into that a little bit because part of the thing that I felt with each canceled con was one, I'm not going to get to see my friends and meet some fans and do panels, all of which is just super wonderful, but also each con is a deadline to finish a thing.
 
-[00:02:55] Beverly: Yeah, exactly. And without those deadlines what is motivating you? Where's the fire under your butt to get this thing done? Because I think that part of that urgency and that desperation, to, you know, and the late nights, and that—that's all part of the experience of the making that I love, and it's all part of cosplay unless you're very organized, and I just don't understand that.
+[00:02:55] Beverly: Yeah, exactly. And without those deadlines what is motivating you? Where's the fire under your butt to get this thing done? Because I think that part of that urgency and that desperation, to, you know, and the late nights, and that - that's all part of the experience of the making that I love, and it's all part of cosplay unless you're very organized, and I just don't understand that.
 
 [00:03:19] Adam: Even if you're organized, you're still freaking out. But the idea that you end up going to the con after all of that labor, and the labor gets hyper and more intense, and then you show up, and everybody else has been going through the same thing, so you get that communal experience of the suffering and the joy that you've all experienced.
 
@@ -64,13 +64,13 @@ Episode URL: https://www.youtube.com/watch?v=OOU8yadI2sY
 
 [00:06:17] Beverly: Kind of indirectly, and indirectly meaning, I I I have a group called SheProp, which is a group that is for cosplayers and makers that identify as female, non-binary, or trans artists of special effects makeup artists of all kinds. Started as a Facebook group and has since gotten a little bit of a boost because I've had time to do things like panels and more podcast interviews. I have a little podcast that I do with them as well, so that I can have some one-on-one time with these people that I've been wanting to talk to, which started before the pandemic. But the panel Track has been interesting because it started as, " Hey, let's do a SheProp panel at WonderCon online." And so a group of the members did that, and then that kept happening. I was like, " Well, I think I'm going to get a Zoom account, and I think I'm going to open this up to whoever in the group wants to get together and and and talk about whatever they want to talk about." And so I have one one of my admins of the group Abby AbbyCat Cosplay. She's phenomenal. She is so great at panels. She was like, " I'm going to do this," and she's done like seven of them so far, which is great. But it also means that I have to edit all of these things. So that is that's another another layer of things that I I didn't expect I was going to have to be doing so much of in 2020. But yeah, so indirectly participating in the panel track both at virtual cons and also kind of on our own because. We realize we don't really need to have a convention to have that platform available to people.
 
-[00:08:07] Adam: I have been surprised the more I do Zoom meetings with friends, and again, it's been—I've been my inertia has been strong, but each time I do it, especially with professional friends, I finish feeling very much like I've just had a good dinner party.
+[00:08:07] Adam: I have been surprised the more I do Zoom meetings with friends, and again, it's been - I've been my inertia has been strong, but each time I do it, especially with professional friends, I finish feeling very much like I've just had a good dinner party.
 
 [00:08:24] Beverly: Totally, yeah, that's like the perfect way to put that too. Absolutely.
 
 [00:08:29] Adam: There's every now and then the group shares a laugh, and I forget that we're not in the same room because we're all giggling about the same stupid thing, and somehow that feels super. That feels like the hug that I miss so much.
 
-[00:08:42] Beverly: exactly. Yeah, I—I never thought that I would be able to connect in that way with people and that. So I'm—I'm—I'm an extroverted introvert, and so going to conventions I can do, but I can only do so for a certain amount of time before I'm like, I need to shut down. So I never expected to be craving. These kinds of more in-depth conversations with people, certainly not in a digital format, because I I just don't like talking on the phone. I don't know, but it's different. It's a different world now. I can do this. I I've been looking forward to this. This is really fun. I love this. Uh. Yeah. So it's 2020 has been really weird.
+[00:08:42] Beverly: exactly. Yeah, I - I never thought that I would be able to connect in that way with people and that. So I'm - I'm - I'm an extroverted introvert, and so going to conventions I can do, but I can only do so for a certain amount of time before I'm like, I need to shut down. So I never expected to be craving. These kinds of more in-depth conversations with people, certainly not in a digital format, because I I just don't like talking on the phone. I don't know, but it's different. It's a different world now. I can do this. I I've been looking forward to this. This is really fun. I love this. Uh. Yeah. So it's 2020 has been really weird.
 
 [00:09:30] Adam: I totally agree. The A/B testing that 2020 is requiring is extensive.
 
@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=OOU8yadI2sY
 
 [00:29:15] Adam: I've certainly on Halloween here in San Francisco, I tend to put on a costume. But last Halloween, I put on Captain America, and I rode my Onewheel across San Francisco as Captain America therapy because I thought my therapist should see me in my natural state.
 
-[00:29:33] Beverly: That's amazing. That's great. Yeah, we'll see what Halloween looks like this year. the other thing I've been noticing that a lot of cosplayers are doing is they are pivoting to creating content, like creating tutorials, or starting a YouTube channel, or like starting a Patreon, or Finding the time, they're finding the time to focus on these smaller projects and recording them, documenting them, and making tip sheets, and kind of putting putting more things back out into the community, which I think is awesome. There’s a, I I feel like almost everyone that I know has been doing some version of that, which is kind of neat, and I am sure that that's gonna—
+[00:29:33] Beverly: That's amazing. That's great. Yeah, we'll see what Halloween looks like this year. the other thing I've been noticing that a lot of cosplayers are doing is they are pivoting to creating content, like creating tutorials, or starting a YouTube channel, or like starting a Patreon, or Finding the time, they're finding the time to focus on these smaller projects and recording them, documenting them, and making tip sheets, and kind of putting putting more things back out into the community, which I think is awesome. There’s a, I I feel like almost everyone that I know has been doing some version of that, which is kind of neat, and I am sure that that's gonna -
 
 [00:30:21] Adam: That's really exciting.
 
@@ -272,7 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=OOU8yadI2sY
 
 [00:34:58] Beverly: Oh,
 
-[00:34:58] Adam: I didn't realize how many special powers Hela's sword actually possesses, and I'm kind of—it's a—it's an interesting piece. But I can't wait until we're at the next con and can exult in costume again.
+[00:34:58] Adam: I didn't realize how many special powers Hela's sword actually possesses, and I'm kind of - it's a - it's an interesting piece. But I can't wait until we're at the next con and can exult in costume again.
 
 [00:35:11] Beverly: Yes, me too. Thank you so much. It's been so great talking to you both.
 

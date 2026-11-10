@@ -234,7 +234,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:07:48] Frank Ippolito: I loved watching all of your expressions, though.
 
-[00:07:50] Adam: None of my teachers were crushable on a—
+[00:07:50] Adam: None of my teachers were crushable on a -
 
 [00:07:52] Will: No, there was a lot of polyester where I went to school.
 
@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:08:07] Will: Really, it's almost as if you've done this before.
 
-[00:08:09] Frank Ippolito: I've—no, I've been listening to you guys before.
+[00:08:09] Frank Ippolito: I've - no, I've been listening to you guys before.
 
 [00:08:10] Will: So, so.
 
@@ -318,11 +318,11 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:10:11] Will: Well, we were sitting fairly back in the audience. It looked like a full house because they had spaced everybody out really, really nicely. They
 
-[00:10:16] Adam: did a really good job with it. So that show, which I was worried—you know—I have tons of friends in LA. I brought dozens and dozens of them to that show, and I wanted it to be a good show. And I was very gratified that the energy in the house felt really vital and vibrant. And we—it was really, I think, one of the best shows of the tour.
+[00:10:16] Adam: did a really good job with it. So that show, which I was worried - you know - I have tons of friends in LA. I brought dozens and dozens of them to that show, and I wanted it to be a good show. And I was very gratified that the energy in the house felt really vital and vibrant. And we - it was really, I think, one of the best shows of the tour.
 
 [00:10:33] Will: I mean, if you've never stood on stage and done a show like that where people are coming to see you, like the worst fear is that you stand up there and there's like 55 people in the audience and nobody laughs.
 
-[00:10:45] Adam: Well, I mean, we've had—you know—we've played the houses where acoustically you can't hear the crowd, especially when you play a cut-down stadium. Like you go to Canada and you play some of these hockey stadiums, and the sound just disappears into the building. So the audience might be screaming their heads off, but on stage you can't tell.
+[00:10:45] Adam: Well, I mean, we've had - you know - we've played the houses where acoustically you can't hear the crowd, especially when you play a cut-down stadium. Like you go to Canada and you play some of these hockey stadiums, and the sound just disappears into the building. So the audience might be screaming their heads off, but on stage you can't tell.
 
 [00:11:01] Frank Ippolito: Really?
 
@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:12:46] Frank Ippolito: because the internet.
 
-[00:12:49] Adam: We played Toronto, and on our way into Toronto, I realized that there were several things I wanted to see in Toronto. One was the traveling Kubrick exhibit, which was at the Toronto International Film Festival building, which is a fantastic building which you should just go to if you're in Toronto. They show lots of great movies. They show old movies. They show new movies. They always have exhibitions, and the Stanley Kubrick exhibition is playing there through the end of January, I believe, and then it's moving on to, I think, Mexico City. So I wanted to see that. I was also cognizant of the fact that the dodo casting—I have a casting of a dodo skeleton upstairs, and again, we covered on the podcast.
+[00:12:49] Adam: We played Toronto, and on our way into Toronto, I realized that there were several things I wanted to see in Toronto. One was the traveling Kubrick exhibit, which was at the Toronto International Film Festival building, which is a fantastic building which you should just go to if you're in Toronto. They show lots of great movies. They show old movies. They show new movies. They always have exhibitions, and the Stanley Kubrick exhibition is playing there through the end of January, I believe, and then it's moving on to, I think, Mexico City. So I wanted to see that. I was also cognizant of the fact that the dodo casting - I have a casting of a dodo skeleton upstairs, and again, we covered on the podcast.
 
 [00:13:27] Will: Well, we covered the one you made out of Sculpey, the one you sculpted,
 
@@ -704,7 +704,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:26:39] Adam: Right, and they can be really exhausting. I know Traci Des Jardins talked about being on different versions of them, and they're rough on the contestants. But I like the ones that show craft. Face Off is one that that that it puts craft center
 
-[00:26:53] Frank Ippolito: It does. But watching watching the Master Chef Junior, I was just like, oh my god, those kids—they're just ruined for the rest of their life.
+[00:26:53] Frank Ippolito: It does. But watching watching the Master Chef Junior, I was just like, oh my god, those kids - they're just ruined for the rest of their life.
 
 [00:26:58] Adam: Well, but here's the thing: is
 
@@ -744,7 +744,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:29:27] Will: I have to imagine that it's really hard to be a dick to an eight-year-old.
 
-[00:29:31] Adam: There's none of that. There's none of that. This is, I've—what I've heard is that the network was really hard to sell on this show, which I totally understand because they're selling the men 18 to 49 or whatever it is, 34 to 59 or whatever, and kids don't necessarily plot into that demographic. This show is just my favorite show, my favorite reality show on TV right now.
+[00:29:31] Adam: There's none of that. There's none of that. This is, I've - what I've heard is that the network was really hard to sell on this show, which I totally understand because they're selling the men 18 to 49 or whatever it is, 34 to 59 or whatever, and kids don't necessarily plot into that demographic. This show is just my favorite show, my favorite reality show on TV right now.
 
 [00:29:54] Frank Ippolito: While I agree with your assessment of the show,
 
@@ -780,7 +780,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:32:04] Will: I think that's the category you're in.
 
-[00:32:05] Adam: Yeah, whatever. Unscripted reality. The trick is the producer will ask you. Producers will always ask you to do something to help them drive a narrative. That's their job. They need to cut—
+[00:32:05] Adam: Yeah, whatever. Unscripted reality. The trick is the producer will ask you. Producers will always ask you to do something to help them drive a narrative. That's their job. They need to cut -
 
 [00:32:15] Frank Ippolito: Yeah, but I don't want to say stuff that's not true.
 

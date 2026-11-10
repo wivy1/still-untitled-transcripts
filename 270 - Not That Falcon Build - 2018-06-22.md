@@ -1152,7 +1152,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:42:00] Norm: Wow.
 
-[00:42:00] Adam: I will tell you that I have not yet found its limit in San Francisco. The first weekend I had it, I rode it from the Mission to Ocean Beach and back through the park, and I still had 26% power left. Four days ago, I took it up and over Polk Street, down to Crissy, across Fort Mason, down to Crissy Field, back up through the Presidio, and home again. And that I had 35% power left after that trip. This thing is—I wear out before it does.
+[00:42:00] Adam: I will tell you that I have not yet found its limit in San Francisco. The first weekend I had it, I rode it from the Mission to Ocean Beach and back through the park, and I still had 26% power left. Four days ago, I took it up and over Polk Street, down to Crissy, across Fort Mason, down to Crissy Field, back up through the Presidio, and home again. And that I had 35% power left after that trip. This thing is - I wear out before it does.
 
 [00:42:34] Will: I was going to say, like riding a skateboard across San Francisco, like that would be exhausting.
 
@@ -1164,7 +1164,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:42:50] Norm: you still have control. You are still it is you have there's skill involved in riding it, and that's why you're using your muscles.
 
-[00:43:07] Adam: Yeah, I I really really enjoy it. I like it much better than having a controller in my hand. I like that direct one to one control that can’t be—
+[00:43:07] Adam: Yeah, I I really really enjoy it. I like it much better than having a controller in my hand. I like that direct one to one control that can’t be -
 
 [00:43:15] Will: You can use your phone now while you're riding, right?
 

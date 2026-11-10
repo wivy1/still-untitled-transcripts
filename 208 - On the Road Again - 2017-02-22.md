@@ -152,7 +152,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:11:36] Will: Yeah. I would take remember a Boyz II Men song off the top of my head. I feel like I’m really failing,
 
-[00:11:41] Adam: I can't either. There’s somebody— we have a gag in the show using diaper genies. Not a poopy gag, but we use diaper genies as one of our props and
+[00:11:41] Adam: I can't either. There’s somebody - we have a gag in the show using diaper genies. Not a poopy gag, but we use diaper genies as one of our props and
 
 [00:11:53] Norm: a diaper genie.
 
@@ -202,7 +202,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:18:22] Will: yeah
 
-[00:18:22] Adam: you know that was the other thing is that MythBusters was so we like we shot that show full time all year round so when I had a break I really needed it you know those days out on tour like my recuperation but out here it's it feels like it's a totally new world, right? Like I just don't have the same—I don't have the same demands upon my energy. They're probably just as vigorous, but they're differently spaced.
+[00:18:22] Adam: you know that was the other thing is that MythBusters was so we like we shot that show full time all year round so when I had a break I really needed it you know those days out on tour like my recuperation but out here it's it feels like it's a totally new world, right? Like I just don't have the same - I don't have the same demands upon my energy. They're probably just as vigorous, but they're differently spaced.
 
 [00:18:50] Norm: Did you bring anything to scratch your itch for making any model kits, any anything to occupy your time on the bus?
 
@@ -270,7 +270,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:25:24] Adam: Oh God, what were you thinking?
 
-[00:25:27] Norm: I— you see the first one, Will?
+[00:25:27] Norm: I - you see the first one, Will?
 
 [00:25:29] Will: Yeah. Look, I look. I like Woody Harrelson and Zuckerberg's good, and. Look, Eisenberg!
 

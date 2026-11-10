@@ -428,7 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:19:19] Adam: Like that is clearly a key part of the job. Like, oh, you're going to be buried under Johnny Carson's couch for an hour and a half, and you got to do this. So as they were telling these stories, and they would talk about their constriction, the filmmakers would then put graphics would draw right over them, so you got to see where the puppet would be and where they would be in space.
 
-[00:19:54] Norm: So the format of the film is a conversation on literally on couches, the five of them, I believe, just talking for hour and a half and reminiscing. And talking, remember that time when we were filming the movie and we were on that campfire and how did that fire work—well, we were buried underneath the campfire.
+[00:19:54] Norm: So the format of the film is a conversation on literally on couches, the five of them, I believe, just talking for hour and a half and reminiscing. And talking, remember that time when we were filming the movie and we were on that campfire and how did that fire work - well, we were buried underneath the campfire.
 
 [00:20:10] Adam: Well, and how about oh my god,
 

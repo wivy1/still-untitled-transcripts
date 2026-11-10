@@ -362,7 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:13:30] Rebecca: You could have been impaled.
 
-[00:13:31] Adam: I could have. And I was—
+[00:13:31] Adam: I could have. And I was -
 
 [00:13:34] Rebecca: what a way to go though, On your tombstone. impaled on his own Strandbeest.
 
@@ -646,7 +646,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:25:48] Adam: this is what I love about prop collecting
 
-[00:25:51] Norm: is Ghostbusters two, and Sean—
+[00:25:51] Norm: is Ghostbusters two, and Sean -
 
 [00:25:55] Rebecca: What are the key differences between the one and one A?
 

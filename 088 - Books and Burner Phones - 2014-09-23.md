@@ -50,7 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:00:42] Norm: That's the best radio ever. There you go.
 
-[00:00:43] Adam: That’s dead. Now you—
+[00:00:43] Adam: That’s dead. Now you -
 
 [00:00:45] Norm: lift it up. No, no, no. No.
 
@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:02:19] Will: they don't know a time before the internet.
 
-[00:02:21] Adam: They don't know a time before the internet, and our, you know, our navigation of the restriction of the— of their screen time is a very difficult process. We use it as a—it's definitely a carrot and also a stick. And when they screw up really badly, it really hurts, right? To take away all the digital.
+[00:02:21] Adam: They don't know a time before the internet, and our, you know, our navigation of the restriction of the - of their screen time is a very difficult process. We use it as a - it's definitely a carrot and also a stick. And when they screw up really badly, it really hurts, right? To take away all the digital.
 
 [00:02:41] Norm: What's the new TV was
 
@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:03:32] Norm: And TV art stuff, but it's not like appointment every night. You don't. It's not the center of the home.
 
-[00:03:37] Will: For— I mean, for us, we've had a TiVo since the dawn of time.
+[00:03:37] Will: For - I mean, for us, we've had a TiVo since the dawn of time.
 
 [00:03:37] Adam: Yeah.
 
@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:06:13] Will: Holy cow!
 
-[00:06:15] Norm: Wait, wait, wait, that's what you were surfing—[unclear: the one I own, the one hundred / the one I own, the one I own / the one that owned the 1-800] websites.
+[00:06:15] Norm: Wait, wait, wait, that's what you were surfing - [unclear: the one I own, the one hundred / the one I own, the one I own / the one that owned the 1-800] websites.
 
 [00:06:18] Adam: Rogers Wireless at that point was charging something like $0.10 a kilobyte.
 
@@ -224,9 +224,9 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:06:36] Will: Wow.
 
-[00:06:36] Adam: I was in Montreal. I surfed the web on the computer for some research. Blah blah blah blah. And we then flew from Montreal to LA, and I remember this specifically because we stay at the Beverly Hilton, or we used to stay a lot at the Beverly Hilton because it's kind of like a old, not cool anymore hotel—
+[00:06:36] Adam: I was in Montreal. I surfed the web on the computer for some research. Blah blah blah blah. And we then flew from Montreal to LA, and I remember this specifically because we stay at the Beverly Hilton, or we used to stay a lot at the Beverly Hilton because it's kind of like a old, not cool anymore hotel -
 
-[00:06:54] Will: It's a lot of red velvet—
+[00:06:54] Will: It's a lot of red velvet -
 
 [00:06:55] Adam: and we love how kind of not cool it is, right? It means that it's quiet, and I like that. Hmm. So we're actually by the pool at the Hilton, total cliche, and my phone stops working. So I dial six one one, and she says, " Oh yes, your phone doesn't work because of your inordinately large bill." And I'm like, " I'm paid up, 100%." She's like, " Yeah, but you racked up a lot of costs. Were you in Canada yesterday?" Yeah.
 
@@ -280,7 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:09:21] Will: Right.
 
-[00:09:21] Adam: So two hours later, my phone rings. It's the office of the president of AT and T. Uh huh. And they say, " Apparently, you have a lot of Twitter followers." Now, look, we can make this. We can reduce this one. I was like, I am not paying. This is wrong. This is totally wrong. Oh, I had also in that as soon as I tweeted, I started doing— getting calls for interviews, and I did like literally by poolside did like two interviews.
+[00:09:21] Adam: So two hours later, my phone rings. It's the office of the president of AT and T. Uh huh. And they say, " Apparently, you have a lot of Twitter followers." Now, look, we can make this. We can reduce this one. I was like, I am not paying. This is wrong. This is totally wrong. Oh, I had also in that as soon as I tweeted, I started doing - getting calls for interviews, and I did like literally by poolside did like two interviews.
 
 [00:09:21] Will: Oh yeah.
 
@@ -366,7 +366,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:11:47] Will: Next time you travel abroad, you can get. But so okay. So you got a burner.
 
-[00:11:59] Adam: So what we did—
+[00:11:59] Adam: So what we did -
 
 [00:12:00] Will: A drug dealer or something.
 
@@ -490,7 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:16:23] Will: I don't know. I think that affects so few people because so few people travel internationally.
 
-[00:16:23] Adam: Well—
+[00:16:23] Adam: Well -
 
 [00:16:23] Will: That and it's such an opportunity to ream them to the tune of $12,500.
 
@@ -572,7 +572,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:19:50] Adam: We shipped them back.
 
-[00:19:51] Will: So I, I, like when—
+[00:19:51] Will: So I, I, like when -
 
 [00:19:52] Adam: Only if I really hate a book, do I leave it behind. Because if I did, because I'll ship it back. Because if it's good, I want to give it to somebody.
 
@@ -584,7 +584,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:19:59] Adam: Yeah.
 
-[00:19:59] Will: And we were going to lay on beaches and read books and drink boat drinks. So I took a suitcase full of books with me on that trip. Like, oh, like not not like a carry on a big ass book. It was for Gina, I mean, a huge book of suit. And I never wanted to do that at the get at the end by the end of that because it was an enormous pain in the ass. It was a huge waste of resources because I mean it's a whole other suitcase that somebody else could have put a dog in that space or something. I don't know. And like, I have stopped being attached. I've— I thought I was no longer attached to the physical books.
+[00:19:59] Will: And we were going to lay on beaches and read books and drink boat drinks. So I took a suitcase full of books with me on that trip. Like, oh, like not not like a carry on a big ass book. It was for Gina, I mean, a huge book of suit. And I never wanted to do that at the get at the end by the end of that because it was an enormous pain in the ass. It was a huge waste of resources because I mean it's a whole other suitcase that somebody else could have put a dog in that space or something. I don't know. And like, I have stopped being attached. I've - I thought I was no longer attached to the physical books.
 
 [00:20:43] Adam: Yeah.
 
@@ -598,7 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:20:47] Will: Okay.
 
-[00:20:47] Adam: I'm— I've just got chills thinking about the book. I can't recommend it enough. Cheryl Strayed. Her last name isn't originally Strayed. S T R A Y E D. But when she got divorced none of this is a real spoiler. Basically, she was in her early 20s and her mom died, and her she kind of had a meltdown over a few years, and her life sort of fell apart, and she her marriage dissolved. And when she was signing her divorce papers, it said, " What's your new name?" And she realized, " I can choose anything." So she wrote Strayed, Cheryl Strayed, because she considered that's what she did. She strayed from the path.
+[00:20:47] Adam: I'm - I've just got chills thinking about the book. I can't recommend it enough. Cheryl Strayed. Her last name isn't originally Strayed. S T R A Y E D. But when she got divorced none of this is a real spoiler. Basically, she was in her early 20s and her mom died, and her she kind of had a meltdown over a few years, and her life sort of fell apart, and she her marriage dissolved. And when she was signing her divorce papers, it said, " What's your new name?" And she realized, " I can choose anything." So she wrote Strayed, Cheryl Strayed, because she considered that's what she did. She strayed from the path.
 
 [00:21:39] Will: Yeah.
 
@@ -640,7 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:23:00] Norm: Is that something that anyone, either any of these people, any of you guys on this table, ever want to do? A long walk across country. It's a very cliche thing to do, but it's very like there's something very enamoring about. it.
 
-[00:23:11] Adam: Well, so this is we've been talking about this person off off podcast, but my wife and I have been upgrading our camping gear with the plan to do some camping this fall and winter which is the optimal season for Cal— Northern California camping. Wonderful. And camping gathering camping gear satisfies all of my spielkas about organization and knolling and research and everything. But also, I wanted to make sure that my hiking boots weren't going to kill me, so I started hiking in them, and the hiking felt really good. And so now every day for the past couple months, minus Australia, I've been strapping on a 35 pound pack and walking a couple miles every day, and it feels really really good and I'm experiencing that that euphoria from the working out that I've always heard about for the first time in my life because I kind of like I need to have a purpose. I guess maybe I'm sort of a prepper now, right?
+[00:23:11] Adam: Well, so this is we've been talking about this person off off podcast, but my wife and I have been upgrading our camping gear with the plan to do some camping this fall and winter which is the optimal season for Cal- Northern California camping. Wonderful. And camping gathering camping gear satisfies all of my spielkas about organization and knolling and research and everything. But also, I wanted to make sure that my hiking boots weren't going to kill me, so I started hiking in them, and the hiking felt really good. And so now every day for the past couple months, minus Australia, I've been strapping on a 35 pound pack and walking a couple miles every day, and it feels really really good and I'm experiencing that that euphoria from the working out that I've always heard about for the first time in my life because I kind of like I need to have a purpose. I guess maybe I'm sort of a prepper now, right?
 
 [00:24:11] Will: Hold on, but are you a robot apocalypse prepper or are you a super flu prepper?
 
@@ -652,7 +652,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:24:28] Will: you can hike the length of the Andes in South America.
 
-[00:24:32] Adam: You know—
+[00:24:32] Adam: You know -
 
 [00:24:32] Will: If you're insane,
 
@@ -660,7 +660,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:24:48] Norm: or just in the middle of America.
 
-[00:24:49] Will: There's there's there's no—
+[00:24:49] Will: There's there's there's no -
 
 [00:24:50] Norm: walking cross country.
 
@@ -760,9 +760,9 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:28:48] Will: Yeah.
 
-[00:28:50] Adam: Oh. I also read I read a. Hold on, let me see what that who I I have to see what—
+[00:28:50] Adam: Oh. I also read I read a. Hold on, let me see what that who I I have to see what -
 
-[00:29:00] Will: Yeah, yeah. We're looking things up on the internet. The mark of great podcasting. It's so, I think so, so when I went when I did, but when I did my long hike, I met people along the way. But basically, you'd stay together for a few hours or maybe an afternoon or something like that, and then you would roll. You either roll on, or they'd stop someplace before you wanted to stop, or whatever. I feel like doing that as a pair. Like you don't want to go with a big group of people because you— the quiet is really good,
+[00:29:00] Will: Yeah, yeah. We're looking things up on the internet. The mark of great podcasting. It's so, I think so, so when I went when I did, but when I did my long hike, I met people along the way. But basically, you'd stay together for a few hours or maybe an afternoon or something like that, and then you would roll. You either roll on, or they'd stop someplace before you wanted to stop, or whatever. I feel like doing that as a pair. Like you don't want to go with a big group of people because you - the quiet is really good,
 
 [00:29:00] Adam: Yeah.
 

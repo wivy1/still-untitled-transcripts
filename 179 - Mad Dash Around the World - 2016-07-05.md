@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:09:57] Will: Were you just like this belongs in a museum?
 
-[00:09:59] Unknown: [speaker unclear: Will / Adam] Well—
+[00:09:59] Unknown: [speaker unclear: Will / Adam] Well -
 
 [00:09:59] Norm: everything,
 
@@ -370,7 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:16:07] Adam: No,
 
-[00:16:07] Unknown: [speaker unclear: Adam / Will] [unclear: Three— / Three and a half times is enormous].
+[00:16:07] Unknown: [speaker unclear: Adam / Will] [unclear: Three - / Three and a half times is enormous].
 
 [00:16:07] Norm: [unclear: hundred times / absent in the M whole-Will alternative].
 

@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:02:20] Adam: Yes,
 
-[00:02:20] Will: because I spent a significant portion of my formative years in both Radio Shack and also screwdriver shops, like early PC—the places you would go to buy PC parts before the internet.
+[00:02:20] Will: because I spent a significant portion of my formative years in both Radio Shack and also screwdriver shops, like early PC - the places you would go to buy PC parts before the internet.
 
 [00:02:18] Unknown speaker: and Radio Shack.
 
@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:02:37] Norm: right?
 
-[00:02:37] Will: But when I was in college, the place you would go to buy—people are going to yell at us for chomping chips on the podcast, Adam. The place I would go.
+[00:02:37] Will: But when I was in college, the place you would go to buy - people are going to yell at us for chomping chips on the podcast, Adam. The place I would go.
 
 [00:02:48] Adam: That would be the last one I do. I'm sorry.
 
@@ -304,7 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:20:52] Adam: Really?
 
-[00:20:52] Will: Well, I think they had bad design on their—it turns out, if the diapers don't keep the poop in,
+[00:20:52] Will: Well, I think they had bad design on their - it turns out, if the diapers don't keep the poop in,
 
 [00:20:56] Norm: Picture frames.
 

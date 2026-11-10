@@ -82,13 +82,13 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:01:36] Adam: Was it last year that Hodgman came out? Maybe it was the previous year. I can't remember.
 
-[00:01:44] Will: Hodgman was here last year. [unclear: You did. Was—]
+[00:01:44] Will: Hodgman was here last year. [unclear: You did. Was -]
 
 [00:01:46] Adam: did Hodgman get interviewed by Paul F. Tompkins on stage this year? This most recent year, I think that was actually a year and a half ago now.
 
 [00:01:53] Will: I think that was the first year we knew you. Yeah.
 
-[00:01:56] Adam: Anyway, names. Yes, you know my. My baby mama, my ex-wife, the mother of my children, and I—we bypassed the whole discussion thing. We were both on the exact same page. We didn't want to. We don't want any opinions from anybody.
+[00:01:56] Adam: Anyway, names. Yes, you know my. My baby mama, my ex-wife, the mother of my children, and I - we bypassed the whole discussion thing. We were both on the exact same page. We didn't want to. We don't want any opinions from anybody.
 
 [00:02:12] Will: No, that's the right answer.
 
@@ -298,7 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:15:11] Norm: Yeah.
 
-[00:15:12] Adam: Which is this is Robert Altman's The Long Goodbye, which is the it's the Chandler. Chandler only wrote seven novels, and he didn't start till he was 43. So he's a wonderful—
+[00:15:12] Adam: Which is this is Robert Altman's The Long Goodbye, which is the it's the Chandler. Chandler only wrote seven novels, and he didn't start till he was 43. So he's a wonderful -
 
 [00:15:21] Will: Still hope for all of us.
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:19:35] Norm: Is that the adaptation that you were most disappointed by? Because the source material is the one that resonated most with you, and they twisted that.
 
-[00:19:41] Adam: I'm disappointed. Isn't I knew that wasn't going to be that great. Like Point of No Return, the adaptation of—
+[00:19:41] Adam: I'm disappointed. Isn't I knew that wasn't going to be that great. Like Point of No Return, the adaptation of -
 
 [00:19:41] Will: Oh God, that's so bad.
 
@@ -462,7 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:21:40] Adam: Oh,
 
-[00:21:40] Will: oh, Dune has to be up there. They missed  all of the important—
+[00:21:40] Will: oh, Dune has to be up there. They missed  all of the important -
 
 [00:21:43] Norm: that resonated with you the most.
 

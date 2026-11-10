@@ -434,7 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:22:51] Norm: It's Armie Hammer and Man from Uncle, and sorry. Henry Cavill, and that I think was what sold the director on casting him.
 
-[00:23:04] Adam: The thing about Cavill is, I mean, he is—he plays a—you know—they describe that Tom Cruise is a scalpel and Cavill is a hammer, and he really is. That's how he plays it. But he also, just with the look on, he turns out to be an actor of incredible subtlety.
+[00:23:04] Adam: The thing about Cavill is, I mean, he is - he plays a - you know - they describe that Tom Cruise is a scalpel and Cavill is a hammer, and he really is. That's how he plays it. But he also, just with the look on, he turns out to be an actor of incredible subtlety.
 
 [00:23:21] Norm: He's wry.
 

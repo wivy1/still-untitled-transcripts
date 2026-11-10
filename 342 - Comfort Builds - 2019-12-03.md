@@ -590,7 +590,7 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:29:01] Jen Schachter: Uh oh.
 
-[00:29:01] Adam: yeah. I go. Wow. It just—it was really right. There was something about the pile on of three dogs that just felt awesome. Look, I love dogs. More dogs is better dogs.
+[00:29:01] Adam: yeah. I go. Wow. It just - it was really right. There was something about the pile on of three dogs that just felt awesome. Look, I love dogs. More dogs is better dogs.
 
 [00:29:15] Norm: You only have so many nooks for them to sneeze squeeze into.
 
@@ -712,7 +712,7 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:38:35] Adam: and there's no then there's no graphic iconography in the film in KGB's place and Teddy's place.
 
-[00:38:41] Jen Schachter: Well, we were talking about earlier about like Eastern promises—that's a huge part of the movie—is the tattoos and the story that they tell
+[00:38:41] Jen Schachter: Well, we were talking about earlier about like Eastern promises - that's a huge part of the movie - is the tattoos and the story that they tell
 
 [00:38:47] Adam: and Viggo’s tattoos, right? Viggo Mortensen has that great story he tells of going to a restaurant after shooting before removing. His visible tattoos, and he goes to eat in a Russian restaurant in London, and everyone gets quiet. And he realizes, " Oh, I'm such an asshole." They think I'm some big gangster because they can see the
 

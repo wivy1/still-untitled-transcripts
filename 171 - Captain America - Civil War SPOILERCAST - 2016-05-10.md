@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:02:00] Norm: It's John Hurt.
 
-[00:02:01] Will: Wow. Speaking of John Hurt, no, he—that was William Hurt.
+[00:02:01] Will: Wow. Speaking of John Hurt, no, he - that was William Hurt.
 
 [00:02:06] Adam: No, it's John Hurt. He's right.
 
@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:09:39] Adam: I think. Yeah. I don't know. I don't know.
 
-[00:09:41] Norm: You love the—
+[00:09:41] Norm: You love the -
 
 [00:09:41] Will: It’s streaming only.
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:15:27] Will: Oh yeah!
 
-[00:15:28] Adam: He stood in front of this room of like 3,000 children in DC and gave like a 48-minute talk on what was the book he had just written. It was like this—I think it was Jefferson. Yeah, I can't remember what it's.
+[00:15:28] Adam: He stood in front of this room of like 3,000 children in DC and gave like a 48-minute talk on what was the book he had just written. It was like this - I think it was Jefferson. Yeah, I can't remember what it's.
 
 [00:15:44] Will: Even you can't remember. You’re a grownup.
 

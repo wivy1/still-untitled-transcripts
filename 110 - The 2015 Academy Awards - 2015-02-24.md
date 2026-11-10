@@ -626,7 +626,7 @@ Episode URL: https://www.youtube.com/watch?v=XoeqVLD7Oto
 
 [00:22:24] Adam: Yeah, absolutely, absolutely.
 
-[00:22:25] Will: Well, and they made Iceland look like another planet, and they made whatever the other—I can't remember what the other location was—but
+[00:22:25] Will: Well, and they made Iceland look like another planet, and they made whatever the other - I can't remember what the other location was - but
 
 [00:22:30] Adam: yeah, Gargantua, the beautiful, the the black hole. I don't disagree with their choice. It seems like the right choice, but this was a rare year in which there were no. Sometimes there's like a multiple choice. There's always a throwaway answer. Sometimes it feels like there's a lot of those, and this year actually it felt like, like I said, a crowded field of really good contenders for many of the categories.
 
@@ -678,7 +678,7 @@ Episode URL: https://www.youtube.com/watch?v=XoeqVLD7Oto
 
 [00:24:47] Adam: and no Lego movie. That was perhaps the biggest.
 
-[00:24:51] Will: I can see that. I mean, well, the entire third act is not animated. A—
+[00:24:51] Will: I can see that. I mean, well, the entire third act is not animated. A -
 
 [00:24:51] Adam: Right.
 
@@ -750,7 +750,7 @@ Episode URL: https://www.youtube.com/watch?v=XoeqVLD7Oto
 
 [00:26:27] Will: Oh yeah, and the Kodak.
 
-[00:26:38] Adam: The—
+[00:26:38] Adam: The -
 
 [00:26:39] Will: Kodak on Sunset, right?
 

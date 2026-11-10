@@ -70,7 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:03:50] Norm: Yep, I have the book. It's also an audio book on Audible.
 
-[00:03:53] Adam: We want to do a—
+[00:03:53] Adam: We want to do a -
 
 [00:03:50] Norm: 31 hours.
 
@@ -438,7 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:25:50] Will: Okay.
 
-[00:25:50] Adam: And in that, I have my complete collection. Of security bits, tamper-proof bits, Torx bits, hex bits, flat heads—everything that every hexagonally mounted bit that you can put in the end of your driver and drive something—I've got a drawer for all of those, including extra long ones that you can buy on Amazon, which are super crazy useful. And I've bought these little molded rubber sorters for them, so that every single one in that drawer is facing up.
+[00:25:50] Adam: And in that, I have my complete collection. Of security bits, tamper-proof bits, Torx bits, hex bits, flat heads - everything that every hexagonally mounted bit that you can put in the end of your driver and drive something - I've got a drawer for all of those, including extra long ones that you can buy on Amazon, which are super crazy useful. And I've bought these little molded rubber sorters for them, so that every single one in that drawer is facing up.
 
 [00:26:18] Will: Oh, so you just see the tip.
 
@@ -520,7 +520,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:30:15] Will: Lazy Susans up there.
 
-[00:30:16] Adam: That's really, really that—that is absolutely the expendables tall shelf. And those are also airplane food containers. They're just the shorter ones that are about 14 inches high by 12 inches wide by about 16 inches deep. I found those in a dumpster. 25 years ago.
+[00:30:16] Adam: That's really, really that - that is absolutely the expendables tall shelf. And those are also airplane food containers. They're just the shorter ones that are about 14 inches high by 12 inches wide by about 16 inches deep. I found those in a dumpster. 25 years ago.
 
 [00:30:34] Will: Is this in your dumpster diving days?
 

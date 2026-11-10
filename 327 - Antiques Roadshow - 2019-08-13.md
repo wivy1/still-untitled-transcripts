@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:25:13] Adam: obviously. But I just wonder: is there someone whose picture you have on the wall of the van that says, " Don't let this guy in"?
 
-[00:25:18] Sam Farrell: Funnily enough, the UK show—I think I can tell this story. The UK show has pictures of people because they like to have people in the background. We don't generally have people who are just standing watching the action. The UK show has pictures of people who make it a habit to come to the show and stand in the background, and they ask them to move out of the shot.
+[00:25:18] Sam Farrell: Funnily enough, the UK show - I think I can tell this story. The UK show has pictures of people because they like to have people in the background. We don't generally have people who are just standing watching the action. The UK show has pictures of people who make it a habit to come to the show and stand in the background, and they ask them to move out of the shot.
 
 [00:25:39] Will: That's really
 
@@ -408,11 +408,11 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:29:21] Adam: Beautiful one.
 
-[00:29:22] Sam Farrell: Yeah. And. And that's one of the collectibles now. You who'd have thought it—the things that are going up in value. So, Rolex is from the '60s and '70s. Who'd have thought? But they're now worth ridiculous sums of money. In fact, we saw one. Sorry.
+[00:29:22] Sam Farrell: Yeah. And. And that's one of the collectibles now. You who'd have thought it - the things that are going up in value. So, Rolex is from the '60s and '70s. Who'd have thought? But they're now worth ridiculous sums of money. In fact, we saw one. Sorry.
 
 [00:29:36] Adam: Yeah, go ahead.
 
-[00:29:36] Sam Farrell: We saw one in Fargo. We were in Fargo. Talk about different locations. We were in Fargo, this reconstructed old West town with buildings from different eras and 1840s print shop and a telegraph shop and all those. Anyway, we were in Fargo, and this guy came in, and you're going to want to watch the Fargo episodes. They're our first episodes. It tells you how exciting they are. I think they're our first. I may have made a mistake there, but anyway, this guy brings in a Rolex. It is phenomenal, and his reaction—I mean, he's completely floored. And when I say that, you will see when you watch it. It's a this thing is worth over $500,000. And it's just phenomenal.
+[00:29:36] Sam Farrell: We saw one in Fargo. We were in Fargo. Talk about different locations. We were in Fargo, this reconstructed old West town with buildings from different eras and 1840s print shop and a telegraph shop and all those. Anyway, we were in Fargo, and this guy came in, and you're going to want to watch the Fargo episodes. They're our first episodes. It tells you how exciting they are. I think they're our first. I may have made a mistake there, but anyway, this guy brings in a Rolex. It is phenomenal, and his reaction - I mean, he's completely floored. And when I say that, you will see when you watch it. It's a this thing is worth over $500,000. And it's just phenomenal.
 
 [00:30:22] Adam: Wow! Are there cases in which you and your crew have become experts at things that are chronically under or overvalued on eBay?
 
@@ -630,7 +630,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:45:51] Norm: Adam just got Antiques Roadshowed,
 
-[00:45:53] Sam Farrell: This—
+[00:45:53] Sam Farrell: This -
 
 [00:45:53] Norm: live on the podcast.
 

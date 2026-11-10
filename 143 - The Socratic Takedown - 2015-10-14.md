@@ -62,7 +62,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:02:36] Norm: Oh, you have 128, I’m 64.
 
-[00:02:38] Will: Yeah, I only— 64 is as much as I need. This is more maintenance.
+[00:02:38] Will: Yeah, I only - 64 is as much as I need. This is more maintenance.
 
 [00:02:41] Adam: I went fully crazy.
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:09:05] Adam: Another Socratic takedown.
 
-[00:09:08] Norm: I just— Socratic takedown.
+[00:09:08] Norm: I just - Socratic takedown.
 
 [00:09:10] Will: Well, I know what we're going to call this episode.
 
@@ -382,11 +382,11 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:13:06] Will: the thing that's just kind of hinted at, right?
 
-[00:13:08] Norm: So yeah, and it's not the whole premise for the show. I think Dan Harmon—
+[00:13:08] Norm: So yeah, and it's not the whole premise for the show. I think Dan Harmon -
 
 [00:13:12] Adam: I had no idea that it had a Marty McFly connection.
 
-[00:13:15] Norm: So Dan Harmon is the co-creator of the show, and I think Justin Roiland is the other guy. And I think they made a short, so they basically came together and said, " Hey, you know, watching Back to the Future is kind of kind of messed up that this crazy old dude is kind of taking this young kid, impressionable kid, on these wacky adventures and putting him in a time machine and like putting this dog in a time machine, and you know, he's kind of a psycho. So what if Doc Brown was just a crazy psycho, and you know, and—
+[00:13:15] Norm: So Dan Harmon is the co-creator of the show, and I think Justin Roiland is the other guy. And I think they made a short, so they basically came together and said, " Hey, you know, watching Back to the Future is kind of kind of messed up that this crazy old dude is kind of taking this young kid, impressionable kid, on these wacky adventures and putting him in a time machine and like putting this dog in a time machine, and you know, he's kind of a psycho. So what if Doc Brown was just a crazy psycho, and you know, and -
 
 [00:13:44] Will: who didn't have a time machine?
 
@@ -512,7 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:17:38] Will: And they get the tech. I mean, they Hollywood it a little bit, but they get the tech pretty. They do a pretty good job on the tech.
 
-[00:17:43] Adam: Okay, so speaking of animals and anthropomorphizing animals, a la BoJack Horseman, this book, " Beyond Words: What Animals Think and Feel" by Carl Safina, it was reviewed in the New York Review of Books last week, and that's how I came became aware of it. This is basically looking at the real, complicated societies of animals, and within animal behaviorism as a field, it has been the default to not ascribe any human qualities to animals whatsoever in a description. Jane Goodall had her first paper about the apes rejected because she used gender pronouns and named them, and it was suggested that she referred to them all as " it" and gave them numbers instead of names. She refused. Her paper was still published. This book goes deeply into elephant, orca, dolphin, and wolf societies to show the flexible hierarchies, pair bonding, and all of these qualities that humans have that are totally amazing when you go to researchers who really understand these animals. I have. I'm a couple— 150 pages in, but I, I just there's a. I might have to read this little passage here for a second. Wait a second, where is it?
+[00:17:43] Adam: Okay, so speaking of animals and anthropomorphizing animals, a la BoJack Horseman, this book, " Beyond Words: What Animals Think and Feel" by Carl Safina, it was reviewed in the New York Review of Books last week, and that's how I came became aware of it. This is basically looking at the real, complicated societies of animals, and within animal behaviorism as a field, it has been the default to not ascribe any human qualities to animals whatsoever in a description. Jane Goodall had her first paper about the apes rejected because she used gender pronouns and named them, and it was suggested that she referred to them all as " it" and gave them numbers instead of names. She refused. Her paper was still published. This book goes deeply into elephant, orca, dolphin, and wolf societies to show the flexible hierarchies, pair bonding, and all of these qualities that humans have that are totally amazing when you go to researchers who really understand these animals. I have. I'm a couple - 150 pages in, but I, I just there's a. I might have to read this little passage here for a second. Wait a second, where is it?
 
 [00:19:07] Will: So, does it get into the differences between instinct and the societal, like the like how how is he breaking this out? Is it looking at the things that happen when you isolate, like a wolf from when wolves grow up separate from wolves or grow up with dogs, and they behave a little bit differently than they do if they grow up with wolves, right?
 
@@ -558,9 +558,9 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:22:21] Adam: I will tell you that if you're going to read about intelligent animals, it is eventually going to be a story about how humans have screwed up everything. You're you're reading about the elephants, and you realize how they're still being slaughtered in by one every 15 minutes in Africa for their ivory, and that this is an absolute tragedy. That you can't really corral them in; they travel hundreds of miles in their travels, and so it gets dark because that's a dark situation to read about when you're reading about any of these. But one of the key things he seems to be saying is we're spending a lot of time looking at life in outer space. And I've been thinking about this because I've been reading all the John Scalzi, which is often you know alien cultures being translated. Well, we've got these cultures here: dolphins, wolves, orcas, elephants, and they are communicating with each other. Why, why can't we potentially increase our ability to communicate with them and understand what they're saying?
 
-[00:23:18] Will: It's really interesting to me if the idea that humans are the only thinking animals—if that is an anthropocentric view,
+[00:23:18] Will: It's really interesting to me if the idea that humans are the only thinking animals - if that is an anthropocentric view,
 
-[00:23:26] Adam: yeah—
+[00:23:26] Adam: yeah -
 
 [00:23:26] Will: that you know is going to change over time.
 
@@ -714,7 +714,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:27:03] Will: Perfect.
 
-[00:27:04] Adam: Oh my god, he was born to play a robot. I don't mean that as any [unclear: admiration / administrative— / admin].
+[00:27:04] Adam: Oh my god, he was born to play a robot. I don't mean that as any [unclear: admiration / administrative - / admin].
 
 [00:27:08] Will: We love Ed Harris here.
 
@@ -786,7 +786,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:28:11] Adam: Oh,
 
-[00:28:11] Unknown speaker: I think—
+[00:28:11] Unknown speaker: I think -
 
 [00:28:12] Will: have you ever done anything there?
 

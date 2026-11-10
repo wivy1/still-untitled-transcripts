@@ -50,7 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=fdVm29yWCCY
 
 [00:02:08] Norm: Yeah, yeah. So this show, if you haven't watched it, it is based on a comic book written by Garth Ennis. It's really this kind of over-the-top gritty take on what it would be like if a Justice League equivalent were all filled with immoral superheroes, right? This is these these supes, as they call them, kind of are public-facing in in their goody-two-shoes, but in their private lives, they're kind of all assholes. And
 
-[00:02:38] Adam: one of the things I love about this construction is that, of course, every superhero movie is a—finishes on the idea that the superpower isn't what makes a superhero special; it's the true, pure morality of their heart and their love for their fellow humans and their families, right? And this just is like the other side of that coin. Yeah, if that is what makes you super, what the hell is it like if you're not? If you're not morally straight and true, and you don't have empathy, and the results are some of the most frightening villains I've ever considered seriously in like narratives.
+[00:02:38] Adam: one of the things I love about this construction is that, of course, every superhero movie is a - finishes on the idea that the superpower isn't what makes a superhero special; it's the true, pure morality of their heart and their love for their fellow humans and their families, right? And this just is like the other side of that coin. Yeah, if that is what makes you super, what the hell is it like if you're not? If you're not morally straight and true, and you don't have empathy, and the results are some of the most frightening villains I've ever considered seriously in like narratives.
 
 [00:03:14] Joey: It's like none of these people had like Uncle Ben's or Mr. Kent's, whoever Clark Kent's dad is, to give him that moral compass.
 
@@ -58,11 +58,11 @@ Episode URL: https://www.youtube.com/watch?v=fdVm29yWCCY
 
 [00:03:43] Norm: Yeah, and the heroes are all they're very human in that they're all insecure, and they all have their own vices and their failings, and various degrees of power. So you have your analogs to you know your Aquaman, your hero who could talk to fish, and they. Totally poke fun at that. You have your Superman archetype of with the laser beam and then vulnerability and the flight. You have your Wonder Woman analog, and then their antagonists are basically the people trying to take them down and expose them. The boys, the group led by Billy Butcher, played by Karl Urban, who has a vendetta against their Superman equivalent, Homelander.
 
-[00:04:21] Adam: And I just would like to do a shout out here for how great it is to see Karl Urban anchoring a franchise for real. I mean it's long been talked about how great his performance in Dredd 3D is and how amazing it was in service of the franchise, but kind of like not being front and center of that movie. At the same time as being front and center, this is—he's always been an amazing actor, and he really shines in this series. It's a wide, varied, strange, and awesome role.
+[00:04:21] Adam: And I just would like to do a shout out here for how great it is to see Karl Urban anchoring a franchise for real. I mean it's long been talked about how great his performance in Dredd 3D is and how amazing it was in service of the franchise, but kind of like not being front and center of that movie. At the same time as being front and center, this is - he's always been an amazing actor, and he really shines in this series. It's a wide, varied, strange, and awesome role.
 
-[00:04:51] Joey: It's like it's—he's—he commands every scene he's in. Like that's the yeah. The perfect example of that,
+[00:04:51] Joey: It's like it's - he's - he commands every scene he's in. Like that's the yeah. The perfect example of that,
 
-[00:04:56] Norm: and so the boys' team—you know, this the this group that's trying to take down the seven—are Karl Urban. It's Jack Quaid who plays kind of the hapless kid Hughie, whose girlfriend dies at the hands of
+[00:04:56] Norm: and so the boys' team - you know, this the this group that's trying to take down the seven - are Karl Urban. It's Jack Quaid who plays kind of the hapless kid Hughie, whose girlfriend dies at the hands of
 
 [00:05:10] Adam: Dennis Quaid's son, by the way.
 
@@ -70,9 +70,9 @@ Episode URL: https://www.youtube.com/watch?v=fdVm29yWCCY
 
 [00:05:13] Adam: oh, right, of course,
 
-[00:05:14] Norm: He looks like a perfect combination of his parents—
+[00:05:14] Norm: He looks like a perfect combination of his parents -
 
-[00:05:17] Adam: one pretty kid—
+[00:05:17] Adam: one pretty kid -
 
 [00:05:18] Norm: as well as you have a French demolitions expert, a Frenchie. You have Mother's Milk, and you have they have a superhero on of their own, the female who is
 
@@ -84,13 +84,13 @@ Episode URL: https://www.youtube.com/watch?v=fdVm29yWCCY
 
 [00:06:20] Adam or Norm, uncertain speaker: Yeah.
 
-[00:06:21] Norm: So, the end of season one, it's revealed that Homelander, grown in a lab, no moral compass, but the twist—
+[00:06:21] Norm: So, the end of season one, it's revealed that Homelander, grown in a lab, no moral compass, but the twist -
 
 [00:06:28] Adam: never had parents, never had any love whatsoever. I mean, he's literally like a poster child for attachment disorder.
 
 [00:06:36] Norm: Exactly, exactly.
 
-[00:06:38] Joey: Infantilized [unclear: handler]— drinking milk just as a child would reach to a milk bottle,
+[00:06:38] Joey: Infantilized [unclear: handler] - drinking milk just as a child would reach to a milk bottle,
 
 [00:06:43] Norm: breast milk specifically.
 
@@ -104,11 +104,11 @@ Episode URL: https://www.youtube.com/watch?v=fdVm29yWCCY
 
 [00:07:13] Norm: And so that's a hell of a cliffhanger. And going into the second season, you wonder how can this resolve? He's in this Butcher's in this extremely precarious situation. There's this huge X factor of Homelander having a son. How is that going to change him? And without going into the plot details yet, we can say that they found a way to kind of realign to back to kind of the normal back and forth between the Seven with new tensions within, and then also this ragtag team of the boys and their attempt to take down Vought and the Seven.
 
-[00:07:44] Adam: I want to talk a little bit here, as you said, bring it back to a reset. The difficult one of the crazy difficulties of television writing is building a format that. Both feels safe and yet not like you're just spinning your wheels in the same location in the same kind of setup every single time. And The Boys rides that line really, really well. They're able to raise the stakes, change the game, and then it's not un—it doesn't feel unreasonable when they bring it back to something familiar.
+[00:07:44] Adam: I want to talk a little bit here, as you said, bring it back to a reset. The difficult one of the crazy difficulties of television writing is building a format that. Both feels safe and yet not like you're just spinning your wheels in the same location in the same kind of setup every single time. And The Boys rides that line really, really well. They're able to raise the stakes, change the game, and then it's not un- it doesn't feel unreasonable when they bring it back to something familiar.
 
-[00:08:13] Norm: And I feel like on edge the whole time because the power dynamics of these characters are such that it's completely uneven, right? If one one misstep and if the story went one way, there could be no story, right? And so it's this balance of how do you show that they are—it's a cat and mouse game—and that they can get the better of each other and be subversive and infiltrate them without feeling like you know the homelander character can just kill everyone,
+[00:08:13] Norm: And I feel like on edge the whole time because the power dynamics of these characters are such that it's completely uneven, right? If one one misstep and if the story went one way, there could be no story, right? And so it's this balance of how do you show that they are - it's a cat and mouse game - and that they can get the better of each other and be subversive and infiltrate them without feeling like you know the homelander character can just kill everyone,
 
-[00:08:42] Joey: right? Oh yeah, I was thinking about that a bit last night too. The fighting—I mean, as much of a stylized show it is, I mean, it does very much look and kind of feel like a Zack Snyder. Yeah. Watchmen or Justice League, but the fighting you never see superheroes kind of fighting each other. It's always like very quick explosion of violence, and you do realize that power dynamic is like so intense. Like there is no punching back and forth. I mean, except for like one scene you see in season two, which we get into later. But it really is like there is this menacing, like terrifying feeling of like being like every human that stands in front of a super and where things start to like tension starts to escalate. Yeah I get like chills, like just like oh god, how would I handle this? Like I cannot one wrong thing, one wrong word, and you're dead.
+[00:08:42] Joey: right? Oh yeah, I was thinking about that a bit last night too. The fighting - I mean, as much of a stylized show it is, I mean, it does very much look and kind of feel like a Zack Snyder. Yeah. Watchmen or Justice League, but the fighting you never see superheroes kind of fighting each other. It's always like very quick explosion of violence, and you do realize that power dynamic is like so intense. Like there is no punching back and forth. I mean, except for like one scene you see in season two, which we get into later. But it really is like there is this menacing, like terrifying feeling of like being like every human that stands in front of a super and where things start to like tension starts to escalate. Yeah I get like chills, like just like oh god, how would I handle this? Like I cannot one wrong thing, one wrong word, and you're dead.
 
 [00:09:27] Adam: You're reminding me, Joey, that the second season does that a lot. They let you watch the penny drop in somebody else's face as they're standing opposite Homelander and realizing the malevolent threat that they are directly in front of. And I like you, yeah, I always find it super chilling, and the actor that plays Homelander is is is exceptional.
 
@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=fdVm29yWCCY
 
 [00:10:03] Adam: Yeah,
 
-[00:10:03] Norm: but yeah, and he could tell when he's like he's a psycho, right? He's a sociopath. He's in— but you can tell when he's insecure. That's when you're most afraid for everyone else on the show because then he's out of control. And the show in the first season was all about how they could control him psychologically. And when those reins are off, then what happens?
+[00:10:03] Norm: but yeah, and he could tell when he's like he's a psycho, right? He's a sociopath. He's in- but you can tell when he's insecure. That's when you're most afraid for everyone else on the show because then he's out of control. And the show in the first season was all about how they could control him psychologically. And when those reins are off, then what happens?
 
 [00:10:26] Adam: Well, he's like the kid from the Twilight Zone episode, right? Everyone's got to keep him happy, or he will literally burn the world down.
 
@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=fdVm29yWCCY
 
 [00:19:10] Joey: really.
 
-[00:19:12] Adam: It might be one of the best features of Amazon Prime that they have—that X-ray vision—because it's just it's terrific.
+[00:19:12] Adam: It might be one of the best features of Amazon Prime that they have - that X-ray vision - because it's just it's terrific.
 
 [00:19:20] Norm: Let's try to see where are we at this point with all the characters. So you have Starlight, basically already defected. She's with
 
@@ -324,11 +324,11 @@ Episode URL: https://www.youtube.com/watch?v=fdVm29yWCCY
 
 [00:31:39] Norm: it's going to be I think on a college campus with Supes in and Supes in school. I think a younger Supes, so it's definitely something that Amazon investing in, and they're putting the money on the screen.
 
-[00:31:56] Adam: Well, we know our people at Amazon. Can hey Amazon, can you embed us for season three of The Boys? We—Tested wants to go. I want to. I'll I'll make my own superhero costume without guilt. Without guilt.
+[00:31:56] Adam: Well, we know our people at Amazon. Can hey Amazon, can you embed us for season three of The Boys? We - Tested wants to go. I want to. I'll I'll make my own superhero costume without guilt. Without guilt.
 
 [00:32:10] Norm: Yes, yes, yes.
 
-[00:32:11] Adam: Is—Joey, I'm curious if there's like a standout. If there's something standout in the second season so far that's really knocked your socks off.
+[00:32:11] Adam: Is - Joey, I'm curious if there's like a standout. If there's something standout in the second season so far that's really knocked your socks off.
 
 [00:32:18] Joey: I really like what they're doing, where they're going with. I mean, I he's a despicable character, but the deep is really like just watching him is like wow, you are really there's something going for something really crazy here. And again, that whale scene gag was just cracking me up. The Hughie and Butcher relationship grew on me a lot more. Kind of really thinking more about like the canary element of it, and where is Butcher's like where's his moral compass? And it is is it in this hapless kid? Like is he looking to him to make sure he doesn't go too far and become worse than them? So there's like the things that were kind of sleepers for me in the first. Season in the beginning of the second season, I really started to become much more interested. For me, I thought the fifth and sixth episodes were like just fantastic.
 

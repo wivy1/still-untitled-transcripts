@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:04:04] Will: But they the best part is that the beginning of every film.
 
-[00:04:24] Adam: Hey, yeah, this is—
+[00:04:24] Adam: Hey, yeah, this is -
 
 [00:04:24] Will: They say here are the things that are going to get you removed from the theater without getting your ticket refunded. Having your phone out.
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:08:22] Will: because it was gone
 
-[00:08:22] Unknown speaker: [unclear: I didn’t see the roadshow version. I didn’t see the roadshow—]
+[00:08:22] Unknown speaker: [unclear: I didn’t see the roadshow version. I didn’t see the roadshow -]
 
 [00:08:22] Will: by the time I got around to leaving the house. And the thing that struck me well, a there's amazing character performances right.
 
@@ -476,7 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:13:40] Will: I would love to see the first what two parts that are that happened on the trail, in that
 
-[00:13:48] Adam: yeah, it was—it’s absolutely beautiful.
+[00:13:48] Adam: yeah, it was - it’s absolutely beautiful.
 
 [00:13:48] Will: Yeah,
 
@@ -488,7 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:14:05] Adam: interesting. It is the one room,
 
-[00:14:07] Norm: and there's there are moments like—
+[00:14:07] Norm: and there's there are moments like -
 
 [00:14:08] Adam: You can do without the whole traveling to the yeah
 
@@ -524,7 +524,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:16:36] Will: It was. Kurt Russell was like this. Is one of the great, not that Kurt Russell needed dredging up in the same way that John Travolta did before * Pulp Fiction*, but we haven't seen Kurt Russell like this in a really, really long time.
 
-[00:16:48] Adam: Also, let’s be clear: [unclear: that Kurt Russell is a great—] this movie, the entire movie, including its setting, is an homage to * The Thing*.
+[00:16:48] Adam: Also, let’s be clear: [unclear: that Kurt Russell is a great -] this movie, the entire movie, including its setting, is an homage to * The Thing*.
 
 [00:16:53] Will: Yeah.
 
@@ -542,7 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:17:10] Adam: I love watching this happen in your head. It’s like cascading down.
 
-[00:17:15] Will: Sorry. Did— When did you guys figure out? I mean, the so they he foreshadowed the Bob New Mexican situation really, really early and really obviously.
+[00:17:15] Will: Sorry. Did - When did you guys figure out? I mean, the so they he foreshadowed the Bob New Mexican situation really, really early and really obviously.
 
 [00:17:15] Adam: Right,
 
@@ -632,7 +632,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:21:11] Norm: Let's be clear, it's not as sad as like loaded guns on set and [unclear: absolutely / laughing],
 
-[00:21:16] Adam: But it’s—don’t don't go to the fallacy of false equivalency.
+[00:21:16] Adam: But it’s - don’t don't go to the fallacy of false equivalency.
 
 [00:21:19] Norm: Wow, got a reference
 

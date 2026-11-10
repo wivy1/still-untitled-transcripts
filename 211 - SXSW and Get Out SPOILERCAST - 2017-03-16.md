@@ -514,7 +514,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:45:31] Will: yeah
 
-[00:45:31] Adam: I think of certain amazing things like the pizza sketch the pizza delivery sketch and clearly they're interested in more than just humor and even more than just social commentary but real. Filmmaking as well, and this—it's just—it's such a lovely confluence of all of those things. It's—it feels like a giant talent has just stepped through the door, and I'm really excited. Jordan Peele says he's got like four other scripts in his head that are along these lines of social commentary plus horror, and I think that horror is the wrong name for this genre because it really does feel more like thriller, more Hitchcockian in terms of its visual and narrative sophistication, as well as how just freaking creepy it is.
+[00:45:31] Adam: I think of certain amazing things like the pizza sketch the pizza delivery sketch and clearly they're interested in more than just humor and even more than just social commentary but real. Filmmaking as well, and this - it's just - it's such a lovely confluence of all of those things. It's - it feels like a giant talent has just stepped through the door, and I'm really excited. Jordan Peele says he's got like four other scripts in his head that are along these lines of social commentary plus horror, and I think that horror is the wrong name for this genre because it really does feel more like thriller, more Hitchcockian in terms of its visual and narrative sophistication, as well as how just freaking creepy it is.
 
 [00:46:57] Will: Yeah, I think like I I that that juxtaposition you talked about it's one of those things like if you think about the opening of Death Proof when Kurt Russell gets in the car with is it Rose McGowan?
 

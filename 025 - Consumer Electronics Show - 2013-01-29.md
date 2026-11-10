@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:00:22] Norm: Oh, thank you. Yeah, I was out all last week, which was, it's kind of tough when you got to take a week to go to work in Vegas.
 
-[00:00:29] Will: So—
+[00:00:29] Will: So -
 
 [00:00:29] Norm: It's kind of tough.
 
@@ -34,7 +34,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:00:43] Adam: Is it really?
 
-[00:00:44] Will: It is a. Typically, last year we were like 18 hours, 20 hours a day, either walking show floor, shooting after shows, covering night events, and then like video editing and podcasting and all that stuff. And then you would maybe sleep three or four hours. And Norm—
+[00:00:44] Will: It is a. Typically, last year we were like 18 hours, 20 hours a day, either walking show floor, shooting after shows, covering night events, and then like video editing and podcasting and all that stuff. And then you would maybe sleep three or four hours. And Norm -
 
 [00:01:01] Norm: Depends where you want to get out of it.
 
@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:01:33] Adam: Right.
 
-[00:01:33] Norm: For consumer electronics companies—
+[00:01:33] Norm: For consumer electronics companies -
 
 [00:01:35] Will: Jack Donaghy.
 
@@ -78,7 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:02:10] Will: Yeah.
 
-[00:02:10] Norm: And the floor actually did not feel very crowded, so—
+[00:02:10] Norm: And the floor actually did not feel very crowded, so -
 
 [00:02:13] Adam: Really?
 
@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:03:18] Adam: Right, right, right.
 
-[00:03:19] Will: So it's a weird show, and it's interesting because it's been become a little less relevant over the last—
+[00:03:19] Will: So it's a weird show, and it's interesting because it's been become a little less relevant over the last -
 
 [00:03:24] Adam: That's what I was reading, that because of the iPhone and because of the way the different schedules that other companies have for releasing their products, they're not holding to the CES schedule.
 
@@ -136,15 +136,15 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:03:38] Will: Right.
 
-[00:03:39] Norm: All your partners, business partners, hardware partners, and the journalists are all going to be in one room at one time. But really, even a Microsoft who used to use CES as their big forward-looking keynotes—
+[00:03:39] Norm: All your partners, business partners, hardware partners, and the journalists are all going to be in one room at one time. But really, even a Microsoft who used to use CES as their big forward-looking keynotes -
 
 [00:03:51] Will: Right.
 
-[00:03:51] Norm: To announce products—
+[00:03:51] Norm: To announce products -
 
-[00:03:52] Will: But it's—
+[00:03:52] Will: But it's -
 
-[00:03:53] Norm: They don't—
+[00:03:53] Norm: They don't -
 
 [00:03:53] Adam: Need to be. I'd also imagine that the bigger it gets, the harder it is to stand out there, which means that it's, you, how, why would you want to invest?
 
@@ -180,9 +180,9 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:04:57] Will: It's a lot of noise.
 
-[00:04:58] Norm: It's a treasure hunt. You're really—
+[00:04:58] Norm: It's a treasure hunt. You're really -
 
-[00:04:59] Adam: It is a treasure—
+[00:04:59] Adam: It is a treasure -
 
 [00:04:59] Norm: Looking for that needle.
 
@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:05:39] Adam: How do they look?
 
-[00:05:39] Norm: They look gorgeous. They released one TV that was 84 inches late in November, I believe, and that was $25,000 in stores. And this year there is—
+[00:05:39] Norm: They look gorgeous. They released one TV that was 84 inches late in November, I believe, and that was $25,000 in stores. And this year there is -
 
 [00:05:50] Adam: That's $24,500 more than I want to pay for a TV.
 
@@ -224,7 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:06:27] Adam: Because it makes everything look like a Lakers game.
 
-[00:06:29] Norm: Don't buy a new TV if you bought a TV two years ago. What you can do? Pay a specialist a couple hundred dollars or maybe just $100 to tune your TV to the right settings and just have your movie presets and your live TV presets, and you will enjoy that experience, looks, that much—
+[00:06:29] Norm: Don't buy a new TV if you bought a TV two years ago. What you can do? Pay a specialist a couple hundred dollars or maybe just $100 to tune your TV to the right settings and just have your movie presets and your live TV presets, and you will enjoy that experience, looks, that much -
 
 [00:06:47] Will: I have, infinitely better.
 
@@ -244,19 +244,19 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:07:10] Adam: I just bought the, a Samsung for my kids downstairs, for their downstairs, and it was. Brian Lam, Wirecutter, gave me the recommendation. I think it was less than $400 for a 42-inch television, plasma. The blacks are gorgeous. That TV is magnificent.
 
-[00:07:27] Will: Well, so the thing that's happened with TVs is the vendors got hooked on selling TVs every few years because we had to switch to HD and we had to switch to flat panels, and then—
+[00:07:27] Will: Well, so the thing that's happened with TVs is the vendors got hooked on selling TVs every few years because we had to switch to HD and we had to switch to flat panels, and then -
 
-[00:07:37] Adam: LCD, and then there's whatever, plasma—
+[00:07:37] Adam: LCD, and then there's whatever, plasma -
 
-[00:07:40] Will: DLP and the plasmas, and yeah, there's a lot of acronym soup, and everything got cheaper and they got excited. They got hooked on selling new TVs every previously when I was a kid, they were, you bought a new TV—
+[00:07:40] Will: DLP and the plasmas, and yeah, there's a lot of acronym soup, and everything got cheaper and they got excited. They got hooked on selling new TVs every previously when I was a kid, they were, you bought a new TV -
 
 [00:07:52] Adam: They were durable. They were a durable good.
 
 [00:07:53] Will: Yeah, you bought a new TV when the old one broke and it was two, more than $200 to fix it, right?
 
-[00:07:57] Adam: So, so, so how are the 4Ks though? Are they just 4K stunningly—
+[00:07:57] Adam: So, so, so how are the 4Ks though? Are they just 4K stunningly -
 
-[00:08:00] Norm: The 4K is, in the optimal condition, so you're talking about an entire pipeline, they're shooting with 4K cameras—
+[00:08:00] Norm: The 4K is, in the optimal condition, so you're talking about an entire pipeline, they're shooting with 4K cameras -
 
 [00:08:06] Adam: Right.
 
@@ -284,9 +284,9 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:08:31] Adam: Right, right, right.
 
-[00:08:33] Will: So okay, so TVs—
+[00:08:33] Will: So okay, so TVs -
 
-[00:08:35] Adam: So TV—
+[00:08:35] Adam: So TV -
 
 [00:08:35] Will: 4K TVs. Nobody's going to buy 4K TVs until 2015.
 
@@ -298,7 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:08:42] Adam: But just in general, projectors. They do have. That's where everything's going, right? Everyone's just going to get rid of their TVs and project on their wall.
 
-[00:08:48] Norm: Not, not now. Most people—
+[00:08:48] Norm: Not, not now. Most people -
 
 [00:08:49] Adam: I feel like I want to do that.
 
@@ -308,7 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:08:58] Norm: But you really need to isolate a room. Most people with living rooms have curtains.
 
-[00:09:01] Will: If you have windows, it's not going to be good for you. If you don't have a pretty good distance from the back wall to the front wall—
+[00:09:01] Will: If you have windows, it's not going to be good for you. If you don't have a pretty good distance from the back wall to the front wall -
 
 [00:09:06] Norm: Right.
 
@@ -320,7 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:09:18] Norm: LG does have a short throw.
 
-[00:09:19] Adam: I will tell you something. A friend of mine who installs theaters in millionaires' and billionaires' homes gave me this secret. He said, "You can go out and—" I'd use this on a job. He said, "You can go out and spend $4,000 on a screen, or, or, how big is your screen to be?" I said, "It needs to be 8 feet by 12 feet." He says, "Oh, 6 feet by, by 10 feet." He goes, "Oh, great. Okay, go out and buy a double-wide, rubberized silver Lycra. They make it for costumes and stuff like that. You buy it at the fabric store."
+[00:09:19] Adam: I will tell you something. A friend of mine who installs theaters in millionaires' and billionaires' homes gave me this secret. He said, "You can go out and -" I'd use this on a job. He said, "You can go out and spend $4,000 on a screen, or, or, how big is your screen to be?" I said, "It needs to be 8 feet by 12 feet." He says, "Oh, 6 feet by, by 10 feet." He goes, "Oh, great. Okay, go out and buy a double-wide, rubberized silver Lycra. They make it for costumes and stuff like that. You buy it at the fabric store."
 
 [00:09:54] Will: Really?
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:09:55] Will: And stretch that out?
 
-[00:09:56] Adam: And I have to tell you, I stretched it on a wooden frame, and I have to tell you, it looked 99% as good as a four thousand—
+[00:09:56] Adam: And I have to tell you, I stretched it on a wooden frame, and I have to tell you, it looked 99% as good as a four thousand -
 
 [00:10:03] Will: We're going to do the backyard movie theater in the spring, Norm. It's, we have to do the backyard movie theater.
 
@@ -372,7 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:10:54] Adam: Exactly. Now I'm hearing that TVs are coming with all that stuff built in now too.
 
-[00:10:57] Norm: They have for the past two years. It's coming, but no one has really done a good job because they're kind of slow. Who wants to web browse with the remote control on their TV? Yeah. So we all expected TVs. So last year, actually, when Will and I went, we saw, because 4K TVs are cool—
+[00:10:57] Norm: They have for the past two years. It's coming, but no one has really done a good job because they're kind of slow. Who wants to web browse with the remote control on their TV? Yeah. So we all expected TVs. So last year, actually, when Will and I went, we saw, because 4K TVs are cool -
 
 [00:11:12] Adam: Yeah.
 
@@ -396,11 +396,11 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:11:38] Adam: Yeah, of course, the best footage ever.
 
-[00:11:39] Will: And then the other thing that was great on that one was there was this video of, you've seen the guys that push the logs down the mountain in Japan, and it's like a, it's like 400 people probably standing around this enormous, huge tree trunk a 10-foot-around tree trunk, and they're all—
+[00:11:39] Will: And then the other thing that was great on that one was there was this video of, you've seen the guys that push the logs down the mountain in Japan, and it's like a, it's like 400 people probably standing around this enormous, huge tree trunk a 10-foot-around tree trunk, and they're all -
 
-[00:11:57] Norm: They, pushing—
+[00:11:57] Norm: They, pushing -
 
-[00:11:58] Will: And steering it, like—
+[00:11:58] Will: And steering it, like -
 
 [00:12:00] Norm: As it's rolling down, basically, and a guy rides the giant tree trunk.
 
@@ -468,7 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:13:20] Adam: No, I was looking at my new Sony camera has a I got a FS700, and it's 3K compatible. I have to upgrade it to 3K with a firmware update, and then among the drives that you have to choose from that can take that signal, they can cost up to $20,000.
 
-[00:13:35] Will: Oh yeah, yeah. Well, it's like—
+[00:13:35] Will: Oh yeah, yeah. Well, it's like -
 
 [00:13:37] Norm: It's like the salt. It's, it's the separate attachment.
 
@@ -476,15 +476,15 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:13:39] Will: Yeah, it's like shooting with, it's like shooting high speed, but not.
 
-[00:13:42] Adam: Yeah, yeah. It's the mofo. Okay, so—
+[00:13:42] Adam: Yeah, yeah. It's the mofo. Okay, so -
 
-[00:13:44] Norm: Okay, so that was things we expected, and we got to talk about CES because before when we used to go—
+[00:13:44] Norm: Okay, so that was things we expected, and we got to talk about CES because before when we used to go -
 
 [00:13:52] Will: We're going a little long on this podcast, we're just letting you know in the middle here.
 
 [00:13:53] Norm: That's totally okay.
 
-[00:13:54] Will: Yeah, this is—
+[00:13:54] Will: Yeah, this is -
 
 [00:13:55] Norm: CES used to be, and one of the reasons that people went was that it was also coincided with a different convention, because conventions happen in Las Vegas.
 
@@ -586,7 +586,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:16:49] Unknown speaker: Oh, nice.
 
-[00:16:55] Will: And it was amazing. It was absolutely. I mean—
+[00:16:55] Will: And it was amazing. It was absolutely. I mean -
 
 [00:16:57] Norm: So you can, yeah, not only when you wear this, you can look around. So you can move your eyes around.
 
@@ -608,7 +608,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:17:30] Adam: Wow. Wow.
 
-[00:17:31] Will: The off-the-shelf sensors that are even the high-precision ones used for things like gyroscopes on rocket ships—
+[00:17:31] Will: The off-the-shelf sensors that are even the high-precision ones used for things like gyroscopes on rocket ships -
 
 [00:17:37] Adam: Yeah.
 
@@ -646,9 +646,9 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:18:47] Norm: Affordable. And they're hoping to have them into retail next year.
 
-[00:18:51] Will: So, so there's a couple of things to note. The dev kit is a much lower resolution than the retail version will be. The dev kit's like a 800 pixel vertical height—
+[00:18:51] Will: So, so there's a couple of things to note. The dev kit is a much lower resolution than the retail version will be. The dev kit's like a 800 pixel vertical height -
 
-[00:18:58] Norm: Panel, seven—
+[00:18:58] Norm: Panel, seven -
 
 [00:18:59] Will: 20 pixel, 720p panel. So don't, don't go out and buy this. Don't go out and buy the dev kit. There's nothing really to use it for.
 
@@ -668,7 +668,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:19:38] Will: So you can turn your head.
 
-[00:19:39] Adam: Yeah, yeah, yeah. No, we, we've been needing, we've been needing that for driving cars via a remote control forever on our show. It's, it's technology that we desperately—
+[00:19:39] Adam: Yeah, yeah, yeah. No, we, we've been needing, we've been needing that for driving cars via a remote control forever on our show. It's, it's technology that we desperately -
 
 [00:19:46] Will: We can make driving cars via remote control like a video game that's 3D and the whole nine yards.
 
@@ -734,7 +734,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:21:45] Unknown speaker: Yeah.
 
-[00:21:45] Norm: So you can go to a store. They'll have them like AT&T, Verizon stores. Give them your phone, and you can just stand there for half an hour—
+[00:21:45] Norm: So you can go to a store. They'll have them like AT&T, Verizon stores. Give them your phone, and you can just stand there for half an hour -
 
 [00:21:50] Unknown speaker: Yeah.
 
@@ -774,7 +774,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:22:37] Adam: All right, that's not so bad.
 
-[00:22:38] Norm: Yeah. Well, actually—
+[00:22:38] Norm: Yeah. Well, actually -
 
 [00:22:40] Will: Do we need to talk about work ethic, Chan?
 
@@ -798,15 +798,15 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:23:10] Unknown speaker: Yeah.
 
-[00:23:11] Adam: Well, they—
+[00:23:11] Adam: Well, they -
 
-[00:23:12] Norm: CES, and you know what the—
+[00:23:12] Norm: CES, and you know what the -
 
 [00:23:14] Will: The year he did the TV-B-Gone thing, there was a run on black electrical tape. People were going to all the places you could get black electrical tape and cutting off little squares to put over the IR sensor.
 
 [00:23:24] Adam: Right, right, right.
 
-[00:23:27] Norm: It, you could have fun at CES without, without being a—
+[00:23:27] Norm: It, you could have fun at CES without, without being a -
 
 [00:23:30] Adam: Yeah. I have to say I had, just so that we should explain, the TV-B-Gone is this little device you can buy. It costs like $5.
 
@@ -828,7 +828,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:24:12] Norm: I think it's a cool power to have. You gotta use it really judiciously.
 
-[00:24:15] Will: So the—
+[00:24:15] Will: So the -
 
 [00:24:16] Adam: Yes.
 
@@ -842,7 +842,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:24:31] Will: I like to go into a bar to have a conversation with someone, not to watch sports.
 
-[00:24:35] Norm: So—
+[00:24:35] Norm: So -
 
 [00:24:35] Adam: I remember it was at Disney World a few years ago, and us having a meeting in the sports bar at Disney World, which is just, that's weird, like the fourth level of hell.
 
@@ -850,7 +850,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:24:44] Adam: This, every surface is covered with TVs. They're all playing different games, and they're all on. Now volume is on all of them. And the waitress came over, and she said, "Would you like anything?" And I said, "Yeah, could you turn the TV down?" And she, I was making a joke because it was like an impossibility. It was like asking someone to turn traffic off. She looked at me with this look of like, "Don't get funny."
 
-[00:25:07] Norm: Oh, it's worse for her because she has—
+[00:25:07] Norm: Oh, it's worse for her because she has -
 
 [00:25:09] Will: Oh.
 
@@ -892,13 +892,13 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:26:19] Will: It's like going to camp. I mean, at least for us. I mean, you go and you work all day, and then you go to the bar at the end of the day, and you see people that you see literally once a year. And I mean, that's that part of it's really nice. But I don't know, like I don't think we'll ever go to CES like we did two years ago and bring 10 people and try, try to get 40 or 50 videos out of the week there. I don't think it's worth the. I mean, it's a lot of. It's just not worth it.
 
-[00:26:42] Norm: And some people will do the full coverage thing. They'll send 60 people this year, and because they want to be comprehensive—
+[00:26:42] Norm: And some people will do the full coverage thing. They'll send 60 people this year, and because they want to be comprehensive -
 
 [00:26:49] Will: They're insane.
 
 [00:26:50] Adam: And who was that?
 
-[00:26:51] Norm: They're like—
+[00:26:51] Norm: They're like -
 
 [00:26:52] Will: It was The Verge. Just say it, Chan.
 
@@ -932,7 +932,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:27:46] Adam: A new product?
 
-[00:27:47] Norm: No. For the big companies, the idea was to stay the course because they are so worried about the consumers not buying their stuff. And—
+[00:27:47] Norm: No. For the big companies, the idea was to stay the course because they are so worried about the consumers not buying their stuff. And -
 
 [00:27:54] Will: Right, right.
 
@@ -956,7 +956,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:28:32] Unknown speaker: Yeah.
 
-[00:28:32] Will: It was. It was. It looked like—
+[00:28:32] Will: It was. It was. It looked like -
 
 [00:28:34] Norm: Very, very flat when I couldn't see any of the seams.
 
@@ -964,7 +964,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:28:50] Adam: Solving problems you don't have, yeah, since, yeah.
 
-[00:28:54] Will: Gabe Newell talked about the cost of innovation for big companies on Chris Hard— on the Nerdist podcast the other day. I don't know if you, it's worth listening to. Gabe Newell's the founder of Valve Software and is, is a enormous nerd and a wonderful guy. But he was talking about how the inertia of large companies, in the context of their weird corporate structure, which we should talk about at a different time at Valve, and he essentially said, look, I don't think as the pace of innovation continues to increase and these companies keep getting bigger, I don't think monolithic big companies have a chance. They're, the opportunities for them to innovate is, are going to decrease as the pace of innovation increases because in order for them to get something going, the cost is so high and the number of people you have to get on board and that, that, that over time their innovation is going to go down compared to somebody like Parker who's building a pair of VR goggles in his garage because he went to school.
+[00:28:54] Will: Gabe Newell talked about the cost of innovation for big companies on Chris Hard- on the Nerdist podcast the other day. I don't know if you, it's worth listening to. Gabe Newell's the founder of Valve Software and is, is a enormous nerd and a wonderful guy. But he was talking about how the inertia of large companies, in the context of their weird corporate structure, which we should talk about at a different time at Valve, and he essentially said, look, I don't think as the pace of innovation continues to increase and these companies keep getting bigger, I don't think monolithic big companies have a chance. They're, the opportunities for them to innovate is, are going to decrease as the pace of innovation increases because in order for them to get something going, the cost is so high and the number of people you have to get on board and that, that, that over time their innovation is going to go down compared to somebody like Parker who's building a pair of VR goggles in his garage because he went to school.
 
 [00:29:50] Adam: Interesting.
 

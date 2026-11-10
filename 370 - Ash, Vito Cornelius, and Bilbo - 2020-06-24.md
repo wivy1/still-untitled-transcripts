@@ -130,7 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=tEHozPD2_rE
 
 [00:05:32] Norm: The score is by what's his name,
 
-[00:05:35] Adam: Sir—Ennio Morricone.
+[00:05:35] Adam: Sir - Ennio Morricone.
 
 [00:05:36] Norm: Morricone, yeah, exactly. And it's timed with the the close up on the eyes. So he goes increasingly these these shootouts, and you have like three way you know shootouts, and it's all about the tension and anticipation. And they zoom in. He's Leone zooms in on like the the hands and gets closer from these wide shots, closer, tighter, tighter, tighter. To so it's all about their eyes, and I believe I want to say I'm correcting this in that. It was scored before they filmed, and so the music was playing on set when they filmed.
 

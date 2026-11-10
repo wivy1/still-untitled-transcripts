@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:09:41] Norm: And that is one I think where it drags a little bit toward the end. It's much stronger in the first two thirds than I think in the last third. Once they get to them on vacation in Venice,
 
-[00:09:51] Adam: and you know what, I will point out to you. I think I I I might have agreed with you in the abstract, but that whole vacation in Venice to the denouement of her betrayal—spoilers.
+[00:09:51] Adam: and you know what, I will point out to you. I think I I I might have agreed with you in the abstract, but that whole vacation in Venice to the denouement of her betrayal - spoilers.
 
 [00:10:04] Will: 10-year-old movie.
 
@@ -1046,7 +1046,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:41:10] Norm: and half the screen is a commercial.
 
-[00:41:10] Adam: I—
+[00:41:10] Adam: I -
 
 [00:41:10] Norm: And it's like a picture-in-picture commercial, the way to get more commercials in during your live content.
 

@@ -440,7 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=mlRpiUgYgIQ
 
 [00:30:04] Adam: Yeah, I'm going to enjoy another lovely night here in one of my favorite cities in the world, and then I'm off to touring again. I think we have about 15 more dates before we're done.
 
-[00:30:14] Will: Ooh. Hey, we should mention a couple of things. Yeah. We while you were while you've been gone we relaunched premium memberships on Tested. So what that means is that we are, um, well, we have a store where you can buy T-shirts featuring our likenesses right now, and some more stuff soon. We're going to have mugs and stickers in the not too distant future. We also have premium memberships. So the premium memberships are it's a subscription basically for the site, and what that does is get you an ad-free experience on Tested.com. So no banners. At some point in the future, we'll remove video ads as well, but we there's some technical stuff that we have to work out first for that. And then also, you get a discount for the store. You get a badge, a little medal on your badge in the forums and in the comments. You get a monthly newsletter from Adam, Jamie, Norm, or me—you get. Let's see, what else do you get?
+[00:30:14] Will: Ooh. Hey, we should mention a couple of things. Yeah. We while you were while you've been gone we relaunched premium memberships on Tested. So what that means is that we are, um, well, we have a store where you can buy T-shirts featuring our likenesses right now, and some more stuff soon. We're going to have mugs and stickers in the not too distant future. We also have premium memberships. So the premium memberships are it's a subscription basically for the site, and what that does is get you an ad-free experience on Tested.com. So no banners. At some point in the future, we'll remove video ads as well, but we there's some technical stuff that we have to work out first for that. And then also, you get a discount for the store. You get a badge, a little medal on your badge in the forums and in the comments. You get a monthly newsletter from Adam, Jamie, Norm, or me - you get. Let's see, what else do you get?
 
 [00:31:10] Norm: And you get at least 50 pieces of premium content.
 
@@ -472,7 +472,7 @@ Episode URL: https://www.youtube.com/watch?v=mlRpiUgYgIQ
 
 [00:32:00] Adam: Oh, see, when I was growing up, and when I was growing up. HBO stood for Hey, Beastmaster’s on,
 
-[00:32:07] Will: isn't all I know about Beastmaster. I know from filching my father's Playboys. If I had to guess, because the girl from—oh, Tanya Roberts—Charlie’s Angels was in it, right? Yeah, that's everything I know about Beastmaster.
+[00:32:07] Will: isn't all I know about Beastmaster. I know from filching my father's Playboys. If I had to guess, because the girl from - oh, Tanya Roberts - Charlie’s Angels was in it, right? Yeah, that's everything I know about Beastmaster.
 
 [00:32:17] Adam: Yeah, Tanya Roberts, the fourth angel, or maybe even the fifth. if I'm not incorrect.
 
@@ -508,7 +508,7 @@ Episode URL: https://www.youtube.com/watch?v=mlRpiUgYgIQ
 
 [00:33:34] Adam: They all look like Hirschfeld drawings in the file card in my head.
 
-[00:33:38] Will: So anyway, premium memberships—you can watch the AI commentary right now. It is to find out more, go to tested. Com/slash subscribe, and we'll have more good stuff on the site. We'll do live Q and As.
+[00:33:38] Will: So anyway, premium memberships - you can watch the AI commentary right now. It is to find out more, go to tested. Com/slash subscribe, and we'll have more good stuff on the site. We'll do live Q and As.
 
 [00:33:50] Adam: We also have we have lots of plans for exclusive, available stuff for that for the subscription site.
 

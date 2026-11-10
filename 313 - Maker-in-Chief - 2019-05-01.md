@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:03:05] Norm: When you look back, you think you'll think of 2019 as your book year.
 
-[00:03:09] Adam: I—
+[00:03:09] Adam: I -
 
 [00:03:09] Norm: [unclear: that's / Or] your first book year.
 
@@ -178,7 +178,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:06:34] Will: Okay.
 
-[00:06:34] Adam: I know that my favorite chapter to—. So I also recorded the audio book for this.
+[00:06:34] Adam: I know that my favorite chapter to -. So I also recorded the audio book for this.
 
 [00:06:34] Will: Oh oh wow,
 
@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:06:34] Will: Oh wow!
 
-[00:06:34] Adam: Obviously, he's a singer. He's wonderful with his voice. It’s— You feel like you're just having a conversation with Jeff. And the other one is Elizabeth Gilbert's book, Big Magic. Elizabeth Gilbert famously wrote Eat, Pray, Love, but she also wrote one of my favorite books of the last five years, which is called a piece of fiction called The Signature of All Things, which is a jaw-droppingly beautiful book. And in Big Magic, she reads, and in a very Her audio book and Jeff's are almost an ASMR type. Like I'm really close to the mic. It's not like this blank sound space. It's more personal. And I, I, I went for that as a. I wanted it to feel more like we were in the room together rather than you're just listening to me pontificate on my history.
+[00:06:34] Adam: Obviously, he's a singer. He's wonderful with his voice. It’s - You feel like you're just having a conversation with Jeff. And the other one is Elizabeth Gilbert's book, Big Magic. Elizabeth Gilbert famously wrote Eat, Pray, Love, but she also wrote one of my favorite books of the last five years, which is called a piece of fiction called The Signature of All Things, which is a jaw-droppingly beautiful book. And in Big Magic, she reads, and in a very Her audio book and Jeff's are almost an ASMR type. Like I'm really close to the mic. It's not like this blank sound space. It's more personal. And I, I, I went for that as a. I wanted it to feel more like we were in the room together rather than you're just listening to me pontificate on my history.
 
 [00:08:07] Norm: Do they have you read it in order, chapter order? Okay, so it's not like different order. So you have a different amount of energy.
 
@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:11:07] Will: Yeah, because people, dude. Yeah, go. You need to watch.
 
-[00:11:10] Adam: It's some of the most fun and most astounding thing I've ever participated in, and more than that, I didn't realize that when you 3D print titanium, it's stronger than normal titanium because you can attenuate its grain grain structure. Which means—
+[00:11:10] Adam: It's some of the most fun and most astounding thing I've ever participated in, and more than that, I didn't realize that when you 3D print titanium, it's stronger than normal titanium because you can attenuate its grain grain structure. Which means -
 
 [00:11:28] Will: I mean, look, we don't all have 3D titanium printers, Adam. This isn't something that comes up in normal conversation.
 
@@ -476,7 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:27:48] Will: Only he lived someplace not too far away from here.
 
-[00:27:48] Unknown speaker: And—
+[00:27:48] Unknown speaker: And -
 
 [00:27:51] Steph: You've never gone to his woodshop?
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:31:17] Adam: Andrew showed me one of the couches he slept on when he pulled it all night.
 
-[00:31:21] Steph: Yeah, Andrew Coy was the was my colleague who, when I finished up, he carried on the work really amazingly around supporting the maker movement. He was the other senior advisor for making, but yeah. So, I mean, it. One of the things that I am really happy about is that work continues. It whenever you know that at the end of in this case it was eight years that the work that you have been doing should carry on in some format. And so there was a lot of really intentional thinking put into before the end of the administration how to carry on some of this work. And a lot of the things that we're doing through Nation of Makers is is to—
+[00:31:21] Steph: Yeah, Andrew Coy was the was my colleague who, when I finished up, he carried on the work really amazingly around supporting the maker movement. He was the other senior advisor for making, but yeah. So, I mean, it. One of the things that I am really happy about is that work continues. It whenever you know that at the end of in this case it was eight years that the work that you have been doing should carry on in some format. And so there was a lot of really intentional thinking put into before the end of the administration how to carry on some of this work. And a lot of the things that we're doing through Nation of Makers is is to -
 
 [00:32:07] Adam: Absolutely.
 

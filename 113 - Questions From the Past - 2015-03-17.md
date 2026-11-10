@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:15:19] Will: and take a while to get there.
 
-[00:15:20] Adam: Absolutely. So the idea that you might be wasting your money in degree—that's your own choice to make. But I think there are plenty of community colleges with fantastic wood shops, metal shops, building shops. Three 3D printers are cheap enough now, and so are laser cutters. That I'll bet a lot of schools have them.
+[00:15:20] Adam: Absolutely. So the idea that you might be wasting your money in degree - that's your own choice to make. But I think there are plenty of community colleges with fantastic wood shops, metal shops, building shops. Three 3D printers are cheap enough now, and so are laser cutters. That I'll bet a lot of schools have them.
 
 [00:15:38] Will: High school labs should be putting 3D printers in now.
 
@@ -650,7 +650,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:34:44] Will: You get that feeling.
 
-[00:34:59] Adam: You get that feeling, and that's so for me. The making and the completion—it's a very social act, and it's a—it's an act of commutation of story and interest and passion and origins about our fascinations. So I love it when someone comes to the shop and says, " Oh, I love that prop. That's one of my favorite things." And I'm able to because I've got two or three of them. Go here, take this one home, and they're like, " No way."
+[00:34:59] Adam: You get that feeling, and that's so for me. The making and the completion - it's a very social act, and it's a - it's an act of commutation of story and interest and passion and origins about our fascinations. So I love it when someone comes to the shop and says, " Oh, I love that prop. That's one of my favorite things." And I'm able to because I've got two or three of them. Go here, take this one home, and they're like, " No way."
 
 [00:35:30] Will: Well, for me, it's often like, " A, do I have time to actually?" Like, I I don't have the I don't have the the big space to just leave stuff kind of partially done. So if I'm going to start something, I have let's say six weeks before,
 
@@ -672,7 +672,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:36:03] Adam: So yeah, it's multiple and varied. There's also times when a project gets instigated because I've discovered a new process that I want to play with. I'm sure that better, more accessible, higher resolution 3D printing will initiate a bunch of projects I haven't even considered yet.
 
-[00:36:21] Will: Well, and not even that. The thing I'm excited—I mean, I've been doing 3D printing for a long time now. The thing I'm excited about is the stuff that you can do because of 3D printing, like lost PLA casting.
+[00:36:21] Will: Well, and not even that. The thing I'm excited - I mean, I've been doing 3D printing for a long time now. The thing I'm excited about is the stuff that you can do because of 3D printing, like lost PLA casting.
 
 [00:36:21] Adam: Yeah.
 

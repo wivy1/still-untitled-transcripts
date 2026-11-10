@@ -696,7 +696,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:28:46] Adam: Yeah.
 
-[00:28:47] Will: And Anathem is—it's unclear what Anathem is about, but I quite enjoy it.
+[00:28:47] Will: And Anathem is - it's unclear what Anathem is about, but I quite enjoy it.
 
 [00:28:52] Adam: Yeah.
 
@@ -706,7 +706,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:28:58] Will: You know what do post-meatspace humans look like?
 
-[00:29:04] Adam: I loved how casually he posits the future and then tosses it aside for the narrative. Right, like the idea that we don't carry phones anymore in 20 years—it's all eyeglasses. Yeah, I think that's totally right.
+[00:29:04] Adam: I loved how casually he posits the future and then tosses it aside for the narrative. Right, like the idea that we don't carry phones anymore in 20 years - it's all eyeglasses. Yeah, I think that's totally right.
 
 [00:29:16] Will: Yeah,
 

@@ -218,7 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:06:30] Adam: we did not. But I saw it and I loved it.
 
-[00:06:32] Norm: And it was it's these. I mean, the HBO documentary and the Master are almost pair a pair of—
+[00:06:32] Norm: And it was it's these. I mean, the HBO documentary and the Master are almost pair a pair of -
 
 [00:06:37] Adam: It's worth watching both of them.
 
@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:06:39] Norm: viewings.
 
-[00:06:40] Adam: Philip Seymour, the Master. I— lots of people. The Master was a very polarizing. film.
+[00:06:40] Adam: Philip Seymour, the Master. I - lots of people. The Master was a very polarizing. film.
 
 [00:06:45] Will: It was Amy Adams and Philip Seymour Hoffman, right?
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:07:11] Norm: a giant screen
 
-[00:07:19] Adam: for minutes at a time. Plus, from a camerawork perspective, this film, Anderson takes on—I don't even know what his inspiration because I can't think of another film that does this. There'll be entire scenes where the camera is, let's say, sitting at the table in a boardroom, just looking across the table, and two people will come into the room and sit down, and you might not even see one of them fully, and the other one you might not see at all, and they'll have a conversation, and the camera will not move for the entire film for the entire scene.
+[00:07:19] Adam: for minutes at a time. Plus, from a camerawork perspective, this film, Anderson takes on - I don't even know what his inspiration because I can't think of another film that does this. There'll be entire scenes where the camera is, let's say, sitting at the table in a boardroom, just looking across the table, and two people will come into the room and sit down, and you might not even see one of them fully, and the other one you might not see at all, and they'll have a conversation, and the camera will not move for the entire film for the entire scene.
 
 [00:07:47] Will: Did you watch a lot of Kevin Smith movies?
 
@@ -468,7 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:19:39] Will: it's the Replica Prop Forum, but really nice. I mean, it's very inclusive.
 
-[00:19:39] Norm: And two—
+[00:19:39] Norm: And two -
 
 [00:19:39] Will: yes, very inclusive.
 
@@ -640,7 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:25:25] Adam: What?
 
-[00:25:25] Will: We—
+[00:25:25] Will: We -
 
 [00:25:26] Adam: I thought there are robot cars that can do that.
 
@@ -706,7 +706,7 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:27:13] Adam: On the show, it's so much fun,
 
-[00:27:14] Will: right? I mean, my father, when I was [unclear: six—] fifteen or sixteen, took me out when it snowed, and we went to the bowling alley parking lot where it was icy,
+[00:27:14] Will: right? I mean, my father, when I was [unclear: six -] fifteen or sixteen, took me out when it snowed, and we went to the bowling alley parking lot where it was icy,
 
 [00:27:22] Adam: I learned how to steer into the skid.
 
@@ -734,7 +734,7 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:28:02] Will: Okay.
 
-[00:28:02] Adam: And we drove back and forth on these two long blocks for about an hour. He got into third gear, but I was running him really, really slowly. Like basically, okay, get the car still, get it in neutral. Now, foot on the clutch, put it in first, give it a little gas, like 1,500, 2,000, and then slow. I— just we spent half an hour just of him raising the clutch into it and feeling it drag the car forward.
+[00:28:02] Adam: And we drove back and forth on these two long blocks for about an hour. He got into third gear, but I was running him really, really slowly. Like basically, okay, get the car still, get it in neutral. Now, foot on the clutch, put it in first, give it a little gas, like 1,500, 2,000, and then slow. I - just we spent half an hour just of him raising the clutch into it and feeling it drag the car forward.
 
 [00:28:35] Will: This is like Karate Kid, where he's waxing the car.
 
@@ -746,7 +746,7 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:28:50] Will: Oh yeah.
 
-[00:28:50] Adam: You— I think in modern cars you can no longer grind the gears. I think they're too smart for that. 
+[00:28:50] Adam: You - I think in modern cars you can no longer grind the gears. I think they're too smart for that. 
 
 [00:28:50] Will: Really.
 
@@ -818,7 +818,7 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:30:30] Norm: That's why
 
-[00:30:31] Will: I—
+[00:30:31] Will: I -
 
 [00:30:30] Norm: I checked. Not my camera. Not
 

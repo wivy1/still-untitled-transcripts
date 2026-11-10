@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:12:22] Adam: All cool.
 
-[00:12:41] Will: It's this is— And the leather straps and the the mount for it and all that. It's it's what spun aluminum.
+[00:12:41] Will: It's this is - And the leather straps and the the mount for it and all that. It's it's what spun aluminum.
 
 [00:12:47] Adam: Yeah, spun aluminum. It's heavy. It's got real leather in the back. It's just a great piece.
 
@@ -632,7 +632,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:19:49] Norm: No, no, they had one.
 
-[00:19:51] Adam: Oh, that was for explosions—the big ones.
+[00:19:51] Adam: Oh, that was for explosions - the big ones.
 
 [00:19:54] Unknown speaker: Really?
 
@@ -776,7 +776,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:25:46] Will: and not many survived, right?
 
-[00:25:48] Unknown speaker: I—
+[00:25:48] Unknown speaker: I -
 
 [00:25:46] Will: I mean, I assume
 
@@ -794,7 +794,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:25:46] Adam: and then just more interest in that kind of old stuff. They’re more now. I’d say more in the $25,000 to $35,000 range now. Never say never. I might pick find one in a thrift store in Vale someday. Who knows? So that’s objects, right? Like old cray.
 
-[00:25:46] Norm: And old—
+[00:25:46] Norm: And old -
 
 [00:25:46] Will: ejection seats.
 

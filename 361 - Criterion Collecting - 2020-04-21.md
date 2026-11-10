@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=w6H9rd4uYPY
 
 [00:22:41] Adam: Peter Bogdanovich's third film after * Paper Moon* and * The Last Picture Show*. It's an amazing Ryan O'Neal and Barbra Streisand. Some of the best physical comedy in any movie. The pane of glass on the street. One of the great visual sight gags ever put to film.
 
-[00:23:01] Norm: Yeah, it's a screwball comedy of and maybe one of the first kind of manic pixie dream girl type characters that Barbra Streisand plays. And it goes all there's a chase through San Francisco, and you go through. Russian Hill, yeah, Marina, the Richmond—it's all connected.
+[00:23:01] Norm: Yeah, it's a screwball comedy of and maybe one of the first kind of manic pixie dream girl type characters that Barbra Streisand plays. And it goes all there's a chase through San Francisco, and you go through. Russian Hill, yeah, Marina, the Richmond - it's all connected.
 
 [00:23:21] Adam: Franklin Street, yeah,
 
@@ -272,7 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=w6H9rd4uYPY
 
 [00:23:25] Adam: What and what was the third film?
 
-[00:23:28] Norm: The third one—it's on Amazon. It's called * The Last Black Man in San Francisco*. Came out last year.
+[00:23:28] Norm: The third one - it's on Amazon. It's called * The Last Black Man in San Francisco*. Came out last year.
 
 [00:23:32] Adam: I was meaning to jump into that. I hear it's so beautiful and so amazing.
 
@@ -434,13 +434,13 @@ Episode URL: https://www.youtube.com/watch?v=w6H9rd4uYPY
 
 [00:33:10] Will: No, no,
 
-[00:33:11] Norm: not a comedy. I mean, I don't know how much you know about the plot. I will say it starts off slow, not a comedy, and it's a movie that really works—a story that works really well as a play. I could really imagine it as a play, also.
+[00:33:11] Norm: not a comedy. I mean, I don't know how much you know about the plot. I will say it starts off slow, not a comedy, and it's a movie that really works - a story that works really well as a play. I could really imagine it as a play, also.
 
 [00:33:23] Adam: Interesting.
 
 [00:33:23] Will: My friend who described it to me said it's like the scene in Goodfellas when she goes into the warehouse and she's not sure if she's going to get a fur coat or get killed, and except for that's the whole movie. And I was like, well, I got to watch that now.
 
-[00:33:36] Adam: That tension—that sounds amazing.
+[00:33:36] Adam: That tension - that sounds amazing.
 
 [00:33:38] Will: Yeah.
 

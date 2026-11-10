@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=VihllKaZHnM
 
 [00:05:40] Adam: this is not an origin story that I know.
 
-[00:05:43] Karen Savage: But we talked about a lot of different names, and I think it was one we both liked. And your middle name is Whitney, so your name is Adam Whitney Savage. We just thought that had a beautiful ring to it, that you could do anything you wanted with that name. Your father's first name was Whitney. He was called Lee, but his name first name was Whitney. And your grandfather— his father's grandfather was Whitney.
+[00:05:43] Karen Savage: But we talked about a lot of different names, and I think it was one we both liked. And your middle name is Whitney, so your name is Adam Whitney Savage. We just thought that had a beautiful ring to it, that you could do anything you wanted with that name. Your father's first name was Whitney. He was called Lee, but his name first name was Whitney. And your grandfather - his father's grandfather was Whitney.
 
 [00:06:03] Adam: Joe Savage's dad.
 
@@ -168,7 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=VihllKaZHnM
 
 [00:10:20] Karen Savage: I would say more like 12.
 
-[00:10:21] Adam: Okay, so I'm putting this cardboard thing together. Yeah, it's fairly primitive in some of its aspects. I hadn't yet built all those paper models of architectural buildings, but I remember being about 30% of the way into the build and seeing the parts around me and feeling like this object was forming, and it really was the first moment of genuine transcendence in every sense of that word in the making of something. And so I specifically remember going. I remember feeling that sense. Jung calls it the. Good God! The oceanic feeling—the feeling that you are part of something, that you are in a something bigger than you—and it is a feeling I have been lucky enough to experience many times since then. But I remember that first moment of feeling like the, and I also then went to you and I said, " Mom, I," and I said, " I just wanted to chron." I went into the kitchen. I was building it in the front foyer, and I went into the kitchen where you were, and I said, " I just want to chronicle right now at this moment on July 12, 1979, that I feel truly and completely happy."
+[00:10:21] Adam: Okay, so I'm putting this cardboard thing together. Yeah, it's fairly primitive in some of its aspects. I hadn't yet built all those paper models of architectural buildings, but I remember being about 30% of the way into the build and seeing the parts around me and feeling like this object was forming, and it really was the first moment of genuine transcendence in every sense of that word in the making of something. And so I specifically remember going. I remember feeling that sense. Jung calls it the. Good God! The oceanic feeling - the feeling that you are part of something, that you are in a something bigger than you - and it is a feeling I have been lucky enough to experience many times since then. But I remember that first moment of feeling like the, and I also then went to you and I said, " Mom, I," and I said, " I just wanted to chron." I went into the kitchen. I was building it in the front foyer, and I went into the kitchen where you were, and I said, " I just want to chronicle right now at this moment on July 12, 1979, that I feel truly and completely happy."
 
 [00:11:40] Norm: Wow.
 
@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=VihllKaZHnM
 
 [00:17:11] Karen Savage: That's true.
 
-[00:17:12] Norm: And did you have to push in one direction? Was it just? letting—
+[00:17:12] Norm: And did you have to push in one direction? Was it just? letting -
 
 [00:17:15] Adam: Oh, here's a question. So when I was in seventh grade, the summer between seventh and eighth grade, so that would have me between 12 and 13 years old. A really great time in any kid's life. And you took me to the White Plains Cultural Center to take a whole bunch of classes. Like I, you signed me up for like four different classes at that over that summer. I have never asked about how come. What was the reasoning? Because I hadn't done a lot of art classes or other kind of things before that.
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=VihllKaZHnM
 
 [00:29:02] Adam: So we had me transferred to Columbia Presbyterian, and my and mom followed me in the car, and I go wheel in, and she stops at the desk to check me in, and they say, " Has he ever been in this hospital before?" And mom says, " No." Wait, yes, 18 years ago today, and then she fainted.
 
-[00:29:21] Karen Savage: I had kept myself together. This had been like five hours or six hours since you had hurt had this injury, and Adam and I had both been very brave that whole afternoon. We were both scared to death because you felt that any moment he could move and then be paralyzed. It was a genuine fear, and we had both kept ourselves together—not a tear, not a fear—until I got to that hospital desk and had to say, " Oh my God, he was born here 18 years ago," and burst into tears and dropped to the floor.
+[00:29:21] Karen Savage: I had kept myself together. This had been like five hours or six hours since you had hurt had this injury, and Adam and I had both been very brave that whole afternoon. We were both scared to death because you felt that any moment he could move and then be paralyzed. It was a genuine fear, and we had both kept ourselves together - not a tear, not a fear - until I got to that hospital desk and had to say, " Oh my God, he was born here 18 years ago," and burst into tears and dropped to the floor.
 
 [00:29:53] Adam: Wow! Wow! There you go. Happy Mother's Day!
 

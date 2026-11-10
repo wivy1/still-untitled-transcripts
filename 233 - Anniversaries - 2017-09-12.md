@@ -200,7 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:09:59] Will: Well, it's both a comfort in that if you have a lull and you don't know where to go next, you have a new jumping off point. But
 
-[00:09:59] Unknown speaker: But like—
+[00:09:59] Unknown speaker: But like -
 
 [00:10:05] Adam: oh my god, the lull! I spend all the time interviewing, just absolutely fucking terrified. I'm gonna run. I'm gonna have nothing to fill the next space.
 

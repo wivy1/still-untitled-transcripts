@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:07:14] Will: right?
 
-[00:07:14] Adam: And I hate that. I mean, we did it safely. We actually had—I don't know if we—if it made it into the final episode because I didn't watch the whole thing last night, but we actually had a cable out at the front of the barrel that was cabled and bolted to the car so that even if our entire rig failed, except for the trigger and the gun unmounted from its mount, it couldn't do anything but still point within that 30-degree arc.
+[00:07:14] Adam: And I hate that. I mean, we did it safely. We actually had - I don't know if we - if it made it into the final episode because I didn't watch the whole thing last night, but we actually had a cable out at the front of the barrel that was cabled and bolted to the car so that even if our entire rig failed, except for the trigger and the gun unmounted from its mount, it couldn't do anything but still point within that 30-degree arc.
 
 [00:07:14] Will: Okay,
 
@@ -638,7 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:27:31] Will: It's the the helmet. Like I think you talked about this in the video. I can't remember if I made the cut or not. But when you put the helmet on and you start breathing, you realize that the sound of Dave Bowman breathing at the end of the movie in the spacesuit is literally just a person in the spacesuit mic'd, because it it sounds exactly the same.
 
-[00:27:46] Adam: And how cool was it that Hadfield was saying that that's also what you feel in space—that you're alone out there with just the sound of your breath, like scuba diver.
+[00:27:46] Adam: And how cool was it that Hadfield was saying that that's also what you feel in space - that you're alone out there with just the sound of your breath, like scuba diver.
 
 [00:27:55] Will: Yeah.
 

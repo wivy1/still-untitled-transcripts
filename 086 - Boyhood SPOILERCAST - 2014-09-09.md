@@ -754,7 +754,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:29:23] Adam: Yeah.
 
-[00:29:23] Norm: The boy, he gets very the last third. He gets very mired in. Being existential as young men are—
+[00:29:23] Norm: The boy, he gets very the last third. He gets very mired in. Being existential as young men are -
 
 [00:29:23] Will: that’s the right thing to happen when you're 17.
 

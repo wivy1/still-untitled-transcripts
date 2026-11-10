@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=hhdZxzCxhd4
 
 [00:17:49] Adam: Yeah, yeah. Um, maybe Crispin Glover's most normal role.
 
-[00:17:55] Norm: Yes, yes. I was thinking of Charlie's Angels, and he was also—so, in the Alice in Wonderland 2010 one. The kid loves it. The two year old loves it.
+[00:17:55] Norm: Yes, yes. I was thinking of Charlie's Angels, and he was also - so, in the Alice in Wonderland 2010 one. The kid loves it. The two year old loves it.
 
 [00:18:11] Adam: Is that one of the ones you watch every day?
 
@@ -188,7 +188,7 @@ Episode URL: https://www.youtube.com/watch?v=hhdZxzCxhd4
 
 [00:18:30] Joey: so I haven't been as much. I've been having like a real crisis of identity with movies lately. Like I, all the movies that I kind of used to watch, I've just I'm either in like a slightly different headspace, either with having a kid or with the situation now. I'm like I don't want to watch anything violent, which is a lot of the movies I used to have. Like Goodfellas was always a great like movie just to dive back into, but I've been really getting into. All the movies that are just like hanging out, like right the Once Upon a Time in Hollywood, like Ocean's Eleven, even like My Neighbor Totoro. I've been watching that with my daughter. I'm like, this is I'm just just hanging out with these two girls and all these creatures. Like this is, yeah, I just want to be with these people that I like. Even like when Bill and Ted Face the Music came out, and I'm like, this is exactly what I need right now. I just need something really, um, not, not plotless, but something that's not, I guess a dire or huge or scary. Just something I can have and kind of remember, or remember it kind of a more fantastical version of the world where you're just kind of hanging out with your friends again and family.
 
-[00:19:35] Adam: Hanging out vibe is really specific. It's a genre I hadn't considered before because Tarantino once said in an interview about Jackie Brown that that's the movie he made where he wanted it to feel like you were just hanging out with the main characters. And having watched that film, like. Eight or nine times. Every time I watch it, I feel even more like I'm just hanging out with Ordell and all of those dudes. But I hadn't considered that a genre. But you're totally right. There is that is a kind of—
+[00:19:35] Adam: Hanging out vibe is really specific. It's a genre I hadn't considered before because Tarantino once said in an interview about Jackie Brown that that's the movie he made where he wanted it to feel like you were just hanging out with the main characters. And having watched that film, like. Eight or nine times. Every time I watch it, I feel even more like I'm just hanging out with Ordell and all of those dudes. But I hadn't considered that a genre. But you're totally right. There is that is a kind of -
 
 [00:20:04] Joey: Big Lebowski.
 
@@ -214,7 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=hhdZxzCxhd4
 
 [00:22:56] Joey: Aaron Sorkin.
 
-[00:22:58] Norm: Sorkin, for sure. What's his name? Shane Black. Oh, man. In those movies, and yeah, I love like the Nice Guys or—
+[00:22:58] Norm: Sorkin, for sure. What's his name? Shane Black. Oh, man. In those movies, and yeah, I love like the Nice Guys or -
 
 [00:23:07] Joey: Yeah, Kiss Kiss Bang Bang. Nice Guys, absolutely.
 
@@ -266,7 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=hhdZxzCxhd4
 
 [00:26:21] Adam: Yeah, I mean, it's exactly like that. And we were able when we shot in Alameda, we were able to. I think the reason we couldn't film there was because Tesla had rented that runway for like two years solid to just continually do testing of their autopilot.
 
-[00:26:37] Norm: Hmm. Fascinating. Yeah. Just—how, how big the making of that safe? Like, how would you go about making? Like, what would be the process to get a safe that would accurately represent what they had on screen?
+[00:26:37] Norm: Hmm. Fascinating. Yeah. Just - how, how big the making of that safe? Like, how would you go about making? Like, what would be the process to get a safe that would accurately represent what they had on screen?
 
 [00:26:52] Adam: So we would probably have done. I think the way we're looking at doing that is welding the safe out of plates of trench plate. Trench plate are those giant steel plates they put over road construction while they're not working on it, and you can rent those by the day. And they come with a big screw hook that goes in their middle, and they're well balanced, and you can pick them up and move them around with forklifts. They're actually really. We use them all the time, and we weld them to stuff all the time because you just grind the welds and return them, and no one minds because you haven't really done anything to the structure. So we were thinking about welding it out of one-inch trench plate, and then for weight, filling it with 55-gallon drums of water.
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=hhdZxzCxhd4
 
 [00:32:56] Joey: Yeah.
 
-[00:32:57] Norm: I didn't even watch that last trailer because I don't—[but you / I (unclear)] need to. Yeah, like I'm sold on the show. We're we're on board, Joey. Finally.
+[00:32:57] Norm: I didn't even watch that last trailer because I don't - [but you / I (unclear)] need to. Yeah, like I'm sold on the show. We're we're on board, Joey. Finally.
 
 [00:33:05] Adam: Have we talked about the West Wing special on HBO?
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=hhdZxzCxhd4
 
 [00:33:16] Norm: Yes. Okay. Adam, I would love to talk about that.
 
-[00:33:19] Adam: Just—
+[00:33:19] Adam: Just -
 
 [00:33:20] Norm: speaking of stage,
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=hhdZxzCxhd4
 
 [00:34:26] Adam: Exactly, it's exactly Brechtian. It's totally mannerist. They're not trying to hide the artifice of a stage at all, and yet you are in hook, line, and sinker right away.
 
-[00:34:34] Norm: Yeah, and then—
+[00:34:34] Norm: Yeah, and then -
 
 [00:34:35] Adam: the dialogue and the actors are also great.
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=hhdZxzCxhd4
 
 [00:35:33] Norm: It's Sterling K. Brown.
 
-[00:35:35] Adam: Sterling Brown. Why do I hear—
+[00:35:35] Adam: Sterling Brown. Why do I hear -
 
 [00:35:36] Norm: Sterling K. Brown? Yes,
 

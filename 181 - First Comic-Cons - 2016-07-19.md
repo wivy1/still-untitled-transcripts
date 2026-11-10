@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:03:29] Adam: And they're people who want to make the world better, and they want to taste good food made by people they meet.
 
-[00:03:29] Unknown speaker: And I just—
+[00:03:29] Unknown speaker: And I just -
 
 [00:03:35] Norm: Rebecca can't take you seriously right now
 
@@ -252,7 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:09:16] Adam: Of course,
 
-[00:09:16] Unknown speaker: Wil—
+[00:09:16] Unknown speaker: Wil -
 
 [00:09:16] Norm: Of course.
 
@@ -442,7 +442,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:14:13] Adam: We build BSG models here.
 
-[00:14:14] Norm: That's right. Yeah. And then we so we tested entourage along with you know Kishore and Indre from Inquiring Minds. We were going to go to after a big panel to the Aaron Douglas party, and Adam, our producer, knows Aaron, and so we got to his hotel room, knocked door, no one picked up, like no one answers. Oh, maybe it's loud in there, and they couldn't hear. So call call Aaron up. Dialed it, no one picked up, and then we're hovering. How long should we hover out here? We just go to another party, and then down the elevator we hear the door open. The elevator—it's the service elevator, so you know it's someone special when it's a service elevator at DragonCon. And first, and then out comes Jamie Bamber, Apollo. Okay, he's got to be here for the party. But then behind him, it's Gaius, and then Tricia Helfer, and then it's Adama comes out, and it's
+[00:14:14] Norm: That's right. Yeah. And then we so we tested entourage along with you know Kishore and Indre from Inquiring Minds. We were going to go to after a big panel to the Aaron Douglas party, and Adam, our producer, knows Aaron, and so we got to his hotel room, knocked door, no one picked up, like no one answers. Oh, maybe it's loud in there, and they couldn't hear. So call call Aaron up. Dialed it, no one picked up, and then we're hovering. How long should we hover out here? We just go to another party, and then down the elevator we hear the door open. The elevator - it's the service elevator, so you know it's someone special when it's a service elevator at DragonCon. And first, and then out comes Jamie Bamber, Apollo. Okay, he's got to be here for the party. But then behind him, it's Gaius, and then Tricia Helfer, and then it's Adama comes out, and it's
 
 [00:15:07] Adam: Edward,
 
@@ -450,7 +450,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:15:12] Adam: And like, oh, it's like exceeds your wildest fantasy of what could have come out of that service elevator.
 
-[00:15:16] Norm: And like, okay, this is—they got to get into this party. But we also we don't want to approach them because we're fans. But we're also here at the party. And then so Adam, our producer, who knows Jamie or who knows Aaron, is I will approach them as equals.
+[00:15:16] Norm: And like, okay, this is - they got to get into this party. But we also we don't want to approach them because we're fans. But we're also here at the party. And then so Adam, our producer, who knows Jamie or who knows Aaron, is I will approach them as equals.
 
 [00:15:31] Rebecca: Which is, I have to say, that's Adam's approach to most things in life. I'm going to approach this person as an equal.
 
@@ -514,7 +514,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:17:29] Rebecca: Oh my god! Oh my god!
 
-[00:17:32] Adam: Educate me. I'm sure I—
+[00:17:32] Adam: Educate me. I'm sure I -
 
 [00:17:34] Rebecca: Jon Benjamin is the voice of Sterling Archer.
 

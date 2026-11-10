@@ -140,7 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:05:50] Norm: Yes.
 
-[00:05:50] Adam: This film was clearly made in deep cooperation with NASA, and I believe I've been reading NASA scientists super excited about the film. Not. Just excited about seeing it. Excited about having seen it and seen how closely it hews to reality—the reality of what's possible, even with slight leaps into the future.
+[00:05:50] Adam: This film was clearly made in deep cooperation with NASA, and I believe I've been reading NASA scientists super excited about the film. Not. Just excited about seeing it. Excited about having seen it and seen how closely it hews to reality - the reality of what's possible, even with slight leaps into the future.
 
 [00:06:12] Will: I mean, if anything, the big leap is the thing that happens in the opening scene of the film, which is the windstorm, the atmospheric even. And Andy Weir admits this as well. The atmospheric pressure on Mars probably not high enough to have the kind of windstorm that's going to cause the kind of damage that caused the accident, left him stranded in the first place. After that, though,
 
@@ -178,7 +178,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:10:10] Norm: I was a little afraid because I don't know for people who like, man, it's a mass movie, mass market movie. The way they filmed it, because they use like the in situ cameras, it almost evoked it from filmmaking. Sounds like a horror movie,
 
-[00:10:24] Adam: and I was—there’s a little bit of that because that horror movies have made extensive use of that.
+[00:10:24] Adam: and I was - there’s a little bit of that because that horror movies have made extensive use of that.
 
 [00:10:27] Norm: exactly
 
@@ -204,7 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:10:53] Norm: I would say he was probably the worst.
 
-[00:10:55] Adam: He was—he's wooden, but I mean that's he's the director of NASA.
+[00:10:55] Adam: He was - he's wooden, but I mean that's he's the director of NASA.
 
 [00:10:55] Will: He’s supposed to be wooden.
 
@@ -234,7 +234,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:11:46] Norm: it's borderline caricature. And it's a fine line.
 
-[00:11:49] Adam: Well, my son was like I I bet you didn't like that because there's another character from another film we had seen that I didn't like that kind of characterization that's sort of over the top. I'm a genius, but can't tie my—
+[00:11:49] Adam: Well, my son was like I I bet you didn't like that because there's another character from another film we had seen that I didn't like that kind of characterization that's sort of over the top. I'm a genius, but can't tie my -
 
 [00:12:00] Will: You're talking about Scott Pilgrim?
 
@@ -308,7 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:14:25] Adam: It’s the Everest.
 
-[00:14:25] Norm: But it is a character, absolutely, in that the bond he forms with the planet, and not just Mars, but then all the technology around it—the rover, the Hab, his last day at the Hab—which you get in the book, long paragraphs about. I spent so many days here, it kept me alive. I have this bond with this thing, and now I'm finally leaving it. It's wistful. You get that not said out loud, but again shown.
+[00:14:25] Norm: But it is a character, absolutely, in that the bond he forms with the planet, and not just Mars, but then all the technology around it - the rover, the Hab, his last day at the Hab - which you get in the book, long paragraphs about. I spent so many days here, it kept me alive. I have this bond with this thing, and now I'm finally leaving it. It's wistful. You get that not said out loud, but again shown.
 
 [00:14:50] Will: The thing that I thought that that the screenplay did, and probably Ridley and the screenplay, everyone involved most likely, was condensed incredible amounts of information into very brief scenes, like the scene with Donald Glover, where he and where he sets up Kristen Wiig on one side and Jeff Daniels on the other side, and Illustrates
 
@@ -384,7 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:19:53] Will: Was that in the book?
 
-[00:19:53] Adam: It was totally. And what's hilarious about them calling the secret? So this is Rich Purcell figuring out the gravity assist sling on his own, and when he gathers people to talk about it, he calls it Project Elrond because it's a nod to Fellowship of the Ring, in which they decide to sort of—. And the joke is, is that one of the actors who plays the mission commander is Sean Bean.
+[00:19:53] Adam: It was totally. And what's hilarious about them calling the secret? So this is Rich Purcell figuring out the gravity assist sling on his own, and when he gathers people to talk about it, he calls it Project Elrond because it's a nod to Fellowship of the Ring, in which they decide to sort of -. And the joke is, is that one of the actors who plays the mission commander is Sean Bean.
 
 [00:19:53] Norm: Oh, oh, that's the joke. Oh, I didn't realize that. That's great.
 
@@ -404,7 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:20:36] Adam: sorry,
 
-[00:20:36] Norm: yeah in the book and essentially in the film is not for Sean Bean and for Jeff Daniels and Venkat before poor and those characters, but it's for the benefit of Kristen Wiig to show that how she is so. It's more—of a
+[00:20:36] Norm: yeah in the book and essentially in the film is not for Sean Bean and for Jeff Daniels and Venkat before poor and those characters, but it's for the benefit of Kristen Wiig to show that how she is so. It's more - of a
 
 [00:20:49] Will: reflection
 
@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:23:25] Norm: So spacious.
 
-[00:23:26] Adam: You would. I—there's just never going to be rooms that big in space until we're living there with a large population.
+[00:23:26] Adam: You would. I - there's just never going to be rooms that big in space until we're living there with a large population.
 
 [00:23:30] Norm: But they did get right, and I know there's a complaint of gravity because they had both zero g elements in the Hermes, which the wire work is as it is. There's so much you can do to simulate gravity without actually shooting in low Earth orbit. They had all the that long hair pulled back, so you didn't have the bad non floating.
 
@@ -548,7 +548,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:25:58] Adam: right? Right, right.
 
-[00:25:58] Norm: Which isn't to say it's a bad movie; it's a great movie. So, if you listen to like the spoiler cast we did of the book and talking about how our hopes and dreams and fears for the adaptation of the movie, one of the hopes I had was that on their approach to Earth, they would for the crew of the Hermes show what it was they were giving up—the extra 500 days—and they tried to do that with the telecommunications, the voice chats with family back on Earth. But we never got that. We're approaching the Earth shot. This is our home, and what home is,
+[00:25:58] Norm: Which isn't to say it's a bad movie; it's a great movie. So, if you listen to like the spoiler cast we did of the book and talking about how our hopes and dreams and fears for the adaptation of the movie, one of the hopes I had was that on their approach to Earth, they would for the crew of the Hermes show what it was they were giving up - the extra 500 days - and they tried to do that with the telecommunications, the voice chats with family back on Earth. But we never got that. We're approaching the Earth shot. This is our home, and what home is,
 
 [00:25:58] Adam: right?
 
@@ -558,7 +558,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:27:25] Adam: I was waiting for some line about how much he hated potatoes,
 
-[00:27:27] Norm: right? Or—
+[00:27:27] Norm: right? Or -
 
 [00:27:28] Will: the ketchup line was pretty good.
 
@@ -648,7 +648,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:32:11] Will: Yeah.
 
-[00:32:11] Norm: And that look on his face, that communication is happening. That is that connection is. Really—
+[00:32:11] Norm: And that look on his face, that communication is happening. That is that connection is. Really -
 
 [00:32:19] Adam: There is one joke I've said a couple of dirty jokes to talk about. One is that he hadn't showered in over a year when they got him, and he goes, " What is this line?" He says in the book, " Apparently, I smell like a skunk took a shit in a pair of sweat socks."
 
@@ -664,7 +664,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:32:50] Will: allegedly.
 
-[00:32:51] Adam: Allegedly. Now there are movies that make great use of this single usage case. Probably the greatest ever is Ron Burgundy, in which Ron Burgundy is tricked into reading the teleprompter and saying " fuck you, San Diego," and it’s the—it is the hinge of the plot of the film.
+[00:32:51] Adam: Allegedly. Now there are movies that make great use of this single usage case. Probably the greatest ever is Ron Burgundy, in which Ron Burgundy is tricked into reading the teleprompter and saying " fuck you, San Diego," and it’s the - it is the hinge of the plot of the film.
 
 [00:33:09] Will: It's the beginning of his downfall.
 
@@ -694,7 +694,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:33:56] Will: Is that where they put the title card?
 
-[00:33:57] Norm: It’s not. It’s—they put it before the sandstorm. So a little editing makes things also
+[00:33:57] Norm: It’s not. It’s - they put it before the sandstorm. So a little editing makes things also
 
 [00:34:02] Will: that might change between now and when it comes out. Also,
 

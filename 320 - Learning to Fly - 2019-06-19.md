@@ -740,7 +740,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:28:44] Adam: Oh, I am mixing up my.
 
-[00:28:46] Norm: I think the stunt choreographers—
+[00:28:46] Norm: I think the stunt choreographers -
 
 [00:28:47] Adam: I am mixing up the foreign films. I am mixing up other countries' films that the US has ripped off for their brand.
 
@@ -974,7 +974,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:39:34] Will: yeah.
 
-[00:39:34] Adam: Right, like that. That's a lovely thing to do—to give a character that level of complexity.
+[00:39:34] Adam: Right, like that. That's a lovely thing to do - to give a character that level of complexity.
 
 [00:39:47] Will: And she clearly loves the husband or the the father for for good reasons.
 
@@ -1188,7 +1188,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:46:39] Norm: Oh, the guts to do that
 
-[00:46:40] Will: into YouTube. This is—
+[00:46:40] Will: into YouTube. This is -
 
 [00:46:41] Adam: Simone remains one of the most inspiring humans that I am lucky to know, and even luckier to be able to watch her output.
 

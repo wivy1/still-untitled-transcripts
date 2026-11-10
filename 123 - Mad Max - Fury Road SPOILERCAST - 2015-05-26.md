@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:08:39] Norm: surviving.
 
-[00:08:40] Adam: Yeah, and that's actually been a very interesting. Well, we'll get to that when we talk spoiler cast stuff because I think Tom Hardy, the cast of this movie is phenomenal. The acting is amazing. The writing is. Great, the stunts are incredible. It looks beautiful. The cinematographer, whose name escapes me right now, came out of retirement to shoot this. They shot it in the Namib— Namib Desert.
+[00:08:40] Adam: Yeah, and that's actually been a very interesting. Well, we'll get to that when we talk spoiler cast stuff because I think Tom Hardy, the cast of this movie is phenomenal. The acting is amazing. The writing is. Great, the stunts are incredible. It looks beautiful. The cinematographer, whose name escapes me right now, came out of retirement to shoot this. They shot it in the Namib - Namib Desert.
 
 [00:09:02] Will: Mm-hmm.
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:16:01] Will: Mother's milk for oil. Okay.
 
-[00:16:02] Norm: So one town has makes all the bullets. One town makes all the gas. One town makes all the—.
+[00:16:02] Norm: So one town has makes all the bullets. One town makes all the gas. One town makes all the -.
 
 [00:16:06] Adam: Oh, is that the theme?
 
@@ -424,7 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:16:19] Will: Yeah.
 
-[00:16:19] Norm: and she makes the call, and she you know she makes a decision to go off road, and then She's like, oh, I'm gonna go to the gas town, and she's like, oh—
+[00:16:19] Norm: and she makes the call, and she you know she makes a decision to go off road, and then She's like, oh, I'm gonna go to the gas town, and she's like, oh -
 
 [00:16:24] Will: well, and then everybody with her follows her unconditionally because that's the way it works.
 
@@ -484,7 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:19:18] Norm: Immortan Joe,
 
-[00:19:19] Will: Immortan— Immortan Joe. They say we're not things like that's a thing that they clearly have repeated to themselves.
+[00:19:19] Will: Immortan - Immortan Joe. They say we're not things like that's a thing that they clearly have repeated to themselves.
 
 [00:19:24] Adam: Yeah, and they actually they're actually fairly competent. They have their own minds. They don't become ah at the key moments of the film.
 
@@ -740,7 +740,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:29:55] Norm: I didn't watch it in 3D.
 
-[00:29:55] Will: I saw it in 3D and I was—.
+[00:29:55] Will: I saw it in 3D and I was -.
 
 [00:29:56] Adam: I had to see it in 3D because that's the ticket I could get, and it wasn't that. I want to go see it again in 2D.
 
@@ -792,7 +792,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:32:15] Adam: skull motifs. Yeah, it's wonderful. Go see it.
 
-[00:32:18] Will: Mallory Ortberg on the Toast wrote, " I think my favorite thing about this, which is like, look, it's a it's an incredibly sparse, you know, resource free wasteland. Yet somehow we have plenty of plenty of solder to glue skulls on everything. We’re— We’re we have a guy whose only job on the on the chase is to play electric guitar, and also that electric guitar shoots fire.
+[00:32:18] Will: Mallory Ortberg on the Toast wrote, " I think my favorite thing about this, which is like, look, it's a it's an incredibly sparse, you know, resource free wasteland. Yet somehow we have plenty of plenty of solder to glue skulls on everything. We’re - We’re we have a guy whose only job on the on the chase is to play electric guitar, and also that electric guitar shoots fire.
 
 [00:32:39] Adam: Not only that, that entire rig actually worked. All those speakers played music, and those drummers were drumming at 70 miles an hour through the desert.
 
@@ -814,4 +814,4 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:33:19] Adam: Bye.
 
-[00:34:00] Unknown speaker: [unclear: The—]
+[00:34:00] Unknown speaker: [unclear: The -]

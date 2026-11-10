@@ -532,7 +532,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:25:01] Adam: Right. That's binary. That's like ridiculous. Like that's a wow, I really screwed up. Like
 
-[00:25:05] Norm: it's binary. Like that—that's the end of the road of something.
+[00:25:05] Norm: it's binary. Like that - that's the end of the road of something.
 
 [00:25:08] Adam: Right. I burned a bridge. There's small F failure, which is like I cut that chair leg too small, and now I have to make it a third time. Right. And the thing is, is that on that level, when you make something. Even when you set out to make one of your shitty robots, what you end up with is never what you originally set out to make.
 

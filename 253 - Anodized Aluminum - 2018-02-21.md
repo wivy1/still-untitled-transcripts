@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:14:02] Will: Well, that’s interesting.
 
-[00:14:22] Norm: ingenuity of designing something so that could be made with the tools he had on hand—in this case, cutting quarter-inch ply and 3D printing parts the volume about the size of that bottle, right?
+[00:14:22] Norm: ingenuity of designing something so that could be made with the tools he had on hand - in this case, cutting quarter-inch ply and 3D printing parts the volume about the size of that bottle, right?
 
 [00:14:22] Adam: Yeah.
 
@@ -860,7 +860,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:33:32] Will: Right? We want to sell enough copies of this game that we can keep doing this, and that this is the we don't have to go get straight jobs someplace else.
 
-[00:33:55] Norm: Six months—that is a good length of project time to wrap it up and not get lost in it, and still feel a sense of accomplishment. Completely arbitrary.
+[00:33:55] Norm: Six months - that is a good length of project time to wrap it up and not get lost in it, and still feel a sense of accomplishment. Completely arbitrary.
 
 [00:34:04] Adam: I don't disagree.
 
@@ -884,7 +884,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:34:36] Adam: They have like lemon lime with bitters, Bundaberg ginger beer.
 
-[00:34:45] Norm: You even talked about the thing that changed your life—the zero
+[00:34:45] Norm: You even talked about the thing that changed your life - the zero
 
 [00:34:48] Adam: Asahi Zero. Okay, Asahi. Apparently, it's the number one. N a beer in Japan, Asahi, makers of one of my favorite beers back when I was a person who drank, makes a zero alcohol, zero calorie beer called Asahi Zero.
 

@@ -188,7 +188,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:06:53] Norm: to the very end.
 
-[00:06:53] Adam: At the very end, and I think that was after we tweeted the word roar, and literally, I was. Three feet from the doors to exit the hall, when a girl came up and said, " Are you Adam Savage?" and she figured it out, which was great. But it was the longest we've ever gone—30 minutes before before that happened.
+[00:06:53] Adam: At the very end, and I think that was after we tweeted the word roar, and literally, I was. Three feet from the doors to exit the hall, when a girl came up and said, " Are you Adam Savage?" and she figured it out, which was great. But it was the longest we've ever gone - 30 minutes before before that happened.
 
 [00:07:12] Will: Well, so the bear it's been in the shop for five months while you're working on it, and it's amazing production value. Like when you see how it's made, but it's kind of a visual pun costume. Like you haven't a little bit of a joke.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:14:34] Adam: No, I didn't see him. I didn't meet him, unfortunately. But we the Kevin Smith couldn't have been nicer, more welcoming.
 
-[00:14:42] Will: He seems like just the nicest guy. I’ve—
+[00:14:42] Will: He seems like just the nicest guy. I’ve -
 
 [00:14:44] Adam: and a better interviewer I have not met. He's incredible.
 
@@ -662,7 +662,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:24:05] Adam: Right, right,
 
-[00:24:11] Norm: right. Geography and comics—no one ever knows where is Springfield in The Simpsons.
+[00:24:11] Norm: right. Geography and comics - no one ever knows where is Springfield in The Simpsons.
 
 [00:24:16] Will: Oh, It's in Missouri, clearly. It's right here.
 
@@ -706,7 +706,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:25:43] Unknown speaker: It's great.
 
-[00:25:43] Will: And taking a, making a note or—
+[00:25:43] Will: And taking a, making a note or -
 
 [00:25:45] Norm: [unclear: dinner]. It’s really, really good.
 
@@ -840,7 +840,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:31:50] Adam: It's got some great reveals. The it spans hundreds of years.
 
-[00:31:56] Norm: Okay, you've said too much already. I believe the— Is the audiobook for that one out as well.
+[00:31:56] Norm: Okay, you've said too much already. I believe the - Is the audiobook for that one out as well.
 
 [00:32:01] Adam: I don't know. And September, the last book comes out, and I cannot wait.
 

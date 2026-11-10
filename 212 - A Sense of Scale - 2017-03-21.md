@@ -82,7 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:05:08] Will: Oh, that's super cool.
 
-[00:05:10] Norm: Yeah, and because they're just you know SVG vector files, you can make it any size out there. People out there, we're going to be releasing it in coming weeks as we finish editing the video. But the putting together of a scavenger hunt—that's not easy.
+[00:05:10] Norm: Yeah, and because they're just you know SVG vector files, you can make it any size out there. People out there, we're going to be releasing it in coming weeks as we finish editing the video. But the putting together of a scavenger hunt - that's not easy.
 
 [00:05:22] Will: Well, I was going to say how do you, especially when you're doing it someplace like Austin during South by, you want to make the things hard enough to find that somebody's not going to accidentally stumble into them because you want the person who finds the piece to be to know what to do with it, right?
 
@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:11:48] Adam: Oh wow.
 
-[00:11:48] Norm: So Kishore, who works for the Bay Area, he runs the Bay Area Science Festival, works for UCSF. He his field is basically science communication. And so, Steven Goldfarb, the physicist, we set up a workshop where we had 30, I think, 35 people attend, physicists and communicators at CERN, and Kishore gave a presentation to talk about science communication, how physicists can be better communicators, because there are a lot of people—
+[00:11:48] Norm: So Kishore, who works for the Bay Area, he runs the Bay Area Science Festival, works for UCSF. He his field is basically science communication. And so, Steven Goldfarb, the physicist, we set up a workshop where we had 30, I think, 35 people attend, physicists and communicators at CERN, and Kishore gave a presentation to talk about science communication, how physicists can be better communicators, because there are a lot of people -
 
 [00:12:16] Adam: The A in STEAM,
 

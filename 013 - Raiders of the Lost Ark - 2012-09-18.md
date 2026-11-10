@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:00:23] Will: The second one scared the shit out of me as a young child.
 
-[00:00:26] Adam: I—so I never really liked the second one. I, it was a roller coaster ride. The villain. The problem is the villain wasn't scary because he was so removed. He was sort of faceless to me, the villains have to be scary to you on a visceral level. And the villain in the third one, not scary.
+[00:00:26] Adam: I - so I never really liked the second one. I, it was a roller coaster ride. The villain. The problem is the villain wasn't scary because he was so removed. He was sort of faceless to me, the villains have to be scary to you on a visceral level. And the villain in the third one, not scary.
 
 [00:00:44] Will: Well, Nazis are scary.
 
@@ -48,7 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:01:09] Will: And I don't think you could have done more of that without it getting really hammy and cheesy.
 
-[00:01:15] Adam: No, but you still have to have scary villains. I'm trying to think of a—Dennis Hopper is genuinely scary in Speed.
+[00:01:15] Adam: No, but you still have to have scary villains. I'm trying to think of a - Dennis Hopper is genuinely scary in Speed.
 
 [00:01:21] Will: In everything.
 
@@ -86,7 +86,7 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:02:13] Adam: And I have a very specific definition for that. So, I am a big film buff. We're all film buffs, and we often talk as film buffs do. What's your top 10? What's your top five? And one of the things I've discovered about film buffs is any film buff worth their salt has at least 30 movies in their top five.
 
-[00:02:31] Norm: And you also asked the question: is is, is it—you are talking about your favorite movies or the best movies?
+[00:02:31] Norm: And you also asked the question: is is, is it - you are talking about your favorite movies or the best movies?
 
 [00:02:35] Adam: Well, and so this actually, I have I think several categories. There's movies that are your favorites. Now, what is the definition of your favorite? So, there's movies you consider to be just like I am saying about Raiders, perfect movies. You can. There are perfect movies. There, there's not a flaw in them. You wouldn't change a thing.
 
@@ -96,21 +96,21 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:02:56] Will: That's a different category.
 
-[00:02:57] Adam: See, movies that you can watch over and over again aren't necessarily perfect movies. They're just really enjoyable, and they might not even be the best movies. So, there's movies you can watch repeatedly. There's movies that you consider perfect. There's movies that are really important to you, which is also could be very different. For instance, so one of the most important films for me is is Brazil. It is a totally seminally vital film in my aesthetic and narrative makeup as a, film lover and a lover of stories. Brazil plays heavily into the aesthetic that I had while making art, and into what I love about doing certain kinds of special effects. It's why I love the Jeunet Brothers, City of Lost Children, and Delicatessen. And Brazil, I worked as a my first job as an adult was as a projectionist in the Eighth Street Playhouse Theater in New York City, which is where the Rocky Horror Picture Show fad began. I know those—those of you who grew up in New York. It actually began at the Waverly, but only after six months it moved to the Eighth Street Playhouse. So I'm right. So buzz off.
+[00:02:57] Adam: See, movies that you can watch over and over again aren't necessarily perfect movies. They're just really enjoyable, and they might not even be the best movies. So, there's movies you can watch repeatedly. There's movies that you consider perfect. There's movies that are really important to you, which is also could be very different. For instance, so one of the most important films for me is is Brazil. It is a totally seminally vital film in my aesthetic and narrative makeup as a, film lover and a lover of stories. Brazil plays heavily into the aesthetic that I had while making art, and into what I love about doing certain kinds of special effects. It's why I love the Jeunet Brothers, City of Lost Children, and Delicatessen. And Brazil, I worked as a my first job as an adult was as a projectionist in the Eighth Street Playhouse Theater in New York City, which is where the Rocky Horror Picture Show fad began. I know those - those of you who grew up in New York. It actually began at the Waverly, but only after six months it moved to the Eighth Street Playhouse. So I'm right. So buzz off.
 
 [00:03:59] Will: Dibs.
 
-[00:03:59] Adam: Dibs. So the Eighth Street, and it ran there for 30 years under the direction of Sal Piro, who you can see in the movie Fame, right? All that—that's all shot at the Eighth Street Playhouse when they go see Rocky Horror. So for the year that I worked at the Eighth Street Playhouse, we showed Brazil for six months.
+[00:03:59] Adam: Dibs. So the Eighth Street, and it ran there for 30 years under the direction of Sal Piro, who you can see in the movie Fame, right? All that - that's all shot at the Eighth Street Playhouse when they go see Rocky Horror. So for the year that I worked at the Eighth Street Playhouse, we showed Brazil for six months.
 
 [00:04:18] Will: That's a lot of Brazil to watch.
 
 [00:04:19] Adam: Which means I've sat through that movie in its entirety at least 100 times.
 
-[00:04:24] Norm: And you've—you've seen new things every time.
+[00:04:24] Norm: And you've - you've seen new things every time.
 
-[00:04:25] Adam: Absolutely. I even got to sit down with Terry Gilliam at DragonCon about three years ago and talk a lot about Brazil and about the making of and other movies that he liked. And—
+[00:04:25] Adam: Absolutely. I even got to sit down with Terry Gilliam at DragonCon about three years ago and talk a lot about Brazil and about the making of and other movies that he liked. And -
 
-[00:04:36] Will: So, so the— like I think the only version of Brazil I've ever seen was that one that came out on the Criterion discs. That was the Terry Gilliam Ultimate Cut, whatever. Which is—
+[00:04:36] Will: So, so the - like I think the only version of Brazil I've ever seen was that one that came out on the Criterion discs. That was the Terry Gilliam Ultimate Cut, whatever. Which is -
 
 [00:04:44] Adam: Yes.
 
@@ -160,11 +160,11 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:06:23] Will: But Raiders.
 
-[00:06:24] Adam: But Raiders—
+[00:06:24] Adam: But Raiders -
 
 [00:06:24] Will: So there are movies that fit in both categories.
 
-[00:06:26] Adam: So Raiders for me fits in almost every category. I can watch it repeatedly from any point I start watching it. I'm wanting to get in. I know the movie by heart. I think structurally it's perfect. I think all the stuff that I find goofy and over the top about many of the other films and I know that George and Steven were doing referring to the Saturday morning serials with the goofy plot devices—
+[00:06:26] Adam: So Raiders for me fits in almost every category. I can watch it repeatedly from any point I start watching it. I'm wanting to get in. I know the movie by heart. I think structurally it's perfect. I think all the stuff that I find goofy and over the top about many of the other films and I know that George and Steven were doing referring to the Saturday morning serials with the goofy plot devices -
 
 [00:06:45] Unknown speaker: Yeah.
 
@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:07:30] Will: Yes. Right? So he but he shows weakness, he shows strength. He's clearly a kind of broken, a flawed hero, right?
 
-[00:07:37] Adam: Well, and in that, I think Harrison Ford brings a very—well, sorry, Spielberg and Lucas and Ford bring a very Chandleresque hero’s hero’s journey to the movie where he is the only guy you want in that pocket, in that zone, in this movie. He's the he's he is the, as Chandler would say, he's the best man in his world, and he's a good enough man for any world. But he knows his flaws. He's not tarnished. He's not afraid. I mean, he's like a perfect hero, and I love that. It's amazing to me when you really think about it. Harrison Ford's has played three of the most important heroes in film history, from Deckard in Blade Runner—
+[00:07:37] Adam: Well, and in that, I think Harrison Ford brings a very - well, sorry, Spielberg and Lucas and Ford bring a very Chandleresque hero’s hero’s journey to the movie where he is the only guy you want in that pocket, in that zone, in this movie. He's the he's he is the, as Chandler would say, he's the best man in his world, and he's a good enough man for any world. But he knows his flaws. He's not tarnished. He's not afraid. I mean, he's like a perfect hero, and I love that. It's amazing to me when you really think about it. Harrison Ford's has played three of the most important heroes in film history, from Deckard in Blade Runner -
 
 [00:08:17] Unknown speaker: Right.
 
@@ -188,7 +188,7 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:08:27] Will: Let's be clear.
 
-[00:08:28] Norm: The President of the United States, also—
+[00:08:28] Norm: The President of the United States, also -
 
 [00:08:30] Adam: Right. Right. I'm really looking forward to the Blu-ray. I'm really looking forward to seeing. And I saw an interview with Spielberg where he said, "Yeah, you know what? Raiders is one of my movies. I have no, I have no, nothing I want to change about it."
 
@@ -216,13 +216,13 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:09:27] Adam: Right.
 
-[00:09:27] Will: To kind of kick things off with a huge bang, and there was a giant ball that rolls through a cave and almost crushes. I mean, it's amazing—
+[00:09:27] Will: To kind of kick things off with a huge bang, and there was a giant ball that rolls through a cave and almost crushes. I mean, it's amazing -
 
-[00:09:33] Adam: That has many many precursors. So in Raiders, Spielberg and Lucas are completely referring to a whole canon of films that happened 30 years before we were born, and—all of those tropes of the even big ball rolling and the guy wearing a fedora in the jungle, the whip on the belt. Each of these things are things they pulled from other movies. Allan Quatermain, and I mean, there's just there's an endless list of movies, and even shots that they pulled out Tarantino style to use in Raiders, one after the other. But it all has this gestalt of just like I am never—
+[00:09:33] Adam: That has many many precursors. So in Raiders, Spielberg and Lucas are completely referring to a whole canon of films that happened 30 years before we were born, and - all of those tropes of the even big ball rolling and the guy wearing a fedora in the jungle, the whip on the belt. Each of these things are things they pulled from other movies. Allan Quatermain, and I mean, there's just there's an endless list of movies, and even shots that they pulled out Tarantino style to use in Raiders, one after the other. But it all has this gestalt of just like I am never -
 
 [00:10:14] Will: Of adventure.
 
-[00:10:14] Adam: I’m not, yeah, and I am never going to get tired of that movie. I mean, even to the fact of like, really, he rode a periscope several hundred miles across—across the ocean.
+[00:10:14] Adam: I’m not, yeah, and I am never going to get tired of that movie. I mean, even to the fact of like, really, he rode a periscope several hundred miles across - across the ocean.
 
 [00:10:22] Will: But he could do that. He's a hero. It doesn't matter. It was the North. It doesn't matter.
 
@@ -246,9 +246,9 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:10:51] Adam: That. Yeah. Movie is totally, totally important to me. I, my first worn leather jacket, which I bought in high school and had like quilting on it, I still was thinking, oh, it's kind of like Raiders. And then when I was like 19 and I was in Venice, California, with a friend of mine, and I bought a weathered leather jacket. I mean, I've had a succession of beat up leather jackets, and they all are referring to Harrison Ford's jacket.
 
-[00:11:14] Will: Well, you could probably argue that any leather jacket sold in North America that's brown and weathered and is not a bomber jacket—
+[00:11:14] Will: Well, you could probably argue that any leather jacket sold in North America that's brown and weathered and is not a bomber jacket -
 
-[00:11:20] Adam: Is referring—
+[00:11:20] Adam: Is referring -
 
 [00:11:20] Will: Is referring to Harrison Ford's jacket.
 
@@ -260,9 +260,9 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:11:52] Will: It's established.
 
-[00:11:53] Adam: Yes, we've talked about this on—
+[00:11:53] Adam: Yes, we've talked about this on -
 
-[00:11:54] Will: Yeah, I think we've talked about it before. But I mean you can also—
+[00:11:54] Will: Yeah, I think we've talked about it before. But I mean you can also -
 
 [00:11:57] Adam: Go look at my talk this year at Maker Faire which is I think on Fora TV.
 
@@ -308,7 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:13:45] Will: So you took a time-honored craft, honed over the generations, and then made a quick snap judgment to modify it.
 
-[00:13:49] Adam: It was a pamphlet. It was a pamphlet, and I didn't think that it would—the leather was moving for me the way the pamphlet said it would. So I made some mods. I managed to figure out, and this is like, I guess this is pre-internet, 1995. I guess it was just—no. I had internet, but it was yeah, barely.
+[00:13:49] Adam: It was a pamphlet. It was a pamphlet, and I didn't think that it would - the leather was moving for me the way the pamphlet said it would. So I made some mods. I managed to figure out, and this is like, I guess this is pre-internet, 1995. I guess it was just - no. I had internet, but it was yeah, barely.
 
 [00:14:07] Will: CompuServe, probably right.
 
@@ -324,11 +324,11 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:14:38] Norm: Intuited whip making process.
 
-[00:14:40] Adam: Then he sent me. Well, I mean, I purchased it, but he picked out a kangaroo hide that matched the type, the weight and feel of one from the movie, and I ended up making this really like ridiculously long—
+[00:14:40] Adam: Then he sent me. Well, I mean, I purchased it, but he picked out a kangaroo hide that matched the type, the weight and feel of one from the movie, and I ended up making this really like ridiculously long -
 
 [00:14:52] Will: 14 foot monster, right?
 
-[00:14:53] Adam: Yeah, it was like more bigger than you'd ever make a bullwhip, but then anyone would ever want to make a bullwhip. But—
+[00:14:53] Adam: Yeah, it was like more bigger than you'd ever make a bullwhip, but then anyone would ever want to make a bullwhip. But -
 
 [00:14:58] Norm: It's still crackable?
 
@@ -344,9 +344,9 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:15:14] Will: Adventure films.
 
-[00:15:14] Adam: I mean, like—
+[00:15:14] Adam: I mean, like -
 
-[00:15:14] Will: Or just adventure other adventure films that you know are—
+[00:15:14] Will: Or just adventure other adventure films that you know are -
 
 [00:15:18] Adam: God, that's a good question. I mean.
 
@@ -366,11 +366,11 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:16:05] Adam: Silly sex jokes. It appears Mr. Bond's attempting re-entry, sir.
 
-[00:16:10] Will: Yeah, okay, you win. Clear victory to Raiders. I mean, you could argue that stuff like Lawrence of Arabia and Doctor Zhivago, the kind of big screen CinemaScope, late '50s, early I guess they were '50s and '60s. I don't even know. Yeah, yeah. Those, but those are almost like they're paced, almost like travelogues today. So Raiders was the Raiders and you did with Jaws, it was the beginning of a whole new pace for that kind of—
+[00:16:10] Will: Yeah, okay, you win. Clear victory to Raiders. I mean, you could argue that stuff like Lawrence of Arabia and Doctor Zhivago, the kind of big screen CinemaScope, late '50s, early I guess they were '50s and '60s. I don't even know. Yeah, yeah. Those, but those are almost like they're paced, almost like travelogues today. So Raiders was the Raiders and you did with Jaws, it was the beginning of a whole new pace for that kind of -
 
-[00:16:33] Adam: Well, so I mean, and maybe there's a whole film class to be worked out in here because what Spielberg and Lucas were doing was they were mining their childhoods for a sense of excitement and adventure, and it's perfectly translated to the screen. They installed that sense of adventurous film into my childhood, and—
+[00:16:33] Adam: Well, so I mean, and maybe there's a whole film class to be worked out in here because what Spielberg and Lucas were doing was they were mining their childhoods for a sense of excitement and adventure, and it's perfectly translated to the screen. They installed that sense of adventurous film into my childhood, and -
 
-[00:16:53] Will: Every—all of us.
+[00:16:53] Will: Every - all of us.
 
 [00:16:54] Norm: Yeah. And in the way Tarantino does now.
 
@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:17:05] Will: Well, just pushing it's just modernizing. I mean, and you kind of look at that now. I mean, it's not just modernizing is diminutive, but I mean they're taking the tropes from the existing things that they love.
 
-[00:17:17] Adam: So, but I find myself wondering, you know, if you look at the history of film, like you look at the war movie and you look at it from the '30s and the '40s and the '50s and the '60s, and you see how it changes according to the American con—I’m talking about American films, American consciousness about war. So they get darker around the Vietnam War, but they're very gung ho during the Second World War. They're slightly detached in between the two wars, and it's not really a subject that people want to go see about, right? So. For the that part of the 20th century, film is responding to the culture, and things are altering. But round about the time Raiders comes out, the '70s is when filmmakers start making films that are commenting not only on the culture but on film as a part of the culture.
+[00:17:17] Adam: So, but I find myself wondering, you know, if you look at the history of film, like you look at the war movie and you look at it from the '30s and the '40s and the '50s and the '60s, and you see how it changes according to the American con- I’m talking about American films, American consciousness about war. So they get darker around the Vietnam War, but they're very gung ho during the Second World War. They're slightly detached in between the two wars, and it's not really a subject that people want to go see about, right? So. For the that part of the 20th century, film is responding to the culture, and things are altering. But round about the time Raiders comes out, the '70s is when filmmakers start making films that are commenting not only on the culture but on film as a part of the culture.
 
 [00:17:59] Will: Right?
 
@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:18:15] Will: If you go watch Vanishing Point and Death Proof one after the other, then it's things become real clear.
 
-[00:18:20] Adam: Right? But at the same time, again, there's this gestalt of what the final product is, and it's wonderful. And I have, I I'm a huge Tarantino lover. I love everything he's done. I love Death Proof. I don't think it's too talky. I think—
+[00:18:20] Adam: Right? But at the same time, again, there's this gestalt of what the final product is, and it's wonderful. And I have, I I'm a huge Tarantino lover. I love everything he's done. I love Death Proof. I don't think it's too talky. I think -
 
 [00:18:33] Will: Oh, I think it's fantastic. Yeah.
 
@@ -394,15 +394,15 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:18:36] Adam: Yes, totally much better than Planet Terror.
 
-[00:18:38] Will: Well, and Kurt Russell is—I mean, it's like top three Kurt Russell role for me probably. Death—in Death Proof.
+[00:18:38] Will: Well, and Kurt Russell is - I mean, it's like top three Kurt Russell role for me probably. Death - in Death Proof.
 
 [00:18:44] Adam: Yeah, it's great.
 
-[00:18:45] Will: Um, I—
+[00:18:45] Will: Um, I -
 
 [00:18:46] Adam: You know what I haven't seen, which I've been wanting to see recently. This total sidebar Soldier, which I didn't realize.
 
-[00:18:52] Will: Oh, uh—
+[00:18:52] Will: Oh, uh -
 
 [00:18:53] Adam: Soldier is actually written by David Peoples, who wrote Blade Runner.
 
@@ -418,9 +418,9 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:19:09] Adam: Right, finding his humanity. I've never seen it, but I've been wanting to see it because apparently Kurt Russell's performance in it is incredibly understated and terrific. I've also heard he's a genuinely great guy.
 
-[00:19:19] Will: Oh, yeah. Seems like he has to. I want to believe that—
+[00:19:19] Will: Oh, yeah. Seems like he has to. I want to believe that -
 
-[00:19:21] Adam: Craig Ferguson has some lovely stories about Kurt Russell convincing him to get a pilot's license and then pushing him to get it. And these—apparently they're good friends, and Kurt just sounds like a great guy.
+[00:19:21] Adam: Craig Ferguson has some lovely stories about Kurt Russell convincing him to get a pilot's license and then pushing him to get it. And these - apparently they're good friends, and Kurt just sounds like a great guy.
 
 [00:19:32] Norm: Big Trouble in Little China.
 

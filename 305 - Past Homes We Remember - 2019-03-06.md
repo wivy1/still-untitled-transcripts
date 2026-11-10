@@ -678,11 +678,11 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:30:22] Adam: Oh, no.
 
-[00:30:22] Will: So when you would get up in the middle of the night, go downstairs with the lights off to get like a drink, you never hit it with your shin. Like that—that would hurt, but it wouldn't be too bad. I bent my pinky toe all the way back at least three times on that thing.
+[00:30:22] Will: So when you would get up in the middle of the night, go downstairs with the lights off to get like a drink, you never hit it with your shin. Like that - that would hurt, but it wouldn't be too bad. I bent my pinky toe all the way back at least three times on that thing.
 
-[00:30:44] Adam: You see, you get—it hurts so bad. You can start to experiment with how well you can manage pain.
+[00:30:44] Adam: You see, you get - it hurts so bad. You can start to experiment with how well you can manage pain.
 
-[00:30:49] Will: Yeah, like it—it was—it was one of those ones. Like, like eventually, I would get to the point that I wouldn't even scream loud enough to wake Gina up.
+[00:30:49] Will: Yeah, like it - it was - it was one of those ones. Like, like eventually, I would get to the point that I wouldn't even scream loud enough to wake Gina up.
 
 [00:30:55] Adam then Will: Yeah, you just really nice.
 

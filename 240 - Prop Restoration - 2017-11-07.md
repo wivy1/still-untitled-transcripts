@@ -46,7 +46,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:02:57] Tom Spina: obviously. Yes, yeah, yeah, and who are if you're an effects guy or if you're an artist, they are just among the most supportive people. In the world,
 
-[00:03:06] Adam: and the number of people that cut their teeth in Bob and Kathy's house—from John Landis to Rick Baker to Peter Jackson to Dennis Muren, George Lucas, young George Lucas would go there, and this would—he would have Halloween celebrations there at his place in Burbank.
+[00:03:06] Adam: and the number of people that cut their teeth in Bob and Kathy's house - from John Landis to Rick Baker to Peter Jackson to Dennis Muren, George Lucas, young George Lucas would go there, and this would - he would have Halloween celebrations there at his place in Burbank.
 
 [00:03:19] Tom Spina: Yeah,
 
@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:03:19] Adam: Yeah.
 
-[00:03:19] Tom Spina: like, oh, yeah. There's so many guys. You go back and look at these old Halloween shows that Bob would do, and they're just littered with these people who would become amazing effects industry leaders. Yeah. So restoration—I've got a great crew of people in New York with me that now restore stuff. We make things. We make big styrofoam things, like a giant 20-foot Statue of Liberty bust we did.
+[00:03:19] Tom Spina: like, oh, yeah. There's so many guys. You go back and look at these old Halloween shows that Bob would do, and they're just littered with these people who would become amazing effects industry leaders. Yeah. So restoration - I've got a great crew of people in New York with me that now restore stuff. We make things. We make big styrofoam things, like a giant 20-foot Statue of Liberty bust we did.
 
 [00:03:47] Adam: So you do a lot of standard effects, like yeah, effects shops are effectively Swiss Army knives, right?
 
@@ -184,7 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:09:24] Tom Spina: Was it washed after they did? How was it painted? Was it stored this way?
 
-[00:09:34] Adam: It requires like seven different, sometimes as many as seven or eight different chemicals all joined together in mixtures. And people who run foam—that's what you call it—
+[00:09:34] Adam: It requires like seven different, sometimes as many as seven or eight different chemicals all joined together in mixtures. And people who run foam - that's what you call it -
 
 [00:09:43] Tom Spina: They're geniuses.
 
@@ -486,7 +486,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:22:39] Tom Spina: certainly, certainly.
 
-[00:22:41] Adam: And the kid—it's so great to see the kids. It's like it—it's hard. It's been almost two years.
+[00:22:41] Adam: And the kid - it's so great to see the kids. It's like it - it's hard. It's been almost two years.
 
 [00:22:48] Norm: It's a year.
 

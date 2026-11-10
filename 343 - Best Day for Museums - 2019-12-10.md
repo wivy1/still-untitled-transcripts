@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:00:53] Will: because we didn't see any people on the street.
 
-[00:01:03] Adam: [There was certain — unclear] This is a genius hack.
+[00:01:03] Adam: [There was certain - unclear] This is a genius hack.
 
 [00:01:06] Will: It was walked straight into the metal detectors at Air and Space.
 
@@ -80,7 +80,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:02:16] Adam: We didn't see another car for the most for most of the. I got the Prius up to 114 on Route 40 headed west towards LA.
 
-[00:02:25] Norm: [There's a serious pod — unclear]
+[00:02:25] Norm: [There's a serious pod - unclear]
 
 [00:02:26] Will: We do not endorse this.
 
@@ -114,7 +114,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:03:30] Adam: What a terror!
 
-[00:03:31] Will: Yeah, [only one — unclear].
+[00:03:31] Will: Yeah, [only one - unclear].
 
 [00:03:32] Norm: It exists.
 
@@ -166,7 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:05:25] Adam: That's fine.
 
-[00:05:26] Will: [Um, that's not cruel. / But it's not cruel? There's some / There's some cruel — unclear] over the top violence. It is if it is cruel for a purpose.
+[00:05:26] Will: [Um, that's not cruel. / But it's not cruel? There's some / There's some cruel - unclear] over the top violence. It is if it is cruel for a purpose.
 
 [00:05:32] Adam: Yeah,
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:15:11] Adam: indeed. And it, those little details all come from bins and boxes and bags of stuff that I've been storing for years.
 
-[00:15:11] Unknown speaker: [Kind of functioning — unclear].
+[00:15:11] Unknown speaker: [Kind of functioning - unclear].
 
 [00:15:11] Adam: for a rainy day that turns out to be this day. So bits of lamp parts and old pieces of mechanics and other ideas and things that I mean, I'm like going through the shelves and like, oh yes, that's what I, I've been saving this for that reason. Yeah, it's and like I my favorite part is that everyone at tested keeps looking at it. It's really large, and they're like, where is it gonna live?
 
@@ -456,7 +456,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:15:52] Norm: These things are all we have conversations off off podcast about this. We shall. We shall. This past weekend, I was also at the Dickens Fair.
 
-[00:17:08] Adam: Oh yes, I saw baby's first Dickens Fair. [Coach — unclear].
+[00:17:08] Adam: Oh yes, I saw baby's first Dickens Fair. [Coach - unclear].
 
 [00:17:10] Norm: Yes,
 
@@ -524,7 +524,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:18:33] Will: All the permissions.
 
-[00:18:33] Unknown speaker: [Doors in San Francisco — unclear].
+[00:18:33] Unknown speaker: [Doors in San Francisco - unclear].
 
 [00:18:33] Will: They were like, " You need
 
@@ -708,7 +708,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:24:16] Will: was i- intense.
 
-[00:24:16] Unknown speaker: [Yeah. Yeah. Yeah. Yeah. Yeah. — repetition count uncertain]
+[00:24:16] Unknown speaker: [Yeah. Yeah. Yeah. Yeah. Yeah. - repetition count uncertain]
 
 [00:24:16] Will: Then the turn with the grandmother, amped it up even more. And then you get to the end with the hammer, and
 
@@ -772,7 +772,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:26:46] Adam: Fascinating. Oh my god, I can't, I I can't wait. Yeah, I can't wait.
 
-[00:26:51] Norm: it it is. I know we love both Mandalorian and and Watchmen, but I I think when you watch them side by side, you see how one is just candy and one is [I digest — unclear]
+[00:26:51] Norm: it it is. I know we love both Mandalorian and and Watchmen, but I I think when you watch them side by side, you see how one is just candy and one is [I digest - unclear]
 
 [00:27:05] Adam: what Damon's doing with it is that some of the most. Amazing layered social commentary that I about about media about superhero movies, but also about race and America and capitalism. I mean, it is this wonderfully deep dive.
 

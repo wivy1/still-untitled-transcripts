@@ -118,9 +118,9 @@ Episode URL: https://www.youtube.com/watch?v=KQbVFlpcgZ8
 
 [00:06:36] Unknown speaker: Whoa.
 
-[00:06:36] Adam: on glass, on tin, on paper, on—I mean, it was. We only had 45 minutes, but I am seriously. Oh right, we only had 45 minutes. We had an amazing tour. There were three rooms we didn't see, and in May they opened a year-long exhibit about Abraham Lincoln and photography. And I swear, I am literally going to make a stop back through Pittsburgh to go to that exhibit because it was so amazing.
+[00:06:36] Adam: on glass, on tin, on paper, on - I mean, it was. We only had 45 minutes, but I am seriously. Oh right, we only had 45 minutes. We had an amazing tour. There were three rooms we didn't see, and in May they opened a year-long exhibit about Abraham Lincoln and photography. And I swear, I am literally going to make a stop back through Pittsburgh to go to that exhibit because it was so amazing.
 
-[00:07:26] Norm: That's and this is just above their store. Most people don't know about it. Yeah. People walk in to buy their lenses, buy their film, and that's upstairs. That's the best kind of museum—the hidden, the pet project because they have the building, and yeah, that's amazing.
+[00:07:26] Norm: That's and this is just above their store. Most people don't know about it. Yeah. People walk in to buy their lenses, buy their film, and that's upstairs. That's the best kind of museum - the hidden, the pet project because they have the building, and yeah, that's amazing.
 
 [00:07:42] Adam: Do you know? Did you know, for instance, you know how Kodak invented the little brownie cameras, the little home cameras? Did you know that when they were first releasing them, or when they were releasing them in the at the time, they were women were more of the photographers because men were working. So they made the cameras in all sorts of different colors, like blue and red and brown, specifically to appeal to the female market. This is early 20th-century marketing mind. But I didn't realize that photography was geared towards women for decades.
 
@@ -368,7 +368,7 @@ Episode URL: https://www.youtube.com/watch?v=KQbVFlpcgZ8
 
 [00:27:23] Norm: Yeah, and it's also one of those categories. Like people say, how sci-fi films will never win Best Picture because that's not what people want to recognize. On makeup, it is. It feels like it's the opposite, where people like they want to see the flashy thing win, or they want to see the most the thing that the most transformative thing win.
 
-[00:27:41] Frank Ippolito: Yeah, but transformative isn't always what the Academy's looking and what you know what the peers are looking at. We talk about this on my podcast all the time. Like doing a big, bloody, gory makeup is not something that most of my peers are super impressed by. Like, yeah, there's there's really nice ones done, but you can do like really simple nose makeups, like just like super small prosthetics, like things that you'll never ever see, and that's way more impressive. To me and my peers, than big, crazy, over-the-top monsters, and that's I think that's what the academy looks for—is those those little subtle things.
+[00:27:41] Frank Ippolito: Yeah, but transformative isn't always what the Academy's looking and what you know what the peers are looking at. We talk about this on my podcast all the time. Like doing a big, bloody, gory makeup is not something that most of my peers are super impressed by. Like, yeah, there's there's really nice ones done, but you can do like really simple nose makeups, like just like super small prosthetics, like things that you'll never ever see, and that's way more impressive. To me and my peers, than big, crazy, over-the-top monsters, and that's I think that's what the academy looks for - is those those little subtle things.
 
 [00:28:14] Adam: Well, and specifically, if the job is done right, you shouldn't notice it.
 
@@ -388,13 +388,13 @@ Episode URL: https://www.youtube.com/watch?v=KQbVFlpcgZ8
 
 [00:29:19] Frank Ippolito: Yeah, well, it is. But that I think that people that want to get into special effects or prosthetics, I mean, especially if you want to work on movies and stuff, that is something you should live by. Like, pull up a good nose makeup, and then we'll talk.
 
-[00:29:32] Adam: Frank, you're bringing up something really specific, which I've also said about model making. Which people say, " Hey, what should I have in my model making portfolio?" And I always point out, " Look, I've looked at hundreds of portfolios, and everyone has their arty thing in there—the spaceship that they designed, the spaceship that you designed—doesn't tell me anything about your skills. It does as a designer to a certain extent, but because I don't know what it should have looked like, I don't know how well you did executing it. But if you have a '57 Cadillac in your model making catalog that you built from scratch, that tells me Everything I need to know about how useful you will be to me on a crew.
+[00:29:32] Adam: Frank, you're bringing up something really specific, which I've also said about model making. Which people say, " Hey, what should I have in my model making portfolio?" And I always point out, " Look, I've looked at hundreds of portfolios, and everyone has their arty thing in there - the spaceship that they designed, the spaceship that you designed - doesn't tell me anything about your skills. It does as a designer to a certain extent, but because I don't know what it should have looked like, I don't know how well you did executing it. But if you have a '57 Cadillac in your model making catalog that you built from scratch, that tells me Everything I need to know about how useful you will be to me on a crew.
 
 [00:30:12] Frank Ippolito: Yeah. Attention to detail. Yep.
 
 [00:30:15] Adam: So speaking of movies, I watched another one this week on the recommendation of Thing One, who is Thing One is out with me on tour for a week. He's on spring break from school.
 
-[00:30:25] Frank Ippolito: I forget which one is Thing One—the taller one or the shorter one?
+[00:30:25] Frank Ippolito: I forget which one is Thing One - the taller one or the shorter one?
 
 [00:30:25] Adam: The shorter one.
 

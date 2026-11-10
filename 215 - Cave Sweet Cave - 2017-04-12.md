@@ -168,7 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:07:32] Adam: Yeah,
 
-[00:08:00] Will: you do a gel coat. You get the. what's your—
+[00:08:00] Will: you do a gel coat. You get the. what's your -
 
 [00:08:04] Adam: My fingernails have not been this clean in decades.
 
@@ -452,7 +452,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:18:47] Norm: and I drove back on the drive back. A little late to this, but I listened to the audio book. Of between the world and me.
 
-[00:18:47] Will: Oh, by—
+[00:18:47] Will: Oh, by -
 
 [00:18:47] Norm: Ta-Nehisi Coates.
 
@@ -508,7 +508,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:21:30] Will: When I was in Chicago a few weeks ago,
 
-[00:21:30] Norm: There's a—
+[00:21:30] Norm: There's a -
 
 [00:21:30] Will: it's very true. Yeah,
 
@@ -642,7 +642,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:27:16] Will: As
 
-[00:27:16] Adam: I'm going to—
+[00:27:16] Adam: I'm going to -
 
 [00:27:16] Will: aren't they all?
 
@@ -670,7 +670,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:27:54] Norm: and.
 
-[00:27:55] Adam: Took away any look. Scarlett Johansson is different. She's not the one writing the movie, and I think she's a wonderful actress. And I, I, I think the world of her. So I'm, I'm not blaming her for taking this role. Like, how can you blame someone for taking $10 million and I'm not blaming— to go do something? That's, that's not the problem.
+[00:27:55] Adam: Took away any look. Scarlett Johansson is different. She's not the one writing the movie, and I think she's a wonderful actress. And I, I, I think the world of her. So I'm, I'm not blaming her for taking this role. Like, how can you blame someone for taking $10 million and I'm not blaming - to go do something? That's, that's not the problem.
 
 [00:28:12] Will: You're welcome to give me $10 million. You're welcome to blame me.
 
@@ -704,7 +704,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:29:29] Will: I thought good guys were. I thought heavies were always bad guys. Maybe I've been.
 
-[00:29:33] Adam: Maybe I am using the term. I it could—
+[00:29:33] Adam: Maybe I am using the term. I it could -
 
 [00:29:36] Will: Like a big hitter, a heavy hitter. He's a heavy
 
@@ -716,7 +716,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:29:59] Will: Major Scarlett Johansson
 
-[00:30:00] Adam: Major Scarlett Johansson, the main character, has memories and goes and finds her childhood home and figures out that this woman she sees is her mother, and she's— and the woman is Japanese.
+[00:30:00] Adam: Major Scarlett Johansson, the main character, has memories and goes and finds her childhood home and figures out that this woman she sees is her mother, and she's - and the woman is Japanese.
 
 [00:30:11] Will: So she's Asian in a white person's body,
 
@@ -948,9 +948,9 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:38:56] Adam: But again, we were you were talking about Sicario. Sicario's master shots talk about giving you a sense of place. Yeah. Even besides Benicio del Toro doing his " Welcome to Juarez," but those master shots
 
-[00:39:09] Norm: —that's all you. Those shots do.
+[00:39:09] Norm: - that's all you. Those shots do.
 
-[00:39:12] Adam: And Villeneuve is maybe like the greatest master shot maker now. Oh, yeah. Filming films, and I hope that people will watch that and take that as like, oh, if I—I don't need to spend $20 million on my master shots. I can actually spend 4 million and get a lot more out of them just by making sure someone's asking at the top of this pyramid. How does this push our plot forward?
+[00:39:12] Adam: And Villeneuve is maybe like the greatest master shot maker now. Oh, yeah. Filming films, and I hope that people will watch that and take that as like, oh, if I - I don't need to spend $20 million on my master shots. I can actually spend 4 million and get a lot more out of them just by making sure someone's asking at the top of this pyramid. How does this push our plot forward?
 
 [00:39:34] Will: Like the moment, the first moment when Amy Adams and what's his name
 

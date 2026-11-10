@@ -232,7 +232,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:08:55] Norm: but isn’t Jack Reacher?
 
-[00:08:55] Adam: [unclear: So / That’s a / The] Way of the Gun has one of my favorite movie quotes in the world, in which James Caan says, " $15 million—that's not money. Money's what you get out of the ATM machine. $15 million is a motive with a universal adapter on it."
+[00:08:55] Adam: [unclear: So / That’s a / The] Way of the Gun has one of my favorite movie quotes in the world, in which James Caan says, " $15 million - that's not money. Money's what you get out of the ATM machine. $15 million is a motive with a universal adapter on it."
 
 [00:09:09] Norm: [unclear: Nice / Uh]. Jack Reacher, as a character in the books, is absurd, though. Right? If to cast someone who would fit the physical description, it would have to be like The Rock.
 
@@ -458,7 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:23:43] Adam: Yeah.
 
-[00:23:43] Jeremy: How—now I want to know how they powered it because with NFC you have to be within about an inch.
+[00:23:43] Jeremy: How - now I want to know how they powered it because with NFC you have to be within about an inch.
 
 [00:23:48] Adam: I think that the way they built this, it might have been a much bigger coil in the painting, yeah, and it was like from the building next door,
 

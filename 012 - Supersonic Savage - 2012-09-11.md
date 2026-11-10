@@ -18,7 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:00:09] Adam: We're actually in my office in the MythBusters production building.
 
-[00:00:13] Will: There's all sorts of stuff going on around us all the time, and so apologies in advance if there's any noise or anything like that. But—
+[00:00:13] Will: There's all sorts of stuff going on around us all the time, and so apologies in advance if there's any noise or anything like that. But -
 
 [00:00:18] Adam: So the crew is taking lunch about now, but we are working on two big stories downstairs, and so yeah, everything's a total shit fight right now.
 
@@ -52,7 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:01:44] Norm: You're saying in the air over land because cars have broken the sound barrier.
 
-[00:01:48] Adam: Yes, but we're talking about—sorry, we're talking about like on a regular occurrence.
+[00:01:48] Adam: Yes, but we're talking about - sorry, we're talking about like on a regular occurrence.
 
 [00:01:55] Norm: Okay.
 
@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:02:31] Adam: And they train every day. It also turns out that we found out. I didn't realize this. The Blue Angels is not an elite group of pilots who fly F/A-18s. If you can fly an F/A-18 and land it on an aircraft carrier, you can rotate.
 
-[00:02:47] Will: You're in—
+[00:02:47] Will: You're in -
 
 [00:02:47] Adam: The Blue Angels.
 
@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:04:06] Will: It's just that they make less room for the blood to pool, so it's like compression hose.
 
-[00:04:10] Adam: Exactly. Yes. So it's an adjustable compression hose. The Blue Angels cannot use those because when you're landing on an aircraft carrier, your ability to control the yoke of your plane and precisely align yourself to the tiniest—least—of freaking targets is is contingent on total control. And if you're trying to control and an air bladder on your leg is filling up, it's pushing your hand over.
+[00:04:10] Adam: Exactly. Yes. So it's an adjustable compression hose. The Blue Angels cannot use those because when you're landing on an aircraft carrier, your ability to control the yoke of your plane and precisely align yourself to the tiniest - least - of freaking targets is is contingent on total control. And if you're trying to control and an air bladder on your leg is filling up, it's pushing your hand over.
 
 [00:04:34] Will: Wow. So naval aviators don't wear those.
 
@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:04:41] Norm: So that's another requirement. You can't fly an F/A-18, and also
 
-[00:04:44] Adam: So here's what they do. It's required for them to work out every single day, and they keep the blood in their head by the sheer force of their musculature. Right, as if landing on an aircraft wasn't badass enough. These guys are sitting there, so. They're like squeezing the core, their core, to keep blood in their head. Now, to give you an idea of what that's like for a civilian, when you fly with the Blue Angels, they give you this whole training thing where they teach you how to breathe to keep blood in your head, and it goes like this: Hey! Gah! Hey! Gah! Hey! Gah! And you just keep on doing that the whole time. You are pulling multiple, multiple G's, and that force of like the taking a crap sort of—these guys are watching my face turn bright red is keeping blood in your head,
+[00:04:44] Adam: So here's what they do. It's required for them to work out every single day, and they keep the blood in their head by the sheer force of their musculature. Right, as if landing on an aircraft wasn't badass enough. These guys are sitting there, so. They're like squeezing the core, their core, to keep blood in their head. Now, to give you an idea of what that's like for a civilian, when you fly with the Blue Angels, they give you this whole training thing where they teach you how to breathe to keep blood in your head, and it goes like this: Hey! Gah! Hey! Gah! Hey! Gah! And you just keep on doing that the whole time. You are pulling multiple, multiple G's, and that force of like the taking a crap sort of - these guys are watching my face turn bright red is keeping blood in your head,
 
 [00:05:32] Will: As if you weren't clenching enough already.
 
@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:05:48] Adam: And it's that, so you go harder, and the tunnel goes away, and it's like, wow, this is incredible. Meanwhile, the pilot who's undergoing the same amount of physical energy is talking to you the whole time
 
-[00:06:02] Norm: And flying and—
+[00:06:02] Norm: And flying and -
 
 [00:06:03] Adam: Flying the plane In a seven G roll right? So he's like, "Come on, Adam, stay with me, stay." And how does he know how I'm doing? He's looking at me in this little convex rearview mirror, so he can see my state of consciousness in this tiny little mirror and fly the plane and maintain his own blood flow beautifully. These guys are amazing,
 
@@ -142,7 +142,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:06:39] Will: Okay.
 
-[00:06:39] Adam: That's actually, it turns out what all those pockets in your flight suit are for—one vomit bag each.
+[00:06:39] Adam: That's actually, it turns out what all those pockets in your flight suit are for - one vomit bag each.
 
 [00:06:43] Will: Really?
 
@@ -162,19 +162,19 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:07:23] Norm: Yeah. So what did it feel like to actually break the sound barrier?
 
-[00:07:25] Adam: So the—actually, breaking the sound barrier isn't something—you don't hear the boom because you're going faster than it. Yeah.
+[00:07:25] Adam: So the - actually, breaking the sound barrier isn't something - you don't hear the boom because you're going faster than it. Yeah.
 
 [00:07:30] Will: And the metal conducts sound at a faster rate, so it's not like all of a sudden the plane gets quiet or anything like that. Right.
 
-[00:07:34] Adam: Right. No. Yeah. So—
+[00:07:34] Adam: Right. No. Yeah. So -
 
 [00:07:35] Norm: Well, the light goes on. Like oh, there we go.
 
-[00:07:36] Adam: You don't notice. And he just has this little gauge that doesn't say—well, it just says Mach 0.8, 0.9, 0.98, Mach 1, Mach 1.1. So the breaking of the sound barrier didn't feel like anything specific. It was pulling the rolls that—pulling the heavy G rolls that was totally intense. Then on the third day, on the second day, I got to fly in the chase plane. Most days I was in the lead plane.
+[00:07:36] Adam: You don't notice. And he just has this little gauge that doesn't say - well, it just says Mach 0.8, 0.9, 0.98, Mach 1, Mach 1.1. So the breaking of the sound barrier didn't feel like anything specific. It was pulling the rolls that - pulling the heavy G rolls that was totally intense. Then on the third day, on the second day, I got to fly in the chase plane. Most days I was in the lead plane.
 
 [00:08:02] Will: Okay.
 
-[00:08:03] Adam: On the second day, I got to fly in the cha—in the chase plane and operate a camera, and that was the actually the coolest thing in the world.
+[00:08:03] Adam: On the second day, I got to fly in the cha- in the chase plane and operate a camera, and that was the actually the coolest thing in the world.
 
 [00:08:12] Unknown speaker: That's awesome.
 
@@ -194,21 +194,21 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:09:07] Will: Wow!
 
-[00:09:08] Adam: Right. So he—and then he's showing me, and here's the most incredible—
+[00:09:08] Adam: Right. So he - and then he's showing me, and here's the most incredible -
 
-[00:09:11] Will: What a—how incredibly low tech.
+[00:09:11] Will: What a - how incredibly low tech.
 
-[00:09:14] Adam: Right, right. It's and it's just yeah, As long as I can see that, I'm good. Here's the other thing: I've been in large pieces of equipment, and when they move, when you move around large things, there's always a little bit of settling, right? You move a crane, and it—right. The F/A-18s they weigh 35,000 pounds with another 10,000 pounds in fuel or something like that. It's crazy amounts of metal and fuel. So this thing is like the heaviest vehicle I've ever been in, aside from a jet. And as he is telling me about aligning parts of the tick marks on the wing with the logo, he's doing it. And when he's doing it, it's he's going boop, boop, boop, and he's just moving. And so the whole plane's orientation to the other plane is moving precisely like 12 inches forward.
+[00:09:14] Adam: Right, right. It's and it's just yeah, As long as I can see that, I'm good. Here's the other thing: I've been in large pieces of equipment, and when they move, when you move around large things, there's always a little bit of settling, right? You move a crane, and it - right. The F/A-18s they weigh 35,000 pounds with another 10,000 pounds in fuel or something like that. It's crazy amounts of metal and fuel. So this thing is like the heaviest vehicle I've ever been in, aside from a jet. And as he is telling me about aligning parts of the tick marks on the wing with the logo, he's doing it. And when he's doing it, it's he's going boop, boop, boop, and he's just moving. And so the whole plane's orientation to the other plane is moving precisely like 12 inches forward.
 
 [00:10:06] Will: He thinks it, and it happens almost.
 
-[00:10:08] Adam: And it's a level of precision that you'd almost be like if it was if someone showed it to you, you'd be like, well, I think you need to add a little bit of settling in there because it doesn't feel real, it doesn't look right. Like in CG, it'd be like, well, nothing works like that. Well, it turns out something does work like that, and it's these—
+[00:10:08] Adam: And it's a level of precision that you'd almost be like if it was if someone showed it to you, you'd be like, well, I think you need to add a little bit of settling in there because it doesn't feel real, it doesn't look right. Like in CG, it'd be like, well, nothing works like that. Well, it turns out something does work like that, and it's these -
 
 [00:10:23] Norm: At those speeds.
 
 [00:10:24] Adam: Yeah, yeah truly astonishing to feel. So like when he goes into a when he goes upside down, he goes, all right, we're gonna go upside down. He goes, ready, hit it, whoop, and he turns upside down, and it just, it's just the whole room turns upside down.
 
-[00:10:38] Will: Is it blink and you missed it, or is it just like suddenly you're vertical and that you're up—right side up?
+[00:10:38] Will: Is it blink and you missed it, or is it just like suddenly you're vertical and that you're up - right side up?
 
 [00:10:42] Adam: It feels like you're in a chair, and then all of a sudden the whole room turned around for you.
 
@@ -216,17 +216,17 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:10:47] Adam: And not and in just like you know about as easily as you could turn a piece of paper. It's just like whoop, and it flipped 180, and now you're looking at the earth instead of the sky.
 
-[00:10:56] Norm: And when you were in the chase plane, you were documenting this. You were—
+[00:10:56] Norm: And when you were in the chase plane, you were documenting this. You were -
 
 [00:10:59] Adam: Yeah. So I was trying to get we had a few shots we needed to get for coverage of things happening. So I was trying to film part of the ground. I was trying to film the other plane, and I, I think I ended up with maybe three good shots out of the whole thing because it's very hard.
 
 [00:11:13] Will: I can imagine.
 
-[00:11:14] Norm: It's a little more than the camera—pointing a camera outside of a 747.
+[00:11:14] Norm: It's a little more than the camera - pointing a camera outside of a 747.
 
 [00:11:17] Adam: Yeah, and there's a point at which we're pulling a roll, and like now the camera weighs like 100 pounds.
 
-[00:11:22] Will: Well, and I have to imagine after like even flying in like a small prop plane like a Cessna or something like that, the difference in flying with windows versus the difference when flying on a commercial jet with a little tiny window versus this where you just have 180 degrees of vision—and above you has got to be astounding.
+[00:11:22] Will: Well, and I have to imagine after like even flying in like a small prop plane like a Cessna or something like that, the difference in flying with windows versus the difference when flying on a commercial jet with a little tiny window versus this where you just have 180 degrees of vision - and above you has got to be astounding.
 
 [00:11:40] Adam: It's it's beautiful. I mean, it's really it's it's a gorgeous view and flying over Yuma, Arizona, where it's just you know he's showing me at one point we flew really low because one of the tests happened as close to the ground as we could get. And he's flying really low, and he really is like he's like, "Looks like Beggars Canyon, doesn’t it?" And I am like, it totally does.
 
@@ -240,7 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:12:17] Will: And that's got to be the best reserves of all time, right?
 
-[00:12:20] Adam: Right? So he—we said, "What's the hardest thing you've—what's the hardest thing you guys have to do? If being in the Blue Angels is, it's not that it's easy, but for these guys, it's all in a day's work. What is the really, really hard stuff you've got to do?" And he said, landing on an aircraft carrier at night in a storm in the North Atlantic. And so then he just started to describe. Now I have to preface this with: this is how I remember him telling me the story. If anybody out there knows that I am getting some facts wrong, go ahead and write in. I am sorry about it, but here is what he was telling me. He said, "First of all, in the storm, the waves are pitching up and down, 30, 40 foot swells. Big, maybe less than that, but it’s big, huge swells. So the aircraft carrier is going up and down,
+[00:12:20] Adam: Right? So he - we said, "What's the hardest thing you've - what's the hardest thing you guys have to do? If being in the Blue Angels is, it's not that it's easy, but for these guys, it's all in a day's work. What is the really, really hard stuff you've got to do?" And he said, landing on an aircraft carrier at night in a storm in the North Atlantic. And so then he just started to describe. Now I have to preface this with: this is how I remember him telling me the story. If anybody out there knows that I am getting some facts wrong, go ahead and write in. I am sorry about it, but here is what he was telling me. He said, "First of all, in the storm, the waves are pitching up and down, 30, 40 foot swells. Big, maybe less than that, but it’s big, huge swells. So the aircraft carrier is going up and down,
 
 [00:13:05] Will: Bucking.
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:15:22] Adam: Yes.
 
-[00:15:23] Norm: It's why we have vertical landings now. The—
+[00:15:23] Norm: It's why we have vertical landings now. The -
 
 [00:15:26] Adam: And of all the things that surprised me, the idea that they could talk through the G roll while I was sitting there going, oh, I also discovered two things about myself when I'm passing out because I reviewed the footage up close.
 
@@ -304,7 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:17:39] Will: Wrung out.
 
-[00:17:40] Adam: Wrung out. I immediately crawled into the captain Dunkelberger's office. Titus Dunkelberger was the captain at the point at that point. I crawled into his office and fell asleep on his floor and slept for like two and a half solid hours, bang like that. I mean, just—because it just—it took everything out of me. It was excruciating. It was exhausting. And the idea that these guys are flying every single day multiple hours—it's rare that you get to intersect with such a high level of both technical technical excellence and people at the peak of their physical excellence to be able to perform these incredible tasks.
+[00:17:40] Adam: Wrung out. I immediately crawled into the captain Dunkelberger's office. Titus Dunkelberger was the captain at the point at that point. I crawled into his office and fell asleep on his floor and slept for like two and a half solid hours, bang like that. I mean, just - because it just - it took everything out of me. It was excruciating. It was exhausting. And the idea that these guys are flying every single day multiple hours - it's rare that you get to intersect with such a high level of both technical technical excellence and people at the peak of their physical excellence to be able to perform these incredible tasks.
 
 [00:18:20] Will: Were you wearing glasses when you did this, or did you have your contacts on?
 
@@ -312,7 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:18:22] Will: Okay.
 
-[00:18:23] Norm: With a helmet, and—
+[00:18:23] Norm: With a helmet, and -
 
 [00:18:24] Adam: Yeah, I really want one of those helmets. Those helmets are so cool. It had like a gold visor and everything. And they were like, "You want one of these helmets, don't you?" And I'm like, "Yes, I do." Hoping they give me one. They didn't.
 
@@ -326,7 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:18:57] Will: So they're accustomed. They know the limits of humanity, and yeah,
 
-[00:19:00] Norm: Taking civilians up and they’re—
+[00:19:00] Norm: Taking civilians up and they’re -
 
 [00:19:01] Adam: Right, and they delight that we can make anyone pass out. We can make anyone throw up.
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:19:09] Norm: So, what about the myth of the end, the glass?
 
-[00:19:12] Adam: We were able to make the glass burst, but we had to be. It was I wasn't in the plane at that point because of insurance. I think it was something like 16 feet above the ground. It was an incredible— Oh my goodness! Maybe it wasn't that close,
+[00:19:12] Adam: We were able to make the glass burst, but we had to be. It was I wasn't in the plane at that point because of insurance. I think it was something like 16 feet above the ground. It was an incredible - Oh my goodness! Maybe it wasn't that close,
 
 [00:19:25] Will: But it was. I mean, it was probably not like modern safety glass.
 
@@ -350,23 +350,23 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:19:35] Adam: So it falls under the rubric of one of these things of a perfect storm of different factors. It's not just the sonic boom that would make the glass burst. It actually also probably has to do with this, and we made a building that was sealed, right? Because we considered that the pressure inside and out was a key factor. But maybe the building has to be bigger. Maybe there's specific weather patterns. Maybe it's early morning because it's heated up outside and not inside. The change in pressure differentials. All of these factors may figure into it. But we busted it on the basis of any sonic boom will make a window break.
 
-[00:20:11] Will: Gotcha. Well, thanks, Adam. That was—this has been fascinating. I am—I've never been more jealous in my life of the ride in F-18.
+[00:20:11] Will: Gotcha. Well, thanks, Adam. That was - this has been fascinating. I am - I've never been more jealous in my life of the ride in F-18.
 
-[00:20:20] Adam: Well, given that you guys run Tested, I think you should reach—I think we should try on your behalf to reach out to the Blue Angels or the Thunderbirds.
+[00:20:20] Adam: Well, given that you guys run Tested, I think you should reach - I think we should try on your behalf to reach out to the Blue Angels or the Thunderbirds.
 
 [00:20:29] Will: That's true.
 
-[00:20:30] Adam: The other group that flies—
+[00:20:30] Adam: The other group that flies -
 
 [00:20:30] Will: F-16s.
 
-[00:20:31] Adam: And see if we can—can't get you guys a ride. I feel like if anybody from one of these groups is listening, that we might be able to do it and feature it on the site.
+[00:20:31] Adam: And see if we can - can't get you guys a ride. I feel like if anybody from one of these groups is listening, that we might be able to do it and feature it on the site.
 
 [00:20:39] Will: We would definitely feature it on the site a lot.
 
 [00:20:44] Adam: So, can you fly with nine GoPros strapped to your face?
 
-[00:20:47] Will: We'll bring all of the—how many GoPros can we put in? They'll each weigh 160 pounds. Yeah.
+[00:20:47] Will: We'll bring all of the - how many GoPros can we put in? They'll each weigh 160 pounds. Yeah.
 
 [00:20:50] Norm: What happens to your beard at certain speeds?
 

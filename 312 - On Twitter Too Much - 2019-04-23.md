@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:07:12] Adam: right?
 
-[00:07:12] Michael Green: And yeah, so I I couldn't say yes quickly enough and got to go and you know just have a discussion and. They'd been talking about an idea for a while with the original writer Hampton Fancher, who I only got to know much later in the process when the movie was done. Now we're now—
+[00:07:12] Michael Green: And yeah, so I I couldn't say yes quickly enough and got to go and you know just have a discussion and. They'd been talking about an idea for a while with the original writer Hampton Fancher, who I only got to know much later in the process when the movie was done. Now we're now -
 
 [00:07:30] Adam: Oh, fascinating.
 
@@ -216,9 +216,9 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:11:52] Michael Green: oh yeah, that's where I saw it for the first time all the way through too.
 
-[00:11:54] Adam: That sound— That's still the best sound I've yet had watching—
+[00:11:54] Adam: That sound - That's still the best sound I've yet had watching -
 
-[00:11:57] Michael Green: That is— it's a really great because it's small it's like it's it was mixed for that experience.
+[00:11:57] Michael Green: That is - it's a really great because it's small it's like it's it was mixed for that experience.
 
 [00:12:02] Adam: Theater, yeah, it's delightful,
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:14:21] Michael Green: Single serving relationship for you.
 
-[00:14:22] Adam: Yeah. The ori— the original nice Fight Club.
+[00:14:22] Adam: Yeah. The ori- the original nice Fight Club.
 
 [00:14:26] Michael Green: Yeah, we're gonna do that.
 
@@ -384,7 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:23:20] Adam: What are you? I'm wondering what it feels like from your perspective because you're the one enjoying adapting, taking an adaptation and letting it stretch out for a bunch more hours than you've normally been.
 
-[00:23:32] Michael Green: They're different mediums. So you just the goals are different. One, you're trying to fill up more space. One, you're looking for like what's the ongoing tale, and one, it's how can we blow out the story and tell everything we have to say in a bit of time. I don't know if I have anything specific. Like unique to say on this subject that I'm sure other writers will say on great podcasts that I can recommend. John August and Chris, me—, Craig Mazin script notes. I'll say this because I did have an interesting experience recently where I'm helping some writers. I'm overseeing a story, that historical story that they brought to us, and we were thinking, great, that's an amazing. Like at first, I thought, is it a movie? And like, no, no, we want to do this as a series. And they told me how they want to, and I'm helping them develop it out. And a series of circumstances occurred where we suddenly thought, rather than like everything we were doing was how is this going to be six years? How are we going to tell an ongoing tale? Maybe it's five, maybe it's seven, but you're really thinking how are we going to expand out the story? Where we thought, you know what? What if we did it as two years? Like it is not a miniseries, it is not an ongoing series. It's this new thing that that's the length it wants to be. Like we realized it wanted to be 16 hours with you know some time in between the two, and it that is neither.
+[00:23:32] Michael Green: They're different mediums. So you just the goals are different. One, you're trying to fill up more space. One, you're looking for like what's the ongoing tale, and one, it's how can we blow out the story and tell everything we have to say in a bit of time. I don't know if I have anything specific. Like unique to say on this subject that I'm sure other writers will say on great podcasts that I can recommend. John August and Chris, me -, Craig Mazin script notes. I'll say this because I did have an interesting experience recently where I'm helping some writers. I'm overseeing a story, that historical story that they brought to us, and we were thinking, great, that's an amazing. Like at first, I thought, is it a movie? And like, no, no, we want to do this as a series. And they told me how they want to, and I'm helping them develop it out. And a series of circumstances occurred where we suddenly thought, rather than like everything we were doing was how is this going to be six years? How are we going to tell an ongoing tale? Maybe it's five, maybe it's seven, but you're really thinking how are we going to expand out the story? Where we thought, you know what? What if we did it as two years? Like it is not a miniseries, it is not an ongoing series. It's this new thing that that's the length it wants to be. Like we realized it wanted to be 16 hours with you know some time in between the two, and it that is neither.
 
 [00:24:42] Adam: Yeah, that's a middle ground.
 
@@ -400,9 +400,9 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:25:36] Adam: Right.
 
-[00:25:36] Michael Green: and so you had to. You know, machine it down into into fitting those things, and now it's kind of like you know—is this a joke? Is it a Saturday Night Live sketch? Is it an epic poem? Is it a web series? Well, I’m fine. Is it a movie? Is it a mini? Is it who knows what it is?
+[00:25:36] Michael Green: and so you had to. You know, machine it down into into fitting those things, and now it's kind of like you know - is this a joke? Is it a Saturday Night Live sketch? Is it an epic poem? Is it a web series? Well, I’m fine. Is it a movie? Is it a mini? Is it who knows what it is?
 
-[00:25:50] Adam: I find myself wondering if you might write a scene and then go, " Oh, I wrote a scene for the feature version, but I— have more time.
+[00:25:50] Adam: I find myself wondering if you might write a scene and then go, " Oh, I wrote a scene for the feature version, but I - have more time.
 
 [00:25:55] Michael Green: No, you definitely have that. I mean, I've written television scripts. I'm like, all right, that's that. You can't put that many short scenes in television script because you just need time in spaces for two people to talk.
 
@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:30:41] Adam: Right.
 
-[00:30:41] Michael Green: But like this is a different way of communication. Feature script is a different way of communicating than a television script is a different way of communicating with. And I love comic scripts because you're basically writing a love letter to an artist. You're talking to one person, and you know you can call them up on the phone and say, " How do you like being communicated with?" Or you— Or you're writing to their strengths, and you can you don't have to edit yourself if you want to describe something a lot, or you can just say, " Batman strikes a pose," and you know.
+[00:30:41] Michael Green: But like this is a different way of communication. Feature script is a different way of communicating than a television script is a different way of communicating with. And I love comic scripts because you're basically writing a love letter to an artist. You're talking to one person, and you know you can call them up on the phone and say, " How do you like being communicated with?" Or you - Or you're writing to their strengths, and you can you don't have to edit yourself if you want to describe something a lot, or you can just say, " Batman strikes a pose," and you know.
 
 [00:31:05] Adam: There and there are aspects to that, like the early Frank Miller collaborations with people like Bill Sienkiewicz, the Elektra Assassin series, one of those, the unbelievable collaboration between a vision and an.
 
@@ -642,7 +642,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:38:35] Michael Green: and I have IBS, so I'm on Twitter too much.
 
-[00:38:39] Adam: I think that's a great—
+[00:38:39] Adam: I think that's a great -
 
 [00:38:40] Michael Green: Here we are.
 

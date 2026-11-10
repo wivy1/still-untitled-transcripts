@@ -30,7 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:00:56] Adam: the jet ski was great.
 
-[00:00:57] Will: I haven't slept yet. I was up all night just. Partying, celebrating—I couldn't get enough.
+[00:00:57] Will: I haven't slept yet. I was up all night just. Partying, celebrating - I couldn't get enough.
 
 [00:01:01] Norm: You got a VIP access.
 
@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:03:53] Adam: I don't know. I mean,
 
-[00:03:54] Norm: as an institution, it is just—I don't think any more valid than you know the SAG Awards or Independent Spirit Awards. It's just the one that's the most well-known.
+[00:03:54] Norm: as an institution, it is just - I don't think any more valid than you know the SAG Awards or Independent Spirit Awards. It's just the one that's the most well-known.
 
 [00:04:04] Will: Well, it's they've been doing it for 90 years, and and the Academy Motion Picture Arts and Sciences is like, I mean they're they're movies.
 

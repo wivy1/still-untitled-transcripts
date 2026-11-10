@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:06:41] Adam: Yeah, it's totally incredible. So I put on just that mask and like a black jacket and black shirt and wandered the con for an hour. No one found me. No one discovered me. Now, when I say no one, I no fans, right? I bought a whole bunch of I bought like a lion's a king's ransom of Jason Freeny figures, and. Each time I use the credit card, the vendors all know each other, so they all sort of knew that I was moving around, but they were keeping it quiet. Nobody was like,
 
-[00:06:41] Unknown speaker (Adam or Will): [unclear: "Hey, are you Adam?" / "Hey," — "That’s really cool" — "Adam"].
+[00:06:41] Unknown speaker (Adam or Will): [unclear: "Hey, are you Adam?" / "Hey," - "That’s really cool" - "Adam"].
 
 [00:06:41] Adam: Yeah, so I took selfies with all these people. We'll be posting them up on the site.
 
@@ -998,7 +998,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:42:34] Adam: 2048 in the Sapper Morton version.
 
-[00:42:38] Norm: Is that—
+[00:42:38] Norm: Is that -
 
 [00:42:38] Adam: yeah, I believe it's 2048.
 
@@ -1214,7 +1214,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:53:48] Adam: or and this is another interesting thing, and I'm not sure how I feel about this because I'm not convinced of this, but or she put a real memory in on purpose to help her parents find her again.
 
-[00:54:02] Will: Breadcrumb. I don’t think she intentionally—
+[00:54:02] Will: Breadcrumb. I don’t think she intentionally -
 
 [00:54:03] Adam: Does she not know who she is?
 
@@ -1288,7 +1288,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:56:04] Adam: I’m gonna go check that out after this. Annalee, good friend and amazing, love her, and I'm dying to hear her take. The
 
-[00:56:10] Norm: film posits that what gives a person a soul—the old soul trope—is their ability to give birth, which she had huge problems with.
+[00:56:10] Norm: film posits that what gives a person a soul - the old soul trope - is their ability to give birth, which she had huge problems with.
 
 [00:56:20] Will: Oh, see, I think it's about love. That’s what I felt. But
 
@@ -1338,7 +1338,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:58:32] Will: I assumed that that his eyes were like implant, like ocular implants, or some sort of technological advancement.
 
-[00:58:37] Adam: I got that he was blind, and that so the Wa— Wallace was a difficult one for me to parse.
+[00:58:37] Adam: I got that he was blind, and that so the Wa-Wallace was a difficult one for me to parse.
 
 [00:58:43] Will: Yeah,
 
@@ -1488,7 +1488,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [01:06:47] Adam: Well, I just want to, as a slight aside, I've seen questions about this. On the comments on tested for regular listeners of the podcast, that's my compressor kicking in and refilling with air. Sorry about that.
 
-[01:06:57] Will: so, so one of the things that's interesting—it's a world without wood, right? When the, when without
+[01:06:57] Will: so, so one of the things that's interesting - it's a world without wood, right? When the, when without
 
 [01:07:02] Adam: organic material,
 

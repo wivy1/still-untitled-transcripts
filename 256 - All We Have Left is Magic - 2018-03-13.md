@@ -152,7 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:04:43] Will: it's cool.
 
-[00:04:45] Adam: Yeah, and I have to tell you to actually handle it and move the real thing—if you've never held an armature, this is instructive. If you've never held an animation armature, the thing is, is it's meant to have a Kind of a perfect amount of resistance, without any bounce back, so that the animator can sensitively place each joint in place. Which means that a well-tuned animation armature feels like this real joy to manipulate. And Cain is like off the charts.
+[00:04:45] Adam: Yeah, and I have to tell you to actually handle it and move the real thing - if you've never held an armature, this is instructive. If you've never held an animation armature, the thing is, is it's meant to have a Kind of a perfect amount of resistance, without any bounce back, so that the animator can sensitively place each joint in place. Which means that a well-tuned animation armature feels like this real joy to manipulate. And Cain is like off the charts.
 
 [00:05:14] Norm: Well, and they have to be tuned regularly because you
 

@@ -114,7 +114,7 @@ Episode URL: https://www.youtube.com/watch?v=yzHkuewYZE0
 
 [00:05:04] Norm: Like, do you think like this is the ruler is a thing that no people get tattoos and say this is the thing that represents me?
 
-[00:05:11] Adam: Yeah, the utility, the fact that I have added a utility to the surface of my body—that's totally that represents me in a way that I feel very comfortable with, and I'm like that. It pleases me greatly.
+[00:05:11] Adam: Yeah, the utility, the fact that I have added a utility to the surface of my body - that's totally that represents me in a way that I feel very comfortable with, and I'm like that. It pleases me greatly.
 
 [00:05:29] Norm: And the location also was well thought out. I assume like the way you measure.
 
@@ -124,7 +124,7 @@ Episode URL: https://www.youtube.com/watch?v=yzHkuewYZE0
 
 [00:05:51] Adam: Centimeters. Yeah.
 
-[00:05:52] Norm: And the design of this—did you do the design yourself?
+[00:05:52] Norm: And the design of this - did you do the design yourself?
 
 [00:05:55] Adam: No, the tattoo artist and I sat and made sketches for the first hour. I don't know if this is true of all tattoo artists, but there's definitely a little bit of island time to stepping into a tattoo parlor. It's not like you're going to go in and get your thing and get out. It's there's a whole interaction, and I like that. I want to collaborate. I don't necessarily just want to go in and say, " Make me this."
 
@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=yzHkuewYZE0
 
 [00:07:36] Norm: I mean, what else could there be?
 
-[00:07:38] Adam: There could be formulas. One thing I would I don't want to give away my ideas. It's like talking about the name of your children before you name them. It's—No, I don't want anyone else's input on this.
+[00:07:38] Adam: There could be formulas. One thing I would I don't want to give away my ideas. It's like talking about the name of your children before you name them. It's - No, I don't want anyone else's input on this.
 
 [00:07:48] Norm: But I'm sure you've received lots of messages. You said on social media, people. I think I saw someone respond to you with a tattoo. On their finger, it's also a ruler for sewing.
 
@@ -224,7 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=yzHkuewYZE0
 
 [00:10:35] Norm: Yeah, I think.
 
-[00:10:36] Adam: First and foremost, just like what a terrific film with great characters. I was su—super moved by it.
+[00:10:36] Adam: First and foremost, just like what a terrific film with great characters. I was su-super moved by it.
 
 [00:10:42] Norm: So you went in probably? Did you know about the hero, the protagonist? Miles Morales?
 

@@ -370,7 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:19:31] Will: But eventually, yes,
 
-[00:19:32] Adam: yes. But that that that Roger Moore zone—that's where I grew up. The Spy Who Loved Me is the first one I ever saw, followed by Moonraker, both with the same henchman villain Jaws. So those are deeply in my DNA, and I think that's exactly—I'm probably pretty close to the age of the filmmakers, and I think that that may be one of the reasons that it missed the mark for you because of I think just growing up with a certain type of thing that you want. So,
+[00:19:32] Adam: yes. But that that that Roger Moore zone - that's where I grew up. The Spy Who Loved Me is the first one I ever saw, followed by Moonraker, both with the same henchman villain Jaws. So those are deeply in my DNA, and I think that's exactly - I'm probably pretty close to the age of the filmmakers, and I think that that may be one of the reasons that it missed the mark for you because of I think just growing up with a certain type of thing that you want. So,
 
 [00:19:59] Norm: I mean, to not spoil the plot, but there's Colin Firth. There's a there's an elder generation of Gentleman spy, an organization, and then you recruit a younger. So it's origin story for the younger spy. I love all the spies. Actually, yeah, I love all the old guys. 
 

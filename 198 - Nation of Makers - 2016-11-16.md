@@ -368,7 +368,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:14:14] Will: Apartment 32B.
 
-[00:14:14] Adam: Her ex boyfriend had a small small business doing. Appearances as RoboCop, and he had a RoboCop costume in his suitcase. And I like—I tried like hell to find out. I tried to meet him. I tried to get her to introduce us. I wanted to see this, and these still show up from time to time. I don't know who made this thing, but it was like an appearance RoboCop costume.
+[00:14:14] Adam: Her ex boyfriend had a small small business doing. Appearances as RoboCop, and he had a RoboCop costume in his suitcase. And I like - I tried like hell to find out. I tried to meet him. I tried to get her to introduce us. I wanted to see this, and these still show up from time to time. I don't know who made this thing, but it was like an appearance RoboCop costume.
 
 [00:14:33] Norm: But it was all packaged in a suitcase.
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:15:44] Adam: [speaker unclear for first out completion: Adam / Norm] out, freaking out,
 
-[00:15:44] Norm: [unclear: Norm: “and scared” / Adam: “and”—Norm: “scared”].
+[00:15:44] Norm: [unclear: Norm: “and scared” / Adam: “and” - Norm: “scared”].
 
 [00:15:45] Adam: Oh, oh, that's so. Oh my goodness,
 
@@ -500,7 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:22:25] Adam: Wow, he did it! That's incredible. It was incepted. It was literally
 
-[00:22:27] Norm: I couldn’t—
+[00:22:27] Norm: I couldn’t -
 
 [00:22:30] Adam: that's incredible. He like tipped a switch in my brain that I didn't even know it got tipped. I was in Toronto this weekend. I did an appearance and ended up emceeing Chris Hadfield, Chris Hadfield's Generator, which was a lovely variety show performance about two and a half hours long at Massey Hall in Toronto on Saturday night. We had pretty much a full house of really one of the best crowds I've performed for in a long time. Just loving, really smart, really engaged. It was fantastic. A couple people were there who were on your Arctic trip.
 
@@ -652,7 +652,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:29:38] Will: right before he rips their throat out.
 
-[00:29:39] Adam: There's a lot of that. I mean, the—
+[00:29:39] Adam: There's a lot of that. I mean, the -
 
 [00:29:41] Norm: unflappable.
 
@@ -764,7 +764,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:33:08] Will: They almost always let you bring dogs.
 
-[00:33:09] Adam: [unclear: Adam: “Yeah, absolutely. It’s one of the reasons I’ve stayed at several” / Adam: “Yeah, absolutely”—Will: “It’s one”—Adam: “of the reasons I’ve stayed at several”].
+[00:33:09] Adam: [unclear: Adam: “Yeah, absolutely. It’s one of the reasons I’ve stayed at several” / Adam: “Yeah, absolutely” - Will: “It’s one” - Adam: “of the reasons I’ve stayed at several”].
 
 [00:33:12] Will: The one in Whistler has the best wine cellar I have. Ever seen in my life in the restaurant. So you know.
 

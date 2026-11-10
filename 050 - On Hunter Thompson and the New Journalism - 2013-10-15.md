@@ -44,7 +44,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:00:47] Adam: But inside it has a groove on the inside, and in that groove is fit a hardened steel saw that also acts as a handcuff shim.
 
-[00:00:56] Will: It looks like you would really gouge—you would gouge your fingers trying to use this saw.
+[00:00:56] Will: It looks like you would really gouge - you would gouge your fingers trying to use this saw.
 
 [00:01:01] Adam: I am certain it would not be easy to use that saw, but I am also certain that at the point at which you need that saw, you don't care about easy.
 
@@ -292,7 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:08:37] Will: I mean, it's like the best.
 
-[00:08:39] Adam: Right, and I mean, they couldn't be more different too, as authors, as chroniclers, and from everything I've ever heard, and I I have since met a bunch of people that knew Hunter. I never was able to meet him, which I'm sad about because he was really important to me. At a period of time, you know the way he wrote about politics was—I mean, you say unflinching. If you read it now, and if you listen to this, and you go read " Fear and Loathing on the Campaign Trail," you might think that some of what he writes is hyperbolic. But I can tell you that everybody who's ever talked about Hunter Thompson is like, no, the problem with him is he tells the unvarnished truth about what really goes on in politics, and it's much worse than anybody thinks it is.
+[00:08:39] Adam: Right, and I mean, they couldn't be more different too, as authors, as chroniclers, and from everything I've ever heard, and I I have since met a bunch of people that knew Hunter. I never was able to meet him, which I'm sad about because he was really important to me. At a period of time, you know the way he wrote about politics was - I mean, you say unflinching. If you read it now, and if you listen to this, and you go read " Fear and Loathing on the Campaign Trail," you might think that some of what he writes is hyperbolic. But I can tell you that everybody who's ever talked about Hunter Thompson is like, no, the problem with him is he tells the unvarnished truth about what really goes on in politics, and it's much worse than anybody thinks it is.
 
 [00:09:19] Will: Well, it's it shaped my view on our entire political system,
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:11:27] Adam: Yeah, yeah.
 
-[00:11:27] Will: I mean, the story, the Rum Diary. If you watch the movie, the Rum Diary, is that—first, I'm sorry, but second, he's that chronicles a time when he was one of the four reporters or whatever for the paper that was in San Juan.
+[00:11:27] Will: I mean, the story, the Rum Diary. If you watch the movie, the Rum Diary, is that - first, I'm sorry, but second, he's that chronicles a time when he was one of the four reporters or whatever for the paper that was in San Juan.
 
 [00:11:39] Adam: Right, right.
 
@@ -438,11 +438,11 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:16:49] Will: insanity.
 
-[00:16:50] Adam: So when Hunter killed himself and the funeral was happening in Aspen. The T-shirts—they printed up some memorial T-shirts for him, which was his sign, which is a little fist inside holding a peyote button
+[00:16:50] Adam: So when Hunter killed himself and the funeral was happening in Aspen. The T-shirts - they printed up some memorial T-shirts for him, which was his sign, which is a little fist inside holding a peyote button
 
 [00:17:07] Will: with a knife out of the top.
 
-[00:17:08] Adam: Yeah, and I wore—I somebody gave me one of those shirts very graciously, and I wore it on the show on MythBusters. And I got a lovely, lovely letter from Hunter's widow.
+[00:17:08] Adam: Yeah, and I wore - I somebody gave me one of those shirts very graciously, and I wore it on the show on MythBusters. And I got a lovely, lovely letter from Hunter's widow.
 
 [00:17:20] Will: Oh, really?
 
@@ -544,7 +544,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:20:29] Will: Oh yeah,
 
-[00:20:29] Adam: which Thompson spends five pages going, " What do I do now that the most evil bastard on the earth has stated a love for college—well, I need to reexamine whether college ball is something I should be into.
+[00:20:29] Adam: which Thompson spends five pages going, " What do I do now that the most evil bastard on the earth has stated a love for college - well, I need to reexamine whether college ball is something I should be into.
 
 [00:20:42] Will: Can I love football after knowing that Nixon and I do this? It's amazing,
 

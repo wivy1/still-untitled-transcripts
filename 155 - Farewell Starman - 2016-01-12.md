@@ -8,7 +8,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:00:00] Norm: yeah,
 
-[00:00:00] Adam: is, uh—
+[00:00:00] Adam: is, uh -
 
 [00:00:08] Norm: welcome to Still Untitled the Adam Savage Project. This is not easy.
 
@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:01:13] Rebecca: and he still nailed it.
 
-[00:01:41] Adam: Well, this is the thing: is is that Bowie the place Bowie occupies, and you we say this when a giant of the of an art form passes. That they it's how do I put this? There are so—certain artists. Most artists fit like a keyhole into the culture, but there are some that are the door. Michael Jackson,
+[00:01:41] Adam: Well, this is the thing: is is that Bowie the place Bowie occupies, and you we say this when a giant of the of an art form passes. That they it's how do I put this? There are so - certain artists. Most artists fit like a keyhole into the culture, but there are some that are the door. Michael Jackson,
 
 [00:02:09] Norm: yeah,
 
@@ -130,7 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:06:12] Rebecca: he was gender fluid before gender fluid was a thing.
 
-[00:06:16] Adam: He was gender fluid and gave he was a. I've often enjoyed saying that I like to feel like in my best I can be a permission machine for a 10 year old me to go ahead and let the freak flag fly. Yeah, but Bowie's confidence at that fluidity—I think he announced that he was gay in 1973 as part of space as part of Ziggy Stardust. And there are some accounts that it was a cynical attempt to get more attention for the album, but really, in the arc of his life, none of that matters. He really was so weird and so bizarre. And so confident at it that he transcended any opinions you could have about it, because at the same time it was totally public. It was also completely personal, and it was his, and he owned it totally.
+[00:06:16] Adam: He was gender fluid and gave he was a. I've often enjoyed saying that I like to feel like in my best I can be a permission machine for a 10 year old me to go ahead and let the freak flag fly. Yeah, but Bowie's confidence at that fluidity - I think he announced that he was gay in 1973 as part of space as part of Ziggy Stardust. And there are some accounts that it was a cynical attempt to get more attention for the album, but really, in the arc of his life, none of that matters. He really was so weird and so bizarre. And so confident at it that he transcended any opinions you could have about it, because at the same time it was totally public. It was also completely personal, and it was his, and he owned it totally.
 
 [00:07:05] Rebecca: Yeah, I I watched Man Who Fell to Earth in college, and I I remember thinking I've never been so bored by a movie that, while still finding the central protagonist so so completely captivating.
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:10:08] Rebecca: right?
 
-[00:10:08] Adam: And yet, it's a very funny movie with some big laughs, so they stuck it in comedy. And then Ridley—this was the really shameful part: is that Ridley Scott got up to accept the award for Best Picture and went comedy, which is like I am totally dissing all of these actual comedies that I'm up against. Yeah.
+[00:10:08] Adam: And yet, it's a very funny movie with some big laughs, so they stuck it in comedy. And then Ridley - this was the really shameful part: is that Ridley Scott got up to accept the award for Best Picture and went comedy, which is like I am totally dissing all of these actual comedies that I'm up against. Yeah.
 
 [00:10:30] Rebecca: Oh my goodness.
 
@@ -192,7 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:10:40] Norm: It's the way the system works, right? The producers at Fox submitted it for this category because, like you said, it knew they knew it's a good movie, but That kind of genre film usually doesn't win.
 
-[00:10:52] Adam: Yeah, and I don't mean to just—I don't mean to be disdainful of * The Martian*. I loved it; wonderful movie. But when it comes to best comedy, that feels like gamesmanship, as far as I'm concerned.
+[00:10:52] Adam: Yeah, and I don't mean to just - I don't mean to be disdainful of * The Martian*. I loved it; wonderful movie. But when it comes to best comedy, that feels like gamesmanship, as far as I'm concerned.
 
 [00:11:04] Rebecca: But also, I kind of like that because the entire awards thing is such a sham.
 
@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:11:37] Adam: At the MTV Awards.
 
-[00:11:38] Rebecca: All right. Well, you know, me and Jim Carrey—he did that whole thing with Jenny McCarthy. By that whole thing, I mean he married her, or whatever, and then was super anti-vaccine. So.
+[00:11:38] Rebecca: All right. Well, you know, me and Jim Carrey - he did that whole thing with Jenny McCarthy. By that whole thing, I mean he married her, or whatever, and then was super anti-vaccine. So.
 
 [00:11:47] Adam: I know.
 
@@ -346,11 +346,11 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:20:52] Rebecca: And I like that it's left gray. You. There are times when you sympathize with him deeply, and then there are times where you're like, " Wait, was he lying about that? Did he?"
 
-[00:21:03] Adam: So so this whole thing, I I really want to give. Props! Like it's a great time to love superhero movies because not only are the movies themselves great, but the people that they're casting from—Chris Evans, Robert Downey Jr., even the Hemsworths, especially the Hemsworths,
+[00:21:03] Adam: So so this whole thing, I I really want to give. Props! Like it's a great time to love superhero movies because not only are the movies themselves great, but the people that they're casting from - Chris Evans, Robert Downey Jr., even the Hemsworths, especially the Hemsworths,
 
 [00:21:19] [unclear: Rebecca / Adam]: not even the Hemsworths. Especially the
 
-[00:21:21] Adam: no, no, no! Like all these men and women—Scarlett Johansson—they're all actually terrific actors with great directors, making lovely product. And then Marvel delves into television. Daredevil was really wonderful. I think some of the dialogue in Daredevil is is really difficultly bad. At the same time, as Vincent D'Onofrio does a world-beating villain in Kingpin, the Kingpin I always wanted from the Frank Millers that I was reading 30 years ago. Jessica Jones, which is created by Melissa Rosenberg, I would love to see her original pitch documents because she brings. She's clearly influenced by Chandler. With the smoked glass window on Jessica's apartment door, she's quoting Chinatown. I think of the broken front door as Jack Nicholson's bandaged nose. Yeah. Again, Vince Vince Gilligan played around with this in Breaking Bad. That this character is there's a line. Chandler wrote an essay, and I've quoted it on the podcast before. The simple art of murder. One of the things that he said, and in it he illustrates the things that make a proper hero of this kind of noir tale. And Jessica Jones is absolutely noir.
+[00:21:21] Adam: no, no, no! Like all these men and women - Scarlett Johansson - they're all actually terrific actors with great directors, making lovely product. And then Marvel delves into television. Daredevil was really wonderful. I think some of the dialogue in Daredevil is is really difficultly bad. At the same time, as Vincent D'Onofrio does a world-beating villain in Kingpin, the Kingpin I always wanted from the Frank Millers that I was reading 30 years ago. Jessica Jones, which is created by Melissa Rosenberg, I would love to see her original pitch documents because she brings. She's clearly influenced by Chandler. With the smoked glass window on Jessica's apartment door, she's quoting Chinatown. I think of the broken front door as Jack Nicholson's bandaged nose. Yeah. Again, Vince Vince Gilligan played around with this in Breaking Bad. That this character is there's a line. Chandler wrote an essay, and I've quoted it on the podcast before. The simple art of murder. One of the things that he said, and in it he illustrates the things that make a proper hero of this kind of noir tale. And Jessica Jones is absolutely noir.
 
 [00:22:39] Rebecca: Yeah.
 

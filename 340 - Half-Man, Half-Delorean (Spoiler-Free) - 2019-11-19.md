@@ -382,7 +382,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:17:10] Adam: But I will also say that the slapstick and comedic parts of the fight scenes don't feel any less dangerous for our characters. Like sometimes you get slapstick, like hobbits and barrels going through things that are so impossible they don't feel like there are any stakes. Right in this, even though there's some funny bits, it's sort of shocking how much you're like, " Damn, this is he's in trouble."
 
-[00:17:38] Norm: And every modern action film that takes that trope of the hero, unbeatable hero, carrying a baby—Clive Owen's shooter was all about that. Shoot ’Em Up, sorry, and
+[00:17:38] Norm: And every modern action film that takes that trope of the hero, unbeatable hero, carrying a baby - Clive Owen's shooter was all about that. Shoot ’Em Up, sorry, and
 
 [00:17:51] Will: Transporter. Uh,
 
@@ -626,11 +626,11 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:27:24] Adam: God.
 
-[00:27:25] Norm: The jungle river. Like, even if you're not, I know, Adam, you're not a big fan of like being at Disneyland, but the Imagineering idea—
+[00:27:25] Norm: The jungle river. Like, even if you're not, I know, Adam, you're not a big fan of like being at Disneyland, but the Imagineering idea -
 
 [00:27:31] Adam: It's not that I'm not a fan, it's just not, anyway.
 
-[00:27:33] Norm: Not, not for you, the crowds and stuff. Yeah, yeah, but the development of audio animatronics, like—
+[00:27:33] Norm: Not, not for you, the crowds and stuff. Yeah, yeah, but the development of audio animatronics, like -
 
 [00:27:37] Adam: Yeah.
 
@@ -642,13 +642,13 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:27:40] Norm: Imagineers about how Lincoln would spaz out. Lightning storms would cause all the circuits to to break before they debuted at the World's Fair. I was like, I was crying at the end of it. It's, it's so good.
 
-[00:27:50] Adam: Wow, amazing. I also want to give a shout out to His Dark Materials, oh, which is on—
+[00:27:50] Adam: Wow, amazing. I also want to give a shout out to His Dark Materials, oh, which is on -
 
 [00:27:57] Norm: HBO.
 
 [00:27:58] Adam: HBO. So this is a television series that is a recapitulation of the Philip Pullman books, the Golden Compass, the Amber Spyglass and the Subtle Knife. Is it called the Subtle Knife?
 
-[00:28:11] Will: Is the Golden Compass the creepy—That's the—
+[00:28:11] Will: Is the Golden Compass the creepy - That's the -
 
 [00:28:16] Adam: No. It was a movie with Nicole Kidman and Daniel Craig from a few years ago that was really good and well made. Eva Green, a tremendous cast. It just didn't take off. But one of the reasons that it's tough is that it's a very dense book. It's a very dense trilogy of books with some amazing fantasy writing of a world that's close to ours but not quite. It's the perfect form. It's the perfect story for a long form television show. And I'm two episodes in. The third episode came up last night. I haven't watched that one yet, but it's terrific. Lin Manuel Miranda's in it.
 
@@ -656,7 +656,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:28:53] Adam: It's beautiful, yeah. It's a beautifully made show, and I'm really excited about where it's going to go. It's one of my favorite trilogies of fantasy novels.
 
-[00:29:01] Will: It's—I love. I love that we're talking about TV shows that are airing every week instead of getting dumped 25 at a time or 10 at a time or whatever. So that you hammer through them as fast as possible and have no time to think about.
+[00:29:01] Will: It's - I love. I love that we're talking about TV shows that are airing every week instead of getting dumped 25 at a time or 10 at a time or whatever. So that you hammer through them as fast as possible and have no time to think about.
 
 [00:29:13] Adam: Do you know who else watches TV and doesn't binge? It is Wil Wheaton.
 

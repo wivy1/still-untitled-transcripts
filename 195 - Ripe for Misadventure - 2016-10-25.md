@@ -396,7 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:16:50] Will: Everybody knows that Kevin Costner's a dick. That's all there is to it.
 
-[00:16:53] Adam: I disa—I love Kevin Costner. As long as he is playing washed-up sports heroes, right? Tin Cup, Upside of Anger, Bull Durham.
+[00:16:53] Adam: I disa- I love Kevin Costner. As long as he is playing washed-up sports heroes, right? Tin Cup, Upside of Anger, Bull Durham.
 
 [00:17:05] Will: Bull Durham is one of the greatest baseball....
 
@@ -428,7 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:17:57] Will: I know that they are not good films. I acknowledge that, okay. But I would argue that Kevin Costner turns in good, good to great performances in both of those otherwise terrible movies.
 
-[00:18:09] Adam: Oh, I'm going to actually—I'll state unqualified that Kevin Costner is a fantastic actor.
+[00:18:09] Adam: Oh, I'm going to actually - I'll state unqualified that Kevin Costner is a fantastic actor.
 
 [00:18:14] Will: Yes,
 
@@ -526,7 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:20:56] Adam: We have had this joke before.
 
-[00:20:58] Norm: But the thing I do want to do—
+[00:20:58] Norm: But the thing I do want to do -
 
 [00:20:59] Adam: the joke is that sorry, just for those listening, the joke is that an alcoholic calls New Year's Eve amateur night.
 
@@ -850,7 +850,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:31:42] Adam: How come? How come?
 
-[00:31:42] Will: Well, because the Disney Store Halloween costumes are—it is as if the merchandising people at the fine Walt Disney Corporation saw a bunch of 3 to 10-year-old girls and just started making like the money signs open in their eyes
+[00:31:42] Will: Well, because the Disney Store Halloween costumes are - it is as if the merchandising people at the fine Walt Disney Corporation saw a bunch of 3 to 10-year-old girls and just started making like the money signs open in their eyes
 
 [00:31:42] Adam: Right.
 

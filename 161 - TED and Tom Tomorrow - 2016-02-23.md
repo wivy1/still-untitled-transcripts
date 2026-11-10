@@ -116,7 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:03:30] Adam: Chris Anderson, who apparently got out of the magazine industry at just the right time.
 
-[00:03:33] Will: It was I waited 10 more years before after he left, and I was like, " That well, that was 10 10 years down the tube." But no, Chris is an incredibly smart guy, and he's put together this conference that is—it's almost become a parody of itself in some ways, but it's still—it sounds like an amazing event, something I've always wanted to go to.
+[00:03:33] Will: It was I waited 10 more years before after he left, and I was like, " That well, that was 10 10 years down the tube." But no, Chris is an incredibly smart guy, and he's put together this conference that is - it's almost become a parody of itself in some ways, but it's still - it sounds like an amazing event, something I've always wanted to go to.
 
 [00:03:51] Adam: It is definitely a gold standard in public speaking of a certain type. It is not a stump speech campaign, but it is like TED has almost invented its own style of a certain kind of talk. They last between 14 and 18 minutes. Some of them are as short as six minutes if you're a TED fellow. And the requirement is ideas worth spreading. So everyone has their own style of doing these kind of talks. And I, like I said, I've done talks in this genre before, but to do this up on the main stage on the big red dot in front of a crowd of 1,600 of really some of the biggest brains in the world right now.
 
@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:12:41] Dan: And how does the high powered TED crowd react to
 
-[00:12:45] Will: I—
+[00:12:45] Will: I -
 
 [00:12:45] Dan: this moment?
 
@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:13:33] Will: And I'm sure as you're watching talks throughout the week, you're just thinking, oh shit, this is harder, and like the bar is higher and higher.
 
-[00:13:39] Adam: The bar gets— yeah. So we were standing in the lunch line. This a this is something I didn't know. A great camaraderie arises among the speakers at TED.
+[00:13:39] Adam: The bar gets - yeah. So we were standing in the lunch line. This a this is something I didn't know. A great camaraderie arises among the speakers at TED.
 
 [00:13:50] Will: You're the rock stars of the conference,
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:15:57] Norm: Ooh.
 
-[00:15:57] Adam: Chris Hadfield, astronaut, commander of the International Space Station, Damian Kulash, lead singer of OK Go, and the director of all their beautiful—co-director of all their beautiful videos.
+[00:15:57] Adam: Chris Hadfield, astronaut, commander of the International Space Station, Damian Kulash, lead singer of OK Go, and the director of all their beautiful - co-director of all their beautiful videos.
 
 [00:15:29] Unknown speaker: That video’s amazing.
 
@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:20:25] Norm: Very after shortly that they built the installation, they found the sound.
 
-[00:20:30] Adam: Well, and so the man who followed me, a French mathematician named Cedric Villani, was amazing. I just love Cedric; he's fantastic and gave a wonderful talk. But then afterwards, Chris asked him about the gravitational waves, and he said, " And I can't do it. I would insult him by trying to do his thick thick French accent." But he said, " Einstein himself posited gravitational waves as an adjunct to his theory, but then thought it all the way through and thought, I don't." I don't think so. I realize the math says these should exist, but I don't think so. And he said, " This is the mark of a beautiful theory that the possibilities that it engenders us to look for go beyond what the original writer [unclear: decreed], the creator of that theory, could have ever conceived of." And that drags science kicking and screaming—not even kicking and screaming—into the realm of art because a good piece of art does the same thing: it transcends its maker, it changes over time, changes culturally, it changes culture.
+[00:20:30] Adam: Well, and so the man who followed me, a French mathematician named Cedric Villani, was amazing. I just love Cedric; he's fantastic and gave a wonderful talk. But then afterwards, Chris asked him about the gravitational waves, and he said, " And I can't do it. I would insult him by trying to do his thick thick French accent." But he said, " Einstein himself posited gravitational waves as an adjunct to his theory, but then thought it all the way through and thought, I don't." I don't think so. I realize the math says these should exist, but I don't think so. And he said, " This is the mark of a beautiful theory that the possibilities that it engenders us to look for go beyond what the original writer [unclear: decreed], the creator of that theory, could have ever conceived of." And that drags science kicking and screaming - not even kicking and screaming - into the realm of art because a good piece of art does the same thing: it transcends its maker, it changes over time, changes culturally, it changes culture.
 
 [00:21:31] Norm: I know there are so many stories from TED, but we do have Dan here.
 
@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:33:33] Will: Really?
 
-[00:33:33] Adam: Yeah. Lot of satur—, lots of saturation, and I just ordered the sequel, so I could read that.
+[00:33:33] Adam: Yeah. Lot of satur-, lots of saturation, and I just ordered the sequel, so I could read that.
 
 [00:33:37] Will: I'm I'm going to pick that up after we after we talk about this one. So.
 

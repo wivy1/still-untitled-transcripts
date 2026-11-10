@@ -22,7 +22,7 @@ Episode URL: https://www.youtube.com/watch?v=vCCnwH8l1nY
 
 [00:00:38] Will: With a lot of like stores and shops and stuff like that. So
 
-[00:00:42] Adam: And a lot of—sorry. Go ahead.
+[00:00:42] Adam: And a lot of - sorry. Go ahead.
 
 [00:00:43] Will: No, no, no. I was just going to say, like one day, Norm and I spent literally 48 hours trying to find a six-inch piece of nichrome wire to build a heating element for a MakerBot.
 
@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=vCCnwH8l1nY
 
 [00:02:19] Will: Yeah.
 
-[00:02:20] Adam: You might want a certain type of toggle switch, but DigiKey doesn't necessarily list—it doesn’t list—exactly how big that toggle switch is. I've ordered things that seemed like they were the right size, and they've shown up, and they were half the size I thought, or double the size I thought.
+[00:02:20] Adam: You might want a certain type of toggle switch, but DigiKey doesn't necessarily list - it doesn’t list - exactly how big that toggle switch is. I've ordered things that seemed like they were the right size, and they've shown up, and they were half the size I thought, or double the size I thought.
 
 [00:02:32] Will: Yeah.
 
@@ -74,7 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=vCCnwH8l1nY
 
 [00:03:00] Adam: I'm making this thing, and I need a chrome ring. That's about 10 inches in diameter. Do you have something like that? And he goes, " Well, what are you making?"
 
-[00:03:10] Will: And then it’s just a—
+[00:03:10] Will: And then it’s just a -
 
 [00:03:10] Adam: You got to pause and you go, " How much do I tell?" Okay, I'm making a spacesuit. And sometimes they'll even go, " Well, you can't make one of those with one of those," or like what? And then other times they'll go, " Yeah, I don't think anyone makes anything like that." Yeah. And I think why would you try and stop me?
 
@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=vCCnwH8l1nY
 
 [00:06:09] Adam: I will also say that there are a couple of great places to look for electronics parts where you can just learn about what they are, and that is the American Science and Surplus catalog.
 
-[00:06:20] Will: Oh, okay. That’s—I’ve never I've never seen that before. I'll have to go check it out.
+[00:06:20] Will: Oh, okay. That’s - I’ve never I've never seen that before. I'll have to go check it out.
 
 [00:06:23] Adam: This is a great place. We should be linking to them right after this podcast. American Science and Surplus, their mothership is in Chicago. I have visited it many times, even long but as as long ago as 18 years ago, and they get exactly what you'd imagine. They get surplus from military, engineering, and scientific industries, and they sell it for pennies on the dollar. And so sometimes there’s things in their catalog. Every time they have a catalog, something is in it. It's like we don't know what this is, but it's this big, this long, and it's got a button and a plug. You you decide what you want to do with it. It's $3.
 
@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=vCCnwH8l1nY
 
 [00:09:17] Will: Wow!
 
-[00:09:17] Adam: And what he did was he took a garbage can. Did he take a—? It was effectively a garbage can.
+[00:09:17] Adam: And what he did was he took a garbage can. Did he take a -? It was effectively a garbage can.
 
 [00:09:24] Will: Was a metal garbage can or a plastic garbage can?
 
@@ -184,7 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=vCCnwH8l1nY
 
 [00:09:34] Will: Okay.
 
-[00:09:34] Adam: And the top of the wooden the box was lined in tin foil, and then the top of the box was just big enough for the frame for his—well, I should go back and explain vacuum forming plastic.
+[00:09:34] Adam: And the top of the wooden the box was lined in tin foil, and then the top of the box was just big enough for the frame for his - well, I should go back and explain vacuum forming plastic.
 
 [00:09:44] Will: This is we're supposed to be here to ask these questions. Yeah, sorry about that.
 
@@ -212,7 +212,7 @@ Episode URL: https://www.youtube.com/watch?v=vCCnwH8l1nY
 
 [00:10:46] Will: It could make your oven smell a little funky.
 
-[00:10:48] Adam: It—no, actually, the the plastic doesn't off gas that badly. Thermoplastics are a pretty innocuous thing to work with. They’re, they’re wonderful, and there's tons of tutorials online for people who've made their own vacuum formers. But this one method was beautiful because most vacuum formers. Involve a heating element that's up high, a frame that can go up to the heating element, and then a vacuum platen where you put your buck. So it's all a one-stop operation. And my, I have two. They both work the same way. I heat the plastic up, it droops down. I can see it drooping. I can feel it getting soft. I put it, pull it down over the form. Turn off the heater. Turn on the vacuum. It sucks to the form, and I've made spaceships. I've made armor. I've made all sorts of things.
+[00:10:48] Adam: It - no, actually, the the plastic doesn't off gas that badly. Thermoplastics are a pretty innocuous thing to work with. They’re, they’re wonderful, and there's tons of tutorials online for people who've made their own vacuum formers. But this one method was beautiful because most vacuum formers. Involve a heating element that's up high, a frame that can go up to the heating element, and then a vacuum platen where you put your buck. So it's all a one-stop operation. And my, I have two. They both work the same way. I heat the plastic up, it droops down. I can see it drooping. I can feel it getting soft. I put it, pull it down over the form. Turn off the heater. Turn on the vacuum. It sucks to the form, and I've made spaceships. I've made armor. I've made all sorts of things.
 
 [00:11:23] Norm: The strength of the vacuum determines the fidelity of the form.
 
@@ -226,9 +226,9 @@ Episode URL: https://www.youtube.com/watch?v=vCCnwH8l1nY
 
 [00:12:07] Adam: Exactly, and it's a it's so important for them. They do animatronics with it.
 
-[00:12:11] Will: Oh yeah. They do—
+[00:12:11] Will: Oh yeah. They do -
 
-[00:12:11] Adam: Form—so I have I've built my own vacuum formers in the past. I bought the one I currently have now, which is a nice big two by three foot vacuum former. Was a kit, a set of plans that someone sold, and it was half built by someone. I bought it half built and completed the build.
+[00:12:11] Adam: Form - so I have I've built my own vacuum formers in the past. I bought the one I currently have now, which is a nice big two by three foot vacuum former. Was a kit, a set of plans that someone sold, and it was half built by someone. I bought it half built and completed the build.
 
 [00:12:28] Will: Okay.
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=vCCnwH8l1nY
 
 [00:13:12] Adam: Yeah.
 
-[00:13:12] Will: And then, but then, if you want to get into more kind of scary materials like resins and stuff like that, then you have to learn a little bit about what's safe to breathe and what's not safe to breathe. And—
+[00:13:12] Will: And then, but then, if you want to get into more kind of scary materials like resins and stuff like that, then you have to learn a little bit about what's safe to breathe and what's not safe to breathe. And -
 
 [00:13:20] Adam: Yeah, and those are that's one where you really it's always best to find a little tutelage for stuff like that. Working with Instacast, which are urethane resins that cast very fast, they're incredibly silicones are pretty easy to use as long as you're using best practices with them. And silicones are totally innocuous; you can breathe that stuff all day long. Urethanes, you can gain a sensitivity. You can get a sensitivity to urethane resins and to epoxy resins. And I've worked with people who have that, and it's compromised their standard of life.
 
@@ -258,7 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=vCCnwH8l1nY
 
 [00:14:34] Adam: I've been meaning to mention this because it really is stunning instruction on a step by step basis about how to make certain kinds of molds, how to cast in them, and if you really follow those directions carefully, you're using great materials and they will not steer you wrong.
 
-[00:14:52] Will: I mean, is there a rule of thumb about where you need to start looking for information before? Is it anytime you're dealing with like an epoxy situation where you have two chemicals that come together and something happens, or is it just you know consult? Is there there's a there's books I know. That you get like at the paint store that tell you what to use where and when and where you—when you need a respirator and all that kind of stuff. But this is something I never, I've never done, so I don’t really know about it.
+[00:14:52] Will: I mean, is there a rule of thumb about where you need to start looking for information before? Is it anytime you're dealing with like an epoxy situation where you have two chemicals that come together and something happens, or is it just you know consult? Is there there's a there's books I know. That you get like at the paint store that tell you what to use where and when and where you - when you need a respirator and all that kind of stuff. But this is something I never, I've never done, so I don’t really know about it.
 
 [00:15:13] Adam: Yeah in general, if you're just doing your hobby stuff, the your basic precautions of a standard NIOSH filter and rubber gloves are going to suffice for pretty much everything you really need to do.
 
@@ -270,23 +270,23 @@ Episode URL: https://www.youtube.com/watch?v=vCCnwH8l1nY
 
 [00:15:44] Adam: We’re not machining beryllium, and we're not creating you know like 500 of something. Yeah, this is really like home hobbyists working with small amounts of the material at a time. It's hard on that level. It's hard to get into too much trouble. Too much trouble.
 
-[00:15:57] Will: Cool. Let’s see. We talked about screws before when we talked about your Sorti—Sortimos.
+[00:15:57] Will: Cool. Let’s see. We talked about screws before when we talked about your Sorti-Sortimos.
 
 [00:16:02] Adam: Yes.
 
-[00:16:03] Will: But I mean, where else do you go to? I mean, it seems like I—I walk around here and I look at stuff and I’m like, oh yeah, I can see why you’d use that. I can see why you’d use that. I can see—and it’s all like, there’s trays of batteries and screws and rivets, and is there, I mean, any place in particular that you go to find that kind of stuff that’s not maybe immediately obvious?
+[00:16:03] Will: But I mean, where else do you go to? I mean, it seems like I - I walk around here and I look at stuff and I’m like, oh yeah, I can see why you’d use that. I can see why you’d use that. I can see - and it’s all like, there’s trays of batteries and screws and rivets, and is there, I mean, any place in particular that you go to find that kind of stuff that’s not maybe immediately obvious?
 
-[00:16:21] Adam: You got to figure out what you need, and you got to figure out how you work. That’s one of the key things. And that’s one of the tricky parts for a young maker, is that you don’t know how—you don’t know what you don’t know.
+[00:16:21] Adam: You got to figure out what you need, and you got to figure out how you work. That’s one of the key things. And that’s one of the tricky parts for a young maker, is that you don’t know how - you don’t know what you don’t know.
 
 [00:16:34] Will: So you have preferred materials that you like to work with.
 
-[00:16:36] Adam: And preferred things you like to do. Right. But so, and when I say things like I’ve spent a lot—I invest in the best of a tool—the trick is, what—why would you do that unless you know that you need that tool?
+[00:16:36] Adam: And preferred things you like to do. Right. But so, and when I say things like I’ve spent a lot - I invest in the best of a tool - the trick is, what - why would you do that unless you know that you need that tool?
 
 [00:16:45] Will: Right.
 
 [00:16:46] Adam: So how do you know that you need that tool? The trick is I bought a really cheap Chinese version at a swap meet or a flea market, and I tried it out, and it turned out to be something I really liked. So then I did invest 150 in the excellent version of it.
 
-[00:16:56] Will: Or like the lathe. I mean, you know that you are proficient with the lathe, and you use it a lot. And anything that you can put on a spindle and turn, you’re—that’s going to be one of your preferred ways to carve material off of it, right?
+[00:16:56] Will: Or like the lathe. I mean, you know that you are proficient with the lathe, and you use it a lot. And anything that you can put on a spindle and turn, you’re - that’s going to be one of your preferred ways to carve material off of it, right?
 
 [00:17:06] Adam: So, so on that front you know flea markets and places like Harbor Freight are great. Warehouses for getting your first tool of the your first of a tool.
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=vCCnwH8l1nY
 
 [00:18:39] Will: Yeah. Well, that's fantastic. Anything else to add before we wrap up? I think we hit a lot of high points here.
 
-[00:18:46] Adam: You know, the thing is, is a lot of my advice comes from the fact that I started out looking for stuff and getting inexpensive tools and learning how to use them before there was an internet. I mean, this is the early '90s, and there really wasn't anything, and—
+[00:18:46] Adam: You know, the thing is, is a lot of my advice comes from the fact that I started out looking for stuff and getting inexpensive tools and learning how to use them before there was an internet. I mean, this is the early '90s, and there really wasn't anything, and -
 
 [00:18:58] Will: Or normal people weren't on it at least.
 

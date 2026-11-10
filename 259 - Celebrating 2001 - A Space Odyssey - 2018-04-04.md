@@ -810,7 +810,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:32:17] Unknown speaker (Adam then Will or Will then Adam then Will): Total jerk on set. Giant bag of nuts to ASMR you. Yeah.
 
-[00:32:20] Adam: That pained look on his face—he actually had diarrhea.
+[00:32:20] Adam: That pained look on his face - he actually had diarrhea.
 
 [00:32:24] Norm: Fake movie commentaries.
 

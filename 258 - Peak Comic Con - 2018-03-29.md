@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:19:05] Adam: That international is gonna be huge, yeah.
 
-[00:19:06] Norm: exactly. It's going to be huge, and actually, I saw Pacific Rim too, and much of that film—it's not a spoiler to say—much of that film is actually in Chinese with subtitles, and I like that. I like that.
+[00:19:06] Norm: exactly. It's going to be huge, and actually, I saw Pacific Rim too, and much of that film - it's not a spoiler to say - much of that film is actually in Chinese with subtitles, and I like that. I like that.
 
 [00:19:17] Will: That's cool.
 

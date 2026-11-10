@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:07:31] Norm: And the format, because it's in first person, is his journal. So he's typing these journals.
 
-[00:07:38] Adam: Well, and so it's yeah, it's a journal or it's recorded, but it's basically as he's trying to survive, he recognizes that this. The chronicle of his survival will be interesting to somebody else who comes to Mars. So, for posterity, he's recording it, and it all—it's a very honest voice.
+[00:07:38] Adam: Well, and so it's yeah, it's a journal or it's recorded, but it's basically as he's trying to survive, he recognizes that this. The chronicle of his survival will be interesting to somebody else who comes to Mars. So, for posterity, he's recording it, and it all - it's a very honest voice.
 
 [00:07:38] Will: Well, but I think it starts out that way, and I think about let's say because he's on. We're going to spoil here.
 
@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:15:27] Will: Yeah.
 
-[00:15:27] Adam: 1,800 miles—it's a long journey,
+[00:15:27] Adam: 1,800 miles - it's a long journey,
 
 [00:15:32] Will: right? Well, and it's in 90-kilometer chunks. Isn’t that amazing, or less in many cases?
 
@@ -486,7 +486,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:19:17] Will: Yeah.
 
-[00:19:19] Adam: Yeah. Well, during his 2,000 kilometer trip—
+[00:19:19] Adam: Yeah. Well, during his 2,000 kilometer trip -
 
 [00:19:21] Will: There's a wonderful moment where you don't exactly know what he's doing. You know he's going to go on a test drive to see how the rover does over a long period of time. And it's a long trip; it's like 20 or 30 days or something like that. And midway through, Andy Weir like lets " Oh, he's going for the Pathfinder, which was the like, or what, 2000 maybe? I guess is when it landed around there, 2002."
 
@@ -596,7 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:23:17] Norm: Right. Like there's the one moment where he's now entered the storm from the Earth perspective, but you never get this big like. Oh my God! He solved this problem. But
 
-[00:23:23] Adam: I can posit all of that—that that's actually happening—and it makes the it's an added sort of subtext that's really moving.
+[00:23:23] Adam: I can posit all of that - that that's actually happening - and it makes the it's an added sort of subtext that's really moving.
 
 [00:23:30] Will: Well, I
 
@@ -690,7 +690,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:27:07] Will: Yeah. Yeah.
 
-[00:27:08] Norm: That's a. They— It's only there for half a chapter.
+[00:27:08] Norm: That's a. They - It's only there for half a chapter.
 
 [00:27:11] Will: It's a sentence. It's like one sentence.
 
@@ -728,7 +728,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:28:22] Will: I thought that. I thought that's what I heard. I didn't know that wasn't.
 
-[00:28:24] Norm: They would have to get rid of the—
+[00:28:24] Norm: They would have to get rid of the -
 
 [00:28:26] Adam: It’s a great choice.
 
@@ -770,7 +770,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:30:48] Will: So in the
 
-[00:30:48] Adam: end, I frankly just  really finish—
+[00:30:48] Adam: end, I frankly just  really finish -
 
 [00:30:49] Will: Yeah,
 
@@ -782,7 +782,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:31:02] Will: The thing that I worry about is the touch is the never ending downer fest of bad things happen to Mark Watney.
 
-[00:31:26] Adam: But again, they're going to have to. They're going to have to. They're going to have to. What am I saying? Have I directed a movie? No, I have not. But I would imagine—
+[00:31:26] Adam: But again, they're going to have to. They're going to have to. They're going to have to. What am I saying? Have I directed a movie? No, I have not. But I would imagine -
 
 [00:31:34] Will: You’ve watched a lot of movies, though.
 

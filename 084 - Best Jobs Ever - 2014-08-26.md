@@ -82,7 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:01:46] Unknown speaker: I got no beef with her.
 
-[00:01:46] Adam: No, I love Rosanna Arquette. It's just a strange juxtaposition. You think documentary Rosanna Arquette? Anyway, it's about being a woman in Hollywood. And specifically, it's about the fact that Debra Winger hasn't done a movie in a long time, and it's very specifically because she didn't like the tenor of the way Hollywood treats women—not even simply a subject matter. And it goes through and interviews all these different actresses who talk openly about how fucked up the whole machine is, and like it's at one point, Martha Plimpton says, " I feel like we are all being lined up and walked past and judged by dudes who we wouldn't fuck in high school."
+[00:01:46] Adam: No, I love Rosanna Arquette. It's just a strange juxtaposition. You think documentary Rosanna Arquette? Anyway, it's about being a woman in Hollywood. And specifically, it's about the fact that Debra Winger hasn't done a movie in a long time, and it's very specifically because she didn't like the tenor of the way Hollywood treats women - not even simply a subject matter. And it goes through and interviews all these different actresses who talk openly about how fucked up the whole machine is, and like it's at one point, Martha Plimpton says, " I feel like we are all being lined up and walked past and judged by dudes who we wouldn't fuck in high school."
 
 [00:02:29] Norm: Wow.
 
@@ -682,7 +682,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:32:36] Will: that's amazing.
 
-[00:32:40] Adam: It was insane. Anyway, stories like that—that's what we're looking for in the comments section.
+[00:32:40] Adam: It was insane. Anyway, stories like that - that's what we're looking for in the comments section.
 
 [00:32:42] Will: Yeah, exactly. Somebody's at the door. We'll see you guys next week. Comments, feedback, etc.
 

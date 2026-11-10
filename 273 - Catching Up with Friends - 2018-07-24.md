@@ -74,7 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:02:03] Simone: Just saying, we're only talking to people we already know.
 
-[00:02:07] Adam: But also, well, so we—I threw a party here in the room the other night. Was it last night?
+[00:02:07] Adam: But also, well, so we - I threw a party here in the room the other night. Was it last night?
 
 [00:02:11] Norm: It was last night,
 
@@ -114,7 +114,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:03:52] Adam: I think that that's exactly what it is I think that I I don't think that Chris is interested in becoming the greatest guitarist in the world I think he's really interested in the personal exploration and the social aspect of music I mean actually haven't spoken to him about it so I'm speaking for him without Without knowing his stance on it, but given how much I know he values community and working with the people around him, it strikes me that he exhibits that value with the desire to play music with his friends.
 
-[00:04:18] Simone: But I feel like they're also—they must have. That was one of the things we talked to Cady about. Just because they must share so many random issues, and like meeting as an astronaut, meeting other astronauts must be like, oh my god, this thing that happened to me. Yeah.
+[00:04:18] Simone: But I feel like they're also - they must have. That was one of the things we talked to Cady about. Just because they must share so many random issues, and like meeting as an astronaut, meeting other astronauts must be like, oh my god, this thing that happened to me. Yeah.
 
 [00:04:18] Adam: The shit only they understand.
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:13:34] Adam: And that's that was really exciting because you don't know you're making a thing, you don't know how it's going to go until you start seeing the footage, and you're like, oh, this flavor is, and it feels familiar, and yet it's really new, and it, and again, seeing these six kids, I'm so inspired by them every day, and to get to show them to the world and the world to them.
 
-[00:14:00] Simone: I'm just really stoked, like having visited set a few times, like yeah, getting to see footage because you just—I mean, I'm just seeing all of you guys working and the kids and stuff like that. It's yeah, it's excited to see, exciting to see the translation.
+[00:14:00] Simone: I'm just really stoked, like having visited set a few times, like yeah, getting to see footage because you just - I mean, I'm just seeing all of you guys working and the kids and stuff like that. It's yeah, it's excited to see, exciting to see the translation.
 
 [00:14:13] Adam: And they're just becoming more and more awesome on camera every single day. Like we're just getting more more genuine awesomeness from them.
 
@@ -370,7 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:16:05] Simone: Oh man!
 
-[00:16:06] Norm: Well, that list of things that you talked about having the armor, having a monster, having a fight of some kind, a prosthetic, that's essentially what we left the United States with—a story outline, you know, a few phone calls between them to see if could it be possible.
+[00:16:06] Norm: Well, that list of things that you talked about having the armor, having a monster, having a fight of some kind, a prosthetic, that's essentially what we left the United States with - a story outline, you know, a few phone calls between them to see if could it be possible.
 
 [00:16:06] Adam: Yeah.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:17:39] Adam: And that's why the parties are like. Throwing a party last night and going to the Weta tonight is like how you catch up.
 
-[00:17:59] Norm: They're social events. They're literally—it's not a place to get hammered. It's a place to literally just catch up. It's like the summer camp.
+[00:17:59] Norm: They're social events. They're literally - it's not a place to get hammered. It's a place to literally just catch up. It's like the summer camp.
 
 [00:17:59] Adam: Exactly.
 

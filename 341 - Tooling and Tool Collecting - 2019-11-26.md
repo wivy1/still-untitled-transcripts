@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:11:06] Unknown speaker (Adam or Zach): Oh, my God.
 
-[00:11:06] Norm: and he got the contract, and he makes everything out of You know—yeah, it’s foam core and small, and he prototypes everything by hand, and then sends it off to Disney, and then they turn into a product. And he was there with his prototypes,
+[00:11:06] Norm: and he got the contract, and he makes everything out of You know - yeah, it’s foam core and small, and he prototypes everything by hand, and then sends it off to Disney, and then they turn into a product. And he was there with his prototypes,
 
 [00:11:20] Adam: wow,
 
@@ -352,7 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:17:48] Zach: Yeah.
 
-[00:17:49] Adam: Is using EDM to—
+[00:17:49] Adam: Is using EDM to -
 
 [00:17:50] Zach: and then there’s also the sink EDM sinking. That's how they do like the molds for the final pass of molds for injection molding. So you can't machine really, really, really deep, really, really hard materials. So they make a special electrode that is the shape, the sort of the negative space, and they slowly plunge it into the machine.
 
@@ -392,7 +392,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:19:14] Unknown speaker: Yeah.
 
-[00:19:14] Zach: You can do those sorts of things. And then there's high temperature plastics that you can actually do lower temperature metals, and you just barely get in there. But yeah, I mean, it's the hard part is when you want. 10,000 of something, or 100,000 of something, or 1 million of something—and they have to be absolutely perfect.
+[00:19:14] Zach: You can do those sorts of things. And then there's high temperature plastics that you can actually do lower temperature metals, and you just barely get in there. But yeah, I mean, it's the hard part is when you want. 10,000 of something, or 100,000 of something, or 1 million of something - and they have to be absolutely perfect.
 
 [00:19:27] Unknown speaker: Right.
 
@@ -422,7 +422,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:20:46] Zach: sure, because every little detent is an undercut.
 
-[00:20:48] Adam: Every single det— so the
+[00:20:48] Adam: Every single det- so the
 
 [00:20:49] Norm: detent's allowed to lock the joints to lock in place.
 
@@ -498,7 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:25:42] Adam: Dude, Mandalorian episode three is fantastic. Also, Watchmen remains phenomenal.
 
-[00:25:48] Norm: Oh God, that last— I got back from DesignerCon at like 12:30 a.m. last night, and I still had to stay up to watch the latest episode, episode six of Watchmen. That that should win all the Emmys. That episode
+[00:25:48] Norm: Oh God, that last - I got back from DesignerCon at like 12:30 a.m. last night, and I still had to stay up to watch the latest episode, episode six of Watchmen. That that should win all the Emmys. That episode
 
 [00:25:59] Adam: it is. There are levels of cultural intersection of talking about important issues that television can do in a way that is way deeper than films can do because you can carry things across long arcs like. Breaking Bad,
 

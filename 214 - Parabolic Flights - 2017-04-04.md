@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:09:27] Adam: Wow!
 
-[00:09:28] Norm: And the staging—I mean, you've seen it. The staging is just incredible. The blocking,
+[00:09:28] Norm: And the staging - I mean, you've seen it. The staging is just incredible. The blocking,
 
 [00:09:31] Adam: Hurricane. I don't ever want to spoil it for anyone, but the staging and you know I've also said this on the podcast. I listened to the album so much before I saw it. I'd worked out most of the blocking in my head,
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:22:26] Norm: Yes. Yeah.
 
-[00:22:28] Adam: The older guy with the little girl—they're so awesome.
+[00:22:28] Adam: The older guy with the little girl - they're so awesome.
 
 [00:22:31] Norm: Yes. Yeah. So a lot of the movie just came out, and definitely I saw three. I think old man Logans, Wolverines, which were very cool.
 

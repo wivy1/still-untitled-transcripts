@@ -28,7 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=imRaVL4L-yQ
 
 [00:00:41] Adam: His tie or his pajamas, or maybe his. I'm sure he wears one of those really long sleeping caps.
 
-[00:00:47] Will: This is one of the—God, really? This is one of the 25th anniversary Hubble images. I don't remember which one, but I think it's the it's a nebula of some kind. It's nebulous what the picture is actually of. I have
+[00:00:47] Will: This is one of the - God, really? This is one of the 25th anniversary Hubble images. I don't remember which one, but I think it's the it's a nebula of some kind. It's nebulous what the picture is actually of. I have
 
 [00:00:59] Adam: nebulous. Well done.
 
@@ -40,23 +40,23 @@ Episode URL: https://www.youtube.com/watch?v=imRaVL4L-yQ
 
 [00:01:04] Norm: and the people listening to the audio who can't see it, I wanna talk about well, last week, of course, if you listened to the podcast, we you know we had a conversation here, and on This Is Only a Test about what's going on in the world, and it was as if you've listened to it was kind of a hard conversation for even us to talk through and verbalize, and I want to thank people for listening because the feedback was really encouraging.
 
-[00:01:33] Adam: The feedback was like so encouraging. I was really really moved by yeah, our conversation felt accepted and processed, and that's what we were doing. We were accepting the situation for what it is and attempting to process it with each other, and of course, we're all doing that with ourselves, but it. It is incumbent on us, as all of us, as citizens, going through this really difficult time in the world, to process this stuff and talk honestly about it. And I I'm very—I was very chuffed to use a British, wonderful British word. I was chuffed to see the response to our conversation last week.
+[00:01:33] Adam: The feedback was like so encouraging. I was really really moved by yeah, our conversation felt accepted and processed, and that's what we were doing. We were accepting the situation for what it is and attempting to process it with each other, and of course, we're all doing that with ourselves, but it. It is incumbent on us, as all of us, as citizens, going through this really difficult time in the world, to process this stuff and talk honestly about it. And I I'm very - I was very chuffed to use a British, wonderful British word. I was chuffed to see the response to our conversation last week.
 
-[00:02:16] Norm: And the responses didn't always have to—they weren't all in agreement with us, which I thought was not only expected but also really welcome. Because even those of you out there who don't fully agree with us or agree with certain things, the responses were thoughtful. There were people who wrote paragraphs and paragraphs sharing how they think about it and how they may have changed. And you could see that, you know, the human, the range of opinions is it's a wide spectrum, and we're hopefully all at least engaging in the dialogue.
+[00:02:16] Norm: And the responses didn't always have to - they weren't all in agreement with us, which I thought was not only expected but also really welcome. Because even those of you out there who don't fully agree with us or agree with certain things, the responses were thoughtful. There were people who wrote paragraphs and paragraphs sharing how they think about it and how they may have changed. And you could see that, you know, the human, the range of opinions is it's a wide spectrum, and we're hopefully all at least engaging in the dialogue.
 
 [00:02:44] Will: I was pleasantly surprised by the lack of sea lioning, which is always nice in those kinds of conversations. I also people were sharing heartfelt. And challenging their preconceptions, which was all all you can ask for, I think, in that kind of context, especially on YouTube. I also got a ton of good book suggestions, and then some resources for talking to kids about what's going on, which is one of the things I had asked for at the end of the show.
 
 [00:03:12] Adam: Yeah. I've been seeing those pop up more and more too.
 
-[00:03:14] Will: Well, it's funny. I ended up just we recorded the show I think Monday last week, and I talked, ended up talking to my daughter on Monday evening because before the show was out, because you couldn't not talk about it based on what was going on, what kids were talking about at school, and her conference calls and stuff like that. And we just, I just explained what was going on. Hey we live in a—I, I explained what was going on to the best that I could, and I didn't pull punches. I didn't simplify things, and she was like, " Oh, well, I knew things were bad for people, you know, but I didn't realize." And we had a good conversation about it. So,
+[00:03:14] Will: Well, it's funny. I ended up just we recorded the show I think Monday last week, and I talked, ended up talking to my daughter on Monday evening because before the show was out, because you couldn't not talk about it based on what was going on, what kids were talking about at school, and her conference calls and stuff like that. And we just, I just explained what was going on. Hey we live in a - I, I explained what was going on to the best that I could, and I didn't pull punches. I didn't simplify things, and she was like, " Oh, well, I knew things were bad for people, you know, but I didn't realize." And we had a good conversation about it. So,
 
-[00:03:48] Adam: you know, the other thing that happened after our podcast last week was last Wednesday, we San Francisco had a massive, massive and Super peaceful protest that started here in the mission and moved through the streets and ended at the mission police station. And I spent about two hours in the middle of that protest. I don't know if you guys attended, but it was really moving and really amazing. And just as one note, I wanted to point out: like everyone's been saying, what about COVID transmission? And I can only speak to the protest that I was in, but here in the Bay Area, there was not a si—. The only face not covered with a mask was a young African American up on a horse in the middle of 18th and Dolores Street. But besides that, every human I could see was wearing a mask. And in the two hours I spent in this dense crowd, I brushed against maybe three people. That's how assiduously the crowd was maintaining a distance, at the same time as being super unified. It was a beautiful experience to be a part of.
+[00:03:48] Adam: you know, the other thing that happened after our podcast last week was last Wednesday, we San Francisco had a massive, massive and Super peaceful protest that started here in the mission and moved through the streets and ended at the mission police station. And I spent about two hours in the middle of that protest. I don't know if you guys attended, but it was really moving and really amazing. And just as one note, I wanted to point out: like everyone's been saying, what about COVID transmission? And I can only speak to the protest that I was in, but here in the Bay Area, there was not a si-. The only face not covered with a mask was a young African American up on a horse in the middle of 18th and Dolores Street. But besides that, every human I could see was wearing a mask. And in the two hours I spent in this dense crowd, I brushed against maybe three people. That's how assiduously the crowd was maintaining a distance, at the same time as being super unified. It was a beautiful experience to be a part of.
 
-[00:04:58] Norm: And just as COVID is a Pandemic and a health crisis—you know this very much. Brutality and the kind of institutional racism that we're talking about is a health crisis as well.
+[00:04:58] Norm: And just as COVID is a Pandemic and a health crisis - you know this very much. Brutality and the kind of institutional racism that we're talking about is a health crisis as well.
 
 [00:05:10] Adam: Well, and to be honest, it's it will go down in history in protest history as one of the like great self owns of all self owns that to battle protesters peacefully protesting police brutality. The police broke out a whole bunch of brutality.
 
-[00:05:30] Will: I mean, yeah, every single one of those videos of people getting shot or pelleted with pepper spray or car—whatever, whatever crowd dispersal. Yeah, reporters getting whacked with shields. All of that illustrates the exact point that people are there for.
+[00:05:30] Will: I mean, yeah, every single one of those videos of people getting shot or pelleted with pepper spray or car - whatever, whatever crowd dispersal. Yeah, reporters getting whacked with shields. All of that illustrates the exact point that people are there for.
 
 [00:05:47] Norm: I mean,
 
@@ -78,7 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=imRaVL4L-yQ
 
 [00:08:30] Norm: It's also a lot, right? Like we had a conference call, a weekly meeting amongst our team Adam, and you know,
 
-[00:08:40] Adam: yes, we have this every week. We have—Tested, the whole tested team gets together on Zoom to chat often to chat about the week and to catch up on our lives and talk about the business of the week and what's going on and etc. This week, man, was so hilarious because it was like the Brady Bunch with the depression filter.
+[00:08:40] Adam: yes, we have this every week. We have - Tested, the whole tested team gets together on Zoom to chat often to chat about the week and to catch up on our lives and talk about the business of the week and what's going on and etc. This week, man, was so hilarious because it was like the Brady Bunch with the depression filter.
 
 [00:09:00] Will: Oh no!
 
@@ -88,7 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=imRaVL4L-yQ
 
 [00:09:13] Norm: And and that's because you know there's a there's so much, and we're all internalizing it, and as active as we can be, and it's it's very draining, right? Which is why we know that a lot of people tune in and watch what we make as a way to kind of balance what's going on in the world and in their own lives. And
 
-[00:09:35] Adam: well, right right, right. I mean, I very much appreciate that people feel like the videos that we're putting out are a safe space to kind of down regulate, and that that's a that feels important, right? That's—I use these videos that I watch for the same exact reason. Kind of get my head straight, and every day carries with it so many weird, hidden, strange feelings, and it was fascinating to see the whole tested team kind of feel downtrodden because it. We're three months into this. We're it's about the 12th week. Am I right?
+[00:09:35] Adam: well, right right, right. I mean, I very much appreciate that people feel like the videos that we're putting out are a safe space to kind of down regulate, and that that's a that feels important, right? That's - I use these videos that I watch for the same exact reason. Kind of get my head straight, and every day carries with it so many weird, hidden, strange feelings, and it was fascinating to see the whole tested team kind of feel downtrodden because it. We're three months into this. We're it's about the 12th week. Am I right?
 
 [00:10:14] Norm: That's right. Yeah.
 
@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=imRaVL4L-yQ
 
 [00:17:32] Will: Yeah, still going every night.
 
-[00:17:34] Adam: And with the veto-proof majority of the City Council of Minneapolis voting to overhaul the police department, it feels like a glimmer of real hope. It feels like the possibility of genuine change, and the number of people carefully explaining what defund the police means on Twitter—that it does not mean we are not going to have any policemen. There are certain—at least some libertarians arguing for that, but I don't think anybody is seriously advocating that as a real-world solution to our problems. And that's not what defund the police means. It makes me, again, the discussion feels substantively slightly different, and that feels hopeful.
+[00:17:34] Adam: And with the veto-proof majority of the City Council of Minneapolis voting to overhaul the police department, it feels like a glimmer of real hope. It feels like the possibility of genuine change, and the number of people carefully explaining what defund the police means on Twitter - that it does not mean we are not going to have any policemen. There are certain - at least some libertarians arguing for that, but I don't think anybody is seriously advocating that as a real-world solution to our problems. And that's not what defund the police means. It makes me, again, the discussion feels substantively slightly different, and that feels hopeful.
 
 [00:18:17] Will: It, it's on one hand, I agree. On the other hand, I watched for four years, half of the people on my feed saying that when Colin Kaepernick took a knee and sports athletes took knees, they were being rude to the police or the flag or whatever nonsense Republicans think. And on the other hand, it was it could not have been made more clear by everyone involved.
 
@@ -218,7 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=imRaVL4L-yQ
 
 [00:22:46] Norm: Spartan and Ronin are a good combo too, right?
 
-[00:22:50] Adam: Ronin, I can't give any—
+[00:22:50] Adam: Ronin, I can't give any -
 
 [00:22:52] Norm: You don't like Ronin? That's that's the Mamet film that you don't like?
 
@@ -260,7 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=imRaVL4L-yQ
 
 [00:24:52] Adam: That's it.
 
-[00:24:53] Will: And but Sylvester Stallone plays the baby face. So David Carradine plays the antihero, and Sylvester Stallone plays the. Babyface, good guy inside the world, who's—
+[00:24:53] Will: And but Sylvester Stallone plays the baby face. So David Carradine plays the antihero, and Sylvester Stallone plays the. Babyface, good guy inside the world, who's -
 
 [00:25:07] Unknown speaker, possibly Adam or Norm: Really.
 
@@ -274,19 +274,19 @@ Episode URL: https://www.youtube.com/watch?v=imRaVL4L-yQ
 
 [00:25:43] Will: It's Corman. Yeah. It is. I think it's maybe the most Corman. Yeah, but I don't know for sure.
 
-[00:25:48] Norm: Speaking of Carradine, of course, famously took the role in Kung Fu that Bruce Lee created as a series, and ESPN put out a two-hour Bruce Lee documentary called Be Water over the weekend, which is. Really worth watching. A lot of incredible footage of him being very young. It's one of those like Bruce Lee. You forget how short of a career he actually had in America because he did so many films in Hong Kong, and he passed away before * Enter the Dragon* actually came out. So that was part of the you know the legend. But there's so much, and so we've seen all basically all the footage. You see the screen test, the famous Green Hornet screen test, all the interviews he had done. But they even so they found some really old archival footage of his first few movies in Hong Kong. So that was that's definitely well recommended. Criterion. Speaking of that, they just put out a pack of Jackie Chan movies, going from like his old like late '70s stuff, the hyena movies to I think ends with * Police Story* and * Police Story* two. Which are—
+[00:25:48] Norm: Speaking of Carradine, of course, famously took the role in Kung Fu that Bruce Lee created as a series, and ESPN put out a two-hour Bruce Lee documentary called Be Water over the weekend, which is. Really worth watching. A lot of incredible footage of him being very young. It's one of those like Bruce Lee. You forget how short of a career he actually had in America because he did so many films in Hong Kong, and he passed away before * Enter the Dragon* actually came out. So that was part of the you know the legend. But there's so much, and so we've seen all basically all the footage. You see the screen test, the famous Green Hornet screen test, all the interviews he had done. But they even so they found some really old archival footage of his first few movies in Hong Kong. So that was that's definitely well recommended. Criterion. Speaking of that, they just put out a pack of Jackie Chan movies, going from like his old like late '70s stuff, the hyena movies to I think ends with * Police Story* and * Police Story* two. Which are -
 
 [00:26:51] Adam: Criterion has also been releasing films by African American directors for free.
 
 [00:26:55] Norm: Yes. Yes.
 
-[00:26:57] Adam: As part of the as contributing to the national discussion and. Everybody doing their part. It—those little gestures mean a lot.
+[00:26:57] Adam: As part of the as contributing to the national discussion and. Everybody doing their part. It - those little gestures mean a lot.
 
-[00:27:08] Norm: Yeah, and then the other recommendation I want to give is I'm finding that Amazon Prime has just a wealth of documentaries that are like these kind of some are high quality, some are the more Kickstarter like documentaries. But they're—
+[00:27:08] Norm: Yeah, and then the other recommendation I want to give is I'm finding that Amazon Prime has just a wealth of documentaries that are like these kind of some are high quality, some are the more Kickstarter like documentaries. But they're -
 
 [00:27:22] Adam: You said one last night.
 
-[00:27:23] Norm: Yes, this one's called Making Waves. It is super high quality. It's directed by a woman who's the professor of sound at USC. I want to say, but it basically is the history of sound in film, starting with the jazz singer. The first time you heard the first talkie, all the way to the creation of Dolby with you know Apocalypse Now, and really profiles Walter Murch and Ben Burtt. Friend of yours—
+[00:27:23] Norm: Yes, this one's called Making Waves. It is super high quality. It's directed by a woman who's the professor of sound at USC. I want to say, but it basically is the history of sound in film, starting with the jazz singer. The first time you heard the first talkie, all the way to the creation of Dolby with you know Apocalypse Now, and really profiles Walter Murch and Ben Burtt. Friend of yours -
 
 [00:27:50] Adam: How exciting. How awesome.
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=imRaVL4L-yQ
 
 [00:32:17] Adam: The world is waking up a little bit, bit by bit. I mean, we're not ready to start having Tested everyone back in the space, but we're starting to talk about what the best practices the film industry is using. It's fascinating. I have a shoot coming up in the next few months, and as it's approaching, obviously, it's a moving target of safety, and we're adjusting to that. But slowly, which is the right pace things are starting to move.
 
-[00:32:49] Norm: Yeah, and like I said, yeah, the thing I hope that we come out of this, whenever we come out of this, is that people will be will have had—use that time wisely to be active, either in activism or to be just be more introspective, or really flex that creativity and
+[00:32:49] Norm: Yeah, and like I said, yeah, the thing I hope that we come out of this, whenever we come out of this, is that people will be will have had - use that time wisely to be active, either in activism or to be just be more introspective, or really flex that creativity and
 
 [00:33:09] Will: learn a skill, make something whatever, do something, make fight entropy.
 

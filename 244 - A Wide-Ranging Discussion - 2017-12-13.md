@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:12:07] Adam: because if they're not on one of those.
 
-[00:12:10] Will: So, so already we're in a situation where the big five company—I can't remember. There's a funny acronym that people use for them, but it's Apple, Amazon, Microsoft, Google, and Facebook, or FANGs—is what they call them. Are controlling a terrifying amount of the internet now, right? Like in terms of advertising revenue, time spent online, stuff like that between Facebook and Google and YouTube and all of these places. You know, the fact that people buy most of their stuff from Amazon now is is like it's becoming problematic.
+[00:12:10] Will: So, so already we're in a situation where the big five company - I can't remember. There's a funny acronym that people use for them, but it's Apple, Amazon, Microsoft, Google, and Facebook, or FANGs - is what they call them. Are controlling a terrifying amount of the internet now, right? Like in terms of advertising revenue, time spent online, stuff like that between Facebook and Google and YouTube and all of these places. You know, the fact that people buy most of their stuff from Amazon now is is like it's becoming problematic.
 
 [00:12:39] Adam: And this is obviously there are a lot of long tail effects from this, but the to me the most important one is call your congressperson.
 
@@ -560,7 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:22:49] Unknown speaker: wow,
 
-[00:22:49] Will: like it was. It seemed like I—I would guess it is the San Francisco Parks and Rec Department, which is an awesome, awesome, awesome Parks and Rec Department. It seems like it may be one of their showcase events for the year because they were all there. Everybody was really excited. Everything was free. I mean, I guess they charge for food, but there were food trucks and stuff. And they had like Ferris wheels and big, giant fiberglass slides and trains, and it was a great family activity. So highly recommended if you see it next year. We'll be going next year again. It was fun.
+[00:22:49] Will: like it was. It seemed like I - I would guess it is the San Francisco Parks and Rec Department, which is an awesome, awesome, awesome Parks and Rec Department. It seems like it may be one of their showcase events for the year because they were all there. Everybody was really excited. Everything was free. I mean, I guess they charge for food, but there were food trucks and stuff. And they had like Ferris wheels and big, giant fiberglass slides and trains, and it was a great family activity. So highly recommended if you see it next year. We'll be going next year again. It was fun.
 
 [00:23:40] Adam: Well done.
 
@@ -908,7 +908,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:34:20] Adam: Oh, and I have not seen it yet, and I have it queued up on my super drive on Blu-ray to watch at home because I've heard it's absolutely incredible.
 
-[00:34:51] Norm: I may have to borrow that from you after—.
+[00:34:51] Norm: I may have to borrow that from you after -.
 
 [00:34:52] Adam: Yeah, yeah, yeah. I I'm I'm really looking forward to it. I mean, obviously Spirited Away is one of my favorite, and I don't have I said this before, but I am actually plotting a new Miyazaki cosplay for San Diego.
 
@@ -1146,7 +1146,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:43:05] Will: look this is a time to be very political.
 
-[00:43:06] Adam: super debilitated by how weirdly unstable everything seems, and it feels like a really important and difficult moment. I was actually I listened to a long interview with Lawrence O'Donnell recently on one of the God, I don't even remember what it was—a long interview with Lawrence O'Donnell, who wrote about the '68 presidential election, which he says he maintains is far nuttier than our most recent election.
+[00:43:06] Adam: super debilitated by how weirdly unstable everything seems, and it feels like a really important and difficult moment. I was actually I listened to a long interview with Lawrence O'Donnell recently on one of the God, I don't even remember what it was - a long interview with Lawrence O'Donnell, who wrote about the '68 presidential election, which he says he maintains is far nuttier than our most recent election.
 
 [00:43:32] Will: Is that the one that Hunter Thompson wrote about the McGovern? That's the McGovern. That's the Nixon one. That's the first Nixon. Yeah,
 
@@ -1398,7 +1398,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:52:25] Adam: Yeah, that's really creepy and strange.
 
-[00:52:27] Norm: We all—it's Black Mirror.
+[00:52:27] Norm: We all - it's Black Mirror.
 
 [00:52:28] Adam: Very sad for humanity.
 

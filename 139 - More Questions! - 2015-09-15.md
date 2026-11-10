@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:06:01] Adam: Yeah, but it doesn't include. So Kill Bill Part One includes a surprise. Kill Bill Part One ends with you realizing that the daughter is still alive. The whole damn affair
 
-[00:06:12] Will: —the call from the French, yeah, from
+[00:06:12] Will: - the call from the French, yeah, from
 
 [00:06:15] Adam: from Bill
 
@@ -236,9 +236,9 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:10:36] Adam: I've talked about this on the podcast before. I'm very clear that if you ask for a picture and I'm out with my kids, I say no. I ask for your forgiveness that I would normally do it on any day, but when I'm out with them, I would rather not.
 
-[00:10:53] Will: Well, you are like Norm and I get a little tiny taste of this, especially if we go to cons and stuff like that where we're more recognizable. But it seems like the neighborhood that you live in is very Kind of generally accommodating, like oh yeah, yeah. People are just—it's just like you're part of the background fixture of the neighborhood now,
+[00:10:53] Will: Well, you are like Norm and I get a little tiny taste of this, especially if we go to cons and stuff like that where we're more recognizable. But it seems like the neighborhood that you live in is very Kind of generally accommodating, like oh yeah, yeah. People are just - it's just like you're part of the background fixture of the neighborhood now,
 
-[00:11:11] Adam: and I am, and people are really chill, and that's that—that's fine in this neighborhood. Look, I'm a fanboy myself and I—I almost and I've told this story too, but I—I remember almost every time I'm meeting someone to whom I'm very important, and they're telling me about it. Is I remember meeting Peter Gabriel when I was like 24, and there are he was so crazy important to me. I remember every second of like the 98 seconds we were talking, and you know I bought all of his albums, and that was an important interaction to me, and I'm interested in making the interaction good with a fan. The thing I I want them they I enjoy a very nice life because of the fans, and I this is the least I can do is is be nice. So there is sometimes an unspoken. Desire from the person you're meeting to achieve in the fastest way possible some kind of deep connection, and that becomes difficult to manage sometimes because it's not necessarily going to happen. But at the same time I really appreciate that the show we made has resonance, and it had resonance for you. And you want to tell me about that. I definitely, I I really, really, genuinely appreciate hearing about that.
+[00:11:11] Adam: and I am, and people are really chill, and that's that - that's fine in this neighborhood. Look, I'm a fanboy myself and I - I almost and I've told this story too, but I - I remember almost every time I'm meeting someone to whom I'm very important, and they're telling me about it. Is I remember meeting Peter Gabriel when I was like 24, and there are he was so crazy important to me. I remember every second of like the 98 seconds we were talking, and you know I bought all of his albums, and that was an important interaction to me, and I'm interested in making the interaction good with a fan. The thing I I want them they I enjoy a very nice life because of the fans, and I this is the least I can do is is be nice. So there is sometimes an unspoken. Desire from the person you're meeting to achieve in the fastest way possible some kind of deep connection, and that becomes difficult to manage sometimes because it's not necessarily going to happen. But at the same time I really appreciate that the show we made has resonance, and it had resonance for you. And you want to tell me about that. I definitely, I I really, really, genuinely appreciate hearing about that.
 
 [00:12:33] Will: The thing that I love well, two things you said a long time ago, I think on the podcast even about meeting somebody that you were really excited to meet, and then you started talking, and you realized that they were also equally excited to meet you, and all awkwardness melted away.
 
@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:12:49] Adam: You know,
 
-[00:12:51] Will: He's very—
+[00:12:51] Will: He's very -
 
 [00:12:51] Adam: so he says this in the in during the interview. He goes, " It's very ridiculous that you're interviewing me and not the other way around." He says, " I'm a much bigger fan of you than you are of me," which I don't think is true, Jason.
 
@@ -540,7 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:24:11] Adam: Yeah, no, everyone's chud.
 
-[00:24:12] Will: Your Durac— Copper Top.
+[00:24:12] Will: Your Durac- Copper Top.
 
 [00:24:14] Adam: Yeah, don't want to go to the Blade Runner world.
 

@@ -64,7 +64,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:03:16] Adam: They have they have a semi or seemingly an automatic rifle made out of plumbing parts that could fire multiple bullets. It's it's like where do these guys get?
 
-[00:03:30] Will: [unclear: Where does most exist / Most exhibit / The world’s most exempt]? It's like they you know they might have had access to the shop, but are they unsu— like? I guess they just have unsupervised. I mean, I've watched Orange Is the New Black. I know how this works. Yeah, you smell that. They have unsupervised time.
+[00:03:30] Will: [unclear: Where does most exist / Most exhibit / The world’s most exempt]? It's like they you know they might have had access to the shop, but are they unsu- like? I guess they just have unsupervised. I mean, I've watched Orange Is the New Black. I know how this works. Yeah, you smell that. They have unsupervised time.
 
 [00:03:41] Adam: One of my neighbors seems to have a
 
@@ -92,7 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:04:26] Norm: and then Adele, the last two with Adele and the Sam Smith song, those openings have kind of paid homage to that with.
 
-[00:04:32] Adam: Well, and this most recent one felt like a good old '70s Bond flick with Daniel Craig shirtless standing there while the little women—
+[00:04:32] Adam: Well, and this most recent one felt like a good old '70s Bond flick with Daniel Craig shirtless standing there while the little women -
 
 [00:04:40] Norm: the opening, yeah, yeah, and squids, what? CG squids also
 
@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:06:03] Adam: you're an angry elf.
 
-[00:06:05] Norm: The opportunity costs—the 350 million one time every year, three years of everyone's life in the making of this movie—
+[00:06:05] Norm: The opportunity costs - the 350 million one time every year, three years of everyone's life in the making of this movie -
 
 [00:06:12] Adam: I must tell you, I enjoyed Spectre, although I recognize it as a lazy entrant into the Bond canon.
 
@@ -534,7 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:24:28] Will: Yeah.
 
-[00:24:28] Adam: So I think in planar forms, and as I've said before, laser cutting, sewing, welding, carpentry—they're all the same thing. They're all moving planar forms together under certain rules and restrictions.
+[00:24:28] Adam: So I think in planar forms, and as I've said before, laser cutting, sewing, welding, carpentry - they're all the same thing. They're all moving planar forms together under certain rules and restrictions.
 
 [00:24:40] Norm: 2D objects and their 3D objects.
 

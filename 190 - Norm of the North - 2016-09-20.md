@@ -86,7 +86,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:02:56] Will: Oh. Oh.
 
-[00:02:57] Adam: So look, this is—
+[00:02:57] Adam: So look, this is -
 
 [00:02:58] Will: This is awkward.
 
@@ -712,7 +712,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:22:59] Norm: They you get hot coffee. We had these the hot packs. There's a sauna. On the ship, of course. Only the Russians really use sauna.
 
-[00:23:06] Will: Well, I mean, the Russian steam baths with the birch branches and all that—that's a thing.
+[00:23:06] Will: Well, I mean, the Russian steam baths with the birch branches and all that - that's a thing.
 
 [00:23:11] Adam: Unless someone comes to kill you when you're naked in the sauna, and then you've got to
 
@@ -722,7 +722,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:23:19] Norm: Oh yeah. Oh yeah. Okay. Yeah. Knife knife fights in the sauna.
 
-[00:23:22] Adam: dude. The naked knife fights—one of the most intense things I've ever seen.
+[00:23:22] Adam: dude. The naked knife fights - one of the most intense things I've ever seen.
 
 [00:23:25] Will: You know what they say about knife fights? You fight with a knife, you're going to get cut.
 

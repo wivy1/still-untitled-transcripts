@@ -82,7 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:02:28] Will: It's the same thing, the same same way it felt like that last year. Like everybody by the end of that, people were sad, but like they were bummed that it was going to be you know as much as a year before they got to do it again or whatever.
 
-[00:02:39] Adam: Yeah, no, I would be too, and I mean everyone's great—the announcers and the technical staff and the editorial.
+[00:02:39] Adam: Yeah, no, I would be too, and I mean everyone's great - the announcers and the technical staff and the editorial.
 
 [00:02:45] Norm: It's also as even though the show is an hour long every week when they air it it's these are long days that they're putting in, and even the audience that gets there because they had kids in the audience, fans of BattleBots
 
@@ -474,7 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:21:02] Norm: This is for the test.
 
-[00:21:03] Adam: This is for the test of Blendo, the first engine start of Blendo sandbags, and we didn't have the horns on it. However, this is—
+[00:21:03] Adam: This is for the test of Blendo, the first engine start of Blendo sandbags, and we didn't have the horns on it. However, this is -
 
 [00:21:09] Will: you mean the horns, the blades?
 

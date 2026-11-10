@@ -576,7 +576,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:27:52] Will: Well, I mean that that's the big question. Is it's unclear to me who the big bad is, right? I mean, we're supposed to think it's Adam Driver,
 
-[00:27:59] Adam: right? I mean, it's pretty. I think I love the way he holds that lightsaber—the kind of aggressive way he's holding it every time it goes on. It's not like. A more elegant age. This is more like I'm going to slice you in half, motherfucker.
+[00:27:59] Adam: right? I mean, it's pretty. I think I love the way he holds that lightsaber - the kind of aggressive way he's holding it every time it goes on. It's not like. A more elegant age. This is more like I'm going to slice you in half, motherfucker.
 
 [00:28:12] Will: But then you also see Rey, looking incredibly angry. Yeah, like she's shooting a blaster and looking super, super pissed. So, I mean,
 
@@ -634,7 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:30:48] Will: he looked like a Mexican wrestler,
 
-[00:30:51] Adam: But—he had a lightsaber with two blades
+[00:30:51] Adam: But - he had a lightsaber with two blades
 
 [00:30:55] Unknown speaker: two blades.
 
@@ -726,7 +726,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:33:15] Adam: Mm-hmm.
 
-[00:33:15] Norm: and new trilogy will get new heroes. But the arc of the story of someone from nowhere becoming an important person and develop becoming a real person—that is what we hope to see.
+[00:33:15] Norm: and new trilogy will get new heroes. But the arc of the story of someone from nowhere becoming an important person and develop becoming a real person - that is what we hope to see.
 
 [00:33:27] Adam: My guess is her parents are dead.
 
@@ -736,7 +736,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:33:33] Adam: That's what you do. You've got to orphan your hero right off the bat.
 
-[00:33:35] Will: But the orphan—I figured the hero is the stormtrooper,
+[00:33:35] Will: But the orphan - I figured the hero is the stormtrooper,
 
 [00:33:38] Adam: John Boyega.
 

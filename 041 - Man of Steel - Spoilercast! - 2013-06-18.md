@@ -24,7 +24,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:00:24] Will: Okay.
 
-[00:00:25] Norm: Rooms also have four sides, so—
+[00:00:25] Norm: Rooms also have four sides, so -
 
 [00:00:28] Adam: I'm gonna need a lot of bubbles. If I'm gonna do a podcast in the bathroom, I'd be taking a bath.
 
@@ -50,7 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:00:54] Will: I did not like that book very much.
 
-[00:00:56] Adam: No, it's not that good. You have to go back and look at his early canon, like Still Life with a Woodpecker, Jitterbug Perfume, Another Roadside Attraction Even Cowgirls Get the Blues. That quartet are all fantastic, and they all involve—Skinny Legs follows this formula too, just not as well. They all involve the secret to the universe being found in something. In Another Roadside Attraction, it's drumming and mushrooms, like just normal food mushrooms.
+[00:00:56] Adam: No, it's not that good. You have to go back and look at his early canon, like Still Life with a Woodpecker, Jitterbug Perfume, Another Roadside Attraction Even Cowgirls Get the Blues. That quartet are all fantastic, and they all involve - Skinny Legs follows this formula too, just not as well. They all involve the secret to the universe being found in something. In Another Roadside Attraction, it's drumming and mushrooms, like just normal food mushrooms.
 
 [00:01:22] Will: Okay. It's an important distinction.
 
@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:02:24] Will: It's not a Dan Brown movie.
 
-[00:02:25] Adam: No, it's way earlier. So those books, I haven't read them since I was like 20, but—
+[00:02:25] Adam: No, it's way earlier. So those books, I haven't read them since I was like 20, but -
 
 [00:02:31] Will: So they wouldn't have had a cardboard box when he, when Jesus died.
 
@@ -84,11 +84,11 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:02:35] Will: Oh, okay.
 
-[00:02:36] Norm: The idea is that someone some—
+[00:02:36] Norm: The idea is that someone some -
 
 [00:02:37] Will: Yeah.
 
-[00:02:37] Adam: Like at some point— A minor functionary, some—
+[00:02:37] Adam: Like at some point - A minor functionary, some -
 
 [00:02:39] Norm: Librarian. Put this in there.
 
@@ -104,13 +104,13 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:02:49] Adam: Oh, I totally know that this is the case.
 
-[00:02:51] Will: Yeah, interesting. Oh, this is a—
+[00:02:51] Will: Yeah, interesting. Oh, this is a -
 
-[00:02:54] Norm: Random tangent to Dan Brown. He wrote that book Angels and Demons—
+[00:02:54] Norm: Random tangent to Dan Brown. He wrote that book Angels and Demons -
 
 [00:02:58] Adam: Yeah.
 
-[00:02:59] Norm: —which popularized the LHC, the Large Hadron Collider.
+[00:02:59] Norm: - which popularized the LHC, the Large Hadron Collider.
 
 [00:03:02] Adam: Oh, it did!
 
@@ -122,11 +122,11 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:03:26] Unknown speaker: Oh, that's awesome.
 
-[00:03:26] Norm: Yeah. And I also found out that in their library, their, in the LHC library, it's all nonfiction. It's all science books, but the only fiction book they have seven copies—
+[00:03:26] Norm: Yeah. And I also found out that in their library, their, in the LHC library, it's all nonfiction. It's all science books, but the only fiction book they have seven copies -
 
 [00:03:37] Adam: Of Dan Brown.
 
-[00:03:38] Norm: —of Dan Brown's Angels and Demons because that's the—popularized LHC.
+[00:03:38] Norm: - of Dan Brown's Angels and Demons because that's the - popularized LHC.
 
 [00:03:42] Adam: That is funny. We gave them the biggest props imaginable. We've been doing some press about it, and talking about Superman's, if he's going to look for the pinnacle of Earth technology to introduce some new alien molecular structures, the LHC is where you would go do it.
 
@@ -136,21 +136,21 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:03:58] Adam: Yeah.
 
-[00:03:59] Norm: Exactly. And speak—speaking of that movie—
+[00:03:59] Norm: Exactly. And speak-speaking of that movie -
 
 [00:04:01] Adam: Speaking of that movie, that, this is one of the best segues ever.
 
-[00:04:04] Will: Wow! It is really amazing. I mean—
+[00:04:04] Will: Wow! It is really amazing. I mean -
 
 [00:04:07] Norm: We went.
 
-[00:04:07] Will: You've been out for a couple of weeks, and you've been working on it this whole time. He comes in, he's—
+[00:04:07] Will: You've been out for a couple of weeks, and you've been working on it this whole time. He comes in, he's -
 
 [00:04:11] Adam: He's been working out. Dan, Dan, Dan, Dan.
 
 [00:04:13] Unknown speaker: I know.
 
-[00:04:14] Will: It's Norm's pulling. He's, he's got the chains—
+[00:04:14] Will: It's Norm's pulling. He's, he's got the chains -
 
 [00:04:17] Norm: With the weights.
 
@@ -176,27 +176,27 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:05:13] Will: Now, see, the trailers are great.
 
-[00:05:15] Norm: People, people would disagree with that—
+[00:05:15] Norm: People, people would disagree with that -
 
 [00:05:17] Adam: Really?
 
-[00:05:17] Norm: —because I think Zack Snyder makes great trailers, or he has a good company.
+[00:05:17] Norm: - because I think Zack Snyder makes great trailers, or he has a good company.
 
 [00:05:21] Adam: And that is undeniable.
 
 [00:05:22] Will: Dude, that Sucker Punch trailer is amazing.
 
-[00:05:24] Norm: Sucker Punch had a great trailer, but not a great movie. Watchmen—
+[00:05:24] Norm: Sucker Punch had a great trailer, but not a great movie. Watchmen -
 
 [00:05:27] Adam: That is such an understatement.
 
-[00:05:29] Will: So kind. Not a great movie is the nicest thing anyone's ever said about—I'm going to put that in the back of the DVD box. Norman Chan, Tested.com. Not a great movie.
+[00:05:29] Will: So kind. Not a great movie is the nicest thing anyone's ever said about - I'm going to put that in the back of the DVD box. Norman Chan, Tested.com. Not a great movie.
 
 [00:05:38] Adam: That's the best one they can get.
 
 [00:05:39] Will: That's what they got.
 
-[00:05:40] Norm: Sorry. Go ahead. Watchmen had an incredible trailer with the Smashing Pumpkins song—
+[00:05:40] Norm: Sorry. Go ahead. Watchmen had an incredible trailer with the Smashing Pumpkins song -
 
 [00:05:45] Adam: And was a beautiful movie.
 
@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:05:57] Adam: The one that happens with Russell Crowe watching Krypton destroyed.
 
-[00:05:59] Norm: Oh yes, and with the Hans Zimmer sound, that song. That has amazing dialogue, but when you watch a movie, you realize those, those perfect pitch pieces of dialogue, they're cut for the trailer and they're extended with extra words here and there—
+[00:05:59] Norm: Oh yes, and with the Hans Zimmer sound, that song. That has amazing dialogue, but when you watch a movie, you realize those, those perfect pitch pieces of dialogue, they're cut for the trailer and they're extended with extra words here and there -
 
 [00:06:14] Adam: And extra spaces between the words.
 
@@ -250,11 +250,11 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:07:30] Will: Michael Shannon.
 
-[00:07:31] Norm: Michael Shannon from—
+[00:07:31] Norm: Michael Shannon from -
 
 [00:07:32] Adam: Michael Shannon.
 
-[00:07:32] Norm: From—
+[00:07:32] Norm: From -
 
 [00:07:32] Adam: Michael Shannon kills in this movie.
 
@@ -262,9 +262,9 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:07:36] Adam: Yeah, that's where he's. And I always get this. I always thought that his face in Boardwalk Empire was a little much for me to take. Right?
 
-[00:07:43] Will: Just because he's a little. He looks like he's just—
+[00:07:43] Will: Just because he's a little. He looks like he's just -
 
-[00:07:45] Adam: The guy was—
+[00:07:45] Adam: The guy was -
 
 [00:07:45] Will: Like shifted a little bit.
 
@@ -284,7 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:08:18] Norm: And consequences.
 
-[00:08:20] Adam: And, well, but showing people moving really fast, I have seen a car accelerate to the speed of sound in front of me. So I have seen—
+[00:08:20] Adam: And, well, but showing people moving really fast, I have seen a car accelerate to the speed of sound in front of me. So I have seen -
 
 [00:08:28] Will: You know what this looks like.
 
@@ -292,7 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:08:30] Will: You have a unique human perspective here.
 
-[00:08:31] Adam: And the movie nails what it feels like to watch something accelerate to an impossible speed right in front of you—
+[00:08:31] Adam: And the movie nails what it feels like to watch something accelerate to an impossible speed right in front of you -
 
 [00:08:36] Norm: And feel that in your heart.
 
@@ -300,13 +300,13 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:08:38] Norm: Okay. That shock.
 
-[00:08:39] Adam: I will say, and I don't know if this is one of the complaints. I haven't read any of the reviews of it. That, a lot, I, I did read one review in the New York Times today, and they said the last 25 minutes are exhausting and the action is so over the top. And I agree that it's exhausting, but I think it works. However—
+[00:08:39] Adam: I will say, and I don't know if this is one of the complaints. I haven't read any of the reviews of it. That, a lot, I, I did read one review in the New York Times today, and they said the last 25 minutes are exhausting and the action is so over the top. And I agree that it's exhausting, but I think it works. However -
 
 [00:08:57] Norm: That's what you're paying for.
 
 [00:08:59] Adam: But yeah, right, exactly. I once went to a Peter. I went to Peter Gabriel's last tour at the Oakland Coliseum, and someone was like the next day. They're like, "Yeah, it was a little theatrical," and I'm like, "I don't know what you spent $150 on."
 
-[00:09:09] Will: You wanted the floating pink balloon, the—
+[00:09:09] Will: You wanted the floating pink balloon, the -
 
 [00:09:12] Adam: Right. The big balloon. I didn't want to just hear the album for that money. Anyway. It was a little upsetting how much of the city they destroyed in the final battle, and I'm thinking this is a city full of people.
 
@@ -322,17 +322,17 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:09:45] Will: It was maybe half a block if you want to be real.
 
-[00:09:47] Adam: Look, I, I also think—
+[00:09:47] Adam: Look, I, I also think -
 
-[00:09:49] Will: Like, you can't have two supermen fighting each other, right, and not have some shit blow up. You—
+[00:09:49] Will: Like, you can't have two supermen fighting each other, right, and not have some shit blow up. You -
 
-[00:09:53] Adam: Can't. It's true. You can't. But I, and I think that Snyder is working off of the same kind of stuff we grew up with Superman II, and like big fights meant big destruction of buildings and stuff. But maybe it's because I have kids, and maybe it's because of 9/11. But I watched it, and I kept on having—that was what kept pulling me out of my suspension of disbelief.
+[00:09:53] Adam: Can't. It's true. You can't. But I, and I think that Snyder is working off of the same kind of stuff we grew up with Superman II, and like big fights meant big destruction of buildings and stuff. But maybe it's because I have kids, and maybe it's because of 9/11. But I watched it, and I kept on having - that was what kept pulling me out of my suspension of disbelief.
 
-[00:10:13] Will: Well, so in Iron Man, they—sorry, I didn't—
+[00:10:13] Will: Well, so in Iron Man, they - sorry, I didn't -
 
 [00:10:16] Adam: No, go ahead.
 
-[00:10:17] Will: In Iron Man they avoid that problem by having the climactic fight at a dock a, at a loading dock, like where boats come up to pick up the cargo—
+[00:10:17] Will: In Iron Man they avoid that problem by having the climactic fight at a dock a, at a loading dock, like where boats come up to pick up the cargo -
 
 [00:10:24] Adam: Right.
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:10:26] Adam: Okay, I haven't seen it.
 
-[00:10:27] Will: And it's completely like, there's no—
+[00:10:27] Will: And it's completely like, there's no -
 
 [00:10:29] Norm: You don't feel consequences.
 
@@ -354,15 +354,15 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:10:45] Unknown speaker: I totally agree.
 
-[00:10:46] Adam: But if that's the case, he's personally, at least with his body being hurled through the air, responsible for the deaths of hundreds, if not a few thousand people—
+[00:10:46] Adam: But if that's the case, he's personally, at least with his body being hurled through the air, responsible for the deaths of hundreds, if not a few thousand people -
 
-[00:10:53] Norm: It is also—
+[00:10:53] Norm: It is also -
 
 [00:10:54] Will: Well, he's bad at it. He's still figuring it out.
 
 [00:10:56] Norm: That's exactly, Will's right. It's an origin story, and you get the consequence of him, the agony when he realizes life in his hands at the end.
 
-[00:11:04] Adam: There are a couple of plot points that are just outright ridiculous, like the idea that they'd let Lois onto the plane. Yeah, right. However, here's what I was thinking, is I was—
+[00:11:04] Adam: There are a couple of plot points that are just outright ridiculous, like the idea that they'd let Lois onto the plane. Yeah, right. However, here's what I was thinking, is I was -
 
 [00:11:14] Will: We should probably point out that there are going to be spoilers here.
 
@@ -378,13 +378,13 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:11:28] Norm: Oh yeah, absolutely.
 
-[00:11:28] Adam: You would. Characters being wherever they need to be is totally acceptable in comic books. It's often less in movies because movies are so much more linear to our lives. And Snyder, I think, is holding very much to a comic book aesthetic, and I think it's one of the better ones. Like, Superman actually starts out—spoiler alert—starts out jumping just like he does in the original.
+[00:11:28] Adam: You would. Characters being wherever they need to be is totally acceptable in comic books. It's often less in movies because movies are so much more linear to our lives. And Snyder, I think, is holding very much to a comic book aesthetic, and I think it's one of the better ones. Like, Superman actually starts out - spoiler alert - starts out jumping just like he does in the original.
 
 [00:11:49] Will: Oh, so he doesn't learn to fly?
 
 [00:11:51] Adam: He doesn't learn to fly immediately. It is a scene in which he learns to fly, but the beginning of that scene is jumping à la Matrix really far.
 
-[00:11:58] Norm: Which is because the movie sets it up where his whole life he's been, his father's asked him to restrain himself and not reveal himself to the world, so he doesn't know his limits. And when his real father Jor-El tells him, you know, these are your abilities, be—make good of them—
+[00:11:58] Norm: Which is because the movie sets it up where his whole life he's been, his father's asked him to restrain himself and not reveal himself to the world, so he doesn't know his limits. And when his real father Jor-El tells him, you know, these are your abilities, be - make good of them -
 
 [00:12:10] Will: Be a crystal or something?
 
@@ -402,15 +402,15 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:12:28] Norm: That he jumps, makes these leaps, and then you have this elation of him really kind of fly.
 
-[00:12:33] Will: I mean, say what you will about Zack Snyder, but the movies that he's done, that have been comic book adaptations, even Watchmen, which changed the ending of Watchmen in a way that I know a lot of people were really offended by. I thought were—that movie was very true to the comic, and it improved that over the original because the original ending was super dumb.
+[00:12:33] Will: I mean, say what you will about Zack Snyder, but the movies that he's done, that have been comic book adaptations, even Watchmen, which changed the ending of Watchmen in a way that I know a lot of people were really offended by. I thought were - that movie was very true to the comic, and it improved that over the original because the original ending was super dumb.
 
-[00:12:51] Norm: I want to talk about, sorry, city destruction again. Going back to that, in the modern age of superhero movies we've seen, and just big blockbusters, we've seen several examples of cities blown up. So—
+[00:12:51] Norm: I want to talk about, sorry, city destruction again. Going back to that, in the modern age of superhero movies we've seen, and just big blockbusters, we've seen several examples of cities blown up. So -
 
 [00:13:02] Adam: And Avengers, very specifically.
 
-[00:13:04] Norm: Yes. And I want to call it three of them that do it very differently. So you have a movie like Avengers, which is set in a very real city. Metropolis is in a fake city. Yeah, Avengers is New York, so you gotta have these landmarks—
+[00:13:04] Norm: Yes. And I want to call it three of them that do it very differently. So you have a movie like Avengers, which is set in a very real city. Metropolis is in a fake city. Yeah, Avengers is New York, so you gotta have these landmarks -
 
-[00:13:15] Adam: That people recognize. Right. I actually found Avengers city destruction stuff to be very painful. I lived in New York for five years. I know all that area really—
+[00:13:15] Adam: That people recognize. Right. I actually found Avengers city destruction stuff to be very painful. I lived in New York for five years. I know all that area really -
 
 [00:13:21] Will: And it's like the three square blocks, right?
 
@@ -426,11 +426,11 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:13:55] Adam: I do too.
 
-[00:13:55] Norm: They didn't—buildings didn't topple in the way they would.
+[00:13:55] Norm: They didn't - buildings didn't topple in the way they would.
 
 [00:13:58] Will: Even when they probably should. Like even when that one of those space worms flew through the building and the building probably should have collapsed.
 
-[00:14:04] Norm: Kind of grazed the building. Structural integrity. And then you have a movie like Transformers—
+[00:14:04] Norm: Kind of grazed the building. Structural integrity. And then you have a movie like Transformers -
 
 [00:14:09] Will: The third one.
 
@@ -442,7 +442,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:14:14] Adam: I haven't seen it.
 
-[00:14:14] Norm: But it has—
+[00:14:14] Norm: But it has -
 
 [00:14:15] Adam: They're gorgeous. I like watching them without sound.
 
@@ -450,21 +450,21 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:14:18] Adam: The effects are gorgeous. Really good.
 
-[00:14:20] Norm: What you mean without a dialogue track? Yeah, you want the audio mixing—
+[00:14:20] Norm: What you mean without a dialogue track? Yeah, you want the audio mixing -
 
 [00:14:24] Adam: Right. Yes.
 
 [00:14:24] Norm: But you don't want the dialogue.
 
-[00:14:26] Adam: Oh no, you know what you could do? What my friend David suggested for Star Wars Episode Two and Spirit Ghosts, Spirits Within—
+[00:14:26] Adam: Oh no, you know what you could do? What my friend David suggested for Star Wars Episode Two and Spirit Ghosts, Spirits Within -
 
 [00:14:35] Norm: Yeah, Final Fantasy.
 
-[00:14:36] Adam: Okay, watch them in French—
+[00:14:36] Adam: Okay, watch them in French -
 
 [00:14:38] Unknown speaker: Oh.
 
-[00:14:38] Adam: —with English subtitles.
+[00:14:38] Adam: - with English subtitles.
 
 [00:14:40] Will: That's not a bad idea.
 
@@ -500,13 +500,13 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:15:27] Unknown speaker: It would be the worst.
 
-[00:15:28] Will: Yeah, and also the stakes in that movie were different. It wasn't that, that movie was about the end of the, like literally the end of the world, not in an abstract it's going to take 30 years kind of way, but a—
+[00:15:28] Will: Yeah, and also the stakes in that movie were different. It wasn't that, that movie was about the end of the, like literally the end of the world, not in an abstract it's going to take 30 years kind of way, but a -
 
 [00:15:37] Unknown speaker: But you mix like ...
 
 [00:15:38] Will: Hey, they're bringing another planet here and they're going to suck our energy.
 
-[00:15:40] Norm: Right? And you mix—
+[00:15:40] Norm: Right? And you mix -
 
 [00:15:41] Will: It's real dumb.
 
@@ -518,7 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:16:03] Will: You mean the Neo-Agent Smith fight?
 
-[00:16:04] Norm: Neo-Agent Smith fight at the end. Because the—
+[00:16:04] Norm: Neo-Agent Smith fight at the end. Because the -
 
 [00:16:05] Will: The Zion fight? There were consequences.
 
@@ -530,7 +530,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:16:24] Adam: Yeah.
 
-[00:16:25] Will: Well, and you just restart that. Maybe—
+[00:16:25] Will: Well, and you just restart that. Maybe -
 
 [00:16:26] Adam: I just felt that the [unclear: constant] that they, that the balance was slightly off at the end of Superman, even though I enjoyed the spit out of it. And what it did was it ended up throwing the off the final moment. Hold on, that's a package. Hold on.
 
@@ -550,9 +550,9 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:17:08] Adam: I suspect that they were tacked on. Yeah, some people wanted more of that.
 
-[00:17:12] Will: You think they're the, oh, what if we don't get a sequel tack-ons, or you think they— No, no, no.
+[00:17:12] Will: You think they're the, oh, what if we don't get a sequel tack-ons, or you think they - No, no, no.
 
-[00:17:16] Norm: Were like—
+[00:17:16] Norm: Were like -
 
 [00:17:16] Adam: they felt like studio notes to me.
 
@@ -564,7 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:17:24] Norm: Or no, hint at Clark, him being Clark Kent, and not just Superman.
 
-[00:17:28] Adam: Which is, I mean—
+[00:17:28] Adam: Which is, I mean -
 
 [00:17:29] Will: oh, so so he's not Clark Kent in this movie.
 
@@ -598,7 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:17:54] Will: Oh, yeah, yeah.
 
-[00:17:54] Norm: He went to do—
+[00:17:54] Norm: He went to do -
 
 [00:17:57] Will: That sounds the same.
 
@@ -616,11 +616,11 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:18:21] Will: Is it like Chris Evans' Captain America?
 
-[00:18:23] Norm: No, no, no, no, no. He is like—
+[00:18:23] Norm: No, no, no, no, no. He is like -
 
 [00:18:23] Adam: Oh, no, no. it's more than Chris Evans' Captain America body.
 
-[00:18:27] Norm: He is a—
+[00:18:27] Norm: He is a -
 
 [00:18:27] Unknown speaker: Wow, really?
 
@@ -638,7 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:18:45] Norm: They're not the wrong quadrant. Target, the four quadrant, they're probably for half the other quadrant.
 
-[00:18:51] Adam: Yeah, yeah, yeah. Totally. But all that being said, I thought the opening was gorgeous. I really liked the design and the tech from Krypton. I liked the character. I thought all the casting in the movie, every last bit. Chris Meloni, Richard Schiff, all the bit parts were really well filled out and formed. J. Jonah, not J. Jonah Jameson, the other name—
+[00:18:51] Adam: Yeah, yeah, yeah. Totally. But all that being said, I thought the opening was gorgeous. I really liked the design and the tech from Krypton. I liked the character. I thought all the casting in the movie, every last bit. Chris Meloni, Richard Schiff, all the bit parts were really well filled out and formed. J. Jonah, not J. Jonah Jameson, the other name -
 
 [00:19:13] Norm: Perry White.
 
@@ -990,7 +990,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:28:50] Will: Mission Impossible Three,
 
-[00:28:50] Norm: where they're in I think Shanghai or— Yeah. Some Asian city. Yeah, and he is running to his wife from one place to next. Yeah. And it's like a long take, and the great thing that J. J. Abrams as a director did has this dolly shot where he's across a river and he's tracking Tom Cruise running across the screen across the river with a long lens,
+[00:28:50] Norm: where they're in I think Shanghai or - Yeah. Some Asian city. Yeah, and he is running to his wife from one place to next. Yeah. And it's like a long take, and the great thing that J. J. Abrams as a director did has this dolly shot where he's across a river and he's tracking Tom Cruise running across the screen across the river with a long lens,
 
 [00:29:07] Unknown speaker: Yeah.
 

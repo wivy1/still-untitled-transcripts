@@ -96,7 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:04:12] Adam: And it also subverts this dominant idea that a creator comes up with an idea, and that's the hard part, and then they implement it, and that's somehow just the fait accompli. And it's famously exemplified by the idea that we have in the Western culture of Michelangelo going, well, I just took away all the parts of marble that didn't look like David, and then I created. And it's like, no, no, no, no, no, no. We actually have a sculpture of Michelangelo's mid-process, and we can see him changing the move the position of the head and the position of one of the arms. It is a organic process, and the reason we as creators and makers go Towards it is because we never end up where we think we're going to end up.
 
-[00:04:55] Jeremy Williams: I think that's super fascinating because I don't think most people appreciate the amount of trial and error involved in professional works, especially when they see people like J. J. Abrams or yourself. That everything we see that you create is just—it's miraculous. It's perfect when it comes out, but the process is not always what people you know can appreciate.
+[00:04:55] Jeremy Williams: I think that's super fascinating because I don't think most people appreciate the amount of trial and error involved in professional works, especially when they see people like J. J. Abrams or yourself. That everything we see that you create is just - it's miraculous. It's perfect when it comes out, but the process is not always what people you know can appreciate.
 
 [00:05:12] Adam: Not only that, but the process is just so much more complicated and so much more winding. When we talk about failure with kids, we need to teach kids to fail safely. We mean exactly that. We mean you're not going to end up where you think you are, and that's actually the point. And I know from all my friends that have worked with J. J. on the Star Wars films, he is always up for a better solution. He's always interested in a different way of doing something. He is when he knows how to do it. He is he moves forward with all of his confidence, and if he's not sure, he's taking opinions and he's making the best call that he can. And he's, as he said on stage. Every day he shows up on set and he's like, " This one's going to be easy." He totally whack.
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:10:29] Adam: we got some insulting tweets about that.
 
-[00:10:30] Norm: I don't know why was that the case. So we were hooked up with a fan of the site, Tommy Williamson, who runs website BrickNerd dot com, and. The Lego community—they're ravenous. They're like—they're obsessed. They're in the best way possible. And this guy Tommy came up to our office, to our shop, and we—he had one of the, I think, the dozen only Millennium Falcon UCS. This is the Lego set with 7,500 pieces, $800. People can buy it in the states at the end of the month. He got a review unit, and we helped him build it, and it was like a two-day,
+[00:10:30] Norm: I don't know why was that the case. So we were hooked up with a fan of the site, Tommy Williamson, who runs website BrickNerd dot com, and. The Lego community - they're ravenous. They're like - they're obsessed. They're in the best way possible. And this guy Tommy came up to our office, to our shop, and we - he had one of the, I think, the dozen only Millennium Falcon UCS. This is the Lego set with 7,500 pieces, $800. People can buy it in the states at the end of the month. He got a review unit, and we helped him build it, and it was like a two-day,
 
 [00:11:08] Unknown speaker (Adam or Norm): 12 solid hours, 12 solid hours.
 
@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:11:20] Adam: I tell you, if you pulled up in some like McLaren sports car, you might not be able to drive away with the Lego set unless you didn't have a passenger. Let's just put it that way.
 
-[00:11:30] Norm: Right. The instruction manual is seven pounds. I love like these little tidbits, right? Like, but it was such an enjoyable build, both because of the finished model's beautiful and it being the biggest, the most pieces for any official Lego set, but also. The collaboration that we got to—you know—we had a dozen people total working on it.
+[00:11:30] Norm: Right. The instruction manual is seven pounds. I love like these little tidbits, right? Like, but it was such an enjoyable build, both because of the finished model's beautiful and it being the biggest, the most pieces for any official Lego set, but also. The collaboration that we got to - you know - we had a dozen people total working on it.
 
 [00:11:50] Adam: Super fun,
 
@@ -428,7 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:27:43] Norm: Yeah.
 
-[00:27:43] Adam: And I feel like Ansel Elgort—that's the name of the lead kid. He's fantastic. In the second half of the movie, like as an actor, I think he's really terrific and delivers that role and is excellent. In the very beginning of the movie, he's asked hi- his. It's almost a little like a music video. There's a little bit of that aspect to it. The film gets into this very almost mannerist territory and
+[00:27:43] Adam: And I feel like Ansel Elgort - that's the name of the lead kid. He's fantastic. In the second half of the movie, like as an actor, I think he's really terrific and delivers that role and is excellent. In the very beginning of the movie, he's asked hi- his. It's almost a little like a music video. There's a little bit of that aspect to it. The film gets into this very almost mannerist territory and
 
 [00:28:26] Norm: it's a musical.
 
