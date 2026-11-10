@@ -1,0 +1,168 @@
+name: Fix punctuation
+
+on:
+  push:
+    branches:
+      - automation/fix-punctuation-20261109
+
+permissions:
+  contents: write
+
+jobs:
+  fix-punctuation:
+    runs-on: ubuntu-latest
+    steps:
+      - name: Check out main
+        uses: actions/checkout@v4
+        with:
+          ref: main
+          fetch-depth: 0
+
+      - name: Replace em dashes
+        shell: bash
+        run: |
+          python <<'PY'
+          from pathlib import Path
+          import re
+
+          EM_DASH = "\u2014"
+          WORD = r"[A-Za-z0-9]+(?:['’][A-Za-z0-9]+)*"
+          ASCII_PAIR = re.compile(rf"(?<![A-Za-z0-9'’])({WORD})-({WORD})(?![A-Za-z0-9'’])")
+          LEFT_WORD = re.compile(rf"({WORD})$")
+          RIGHT_WORD = re.compile(rf"^({WORD})")
+          CLOSING_PUNCTUATION = set('”’\"\')]}.,;:!?')
+          OPENING_PUNCTUATION = set('“‘\"\'([{')
+
+          files = sorted(
+              path for path in Path('.').rglob('*.md')
+              if '.git' not in path.parts
+          )
+
+          known_hyphenated = set()
+          originals = {}
+          for path in files:
+              text = path.read_bytes().decode('utf-8')
+              originals[path] = text
+              for match in ASCII_PAIR.finditer(text):
+                  known_hyphenated.add(
+                      f"{match.group(1)}-{match.group(2)}".lower()
+                  )
+
+          def is_word_connection(line: str, index: int) -> bool:
+              if index == 0 or index + 1 >= len(line):
+                  return False
+              if line[index - 1].isspace() or line[index + 1].isspace():
+                  return False
+
+              left_match = LEFT_WORD.search(line[:index])
+              right_match = RIGHT_WORD.match(line[index + 1:])
+              if not left_match or not right_match:
+                  return False
+
+              left = left_match.group(1)
+              right = right_match.group(1)
+              candidate = f"{left}-{right}".lower()
+
+              if candidate in known_hyphenated:
+                  return True
+
+              numeric_token = re.compile(r"(?=.*\d)[A-Za-z0-9]+$")
+              return bool(numeric_token.fullmatch(left) and numeric_token.fullmatch(right))
+
+          def replace_line(line: str):
+              output = []
+              index = 0
+              spaced = 0
+              joined = 0
+
+              while index < len(line):
+                  char = line[index]
+                  if char != EM_DASH:
+                      output.append(char)
+                      index += 1
+                      continue
+
+                  if is_word_connection(line, index):
+                      output.append('-')
+                      joined += 1
+                      index += 1
+                      continue
+
+                  while output and output[-1] in ' \t':
+                      output.pop()
+
+                  previous = output[-1] if output else ''
+                  if previous and previous not in '\r\n' and previous not in OPENING_PUNCTUATION:
+                      output.append(' ')
+                  output.append('-')
+
+                  next_index = index + 1
+                  while next_index < len(line) and line[next_index] in ' \t':
+                      next_index += 1
+
+                  following = line[next_index] if next_index < len(line) else ''
+                  if following and following not in '\r\n' and following not in CLOSING_PUNCTUATION:
+                      output.append(' ')
+
+                  spaced += 1
+                  index = next_index
+
+              return ''.join(output), spaced, joined
+
+          changed = []
+          spaced_total = 0
+          joined_total = 0
+
+          for path, original in originals.items():
+              if EM_DASH not in original:
+                  continue
+
+              rebuilt = []
+              file_spaced = 0
+              file_joined = 0
+              for line in original.splitlines(keepends=True):
+                  replaced, spaced, joined = replace_line(line)
+                  rebuilt.append(replaced)
+                  file_spaced += spaced
+                  file_joined += joined
+
+              updated = ''.join(rebuilt)
+              if EM_DASH in updated:
+                  raise RuntimeError(f"Em dash remained in {path}")
+              if updated == original:
+                  raise RuntimeError(f"No change made despite em dash in {path}")
+
+              path.write_bytes(updated.encode('utf-8'))
+              changed.append((path, file_spaced, file_joined))
+              spaced_total += file_spaced
+              joined_total += file_joined
+
+          remaining = []
+          for path in files:
+              count = path.read_bytes().decode('utf-8').count(EM_DASH)
+              if count:
+                  remaining.append((path, count))
+          if remaining:
+              raise RuntimeError(f"Em dashes remain: {remaining}")
+          if not changed:
+              raise RuntimeError('No em dashes found; refusing to create an empty commit')
+
+          total = spaced_total + joined_total
+          print(
+              f"Replaced {total} em dashes across {len(changed)} files: "
+              f"{spaced_total} idea dividers and {joined_total} word connections/ranges."
+          )
+          for path, spaced, joined in changed:
+              print(f"{path}: {spaced + joined} ({spaced} spaced, {joined} joined)")
+          PY
+
+      - name: Commit and push
+        shell: bash
+        run: |
+          git config user.name "github-actions[bot]"
+          git config user.email "41898282+github-actions[bot]@users.noreply.github.com"
+          git add -- '*.md'
+          git diff --cached --check
+          git commit -m "fixed punctuation"
+          git push origin HEAD:main
+          git push origin --delete automation/fix-punctuation-20261109 || true
