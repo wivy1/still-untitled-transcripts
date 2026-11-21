@@ -17,9 +17,9 @@ This archive was created because Adam Savage's involvement in Industrial Light a
 5. Generate two additional readings using MOSS-Transcribe-Diarize in BF16 and Whisper large-v3 in FP16 through faster-whisper. *(Each model recovered wording or short replies that the others missed.)*
 6. Join sections into timestamped, speaker-labelled turns, retaining all three transcriptons for comparison.
 
-### LLM-guided Cleanup
+### Cleanup
 
-7. Provide GPT 6 Pro with the transcriptions, episode metadata, and a specialist knowledge-base containing verified names, titles, news events, and accumulated podcast lore.
+7. Compile transcripts, episode metadata, and a specialist knowledge-base containing verified names, titles, news events, and accumulated podcast lore.
 8. Read all three transcripts in full, using Qwen as the starting sequence and comparing alternative wording in context. Resolve disagreements from supporting evidence.
 9. Check names, titles, equipment, and terminology against the knowledge-base. Research unresolved references. *(For example, “Gene Smart” → “Jean Smart.”)*
 10. Resolve speaker identities using introductions, direct address, conversational context, and acoustic evidence. Retain “Unknown speaker” where identity remains uncertain.
